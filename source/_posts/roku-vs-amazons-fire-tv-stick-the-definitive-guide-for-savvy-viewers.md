@@ -1,7 +1,7 @@
 ---
 title: Roku Vs. Amazon's Fire TV Stick – The Definitive Guide for Savvy Viewers
-date: 2024-08-01 21:39:27
-updated: 2024-08-03 11:55:53
+date: 2024-08-03T23:04:18.574Z
+updated: 2024-08-04T23:04:18.574Z
 categories:
   - BestProducts
 description: This Article Describes Roku Vs. Amazon's Fire TV Stick – The Definitive Guide for Savvy Viewers
@@ -13,6 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/iH3b2Baxl75iV0ax5AOPq9VwRoo=/540x405/fi
 
 4.6
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Amazon Fire TV Cube
 
 ![Fire TV Cube (2nd Generation)](https://www.lifewire.com/thmb/K_gugGZBSXUKggkCqocQEu_IF2U=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FireCubeTV_HeroSquare-484d7d80c4354681968a1ff7d19b9676.jpg)
@@ -39,8 +42,14 @@ Lifewire/Emily Ramirez
 
 4.6
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Amazon Fire TV Cube
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Fire TV Cube (2nd Generation)](https://www.lifewire.com/thmb/WzC13ETTqm-8PU2bc8-jh9O3G7c=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FireCubeTV_HeroSquare-484d7d80c4354681968a1ff7d19b9676.jpg)
 
 Lifewire/Emily Ramirez
@@ -64,10 +73,16 @@ Lifewire/Emily Ramirez
 
  Updated for 2019, the Amazon Fire TV Cube brings powerful hardware that can stream thousands of channels and apps in full[4K HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) with Dolby Vision encoding. The glowing cube also takes voice commands, basically making it an Echo speaker, but is Alexa’s brainpower and its beefy hexacore processor enough to justify its relatively hefty price tag? I spent 15 hours putting it to the test, read on to see how I liked it.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Fire TV Cube (2nd Generation)](https://www.lifewire.com/thmb/XdJMKZTDX0bcXYVWQa5F4sXhnt0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FireCubeTV_HeroHoriz-bb386a84025b49d2a22d3d34c6974007.jpg)
 
  Lifewire/Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Futuristic design powered by Alexa**
 
  The Fire TV Cube is a cute, futuristic-looking block that will stand out on your home console despite its 4-inch sides. On the outside, it’s virtually unchanged from the first-generation model. Across the top, there’s a blue LED bar that lights up whenever the Cube takes action. The sides of the cube have a glossy black finish that’s a fingerprint magnet. There’s volume and menu buttons on the top, as well, but we don’t foresee a lot of use for them considering that the Cube comes with a remote. In the back, there’s an[HDMI connector](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) , a power adapter port, and a micro USB port.
@@ -100,6 +115,9 @@ Lifewire/Emily Ramirez
 
 Lifewire/Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ## **Software: Heavily biased toward Amazon services**
 
  Software is simultaneously Fire TV’s strongest and weakest point. On the one hand, the quantity of content available on the Fire TV platform is astounding—there’s over 5,000 apps to choose from, as well as a meager library of simple games to play. If you’re looking for something, you will find it.
@@ -118,6 +136,10 @@ Lifewire/Emily Ramirez
 
 Lifewire/Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ## **Price: On the expensive side**
 
  The Fire TV Cube costs $120, which is frankly a little expensive compared to the Fire TV Stick 4K or an Amazon Echo. However, if you want an Echo that’s also a media player, the Cube is your best option. It comes with excellent performance, control for IoT devices, built-in speaker and mic, and svelte looks. While it’s not the best value streaming device, it’s certainly a versatile and well-featured one.

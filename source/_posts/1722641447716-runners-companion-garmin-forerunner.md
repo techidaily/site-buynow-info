@@ -1,7 +1,7 @@
 ---
 title: Runner's Companion Garmin Forerunner
-date: 2024-08-02 14:28:19
-updated: 2024-08-03 11:34:39
+date: 2024-08-03T23:03:57.095Z
+updated: 2024-08-04T23:03:57.095Z
 categories:
   - BestProducts
 description: This Article Describes Runner's Companion Garmin Forerunner
@@ -72,6 +72,9 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Understated and easy to fit in with most decors**
 
  The Eero Pro is a mesh system that allows you to use a couple of modular components to build out a wireless network that works with your living space or office. The main component is the Eero Pro router itself, which is a sleek little unit that’s significantly smaller than most routers. It’s also a lot simpler, with just one indicator light, no external ports or antennas, and only two Ethernet ports.
@@ -80,6 +83,9 @@ Lifewire / Jeremy Laukkonen
 
  In the configuration we tested, we set up a basic network with a single Eero Pro and then connected two beacons. Depending on the layout of your home or office, you can stick with just a single beacon, add multiple beacons, or even use multiple Eero Pro routers, with the additional units in bridge mode.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/thmb/pGn5ftrLbUu_97xnS8kZVcV7DvY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4140134_EeroPro-2-e8f8a2f558b54c20b642da56818884aa.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -94,6 +100,9 @@ Lifewire / Jeremy Laukkonen
 
  The one issue with Eero that may bother some people is that you have to sign up for an account during the setup process. This includes providing Eero with your phone number so that they can send you a confirmation code. It was a quick and easy process, but it was a bit of an annoyance all the same.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Connectivity: Tri-band base stations and dual-band beacons**
 
  The Eero Pro is a[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) tri-band router that broadcasts one 2.4GHz channel and two 5GHz channels, and the beacons are dual-band with one 2.4 GHz and one 5GHz channel each. Unlike most routers, Eero does not provide an AC rating for the Eero Pro. They do, however, give some numbers.
@@ -108,10 +117,16 @@ Lifewire / Jeremy Laukkonen
 
  The biggest shortfall of the Eero Pro, in terms of connectivity, is that it only has two Ethernet ports. One connects the router to your modem, and the other can be connected to a device like a computer to provide a wired internet connection. If you want to connect other devices via Ethernet, you’ll need a[network switch](https://www.lifewire.com/definition-of-network-switch-817588) .
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/thmb/L8g27SmIGtD8G-19FjJtPqPeQIQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4140134_EeroPro-4-5e47062bd2f141d69819fa37cf2c1899.jpg)
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Network Performance: Wireless coverage is great but a little slow**
 
  We tested network throughput performance on a Mediacom gigabit internet connection, testing both the wired Ethernet connection and the automatic system that’s designed to automatically switch between 2.4GHz and 5GHz based on speed and performance.
@@ -134,6 +149,9 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Software: Fantastic phone app, no web interface**
 
  Eero provides a smartphone app that you can install on your iPhone or Android device. You need the app to set the network up initially, and you also have to use the app to manage the network later on. The app is very easy to understand and use, but it is important to note that this is the only method of managing your Eero Pro. Most routers have a web interface, but Eero doesn’t.
@@ -148,12 +166,18 @@ Lifewire / Jeremy Laukkonen
 
  Eero Secure is a subscription service that you receive a free trial for when you first set up your network. It automatically scans for problems, blocks threats, and blocks ads at the DNS level, and you can see details about what it has blocked through the app. It also has content filters and parental controls, but we’ll address that in the next section.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Parental Controls: Advanced features require a subscription**
 
  Eero Pro comes with powerful built-in parental controls that you manage through the app. It works by creating profiles for each member of your family, assigning devices to those profiles, and then placing content blocks and scheduling internet pauses for your kids if you don’t want them getting online during homework time or in the middle of the night.
 
  The built-in parental controls are great, but the catch is you have to pay extra for this feature. If you want to access parental controls, in addition to threat scanning and blocking, ad blocking, and advanced network security, it will set you back $3.99/month or $29.99/year.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: On the expensive side**
 
  In the configuration we tested, with a single Eero Pro and two beacons, this system has an MSRP of $319\. A single Eero Pro has an MSRP of $159, and beacons have an MSRP of $149\. You can also buy Eero Pro routers and beacons in a variety of other configurations, like three routers, a router and a single beacon, and others.

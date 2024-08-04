@@ -1,7 +1,7 @@
 ---
 title: "Exceptionally Capable, Ultra Portable: An In-Depth Look at the Performance and Features of the Dell XPS 13 2-in-1 Convertible Laptop"
-date: 2024-07-30 18:30:27
-updated: 2024-08-01 11:43:11
+date: 2024-08-03T23:04:48.115Z
+updated: 2024-08-04T23:04:48.115Z
 categories:
   - BestProducts
 description: "This Article Describes Exceptionally Capable, Ultra Portable: An In-Depth Look at the Performance and Features of the Dell XPS 13 2-in-1 Convertible Laptop"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/9e326dc97d7b2a04840d4bac29152fee0a09ec2e5
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ## Z-Edge Z3 Plus Dashcam
 
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/OL3QdFJ2E8lLE0w3IGyxR-rAD4Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
@@ -36,8 +39,14 @@ Lifewire / Danny Chadwick
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## Z-Edge Z3 Plus Dashcam
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/sE7fZzxcPjZXohzroVqLVr5l4qs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
 
 Lifewire / Danny Chadwick
@@ -65,6 +74,9 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Small but solid**
 
  If you didn’t know this device was a dashcam, you could be forgiven for mistaking it for a point-and-shoot camera. It has a three-inch screen, and while that is small by the standards of today’s mobile devices, it’s a great size for your windshield. All the indicator lights and icons fit nicely on the screen and you only need to glance at it briefly while you drive to see that it’s recording.
@@ -91,6 +103,9 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Super straightforward**
 
  If you’re even passingly familiar with digital cameras, you can have the Z3 Plus set up and ready to go within a few minutes of taking it out of the box. And while you should read the user manual before turning it on, you probably won’t run into any major difficulties if you don’t. The most time-consuming part of the setup is running the power cable up and around your windshield so it’s not dangling down to the power supply while you drive. This requires you to tuck the cord under your car’s upholstery and panels, which takes about 20 minutes to complete.
@@ -101,6 +116,9 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ## **Camera Quality: Beyond high definition**
 
  The Z3 Plus has outstanding recording abilities for a camera this size and can capture footage up to 2560 x 1440 resolution. However, this will fill up your camera quite fast, so you can set it as low as 720p if you don’t need super high-resolution footage. You can also adjust the frame rate to 30 and 60 frames per second (for resolutions exceeding 1920 x 1080, only 30 fps is available).

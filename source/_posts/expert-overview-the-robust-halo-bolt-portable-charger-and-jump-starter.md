@@ -1,7 +1,7 @@
 ---
 title: "Expert Overview: The Robust Halo Bolt Portable Charger & Jump Starter"
-date: 2024-07-31 18:16:33
-updated: 2024-08-01 12:59:59
+date: 2024-08-03T23:04:20.242Z
+updated: 2024-08-04T23:04:20.242Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Overview: The Robust Halo Bolt Portable Charger & Jump Starter"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/0132287bf7d51b07521a43a3870f625dc6e6364d7
 
 ## ZMI PowerPack 20000
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/A__IgeAPd2C0e_2iExqDqXJAGB8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-HeroSquare-492efa01c9e54737bfa9d16223ff9d82.jpg)
 
  Lifewire / Andrew Hayward
@@ -61,10 +64,16 @@ thumbnail: https://thmb.techidaily.com/0132287bf7d51b07521a43a3870f625dc6e6364d7
 
  I tested ZMI’s PowerPack 20000 time and again over more than a week across multiple devices, measuring the charging speeds and comparing it to other similar power banks.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/jITowxAWHBUo5WF3Y-XI6lKQNQE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-05-02d76c869b864ef0abddfe824cfbf53a.jpg)
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Small but powerful**
 
  The ZMI PowerPack 20000’s size is easily one of its biggest selling points. While it is a little heavy at 14.3 ounces, this power bank is the approximate width and height of a large smartphone, measuring up very closely to the size of my Apple iPhone 11 Pro at 6.3 x 3.2 inches (HWD). Of course, the 0.8-inch thickness is quite a bit larger than any phone today, but unlike most laptop-friendly charging banks, ZMI’s can still fit into a pocket or handbag with ease.
@@ -85,6 +94,9 @@ Lifewire / Andrew Hayward
 
  There’s not much to the setup process here. Using the included USB-C to USB-C cable, simply plug one end into the power bank and the other into an AC adapter that you have handy—like one for a laptop, tablet, or[smartphone](https://www.lifewire.com/best-smartphones-4043781) . Once the four lights on the side are fully illuminated, then the battery pack is fully charged. Simply plug in devices using their respective cables to charge them using the power within the ZMI PowerPack 20000.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ## **Charging Speed and Battery: It keeps going**
 
  The ZMI PowerPack 20000 has a hearty 20,000mAh cell within, and it charged my devices quickly without fully depleting the brick. I charged a[2019 MacBook Pro](https://www.lifewire.com/apple-macbook-pro-13-inch-2019-review-4770116) (13-inch) laptop from 0 percent to 100 percent in just 1 hour, 53 minutes using the ZMI PowerPack 20000’s USB-C PD port, with an effective charging rate of 42.92W (14.8Vx2.9A). When the charging process was complete, the PowerPack still had one light illuminated, indicating that there was still a little bit of battery life remaining.
@@ -97,12 +109,18 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ## **Price: It’s a bargain**
 
  With larger laptop-friendly battery packs sometimes selling for well north of $100, the $70 price point of the ZMI PowerPack 20000 is an incredibly attractive deal. Granted, the maximum USB-C PD output of 45W won’t charge some super-powered laptops—but for compatible laptops, as well as smartphones, tablets, and other portable electronics, it’s very well priced.
 
  With larger laptop-friendly battery packs sometimes selling for well north of $100, the $70 price point of the ZMI PowerPack 20000 is an incredibly attractive deal.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **ZMI PowerPack 20000 vs Mophie Powerstation AC**
 
  ZMI’s PowerPack 20000 is about half the size and weight of the[Mophie Powerstation AC](https://www.lifewire.com/mophie-powerstation-ac-review-5071990) (see on[Amazon](https://www.amazon.com/dp/B078GYSBVR?linkCode=ogi&th=1&psc=1&tag=lifewire-onsite-prod-20&ascsubtag=5071991%7Cn210c12f6fa164d19b551ef300c5549c018%7C) ), which has a AC power port on one end, not to mention a larger 24,000mAh cell. Those are both stellar benefits, plus the fabric-lined exterior gives it a distinctive allure. That said, Mophie’s pack sells for $200, and we’d only recommend it if you must have the AC power outlet for charging a power-hungry laptop. If the ZMI PowerPack 20000 will meet your charging needs, however, it’s a much better bargain.

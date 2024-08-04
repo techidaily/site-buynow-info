@@ -1,7 +1,7 @@
 ---
 title: Ricoh's Theta SC2 Camera – A 360-Degree Game Changer
-date: 2024-07-31 19:47:47
-updated: 2024-08-02 11:48:15
+date: 2024-08-03T23:04:35.230Z
+updated: 2024-08-04T23:04:35.230Z
 categories:
   - BestProducts
 description: This Article Describes Ricoh's Theta SC2 Camera – A 360-Degree Game Changer
@@ -13,6 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/CMi9CccXZVUVcwSL_bR0hHJY3nE=/540x405/fi
 
 3.9
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ## D-Link DHP-P701AV Powerline AV2000
 
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/nsaP3RakwQYiBJEb9bxIZJaE8yE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-HeroSquare-db3b8923e8f945e196de87932b00dc2a.jpg)
@@ -65,6 +68,9 @@ Lifewire / Jeremy Laukkonen
 
  While the Powerline AV2000’s specifications are impressive, they don’t always tell the whole story. That’s why we took a pair of these adapters, plugged them in, and tested them to see if they work as well as advertised. We checked things like how easy they are to set up, whether they’re likely to get in the way of other electronics, real-world transfer speeds, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/plySecBvduGkJXsaWpMzfgOg7gU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-04-01bd7072d50949398973fb514e2ea95c.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -81,6 +87,9 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: No special knowledge or tools required**
 
  Setting up a wired network with a set of D-Link Powerline AV2000 adapters requires absolutely no networking experience or knowledge. The setup process requires you to plug one adapter into your modem or router with an included Ethernet cable, plug the other adapter into your computer, game console, or any other device that has an Ethernet port, and then plug both adapters into power.
@@ -91,6 +100,9 @@ Lifewire / Jeremy Laukkonen
 
  Each Powerline AV2000 adapter also includes a button that you can press to establish a secure connection. This isn’t necessary, but it’s still very easy. To get started, you push the button on one adapter for two seconds. You then have two minutes to press the corresponding button on the other adapter. The adapters will then established a secure connection using 128-bit AES encryption.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/X0oLXEoZMMDp1yHZ4thpEvAY2Sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-05-29cdfecba8e74dc9a126aff93f29b3ce.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -103,10 +115,16 @@ Lifewire / Jeremy Laukkonen
 
  Since they use the HomePlug AV2 specification, these adapters are able to take advantage of[multi-in multi-out (MIMO)](https://www.lifewire.com/mimo-wifi-routers-818332) with beamforming. This represents a massive improvement over the other HomePlug AV1 specification, both in terms of speed and the maximum distance between adapters.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/BW7yDwtrIQMB3iE9oYnM3hvr-eQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-03-2e5f7ed23f674661896b72ed0710efff.jpg)
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ## **Network Performance: Fast, but not the fastest**
 
  These adapters are built on the excellent Broadcom BCM60500 chipset, which is used in some of the best powerline adapters on the market. The theoretical maximum network transfer speed is 2Gbps, but these adapters are limited by their[1Gbps ethernet ports](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) and also the realities of home wiring.
@@ -117,6 +135,10 @@ Lifewire / Jeremy Laukkonen
 
  When tested on data transfer within the network, we measured a maximum transfer speed of 350Mbps. That’s not exactly gigabit, and speeds drop off significantly when the adapters are plugged into different circuits, but it’s still one of the fastest powerline adapters we’ve tested.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/IXQZNi3pFRjm2tdKfPMhwxTE-DA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-06-5a298aa4450e4adfb249aeae86330406.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -133,6 +155,14 @@ Lifewire / Jeremy Laukkonen
 
  The typical street price for these adapters is pretty close to the competition, but the MSRP is significantly more expensive. Since some competitors, like Extollo, make adapters that are even faster than these, it’s likely that you’re primarily paying for the brand name rather than better performance.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## **Competition: Beats most of the competition, but doesn’t come out on top**
 
  The D-Link Powerline AV2000 adapters beat most competitors in terms of sheer performance, and the slightly higher price tag is mostly justified by high transfer speeds and reliable connections. The main exception is the Extollo LANSocket 1500, which was a bit faster in our tests, and has an MSRP of just $90.

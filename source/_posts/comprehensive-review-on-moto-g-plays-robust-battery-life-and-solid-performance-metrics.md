@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Review on Moto G Play's Robust Battery Life and Solid Performance Metrics
-date: 2024-07-29 23:30:24
-updated: 2024-08-01 11:46:55
+date: 2024-08-03T23:04:27.829Z
+updated: 2024-08-04T23:04:27.829Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Review on Moto G Play's Robust Battery Life and Solid Performance Metrics
@@ -41,8 +41,14 @@ Rebecca Isaacs / Lifewire
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Godfall
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![Godfall](https://www.lifewire.com/thmb/0NLDB5xBHlyMz4ZXPM-uk0dzS7Y=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Godfall-PC-Game-1-d3b0021c9f1f4c90a844bf0e8f8fcb25.jpg)
 
 Rebecca Isaacs / Lifewire
@@ -66,6 +72,9 @@ Rebecca Isaacs / Lifewire
 
  With the[PlayStation 5](https://www.lifewire.com/sony-playstation-5-review-5088394) releasing late last year, Godfall was the first of the[PS5 exclusives](https://www.lifewire.com/ps5-games-list-5076154) , with its launch in early November. As a looter-shooter lover (especially of the Borderlands series), I was intrigued by the prospect of using swords and shields instead of guns. At first, it was a fun, enthralling experience due to the compelling graphics. Unfortunately, after eleven hours of gameplay, I’ve already shelved it and moved on to the next game in my library due to its repetitive nature and poor plotline. Read on for how I evaluated the gameplay, plot, and graphics.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ![Godfall](https://www.lifewire.com/thmb/H6t9YHOQhs7GMJ8lP75_d2mnMVU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-4-cd60ab2e603a4efaa0031f8aa5743fb4.jpg)
 
 Rebecca Isaacs / Lifewire
@@ -90,12 +99,18 @@ Rebecca Isaacs / Lifewire
 
 Rebecca Isaacs / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Gameplay: Repetitive and tedious
 
  Valorian Knight Orin himself remains the same, but in terms of details and build, that’s where character customization—and offensive and defensive builds—finally come in. You’ll hack and slash your way through forests and other settings, using various Valorplates and one of five different weapons classes. As a bonus, you can add banners and charms to help buff up your Valorian Knight.
 
  Each of the armor sets, based on various animals, comes with different perks, which makes for unique gameplay if you prefer poison or shock to fire damage. It can take some time to craft, modify, and upgrade both the Valorplates and weapons. More importantly, it takes time to gather the materials, so as you continue the game, you’ll have repeat quests and maps.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Godfall](https://www.lifewire.com/thmb/lkXYe9qqH3ccZewQudKpzPWU4Xc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-2-fc516034a42a462ba1b4ab03bcc76269.jpg)
 
 Rebecca Isaacs / Lifewire
@@ -112,6 +127,9 @@ Rebecca Isaacs / Lifewire
 
  Not all the gameplay features are gripe worthy though. With up close combat, dying is inevitable, and Godfall makes sure to address the risk of constant death in three ways: a practice arena in between missions, where you can test out your latest combos; easy, fast leveling; and no death penalty. While some players will most likely balk at no death penalty, casual gamers will enjoy not having to worry about the loss of experience or equipment durability.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Godfall](https://www.lifewire.com/thmb/xztzESfeykd-1UUo9xAOFt8EPNE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-7-4a134c4dc6304645aaeb4ff4a0badefa.jpg)
 
 Rebecca Isaacs / Lifewire
@@ -120,6 +138,9 @@ Rebecca Isaacs / Lifewire
 
  Godfall is pretty straightforward with its platforms: PlayStation 5, or Windows PCs. It does not work on Macs, so take that into consideration before you make your purchase. In terms of gameplay, neither platform really weighs better than the other, though PC gamers with ultrawide screens may have some issues getting the correct resolution set.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Godfall ](https://www.lifewire.com/thmb/AVwuGUypRGjuigcAvp7eBT4rj00=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Godfall-PC-Game-6-d175a22d9d0c48e8ad3aad12177fe50b.jpg)
 
 Rebecca Isaacs / Lifewire
@@ -130,6 +151,9 @@ Rebecca Isaacs / Lifewire
 
  I’ll be brutally honest here: if it’s between Godfall and Warframe, Warframe is easily a better game.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Godfall vs. Warframe
 
  The only game that can remotely come close to Godfall is Warframe. Both offer missions you can complete repetitively, and both require multiple hours of gameplay in order to progress in the game.

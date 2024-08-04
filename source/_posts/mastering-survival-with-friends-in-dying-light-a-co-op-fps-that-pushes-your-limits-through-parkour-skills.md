@@ -1,7 +1,7 @@
 ---
 title: "Mastering Survival with Friends in 'Dying Light': A Co-Op FPS That Pushes Your Limits Through Parkour Skills"
-date: 2024-08-02 22:36:19
-updated: 2024-08-04 10:38:19
+date: 2024-08-03T23:04:10.971Z
+updated: 2024-08-04T23:04:10.971Z
 categories:
   - BestProducts
 description: "This Article Describes Mastering Survival with Friends in 'Dying Light': A Co-Op FPS That Pushes Your Limits Through Parkour Skills"
@@ -65,6 +65,9 @@ _Our reviewer already owned this product._
 
  A couple gaming sessions later, and I realized I needed a[laptop cooling pad](https://www.lifewire.com/best-laptop-cooling-pads-4149823) . After taking a look at various models, I decided to try out the HAVIT 5 Gaming Laptop Cooling Pad. It boasts five fans and an adjustable rollout switch to customize my cooling experience. And it offers anti-slip baffles so my curious cat can't knock it off my laptop. After over a year of use, I still use this almost every day for my gaming needs. Read on for our final verdict, as well as thoughts on its specs.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## Design: Looks like a gamer’s cooling pad
 
  HAVIT offers this laptop cooling pad in two different colors: red and blue. I personally felt that the red would be too bright and opted for the blue; when I pulled it out of the box, I was surprised at how heavy its 1.8 pounds felt in my hand.
@@ -77,6 +80,9 @@ Lifewire / Rebecca Isaacs
 
  To me, the design seems a little clunky. It has smooth edges, but it’s clearly designed as a gamer’s edgy laptop cooling pad with seemingly unnecessary grooves that serve only to hold dust. If you’re looking for a simple design, this is not your cooling pad. That being said, the metal mesh pad for air circulation can accommodate laptops ranging from 14 to 17 inches thanks to its 15.87 x 11.81 x 1.34 inches (LWH) in dimension.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Fans: Wasn’t blown away
 
  I set up the cooling pad and flipped on the roller switch. HAVIT promises five quiet fans—one 110-millimeter fan, and four other strategically placed 85-millimeter fans. HAVIT holds true to its promise: This cooling pad emits a fairly faint sound I can’t hear through my Samsung Buds headphones, even with their noise cancelling features. The fans are so quiet that if I was gaming, I wasn’t able to hear them.
@@ -93,6 +99,9 @@ Lifewire / Rebecca Isaacs
 
  That’s not to say that this laptop cooling pad doesn’t help cool it down. Since my Eluktronics is getting some much-needed TLC in the shop, I tested the MSI’s internal temps while running[Tropico Six](https://www.lifewire.com/tropico-6-review-5077604) on my laptop. Without the laptop cooling pad, I was running around 187 degrees Fahrenheit. With the cooling pad, it adjusted to around 169 degrees. It’s not much, but it’s enough to make a difference.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Baffles: Adjustable for gaming and typing
 
  If you feel the laptop needs more circulation, the good news is that HAVIT also anticipated these needs, too. Anti-slip baffles offer a sturdy position on any desk, even if you push up the height to a more angled position.
@@ -107,6 +116,9 @@ Lifewire / Rebecca Isaacs
 
  And, if you’re on-the-go and travelling, the HAVIT 5 also packs quite nicely into a suitcase. Be sure to play it safe like I did and pack it around clothes. But if you need to go across country and want to take your gaming laptop with you, this is a good one that will hold up well in luggage.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ## Price: Ouch
 
  I picked up my HAVIT 5 while it was on sale for around $30 back in 2019, but the usual price is around $50\. That seems a little steep, especially for fans that don’t necessarily pack the punch for gaming that most laptops require. If you keep an eye on Amazon, you can usually get this one for around $30, as it seems to go on sale fairly often.
@@ -115,6 +127,15 @@ Lifewire / Rebecca Isaacs
 
 Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ## HAVIT 5 vs. Kootak Laptop Cooling Pad
 
  It makes sense to compare the Kootak Laptop Cooling Pad to the HAVIT. Both have five cooling fans, both fit laptops up to 17 inches, and both offer anti-slip baffles to ensure your laptop is safe if you want to adjust the height for more air circulation or wrist angle preferences. The key differences are design and adjustability.
@@ -127,12 +148,18 @@ Lifewire / Rebecca Isaacs
 
  It’s not the best out there, but so long as it cools the internal laptop core temperatures by about 20 degrees, it’s a worthy investment. Props go to HAVIT for giving it a roller switch for ultimate adjustability and an LED light that will show how high the fans are blowing. The fans could be stronger, but quieter fans over more power is preferable.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/urban-armor-gear-macbook-pro-case-review-4689954)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  5 Fan Laptop Cooler

@@ -1,7 +1,7 @@
 ---
 title: Reviewing the Netgear Powerline 1200 - Is a Bulky Appearance Sacrificing Internet Speed?
-date: 2024-08-01 23:32:52
-updated: 2024-08-04 10:30:24
+date: 2024-08-03T23:03:56.464Z
+updated: 2024-08-04T23:03:56.464Z
 categories:
   - BestProducts
 description: This Article Describes Reviewing the Netgear Powerline 1200 - Is a Bulky Appearance Sacrificing Internet Speed?
@@ -13,6 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/cqEi8jiK89RWjmFtgR9nz3Oplvo=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ## Netgear Powerline PL1200
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LJwkWIKV_tIoZmxEqV9kr7ByA1Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_HeroSquare-d40232740fc34cdbb9b7197a7bda177d.jpg)
@@ -66,6 +69,9 @@ Lifewire / Jordan Oloman
 
  Lifewire / Jordan Oloman
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Sharp edges and frustration**
 
  The Netgear Powerline 1200 kit doesn’t really care about your living room or bedroom aesthetic. It’s a monolithic, white glossy plastic box that juts out of the wall. If you’re looking for something inoffensive and reserved, the Netgear offering doesn’t deliver. The edges are sharp and the adapter is quite large in order to house all of the technology and the Ethernet sockets necessary to complete the network.
@@ -78,10 +84,16 @@ Lifewire / Jordan Oloman
 
  There’s also only one Ethernet port on the Netgear kit, which means that you can only improve the wired connection of one device—a poor payoff for all of the manoeuvering you may have to do, especially when there’s certainly space for another port. Overall, the design is obtrusive and frustrating, which is a shame given how reliable adapter is.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LMrQEcpONDZxLUfoMW6U8sX4dQw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_02-a8557f722ac84f29b6efb2a763d22a3c.jpg)
 
  Lifewire / Jordan Oloman
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ## **Setup Process: Delightfully quick and efficient**
 
  The Netgear Powerline 1200 is a dream to start, since all it takes is plugging the devices in for them to work. Simply place one near your router, attach the Ethernet cable, then head to the room where you want to expand the network and do the same there, attaching the Ethernet to a console, smart TV or electronic device with an internet connection.
@@ -98,6 +110,9 @@ Lifewire / Jordan Oloman
 
  Lifewire / Jordan Oloman
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Performance: A solid improvement**
 
  Using the device across our living room and bedroom, in two different setups across the course of a month, we found that the Netgear Powerline kit gave us a reliable upgrade to internet efficiency. Our initial connection speed (as per[Speedtest](https://www.speedtest.net/) ) offered a 68.4Mbps download speed, with 3.60Mbps upload speed, and sub-10-millisecond ping. The Netgear kit with an Ethernet cable attached to our laptop afforded us an 88Mbps download speeds and 6Mbps upload speeds.
@@ -114,6 +129,9 @@ Lifewire / Jordan Oloman
 
  Out of the adapters we tested, the Netgear Powerline 1200 was one of the cheaper ones on Amazon, ranging between $70-$85\. You can see why when you study the design and the many aesthetic flaws that come with this product. Besides the fact it is bulky and doesn’t play nice with other plugs, it’s a reliable means to improve your home network through the wonders of Powerline. It’s still quite a hard sell at this price compared to other products that hover around the same and offer more ports and socket functionality, but it’s still a worthwhile purchase if you just want to plug and play.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Netgear Powerline 1200 vs. TP-Link AV2000 Powerline Adapter**
 
  Comparing the Netgear Powerline 1200 kit to the TP-Link Powerline AV2000, there are some noticeable pros and cons. The TP-Link kit performs better speed-wise, has serviceable cables, lets you use the socket and doesn’t obstruct other plugs. However, the setup process isn’t as simple and we found some easily-fixed, but frustrating issues with connectivity.

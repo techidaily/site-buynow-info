@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Lowdown on the Budget-Friendly Beatech Bitwatch S1 Plus: An Intriguing Wearable Device Review"
-date: 2024-07-31 18:12:21
-updated: 2024-08-02 10:28:20
+date: 2024-08-03T23:04:04.772Z
+updated: 2024-08-04T23:04:04.772Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate Lowdown on the Budget-Friendly Beatech Bitwatch S1 Plus: An Intriguing Wearable Device Review"
@@ -38,8 +38,14 @@ Lifewire / Emily Isaacs
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ## Nintendo Game & Watch: Super Mario Bros
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/Gqz0Wb1wB-1ecipbSoEbqeuT3EU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_HeroSquare-c0176be04bfb4d83b2f7724b1332c18b.jpg)
 
 Lifewire / Emily Isaacs
@@ -75,12 +81,18 @@ Lifewire / Emily Isaacs
 
  The screen itself is tiny, measuring barely over two inches in length, but the bright LCD screen makes it easy to see Mario or Luigi clearly while playing. While the controls are a bit small, it's not wholly unexpected for a Nintendo Game & Watch product.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/RGM_gLdIp2jvsVG5LhRKLVw0nho=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_04-f94be735a5644020b52656e67a6c0465.jpg)
 
 Lifewire / Emily Isaacs
 
  Nintendo Game & Watch: Super Mario Bros. arrives in a small package that is lovingly designed in the Game & Watch family feel. In addition to the instructional care packet, it also includes a charging cable. Some long-time Nintendo fans may be inclined to keep the box, due to the Game & Watch’s collectible nature.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ## Setup Process: Pick up and play
 
  The Nintendo Game & Watch: Super Mario Bros. is a pick-up and play device. Simply open the box and remove the console from its shipment packaging, press the power button on the right-hand side, click the Time button to set your clock for the included Watch mode, and then you’re all set to enjoy the preloaded Super Mario Bros_._ and Ball games. It arrives with a partial charge.
@@ -89,6 +101,9 @@ Lifewire / Emily Isaacs
 
 Lifewire / Emily Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ## Gameplay: Challenging, but fun
 
  The Game & Watch: Super Mario Bros. is preloaded with Super Mario Bros., Super Mario Bros. 2 (also known as The Lost Levels), and Ball_,_ the foremost title in the Game & Watch series. Also included are 35 hidden interactions, which make the standard Watch mode a joy as well.
@@ -111,6 +126,10 @@ Lifewire / Emily Isaacs
 
 Lifewire / Emily Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ## Price: Great value for the price
 
  Thanks to the Game & Watch’s lovely, classic retro design, sturdy frame, crisp and clear LCD screen, and great game content, retailing for only $50, the Nintendo Game & Watch: Super Mario Bros. is a great value for the price. We just wish there were more games included, especially as other similar classic releases such as the SNES mini have seen as many as 30 titles included with its launch.
@@ -135,12 +154,19 @@ Lifewire / Emily Isaacs
 
  The Nintendo Game & Watch: Super Mario Bros. is a throwback to an older, simpler era of gaming that packs a wallop of a punch, bringing the challenge of the original Super Mario games and the original Game & Watch Ball title while making them accessible to a whole new generation of players. While we do wish Nintendo had included additional titles—who doesn’t want_more_ classic options when these are so fun—it’s no showstopper for enjoying this product.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Nintendo Switch Lite](https://www.lifewire.com/nintendo-switch-lite-review-4788015)
 * [Xbox One X](https://www.lifewire.com/xbox-one-x-review-4707143)
 * [PlayStation 4 Pro](https://www.lifewire.com/playstation-4-pro-review-4707193)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Game & Watch: Super Mario Bros.

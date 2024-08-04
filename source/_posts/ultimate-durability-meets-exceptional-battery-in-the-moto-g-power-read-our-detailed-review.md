@@ -1,7 +1,7 @@
 ---
 title: Ultimate Durability Meets Exceptional Battery in the Moto G Power - Read Our Detailed Review!
-date: 2024-08-01 16:43:37
-updated: 2024-08-04 10:40:16
+date: 2024-08-03T23:04:48.779Z
+updated: 2024-08-04T23:04:48.779Z
 categories:
   - BestProducts
 description: This Article Describes Ultimate Durability Meets Exceptional Battery in the Moto G Power - Read Our Detailed Review!
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/GpOiz8M5PIeXMVNT8Ly03_74p60=/400x300/fi
 
 ## Netgear C3000 Cable Modem Router
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear C3000](https://www.lifewire.com/thmb/r2nn71mNtfamPTZ4ju27N_m1tIk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-4_1-3b77a598c3cd4836b8b632578b3b437e.jpg)
 
 Lifewire / Bill Thomas
@@ -37,8 +40,15 @@ Lifewire / Bill Thomas
 
 3
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Netgear C3000 Cable Modem Router
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ![Netgear C3000](https://www.lifewire.com/thmb/Ga2OrNlpcgoBAByp_iB08VrN5h0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-4_1-3b77a598c3cd4836b8b632578b3b437e.jpg)
 
 Lifewire / Bill Thomas
@@ -67,6 +77,9 @@ Lifewire / Bill Thomas
 
 [The Best Cable Modem/Router Combos of 2024](https://www.lifewire.com/best-cable-modem-router-combos-to-buy-4082541)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ## Design: Compact
 
  The Netgear C3000 is cable modem with an 8x4 DOCSIS 3.0 rating and a slow N300 wireless speed—there isn’t much hardware to pack in here. So it’s a pretty small device, not much larger than a few Blu-Ray cases stacked on top of each other. It measures just under eight inches tall and weighs 0.78 pounds. Combined with the black plastic build, it’s a modem that won’t attract too much attention, which is honestly what we look for. You don’t want something you’ll feel encouraged to hide.
@@ -77,10 +90,25 @@ Lifewire / Bill Thomas
 
  Lifewire / Bill Thomas
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear C3000](https://www.lifewire.com/thmb/_9ERrc4mSXFjpZAVMAwwqbfpLwM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_3-2f5e1e38512d41019430d063e63b7f9b.jpg)
 
  Lifewire / Bill Thomas
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear C3000](https://www.lifewire.com/thmb/8U-jHJ6otxXt5vRq8FVLubPNOpI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_2-a6aa93cceeaf4d9ca6bb0d989200b2ea.jpg)
 
  Lifewire / Bill Thomas
@@ -89,6 +117,9 @@ Lifewire / Bill Thomas
 
  Lifewire / Bill Thomas
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Setup Process: Exceptionally easy
 
  Setting up a cable modem can be a complicated and time consuming process. Not so with the Netgear C3000—when we set it up it was almost plug-and-play. It could be because this modem isn’t the most complex piece of hardware, but it was ready for activation_seconds_ after we plugged it in. We connected via ethernet, launched a browser and within minutes we activated our 250 Mbps Xfinity service. We’re not sure if our experience was a fluke, but we were pleasantly surprised.
@@ -99,6 +130,9 @@ Lifewire / Bill Thomas
 
  There is also Wi-Fi, but it’s only a single antenna—that means no dual-band Wi-Fi here. You’ll be limited to 2.4 GHz and the speed is only rated at N300, which is an extremely dated standard.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Netgear C3000](https://www.lifewire.com/thmb/vmrfrWyvGROwVpR7Y2UQmaZOPEU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_6-e34bd6e4000f49c3b6a0d1653d23f6ff.jpg)
 
  Lifewire / Bill Thomas
@@ -143,6 +177,9 @@ Lifewire / Bill Thomas
 * [Netgear C3700 Cable Modem Router](https://www.lifewire.com/netgear-c3700-cable-modem-router-review-4686094)
 * [Motorola MG7700](https://www.lifewire.com/motorola-mg7700-review-4589346)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  C3000 Cable Modem Router

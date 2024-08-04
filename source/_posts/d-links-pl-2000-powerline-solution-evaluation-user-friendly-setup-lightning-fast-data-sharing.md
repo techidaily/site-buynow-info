@@ -1,7 +1,7 @@
 ---
 title: D-Link's PL 2000 Powerline Solution Evaluation - User-Friendly Setup, Lightning-Fast Data Sharing!
-date: 2024-08-02 18:21:33
-updated: 2024-08-04 10:14:26
+date: 2024-08-03T23:04:37.288Z
+updated: 2024-08-04T23:04:37.288Z
 categories:
   - BestProducts
 description: This Article Describes D-Link's PL 2000 Powerline Solution Evaluation - User-Friendly Setup, Lightning-Fast Data Sharing!
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/GJNxFlLwc8LSDjeMT7XQtP9KFrg=/400x300/fi
 
 3.9
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ## D-Link DHP-P701AV Powerline AV2000
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/nsaP3RakwQYiBJEb9bxIZJaE8yE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-HeroSquare-db3b8923e8f945e196de87932b00dc2a.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -37,8 +43,15 @@ Lifewire / Jeremy Laukkonen
 
 3.9
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## D-Link DHP-P701AV Powerline AV2000
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/yEenIYDb17_Fxo9Tgt2DnpQFxtQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-HeroSquare-db3b8923e8f945e196de87932b00dc2a.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -69,6 +82,9 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Smaller than its predecessor, but still bulky**
 
  D-Link’s Powerline AV2000 is more about function than form. The design is minimalistic almost to a fault, with a basic, white, plastic body, a few indicator LEDs, an[Ethernet port](https://www.lifewire.com/what-is-an-ethernet-port-817546) , a sync button, and an electrical pass-through. It’s also available in a slightly larger version that costs a bit less and doesn’t come with the pass-through.
@@ -91,6 +107,9 @@ Lifewire / Jeremy Laukkonen
 
  Each Powerline AV2000 adapter also includes a button that you can press to establish a secure connection. This isn’t necessary, but it’s still very easy. To get started, you push the button on one adapter for two seconds. You then have two minutes to press the corresponding button on the other adapter. The adapters will then established a secure connection using 128-bit AES encryption.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/X0oLXEoZMMDp1yHZ4thpEvAY2Sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-05-29cdfecba8e74dc9a126aff93f29b3ce.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -107,6 +126,9 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## **Network Performance: Fast, but not the fastest**
 
  These adapters are built on the excellent Broadcom BCM60500 chipset, which is used in some of the best powerline adapters on the market. The theoretical maximum network transfer speed is 2Gbps, but these adapters are limited by their[1Gbps ethernet ports](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) and also the realities of home wiring.
@@ -127,6 +149,9 @@ Lifewire / Jeremy Laukkonen
 
  The D-Link PLC utility has to be run on a Windows PC that’s connected to the same network as your Powerline AV2000 adapters. It’s fairly simple and provides a few management and testing tools. You can update the firmware of your adapters to the latest version, pinpoint a malfunctioning system, change the encryption key used by your devices, or provide custom names for each adapter.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: On the expensive side of the scale**
 
  The D-Link Powerline AV2000 adapters are priced on the upper end of the scale for similarly equipped adapters. The version that doesn’t come with a pass-through has an MSRP of $130 and usually sells in the $100 range. The pass-through version that we tested has an MSRP of $160 and usually sells for around $110.

@@ -1,7 +1,7 @@
 ---
 title: Evaluating Jackery's PowerBar Battery Pack With Convenient AC Outlet Option
-date: 2024-07-30 17:48:44
-updated: 2024-08-02 12:19:17
+date: 2024-08-03T23:04:06.796Z
+updated: 2024-08-04T23:04:06.796Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating Jackery's PowerBar Battery Pack With Convenient AC Outlet Option
@@ -37,8 +37,14 @@ thumbnail: https://www.lifewire.com/thmb/1e0cJN-BsKLogB5b5Fm0imOzPoA=/400x300/fi
 
 4.9
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## ZMI PowerPack 20000
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/FttxoftMtHF3B2ZGmP2QubmOp3I=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-HeroSquare-492efa01c9e54737bfa9d16223ff9d82.jpg)
 
  Lifewire / Andrew Hayward
@@ -61,6 +67,14 @@ thumbnail: https://www.lifewire.com/thmb/1e0cJN-BsKLogB5b5Fm0imOzPoA=/400x300/fi
 
  I tested ZMI’s PowerPack 20000 time and again over more than a week across multiple devices, measuring the charging speeds and comparing it to other similar power banks.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/jITowxAWHBUo5WF3Y-XI6lKQNQE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-05-02d76c869b864ef0abddfe824cfbf53a.jpg)
 
  Lifewire / Andrew Hayward
@@ -81,6 +95,9 @@ thumbnail: https://www.lifewire.com/thmb/1e0cJN-BsKLogB5b5Fm0imOzPoA=/400x300/fi
 
 Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ## **Setup Process: Easy does it**
 
  There’s not much to the setup process here. Using the included USB-C to USB-C cable, simply plug one end into the power bank and the other into an AC adapter that you have handy—like one for a laptop, tablet, or[smartphone](https://www.lifewire.com/best-smartphones-4043781) . Once the four lights on the side are fully illuminated, then the battery pack is fully charged. Simply plug in devices using their respective cables to charge them using the power within the ZMI PowerPack 20000.
@@ -93,10 +110,16 @@ Lifewire / Andrew Hayward
 
  The PowerPack 20000 also charged a[Samsung Galaxy S10](https://www.lifewire.com/samsung-galaxy-s10-review-4685690) smartphone from nothing to 100 percent in 1 hour, 47 minutes using the USB-C PD port, with four lights still remaining on the power bank. This sizable power bank should be able to charge an average smartphone a few times over, not to mention a[Nintendo Switch](https://www.lifewire.com/nintendo-switch-review-4707563) . Larger laptop batteries will naturally suck away more of the battery capacity on a full charge.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/asGVK-moJ54HvqyY9N6Kb-KM8hw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-04-828899fb01024cd4a0e35980251c04b4.jpg)
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: It’s a bargain**
 
  With larger laptop-friendly battery packs sometimes selling for well north of $100, the $70 price point of the ZMI PowerPack 20000 is an incredibly attractive deal. Granted, the maximum USB-C PD output of 45W won’t charge some super-powered laptops—but for compatible laptops, as well as smartphones, tablets, and other portable electronics, it’s very well priced.

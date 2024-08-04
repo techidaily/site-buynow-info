@@ -1,7 +1,7 @@
 ---
 title: "Lenovo IdeaPad 130S Evaluation: Compact Performance with Impressive Functionality"
-date: 2024-07-30 17:55:20
-updated: 2024-08-02 10:17:51
+date: 2024-08-03T23:04:43.671Z
+updated: 2024-08-04T23:04:43.671Z
 categories:
   - BestProducts
 description: "This Article Describes Lenovo IdeaPad 130S Evaluation: Compact Performance with Impressive Functionality"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/14595ce84d31d38abb3ed2fa0891687712e003ea9
 
 ## Samsung Galaxy Tab S6
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/7WjwLLZiPJKJZWhXlUSo8gCOtSY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_S6_HeroSquare-041c0f1331604f5199eb280d31cb1fe8.jpg)
 
 Lifewire / Erika Rawes
@@ -76,6 +79,9 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ## **Display: 10.5-inch Super AMOLED**
 
  You can usually rely on Samsung devices to have top-notch display quality, and the Tab S6 is no different. The super AMOLED display is crisp and clear. The text is sharp, and the colors are bright and vivid. The 10.5-inch display feels large enough to watch shows and movies or to use as a hybrid when you connect the keyboard case.
@@ -84,6 +90,10 @@ Lifewire / Erika Rawes
 
  Some users report an issue with the screen, where it randomly goes blank in the middle of using the Tab S6\. Audio will still play, but the tablet’s screen will go dark, and the user will have to re-awaken the Tab S6 to continue their tasks. I personally experienced this issue while testing a refurbished version of the Tab S6\.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/-pHfCamdNdeJAmfn1IG93dda0i4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_Tab_S6_03-ecf977b8c98b41a08872f0605a589246.jpg)
 
  Lifewire / Erika Rawes
@@ -92,10 +102,17 @@ Lifewire / Erika Rawes
 
  The Tab S6 has the Qualcomm 855 processor, which is a pretty solid mobile CPU. It comes in two versions: one version with 128GB of storage and 6 GB of RAM, and one version with 256 GB of storage and 8 GB of RAM. I tested the former version. On PCMark Work 2.0, the lower level Tab S6 scored a 9022\. On Geekbench 5, the Tab S6 scored a single core score of 747 and a multi-core score of 2,518\. It’s multi-core scores come in very close to the A12 Bionic chip in the iPad (2019).
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/TIUmjQSMgpAJw4W3I6fcgiYY1BM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_Tab_S6_06-cc64b6b41e8f4420b9fe38d223541b52.jpg)
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## **Productivity: S Pen included, keyboard case sold separately**
 
  The newest version of the S Pen is Bluetooth enabled, so you can control the Tab S6 tablet remotely. You can snap a group pic from a distance or control a slideshow presentation by swiping to the next slide without touching your tablet. You can use gestures within compatible apps, although few apps have S Pen compatibility.
@@ -112,6 +129,9 @@ Lifewire / Erika Rawes
 
  I do wish the Galaxy Tab S6 had a headphone jack. I was able to purchase a USB-C to 3.5 mm adapter on Amazon for about $10, but it would have been nice to have a 3.5 mm jack available.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Network: No Wi-Fi 6**
 
  The Tab S6 supports Bluetooth version 5.0 and 802.11a/b/g/n/ac Wi-Fi networks, and you can connect it on the 2.4 and 5 GHz bands. I live in a suburb outside of Raleigh, NC, and my network speeds max out at 400 Mbps. I have a Wi-Fi 6 capable router, but the Galaxy Tab S6 doesn’t support Wi-Fi 6\.
@@ -122,6 +142,9 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Camera: Dual rear cameras**
 
  The Tab S6 has dual rear cameras, and a single front-facing camera. It has a 13 MP camera and a 5 MP camera on the back, and an 8 MP camera on the front. For a tablet, the camera quality is actually pretty good. It’s not as good as your typical flagship phone, but it’s better than you’d expect on a hybrid tablet. Photos are surprisingly clean and detailed, so you could absolutely get a good group pic at the office, or snap a clear pic of a document you need to send.
@@ -140,6 +163,9 @@ Lifewire / Erika Rawes
 
  Samsung includes its own App Store, the Galaxy store, in addition to Google’s Play Store. The tablet also comes equipped with Samsung Daily, which is a rebranding of Bixby Home, and a number of other Samsung applications like Samsung’s virtual assistant Bixby, SmartThings, Samsung Flow, and Samsung Kids.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/C7-02cY18jujcl8-9vfJim9_H_M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_Tab_S6_05-2f0768554c044e18bedec871758e51ef.jpg)
 
  Lifewire / Erika Rawes
@@ -148,6 +174,9 @@ Lifewire / Erika Rawes
 
  The Galaxy Tab S6 sells for $649 for the 128 gig version, which is pricey for an android tablet. But, considering the S Pen is included in the package, the price is a bit more reasonable.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ## **Samsung Galaxy Tab S6 vs. Samsung Galaxy Tab A (2020)**
 
  The Galaxy Tab S6 is designed for productivity, photo editing, drawing, and multipurpose use. It offers fast processing, an optional keyboard case, and features like Samsung DeX to promote even more efficiency.[The Galaxy Tab A](https://www.lifewire.com/samsung-galaxy-tab-a-2020-review-5072672) (view on[Amazon](https://www.amazon.com/dp/B07Q3T2RZF/?tag=lifewire-onsite-prod-20&ascsubtag=5072677%7Cnb09ddd4fc2484a1da2aba73369114b5911%7C) ) is a budget tablet that’s good for communication and on-the-go entertainment. The Tab A works in cellular networks, and it doesn’t provide the processing power or productivity features you get with the Tab S6\. The Tab A is not compatible with the S Pen either.
@@ -158,6 +187,9 @@ Lifewire / Erika Rawes
 
  The Galaxy Tab S6 is one of the better 10-inch tablets available.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Galaxy Tab S6

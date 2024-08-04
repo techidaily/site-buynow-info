@@ -1,7 +1,7 @@
 ---
 title: "Compact Brilliance Unleashed: The Acer Predator Triton 300 SE Evaluation Guide"
-date: 2024-08-01 23:34:39
-updated: 2024-08-03 12:56:37
+date: 2024-08-03T23:03:56.698Z
+updated: 2024-08-04T23:03:56.698Z
 categories:
   - BestProducts
 description: "This Article Describes Compact Brilliance Unleashed: The Acer Predator Triton 300 SE Evaluation Guide"
@@ -37,8 +37,14 @@ thumbnail: https://thmb.techidaily.com/ecca9631290670220c5819761baf650aa5dd08f70
 
 4.9
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## ZMI PowerPack 20000
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/FttxoftMtHF3B2ZGmP2QubmOp3I=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-HeroSquare-492efa01c9e54737bfa9d16223ff9d82.jpg)
 
  Lifewire / Andrew Hayward
@@ -61,6 +67,11 @@ thumbnail: https://thmb.techidaily.com/ecca9631290670220c5819761baf650aa5dd08f70
 
  I tested ZMI’s PowerPack 20000 time and again over more than a week across multiple devices, measuring the charging speeds and comparing it to other similar power banks.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/jITowxAWHBUo5WF3Y-XI6lKQNQE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-05-02d76c869b864ef0abddfe824cfbf53a.jpg)
 
  Lifewire / Andrew Hayward
@@ -81,10 +92,16 @@ thumbnail: https://thmb.techidaily.com/ecca9631290670220c5819761baf650aa5dd08f70
 
 Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Easy does it**
 
  There’s not much to the setup process here. Using the included USB-C to USB-C cable, simply plug one end into the power bank and the other into an AC adapter that you have handy—like one for a laptop, tablet, or[smartphone](https://www.lifewire.com/best-smartphones-4043781) . Once the four lights on the side are fully illuminated, then the battery pack is fully charged. Simply plug in devices using their respective cables to charge them using the power within the ZMI PowerPack 20000.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Charging Speed and Battery: It keeps going**
 
  The ZMI PowerPack 20000 has a hearty 20,000mAh cell within, and it charged my devices quickly without fully depleting the brick. I charged a[2019 MacBook Pro](https://www.lifewire.com/apple-macbook-pro-13-inch-2019-review-4770116) (13-inch) laptop from 0 percent to 100 percent in just 1 hour, 53 minutes using the ZMI PowerPack 20000’s USB-C PD port, with an effective charging rate of 42.92W (14.8Vx2.9A). When the charging process was complete, the PowerPack still had one light illuminated, indicating that there was still a little bit of battery life remaining.
@@ -97,6 +114,9 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: It’s a bargain**
 
  With larger laptop-friendly battery packs sometimes selling for well north of $100, the $70 price point of the ZMI PowerPack 20000 is an incredibly attractive deal. Granted, the maximum USB-C PD output of 45W won’t charge some super-powered laptops—but for compatible laptops, as well as smartphones, tablets, and other portable electronics, it’s very well priced.

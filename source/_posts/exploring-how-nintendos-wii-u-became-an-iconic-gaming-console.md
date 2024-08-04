@@ -1,7 +1,7 @@
 ---
 title: Exploring How Nintendo's Wii U Became an Iconic Gaming Console
-date: 2024-08-01 13:17:55
-updated: 2024-08-02 12:57:37
+date: 2024-08-03T23:04:13.054Z
+updated: 2024-08-04T23:04:13.054Z
 categories:
   - BestProducts
 description: This Article Describes Exploring How Nintendo's Wii U Became an Iconic Gaming Console
@@ -10,6 +10,9 @@ thumbnail: https://www.lifewire.com/thmb/kCOCce9zsTDx-OBmqpXFPEOfemg=/400x300/fi
 ---
 
 ## Unlock New Gaming Adventures for Your NES Classic Console
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What to Know
 
 * With the NES Classic connected to a Windows PC, download**Hakchi 2** . Extract the file, if needed, and open hakchi.exe.
@@ -18,6 +21,9 @@ thumbnail: https://www.lifewire.com/thmb/kCOCce9zsTDx-OBmqpXFPEOfemg=/400x300/fi
 
  This article explains how to add games to an NEC Classic using NES game ROMs you own and a Windows PC.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ## How to Add Games to NES Classic
 
  While the re-release of Nintendo's original home console comes with just 30 of the best classic games built in, a new program makes it extremely easy to add more games to your NES Classic edition using a Windows PC. That said, you'll need your own NES game ROMs.
@@ -34,14 +40,23 @@ thumbnail: https://www.lifewire.com/thmb/kCOCce9zsTDx-OBmqpXFPEOfemg=/400x300/fi
 4. Select**NES (USA/Europe)** .  
 ![Choose NES (USA/Europe)](https://www.lifewire.com/thmb/K0_MIzgjkgi5Do_SG9rO9OU-b-4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/002-add-more-games-to-the-nes-classic-2077915796d24b319622974016b4c322.jpg)
 5. Select**Add more games** to upload the ROMs you want to add to your NES Classic. Only files with the extension .NES will work, although you can also upload ZIP folders containing them.  
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 !['Add more games' selection to upload ROMs to NES Classic](https://www.lifewire.com/thmb/7vHf5faB-1mVibSy9cF1KVJ8qfY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/003-add-more-games-to-the-nes-classic-089a7d2332bb4059b63d6de31fea424a.jpg)
 6. Under the Custom Games list, select the title you want to add cover art to. Select**Google** to retrieve images directly from Google.  
 ![Add cover art by clicking the titles under Custom Games](https://www.lifewire.com/thmb/neOlwOfUiIZx5S1tEn80GL82VMc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/004-add-more-games-to-the-nes-classic-c2bdeef7eff64d139156d138e2c6e7a7.jpg)
 7. On the Hakchi2 toolbar, select**Kernel** \>**Install/Repair,** then select**Yes** when asked if you want to flash the custom kernel.  
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ![Select Kernel > Install/Repair, then click Yes](https://www.lifewire.com/thmb/N_5Vp8fvKlu15K8g8IneRPpgamA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/005-add-more-games-to-the-nes-classic-cf58f3c816484e8e899c26bd4f7adf5e.jpg)
 8. Follow the instructions that appear. You might be required to install some drivers if they didn't automatically install when you connected the console.  
 ![Flash the custom kernel](https://www.lifewire.com/thmb/obxjQ5w6R-YGlPa1SqmQbuWoxcU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Screenshot153-5c5a42ee46e0fb000152fca2.png)
 9. When the process is complete, select**Synchronize selected games with NES/SNES Mini** and confirm you flashed the custom kernel.  
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![Select Synchronize selected games with NES/SNES Mini](https://www.lifewire.com/thmb/OQNrcOP_nKxq5Z51RZCf26tzUJ4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/006-add-more-games-to-the-nes-classic-601953ec9f1947eca4af89041d99caba.jpg)
 10. After your ROMs finish uploading, turn off the console and disconnect it from your PC.
 11. Plug in the power source to your NES Classic and turn it on. Your new games will be inside a folder named "New Games" alongside the preloaded titles.
@@ -50,6 +65,9 @@ thumbnail: https://www.lifewire.com/thmb/kCOCce9zsTDx-OBmqpXFPEOfemg=/400x300/fi
 
  Making modifications to your NES Classic will void its warranty, and you could potentially damage the console. Add new games at your own risk.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Nintendo Entertainment System Classic Controller](https://www.lifewire.com/thmb/FtuZUihm95iCMHAm4i5_PRSocb0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Entertainment-System-NES-Controller-FR-5c5a494bc9e77c0001d00e2b.jpg)
 
  <https://commons.wikimedia.org/wiki/File:Nintendo-Entertainment-System-NES-Controller-FR.jpg>

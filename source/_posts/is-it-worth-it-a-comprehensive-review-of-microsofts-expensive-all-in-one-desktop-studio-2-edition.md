@@ -1,7 +1,7 @@
 ---
 title: Is It Worth It? A Comprehensive Review of Microsoft's Expensive All-in-One Desktop - Studio 2 Edition
-date: 2024-07-31 21:54:25
-updated: 2024-08-02 10:33:41
+date: 2024-08-03T23:04:15.363Z
+updated: 2024-08-04T23:04:15.363Z
 categories:
   - BestProducts
 description: This Article Describes Is It Worth It? A Comprehensive Review of Microsoft's Expensive All-in-One Desktop - Studio 2 Edition
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/nXkK3WVTgZi_UuKWMVTCL_zcCmA=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Microsoft Surface Studio 2
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/w3_fclKJrwWKMdjNp4uFWrKqJLs=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4045927-1-64302c6de74c465d96dcc32ed60ef388.jpg)
 
 Lifewire / Gannon Burgett
@@ -66,10 +72,16 @@ Lifewire / Gannon Burgett
 
  The Microsoft Surface Studio 2 looks like a work of art. Fittingly, it’s clearly geared towards artists and graphic designer. From its[beautiful 28-inch PixelSense display](https://www.lifewire.com/best-desktop-pcs-4045927) , to its efficient hinge that makes it easy to maneuver from its desktop position to drawing mode, the entire device looks and feels like the premium machine it is. However, the Microsoft Surface Studio 2 with the Intel Core i7, 16GB RAM, and 1TB SSD will cost a pretty penny. Read on to see where the computer shines and where it doesn’t.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/qqvEiRPOz2etUltaB7qksjgtD6M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-5-62b14c26664249e3aaad156acf787b34.jpg)
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: A modern marvel of engineering**
 
  The design of the Microsoft Surface Studio 2 remains entirely unchanged from its first-generation predecessor, and with good reason—it’s stunning. The screen is unbelievably thin, and the arms holding the hinge and springs almost disappear due to their mirrored finish and contoured shape. The entire Surface Studio is subtle, appearing like a thin piece of glass-and-metal from the side, with a svelte, boxy base.
@@ -90,6 +102,9 @@ Lifewire / Gannon Burgett
 
  The software side of setup wasn’t nearly as quick as we had hoped. Despite having a fast internet connection, the setup time took approximately ten minutes, not including an additional system update, which added another five minutes. Microsoft’s Cortana walked us through the setup with audible and on-screen directions, and even tossed in a few snarky comments here and there along the way. Setup also included the process of adding your face for the facial recognition log-in option.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/2YGEvu4_h4VAgUiecjNAvd56F9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-7-0e52038c30364530a5a9bd0ac7011cb7.jpg)
 
  Lifewire / Gannon Burgett
@@ -104,6 +119,9 @@ Lifewire / Gannon Burgett
 
  The Zero Gravity hinge allows it for easy adjustment, letting us use it at almost, ranging from nearly flat to fully upright. If you have the Surface Dial you can also unlock a lot of functionality when it comes to photo and video editing. Its omission despite the high price of the Studio feels like a big downside.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/WBpMM3f4iH20J7-9H_NzD1zeBl4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-8-22d53ea12b7c48988b4840af9fb744c4.jpg)
 
  Lifewire / Gannon Burgett
@@ -134,6 +152,10 @@ Lifewire / Gannon Burgett
 
 Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ## **Camera: Decent and usable**
 
  The only camera on the Surface Studio 2 is a 5-megapixel front-facing camera. In addition to capturing stills and Windows Hello facial authentication, it also records 1080p video with dual microphones for audio. The camera proved impressive for an integrated camera and is more than good enough to use for conference calls and even streaming if you have a decent light source on hand.
@@ -150,14 +172,23 @@ Lifewire / Gannon Burgett
 
  Of course, this could change with a future Windows update, especially considering Microsoft is clearly focused on providing a touch-first experience on much of its Studio product lineup. Still though, for the time being, it leaves much to be desired.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/InfbJKGzeNqjfIRVMxjjUixt0sY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-3-8fd4fb8053044a528f896d4dc2872611.jpg)
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ## **Price: One word—ridiculous**
 
  At $3,499 MSRP, the Surface Studio 2 is incredibly expensive for the specs it offers. It’s twice as costly as the 21.5-inch 4K iMac ($1,299) and the base model of the 27-inch iMac ($1,799). The Surface Studio 2 is clearly trying to compete with the $4,999 iMac Pro, but with its older hardware and sometimes clunky software, it’s simply not as good of an experience for professionals and creatives, most of whom can get by with the more affordable iMac models anyway.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Competition: More affordable rivals, but lacking effective touchscreens**
 
  The Surface Studio 2 Lenovo IdeaCentre AIO 730S features a 24-inch screen compared to the 28-inch screen on the Surface Studio Pro 2\. On the processor side of things, it uses an 8th generation Intel Core i7-8559U CPU, with an integrated Intel UHD Graphics 620 GPU.

@@ -1,7 +1,7 @@
 ---
 title: Thrilling Gameplay on a Budget? Discover How the IbuyPower Custom Gaming Rig Delivers
-date: 2024-07-30 14:10:45
-updated: 2024-08-02 10:50:16
+date: 2024-08-03T23:04:06.612Z
+updated: 2024-08-04T23:04:06.612Z
 categories:
   - BestProducts
 description: This Article Describes Thrilling Gameplay on a Budget? Discover How the IbuyPower Custom Gaming Rig Delivers
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/46c8cf4fef4d9caceb585d24cb1efd4ab3d96a7a0
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## iBuypower Custom Gaming PC
 
 ![iBUYPOWER Custom Gaming Computer](https://www.lifewire.com/thmb/JfPPzYLJfSqrS8jirPgVEAnttBM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Gygabyte_GEFORCE_RTX_HeroHoriz-db8d12900c4449e9b8aab6999b42372c.jpg)
@@ -40,8 +43,14 @@ Alice Newcome-Beill / Lifewire
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## iBuypower Custom Gaming PC
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![iBUYPOWER Custom Gaming Computer](https://www.lifewire.com/thmb/zGBwMEee1S55WR87btZ_tU8wl7c=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Gygabyte_GEFORCE_RTX_HeroHoriz-db8d12900c4449e9b8aab6999b42372c.jpg)
 
 Alice Newcome-Beill / Lifewire
@@ -101,6 +110,10 @@ Alice Newcome-Beill / Lifewire
 
 Alice Newcome-Beill / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ## Design: More bounce for the ounce
 
  The matte black metallic case from NZXT is about as simple as they come, but what it lacks in aesthetics, it more than makes up for in usability. It features cable routing channels throughout the back panel, complete with Velcro straps and loops for tying down bundles of cables. The system builder put those to good use as there was very little in the way of loose cables when I opened the back panel.
@@ -113,10 +126,25 @@ Alice Newcome-Beill / Lifewire
 
  There are plenty of pre-built options that allow you to swap out components based on your budget, but very few that allow for the level of customization you can get with a dealer like iBuyPower. While manufacturers like Dell and HP can certainly offer better budget options when it comes to gaming PCs, iBuyPower is the team to beat for anyone looking for a very specific build or access to top of the line parts.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ![iBUYPOWER Custom Gaming Computer](https://www.lifewire.com/thmb/-qQXXO0Uc5XYVpt1sO3ttNAdVJE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Gygabyte_GEFORCE_RTX_04-fd15f80f7470451ab0d982aa7cb271c6.jpg)
 
 Alice Newcome-Beill / Lifewire
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Performance: UFOs and Big Rigs
 
  I used a variety of both organic and synthetic benchmarks to stress test the system to see how it would hold up. I was pleased to find it blew away benchmarks for competing systems and was able to handle the most demanding games I threw at it.
@@ -173,6 +201,9 @@ Alice Newcome-Beill / Lifewire
 
  I used PC parts picker to assemble a list of all the components I used in the build and was pleasantly surprised to find very little was tacked on as a premium. If we had chosen to build this system ourselves, it would have cost us a grand total of $4,600 before tax, which is remarkably close to what I paid iBuypower to make the system for me ($4,562). Bear in mind that I also get access to tech support, a 1-year warranty as well as the actual assembly.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![iBUYPOWER Custom Gaming Computer](https://www.lifewire.com/thmb/ZNgdquPbxQTjbSdNS2MbGVdghT0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Gygabyte_GEFORCE_RTX_05-9982bf92d93746189e3b4fe68526bea0.jpg)
 
 Alice Newcome-Beill / Lifewire
@@ -185,6 +216,9 @@ Alice Newcome-Beill / Lifewire
 
 Alice Newcome-Beill / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## iBuypower vs. Dell Alienware Aurora R11
 
  For comparison, I’m stacking this build up against one of our top picks for gaming PCs, the Dell Alienware R11\. The R11, costs about $1,000 less, and you likely won't need several weeks of lead time to have your system shipped, and you can typically buy multiple models right off the shelf. Perhaps more importantly, Alienware has updated the GPUs on all its current configurations to include Nvidia 30-series GPUs. So if that's all you're after, an Alienware R11 configuration likely represents a smarter investment.

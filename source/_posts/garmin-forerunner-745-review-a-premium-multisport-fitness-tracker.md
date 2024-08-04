@@ -1,7 +1,7 @@
 ---
 title: "Garmin Forerunner 745 Review: A Premium Multisport Fitness Tracker"
-date: 2024-08-03 21:43:55
-updated: 2024-08-04 10:46:12
+date: 2024-08-03T23:04:10.461Z
+updated: 2024-08-04T23:04:10.461Z
 categories:
   - BestProducts
 description: "This Article Describes Garmin Forerunner 745 Review: A Premium Multisport Fitness Tracker"
@@ -13,8 +13,14 @@ thumbnail: https://thmb.techidaily.com/08702778e13a63a51dde09a4b23ab862a68808a42
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Garmin Forerunner 45
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/9iHW-uJhBOq8W0g0_3J6JJ3oe10=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-HeroSquare-2cc58de569434b0fa44a3c79eb0c1777.jpg)
 
 Lifewire / Todd Braylor
@@ -37,8 +43,14 @@ Lifewire / Todd Braylor
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Garmin Forerunner 45
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/o718az7uF1ea0o2yiaw0vFBeQvU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-HeroSquare-2cc58de569434b0fa44a3c79eb0c1777.jpg)
 
 Lifewire / Todd Braylor
@@ -77,6 +89,9 @@ Lifewire / Todd Braylor
 
  Once you sync it to the app and charge it up to 100%, you're ready to wear your new Forerunner 45 and get going.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/dDyZtrCdCkQOgVcBV6cAwVcFi68=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-04-2c87d86b2b60411b9ebf6696851a2d3b.jpg)
 
  Lifewire / Todd Braylor
@@ -95,6 +110,9 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: Sport modes, sleep tracking, and Garmin Coach**
 
  We tested the Forerunner 45 on a series of daily trail runs plus a long run and were pleased with its functionality. It features an optical heart rate sensor that charts your average and max heart rates plus an estimation of your V02 max⁠ (the maximum amount of oxygen you can uptake during exercise).
@@ -125,6 +143,13 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ## **Software: Minimal graphics with widgets in place of apps**
 
  The FR45 has a minimal OS and the visuals of the display are quite basic. The screen is always on and the simple graphics are designed for high visibility when you are on the move and working out, which is ideal for checking your progress during exercise. The display feels very utilitarian and the graphics do exactly what they intend to do: tell you the info you need to know without any distractions.
@@ -139,6 +164,9 @@ Lifewire / Todd Braylor
 
  The safety alert is similar, allowing you to send a preset alert message with your location as a follow link to a designated emergency contact. But unlike incident detection, the safety alert is sent manually and designed to be used any time you find yourself in a potentially unsafe situation while out running or biking. Both of these features require that your smartphone is within Bluetooth range.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Training essentials for a decent price**
 
  The Garmin Forerunner 45 carries an MSRP of $199.99, which is a pretty decent deal for a GPS watch with the added Garmin Coach features.

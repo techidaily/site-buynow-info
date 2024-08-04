@@ -1,7 +1,7 @@
 ---
 title: "Evaluating Midland's LXT500VP3: Does This Multifaceted Handheld Radio Measure Up to Expectations?"
-date: 2024-07-30 14:32:20
-updated: 2024-08-01 10:32:58
+date: 2024-08-03T23:03:59.058Z
+updated: 2024-08-04T23:03:59.058Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating Midland's LXT500VP3: Does This Multifaceted Handheld Radio Measure Up to Expectations?"
@@ -87,6 +87,9 @@ PHOTO: Amazon
 
 **DOCSIS Standard:** 3.0 |**Channels:** 32x8 |**Speed:** 1.2Gbps / 216Mbps |**Voice Support:** No |**MOCA:** No |**Wired Ports:** 1
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## Best Performance
 
 [Netgear Nighthawk CM2000](https://www.amazon.com/dp/B08GWNZ9VF?tag=lifewire-onsite-prod-20&ascsubtag=4082523%7Cnf5214e1caebb46e4825c05bae32bf72217%7CB08GWNZ9VF)
@@ -115,6 +118,9 @@ PHOTO: Amazon
 
 [5 Things to Consider Before Buying a Wireless Router](https://www.lifewire.com/best-wi-fi-6-routers-5181486)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ## Best for Multi-Gigabit Internet
 
 [Motorola MB8611](https://www.walmart.com/ip/528073648)
@@ -172,6 +178,9 @@ PHOTO: Amazon
 
 [The Best Long-Range Routers of 2024](https://www.lifewire.com/best-wireless-routers-4038590)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ## Best Value
 
 [Arris Surfboard SB8200](https://www.amazon.com/dp/B07DY16W2Z/?tag=lifewire-onsite-prod-20&ascsubtag=4082523%7Cnf5214e1caebb46e4825c05bae32bf72217%7CB07DY16W2Z)
@@ -199,6 +208,9 @@ PHOTO: Amazon
 
 **DOCSIS Standard:** 3.1 |**Channels:** 2x2 / 32x8 |**Speed:** 2Gbps / 800Mbps |**Voice Support:** No |**MOCA:** No |**Wired Ports:** 2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Basic Option
 
 [Netgear CM500](https://www.amazon.com/dp/B06XH46MWW?tag=lifewire-onsite-prod-20&ascsubtag=4082523%7Cnf5214e1caebb46e4825c05bae32bf72217%7CB06XH46MWW)
@@ -233,6 +245,9 @@ PHOTO: Amazon
 
  Whether you think you know everything you need to or are starting from scratch, here are all the features you should remember while buying a modem.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Motorola MG7700](https://www.lifewire.com/thmb/1SZf8UwoZuAHJOglWXBzaJfrml8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-2-5bacf868c9e77c002c9555f3.jpg)
 
 ### When Should You Rent Your Cable Modem?
@@ -255,6 +270,9 @@ PHOTO: Amazon
 
  If you subscribe to voice services from your ISP, such as Xfinity from Comcast Internet with Voice, you must ensure that the cable modem you purchase supports your provider's voice services. While it's theoretically possible to run your old voice-capable cable modem in parallel with a newer, high-performance modem, this can get messy and needs to be supported in some cases. Besides, the main point of buying a cable modem is that you don't have to keep paying rental fees for the old one.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Motorola MG7700 combo](https://www.lifewire.com/thmb/mczhPmklHisJ3nV93MiYFCIrGPA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-4-5bacf875c9e77c0025819a90.jpg)
 
  FAQ

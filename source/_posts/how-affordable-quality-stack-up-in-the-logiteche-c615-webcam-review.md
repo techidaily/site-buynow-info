@@ -1,7 +1,7 @@
 ---
 title: How Affordable Quality Stack Up in the Logiteche C615 Webcam Review
-date: 2024-07-30 22:19:32
-updated: 2024-08-02 10:51:30
+date: 2024-08-03T23:04:05.017Z
+updated: 2024-08-04T23:04:05.017Z
 categories:
   - BestProducts
 description: This Article Describes How Affordable Quality Stack Up in the Logiteche C615 Webcam Review
@@ -13,8 +13,15 @@ thumbnail: https://www.lifewire.com/thmb/JYB77B4O-8sjMk3jYEtqv6y6tMI=/400x300/fi
 
 4
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## Beantech Bitwatch S1 Plus
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/JogmBSjTGQl_gqbjuX8prgeJJPA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
 
  Lifewire / Emily Ramirez
@@ -62,10 +69,17 @@ thumbnail: https://www.lifewire.com/thmb/JYB77B4O-8sjMk3jYEtqv6y6tMI=/400x300/fi
 
  The Beantech Bitwatch S1 Plus is an interesting proposition. For only $50, it promises to provide heart rate monitoring, music storage, call management, voice control, and remote notifications. For the most part, it delivers. The Bitwatch has its share of design flaws, such as a poorly fitted watch strap and an iOS-only voice app, but it performs enough to be a reasonable consideration for those looking for their first smartwatch.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/8rMhc1Lk5yFRFW4Zlt2K9cmPdFo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-4-01d7e5ff51aa47008d803513064f4a7a.jpg)
 
  Lifewire / Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## **Design and Software: A surprising amount of features in this chunky watch**
 
  The most outstanding feature of the Bitwatch’s design is its chunkiness. For those with small wrists, this smartwatch looks ridiculous. Furthermore, the included bands are too small in comparison to the watch, giving the overall design a cheap feel. When you wear this watch, you will notice it weighing your wrists down, taunting you to take it off. But as ugly as the Bitwatch is, it is a functional little watch. It has a power button and volume buttons, as well as a strong vibration motor. Its touchscreen works without a problem, and the app layout is intuitive to understand.
@@ -80,10 +94,16 @@ thumbnail: https://www.lifewire.com/thmb/JYB77B4O-8sjMk3jYEtqv6y6tMI=/400x300/fi
 
  Setting up the Bitwatch works as you’d expect. Pair it via the Bluetooth on your phone and download the Beantech app. It works with both Android and iOS, so you should have no difficulty. Alerts will show up in the remote notifier app, and apps such as the calendar are not synced with your phone’s calendar apps, so keep that in mind if you’d like to add any events, notifications, or alarms to your watch.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/O7xHfA9sKsBdC0nmqNXbFky-Dm4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-2-3b838f1124184bbd9452b79bb8449c2b.jpg)
 
  Lifewire / Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: You get what you pay for**
 
  The Bitwatch’s low price tag shows in its performance, unfortunately. The Siri app is just that: it interfaces with Siri, meaning that voice commands are iOS-exclusive. Notification handling on the device can get confusing also. You find notifications in the Remote Notifier app, and dismissing them on the Bitwatch does not dismiss them on your phone.
@@ -120,6 +140,9 @@ thumbnail: https://www.lifewire.com/thmb/JYB77B4O-8sjMk3jYEtqv6y6tMI=/400x300/fi
 
  The Beantech Bitwatch is not a groundbreaking smartwatch, but it provides a lot of essential features for $50\. If you’re looking to try out smartwatches, the Bitwatch will give you a solid battery life, music storage, passive notifications, phone call management, and a very large touchscreen.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Bitwatch S1 Plus

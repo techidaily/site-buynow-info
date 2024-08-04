@@ -1,7 +1,7 @@
 ---
 title: Is the Samsung Galaxy S10+ Still Worth It Against the New S20?
-date: 2024-07-31 21:31:13
-updated: 2024-08-01 10:17:14
+date: 2024-08-03T23:04:19.857Z
+updated: 2024-08-04T23:04:19.857Z
 categories:
   - BestProducts
 description: This Article Describes Is the Samsung Galaxy S10+ Still Worth It Against the New S20?
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Samsung Galaxy Fit
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/UbU9fom8autjrPBW79fdJpbGiu8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_04LW4161013-1-760c721cdfb74062a7b7a34dffa00d9e.jpg)
 
  Lifewire / Yoona Wagener
@@ -37,8 +43,17 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Samsung Galaxy Fit
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/RBJ_qd0-iPj3u7qSA3GAXNn2byQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_04LW4161013-1-760c721cdfb74062a7b7a34dffa00d9e.jpg)
 
  Lifewire / Yoona Wagener
@@ -72,6 +87,9 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ## **Design: Functional and slightly elevated**
 
  The Samsung Galaxy Fit is a fitness-oriented device, and the design reflects this. It’s clean, minimal, and straightforward. Not only is this wearable extremely lightweight at only 0.81 ounces, but it’s also quite slim, which gives it a bracelet-like appearance.
@@ -112,6 +130,9 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
  So while it was mostly comfortable for general wear and during exercise activities, we found that the fit suffered from being either too tight or too loose because the adjustments weren’t incremental enough. It was hard to find a just-right middle ground.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/SRdpyMKwwNLE2m_Dnn2o9thnpQ8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-3-40a8d98ca4a04e7c9b5b18531df43e6f.jpg)
 
  Lifewire / Yoona Wagener
@@ -140,6 +161,9 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
  When we did have to charge the device again, we found that process to be speedy: it took only two hours to recharge in full.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Software: Dial up your fitness with the Samsung Health app**
 
  Unlike other Samsung smartwatches, the Samsung Galaxy Fit is built on a FreeRTOS (real time operation software) platform. This OS relies heavily on the companion smartphone app and the Samsung Health app for a well-rounded experience.
@@ -148,6 +172,9 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
  In addition to controlling the watch settings easily from the[mobile app](https://www.lifewire.com/what-are-apps-1616114) , the Samsung Health app is the other go-to resource. Here you can view all the information captured by the activity tracker, including fitness, sleep, and even stress levels. You can also take this a step further by using the app to monitor calories, weight, and water intake.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ## **Price: Great for what you get**
 
  The Samsung Galaxy Fit retails for $99.99, which makes it a strong competitor in the fitness tracker market. Similarly-priced devices from the Fitbit brand offer an equivalent bundle of all-day activity tracking and general wellness features but lack the vibrant display of the Galaxy Fit.
@@ -168,6 +195,18 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
  The Samsung Galaxy Fit is an appealing option for those who want a bit of smartwatch functionality and a heavy emphasis on exercise monitoring—without shelling out too much money. The fit, ironically, may be the largest issue. But if you’re able to find the right size, this may be everything you want in a fitness tracker.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Samsung Galaxy Watch Active](https://www.lifewire.com/samsung-galaxy-watch-active-review-4766873)

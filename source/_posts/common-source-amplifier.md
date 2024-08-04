@@ -1,7 +1,7 @@
 ---
 title: Common Source Amplifier
-date: 2024-08-02 18:29:45
-updated: 2024-08-05 12:13:57
+date: 2024-08-03T23:03:53.956Z
+updated: 2024-08-04T23:03:53.956Z
 categories:
   - BestProducts
 description: This Article Describes Common Source Amplifier
@@ -13,6 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/O39PZJSOEqLK7wFkw75WGuvW23M=/400x300/fi
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Insomniac Games Ratchet & Clank
 
 ![Ratchet & Clank](https://www.lifewire.com/thmb/DWqRvFZ-36nGvXU8dPYi_b7y0VM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Ratchet-and-Clank-Playstation-4-Video-Game-1-9f15662dc6e442d08e671b05f33004e0.jpg)
@@ -38,8 +41,14 @@ thumbnail: https://www.lifewire.com/thmb/O39PZJSOEqLK7wFkw75WGuvW23M=/400x300/fi
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## Insomniac Games Ratchet & Clank
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Ratchet & Clank](https://www.lifewire.com/thmb/22OZFN9n1z0XMK4oYxd9JsooK8s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Ratchet-and-Clank-Playstation-4-Video-Game-1-9f15662dc6e442d08e671b05f33004e0.jpg)
 
  Lifewire / Andrew Hayward
@@ -81,6 +90,9 @@ thumbnail: https://www.lifewire.com/thmb/O39PZJSOEqLK7wFkw75WGuvW23M=/400x300/fi
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Gameplay: Pew pew, but more too**
 
  Most of Ratchet & Clank takes the form of an action-platform game, with a mix of wrench-swinging and gun-blasting combat, plus a fair bit of exploration and leaping around hazards and obstacles. Over the course of the single-player campaign, you will primarily control Ratchet as you navigate between various planets to complete primary quests and optional sub-missions.
@@ -103,12 +115,18 @@ thumbnail: https://www.lifewire.com/thmb/O39PZJSOEqLK7wFkw75WGuvW23M=/400x300/fi
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Graphics: Like a CGI movie**
 
  Most of Ratchet & Clank is really gorgeous, with an almost Pixar-like quality to the real-time graphics. That’s been a common theme for the series since the PlayStation 3 entries, but it still holds true today. Charming character and world design pairs well with the power of the PlayStation 4 console, delivering colorful and memorable worlds, smooth action and explosive effects, and rarely a dull moment in sight.
 
  The only exception comes with the cinematic cut-scenes, which don’t have quite the same spark as the in-game action. This Ratchet & Clank remake was released alongside a critically-panned CGI movie that shared many of the same visual assets, and part of the film seems to have had a slight undue influence on this part of the game. They’re not bad, really—just dull.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ![Ratchet & Clank](https://www.lifewire.com/thmb/6cyUM42s01WjwcQBukvDpqVMGuw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ratchet-and-Clank-Playstation-4-Video-Game-7-0ef8522490f34d7ba8e01d66a2054821.jpg)
 
  Lifewire / Andrew Hayward
@@ -139,6 +157,9 @@ thumbnail: https://www.lifewire.com/thmb/O39PZJSOEqLK7wFkw75WGuvW23M=/400x300/fi
 
  Ratchet & Clank does a fine job of taking an older (but much-loved) gaming experience and giving it the right nips and tucks needed to appeal to a fresh generation. The zany weapons are a blast, the combat is entertaining without being aggressive or overly violent, and the characters and environments are charming. It’s a strong pick both for kids who are already comfortable with action games and players of any age—plus you can’t beat the price.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Ratchet & Clank

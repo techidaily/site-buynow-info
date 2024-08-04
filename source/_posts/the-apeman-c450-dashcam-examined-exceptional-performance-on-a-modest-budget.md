@@ -1,7 +1,7 @@
 ---
 title: "The Apeman C450 Dashcam Examined: Exceptional Performance on a Modest Budget"
-date: 2024-07-31 23:35:16
-updated: 2024-08-02 10:18:24
+date: 2024-08-03T23:04:30.692Z
+updated: 2024-08-04T23:04:30.692Z
 categories:
   - BestProducts
 description: "This Article Describes The Apeman C450 Dashcam Examined: Exceptional Performance on a Modest Budget"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/57a07625ab9c873f1b8816cfe4ef02cf1a6f9bda4
 
 ## Apeman C450 Dash Cam
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ![Apeman C450 Dashcam](https://www.lifewire.com/thmb/R-SkTPUBgYZCUaD9aixocd8OUy8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_HeroSquare2-c752b8527e31471e9018279dea42a8ca.jpg)
 
 Lifewire / Danny Chadwick
@@ -37,8 +40,14 @@ Lifewire / Danny Chadwick
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Apeman C450 Dash Cam
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Apeman C450 Dashcam](https://www.lifewire.com/thmb/qtPoWkWW4veIi00rgbPVt6Q4pu8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_HeroSquare2-c752b8527e31471e9018279dea42a8ca.jpg)
 
 Lifewire / Danny Chadwick
@@ -66,6 +75,9 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: All the basics**
 
  The Apeman C450 has a three-inch screen that’s bright, detailed, and provides an at-a-glance view of the camera’s status. If it were much bigger, it would be both a distraction and dangerous visual obstruction.
@@ -104,10 +116,18 @@ Lifewire / Danny Chadwick
 
  The camera also has the ability to record audio, but it’s an internal mic and not very directional so it picks up everything. When we tested it, we heard a lot of engine and wind noise while driving. Voices came through alright, but it’s not a high-quality recording and didn’t pick up anything happening outside the vehicle.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/Hp7FvJ_BMgl0S2-Dsd-hd2qiQ7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_04-82d0af63043344a6b7b44863790050d7.jpg)
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Performance: Travels as well as the rest of them**
 
  During our testing, the Apeman C450 performed exactly as we expected. It never shut down unexpectedly, it stayed attached to the windshield, and it yielded no problems during the drive.
@@ -132,6 +152,9 @@ Lifewire / Danny Chadwick
 
  The defects of this dashcam can be forgiven pretty easily considering that it costs less than $50\. If you’re looking for a very inexpensive device, the Apeman C450 is a decent if somewhat flawed solution—it’s definitely not built as solidly and lacks the high resolution of its more expensive competitors, but if you are comfortable working around those shortcomings, this dashcam performs pretty well for the price.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Competition: Apeman C450 vs. Z-Edge Z3 Plus**
 
  We tested the Apeman C450 side by side with the Z-Edge Z3 Plus dashcam. The Z3 Plus is considerably more expensive, and while we found these two devices to be generally similar in form and function, we ultimately favored the Z3 Plus because it lacks the small annoyances that made the Apeman C450 frustrating.

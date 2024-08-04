@@ -1,7 +1,7 @@
 ---
 title: "Evaluating the Futuristic Lenovo ThinkPad X1: A Flawed Marvel in Portability"
-date: 2024-07-30 10:49:18
-updated: 2024-08-02 12:58:45
+date: 2024-08-03T23:04:46.677Z
+updated: 2024-08-04T23:04:46.677Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating the Futuristic Lenovo ThinkPad X1: A Flawed Marvel in Portability"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/f0b667ebcfe4598116d4b6654429dec8091fa0451
 
 3.9
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Garmin Vivoactive 3 Music
 
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/mWu92SLDHKWD9Vy5KklQKBAJFPY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Garmin-Vivoactive-3-Music-Smart-Watch-1-a182a2ce6d214080bd38bdb1c85e49a1.jpg)
@@ -39,8 +42,15 @@ Lifewire / Andy Zahn
 
 3.9
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Garmin Vivoactive 3 Music
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/FeCJ-wziP0Qoo9-pmifuFx9oZ7E=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Garmin-Vivoactive-3-Music-Smart-Watch-1-a182a2ce6d214080bd38bdb1c85e49a1.jpg)
 
  Lifewire / Andy Zahn
@@ -66,6 +76,9 @@ Lifewire / Andy Zahn
 
  Smartwatches are incredible devices, and the Garmin Vivoactive 3 Music is no exception. It’s remarkable how much advanced tech is crammed below the glass of this diminutive device. I ran it through its paces to see if it can stand out in a crowded and competitive niche.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Attractive and minimalistic**
 
  At first glance, you could be forgiven for not realizing that the Garmin Vivoactive 3 Music is a[smartwatch](https://www.lifewire.com/an-introduction-to-smart-watches-3441381) . Its round, modern, minimalist design is attractive but subtle. The face of the watch is made of scratch-resistant Corning Gorilla Glass 3, the case is built of rugged polymer, and the strap is silicone. This rugged construction comes with a waterproofing rating of 5 atmospheres (ATM), which means it’s rated down to 163 feet. However, it’s worth noting that this watch isn’t intended for diving use.
@@ -84,6 +97,9 @@ Lifewire / Andy Zahn
 
  The included band was a little small for my extra-large 9-inch wrists.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Setup Process: Fairly straightforward**
 
  Getting started with the Vivoactive 3 Music is reasonably easy, though it did take me some time after connecting to my phone to get through all the necessary permissions and connections it requires. There were updates to install, and I needed to create an account with Garmin. I also downloaded Spotify and connected the Vivoactive 3 to my wireless earbuds. Note that you need to connect to Wi-Fi to download music via Spotify or another app.
@@ -98,6 +114,9 @@ Lifewire / Andy Zahn
 
 The touchscreen interface is responsive, though a bit laggy.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Battery: Variable duration**
 
  How long the battery in the Vivoactive 3 Music lasts depends entirely on how it’s used. If you only use its smartwatch capabilities occasionally then it’s good for a week at a time. However, when I made use of GPS, music, and other power-intensive features, it would run out in less than a full day of use.
@@ -106,6 +125,9 @@ The touchscreen interface is responsive, though a bit laggy.
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: Proprietary ecosystem**
 
  The Vivoactive 3 Music utilizes Garmin’s proprietary operating system and app store. I was impressed by the wide variety of apps available in the Garmin IQ store. There are numerous downloadable watch faces (I particularly loved one with a Star Trek theme), multiple music apps including Spotify and Amazon Music, maps, tools, and games.
@@ -118,6 +140,9 @@ The touchscreen interface is responsive, though a bit laggy.
 
  Of course, the standout feature of the Vivoactive 3 Music is that it can store and play music, which is all that separates the Vivoactive 3 from the Vivoactive 3 Music. It can store up to 500 songs, and I downloaded several albums via Spotify to listen to while out and about. The watch connects to wireless headphones via Bluetooth, which along with the built-in GPS and Wi-Fi means that in many cases you don’t need to lug your phone along with you to use many of the watch's features.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/dALT4qb1vS9VNEvePqYoZlqXX0s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivoactive-3-Music-Smart-Watch-4-a84ac637f7034353bffd90856070a7d8.jpg)
 
  Lifewire / Andy Zahn

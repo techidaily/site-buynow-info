@@ -1,7 +1,7 @@
 ---
 title: Petcube's Most Economical HD Pets Camera – A Buyer's Guide
-date: 2024-07-30 21:55:39
-updated: 2024-08-01 11:31:31
+date: 2024-08-03T23:04:20.364Z
+updated: 2024-08-04T23:04:20.364Z
 categories:
   - BestProducts
 description: This Article Describes Petcube's Most Economical HD Pets Camera – A Buyer's Guide
@@ -39,6 +39,9 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## New Bee LC-B41 Bluetooth Earpiece
 
 ![New Bee LC-B41](https://www.lifewire.com/thmb/vZtZ6RDws7OskTiDF9S3BkKxc_4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NewBee_BluetoothHeadsets_LCB41_HeroSquare-2ff9227981ee4cce88d0dccaf0bae6c7.jpg)
@@ -66,12 +69,18 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ## **Design: Small and inconspicuous**
 
  The New Bee is relatively small, measuring a little over two inches in length and about 0.6 inches wide. It comes in three different colors: black, white, or gold. The exterior finish is glossy, and it has silver trim that gets thicker at the rounded off bottom portion of the headset. Overall, this headset looks more like a typical electronic device than some of the other units I’ve tested.
 
  There are three hard button controls on the New Bee, which are ideally located for the easiest possible access. On one side sits a physical on and off slider switch, and the other side has a volume control switch. The brand name “New Bee” is printed along the front of the glossy surface, and you press on the front glossy surface of the headset to answer and end calls. Since the call button is so large, it’s easier to answer a call while you’re performing other tasks.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Comfort: Wears well for long periods**
 
  The New Bee LC-41 is lightweight and comfortable to wear for long time periods, but it’s more comfortable without the addition of the ear hook. If you’re not partaking in heavy activity, the New Bee stays in the ear pretty well, but if you’re going to the gym or going for a run, you’ll want the added support of the ear hook.
@@ -80,6 +89,10 @@ Lifewire / Erika Rawes
 
  The ear cushions are soft and comfortable, and they don’t feel “forced.” Each ear cushion has a loop that helps it stay in the ear, but the loop is flexible, so it doesn’t push against the curves in your ear.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ## **Sound Quality: Better for calls than music**
 
  The New Bee features HD voice and CVC (clear voice capture) 6.0 noise cancellation. The[call quality on the Bluetooth headset](https://www.lifewire.com/what-to-know-about-bluetooth-3134591) is good overall, but I could hear a slight buzzing sound when I turned the headset on full volume. In spite of the slight buzzing and the fact that the microphone sits far away from the mouth when wearing the New Bee, the caller on the other end of the line could still hear my speech clearly through the microphone. I had no issues hearing the caller through the speaker either.
@@ -100,6 +113,9 @@ Lifewire / Erika Rawes
 
  New Bee features HD voice and CVC (clear voice capture) 6.0 noise cancellation.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: A budget headset under $20**
 
  The price tag is insanely affordable. You can buy the New Bee LC-41 headset for around $17, which is an excellent value considering the battery life and all of the included accessories.
@@ -116,6 +132,9 @@ Lifewire / Erika Rawes
 
  The New Bee LC-41 isn’t perfect, but because it offers so much for so little, most people will be happy with the device.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  LC-B41 Bluetooth Earpiece

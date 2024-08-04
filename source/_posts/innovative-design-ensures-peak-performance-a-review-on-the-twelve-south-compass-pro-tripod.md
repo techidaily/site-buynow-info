@@ -1,7 +1,7 @@
 ---
 title: "Innovative Design Ensures Peak Performance: A Review on the Twelve South Compass Pro Tripod"
-date: 2024-08-01 16:35:28
-updated: 2024-08-04 10:27:44
+date: 2024-08-03T23:04:29.749Z
+updated: 2024-08-04T23:04:29.749Z
 categories:
   - BestProducts
 description: "This Article Describes Innovative Design Ensures Peak Performance: A Review on the Twelve South Compass Pro Tripod"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/cb431f215cf0eee5f553b44b6e0b6eba3871dc3f5
 
 ## TP-Link Deco P9 Hybrid Mesh WiFi System
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ![TP-Link Deco](https://www.lifewire.com/thmb/mwnSZX-y0iHxAEP3l5ftTT9udk4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_TP-Link-Deco-P9-Mesh-Wifi-1-23cc25aa00f3430b83ff0340b920773a.jpg)
 
 Lifewire / Andy Zahn
@@ -36,8 +39,14 @@ Lifewire / Andy Zahn
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## TP-Link Deco P9 Hybrid Mesh WiFi System
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ![TP-Link Deco](https://www.lifewire.com/thmb/WZYnF7YQLQF-DCDfMJj9b7oam0s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_TP-Link-Deco-P9-Mesh-Wifi-1-23cc25aa00f3430b83ff0340b920773a.jpg)
 
 Lifewire / Andy Zahn
@@ -71,6 +80,9 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Setup process: Remarkably streamlined**
 
  After plugging in each of the Deco P9 units, I downloaded the TP-Link Deco app to continue the setup process. The included instruction booklet contains little more than a key for deciphering the color-coded lights on the device and a message telling you to download the app. After setting up a TP-Link account, the app guided me through the setup process with clear instructions that made getting my 3 units up and running a breeze.
@@ -83,6 +95,9 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Connectivity: Consistent coverage**
 
  The TP-Link Deco provided an impressive range even with only a single P9 unit installed. With all 3 units installed in the attic, main floor and basement of my 4,000 square foot home I was able to enjoy complete coverage. Furthermore, I was able to connect to the network throughout my yard up to about 50 feet beyond the walls. This excellent range is due in part to the Deco 9’s ability to use the existing electrical wiring in your house to transmit signals.
@@ -99,6 +114,9 @@ Lifewire / Andy Zahn
 
  You can control the Deco via your IFTTT or[Amazon Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) smart home system. Furthermore, you can set parental controls, grant various levels of priority to different devices or blocklist devices you don’t want to connect. You can also update the firmware through the app, set up a guest network, add friends and family as network managers, or access a variety of more detailed controls.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ![TP-Link Deco](https://www.lifewire.com/thmb/U5ITPSKjtk1XGZ9Kl9KMsBlEsNQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link-Deco-P9-Mesh-Wifi-4-ce3b915d22d048fd8ce095ab7b5dedb1.jpg)
 
  Lifewire / Andy Zahn
@@ -107,6 +125,9 @@ Lifewire / Andy Zahn
 
  With an MSRP of $229, the Deco P9 provides a robust three-node[mesh Wi-Fi network](https://www.lifewire.com/what-is-a-mesh-network-4842178) at a very reasonable price point. Though it’s pricier than your average ISP-provided router, if you have a large, multi-story home it’s certainly worth the extra expense. For buildings with very thick walls, the powerline signal transmission capability of the Deco P9 adds a whole extra level of value to the system.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **TP-Link Deco P9 vs. Razer Portal**
 
  The TP-Link Deco P9 is great for large homes in neighbors without too many competing for Wi-Fi networks. However, the Razer Portal is a better choice if you’re looking for top performance in an area with a lot of interference from your neighbor's routers. It’s also significantly cheaper and can be used on its own or expanded into a mesh network with additional units. It’s worth noting, though, that the Deco P9 has a much slimmer profile than the Razer Portal, and is easier to place on a table or shelf.

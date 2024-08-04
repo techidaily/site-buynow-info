@@ -1,7 +1,7 @@
 ---
 title: "Xiaomi Mi Smart Band 4: The Ultimate Budget Fitness Tracker Review – Why It's My Choice"
-date: 2024-07-31 22:59:28
-updated: 2024-08-03 10:41:36
+date: 2024-08-03T23:04:18.754Z
+updated: 2024-08-04T23:04:18.754Z
 categories:
   - BestProducts
 description: "This Article Describes Xiaomi Mi Smart Band 4: The Ultimate Budget Fitness Tracker Review – Why It's My Choice"
@@ -13,8 +13,14 @@ thumbnail: https://thmb.techidaily.com/c03221180f24d051697c535d192c12a06104e76b7
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Xiaomi Mi Smart Band 4
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![Xiaomi Mi Smart Band 4](https://www.lifewire.com/thmb/gu5s-Vyv187eoyORVVMpZu9AOVM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xiaomi-Mi-Band-4-Fitness-Tracker-1-0f0e3854f10a4a2595aacd594e37472b.jpg)
 
 Lifewire / Erika Rawes
@@ -77,6 +83,9 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Comfort: A water resistant removable band**
 
  The Xiaomi Mi Band 4 is water resistant with a 5 ATM rating. This means the band can go in up to 50 meters of water for up to 10 minutes, and it can tolerate shallow water activities like swimming. You can comfortably shower with the band, wear it in the rain, or wear it while you’re drenched in sweat. It doesn’t feel too hot on the wrist either.
@@ -89,6 +98,9 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: Not bad for the price**
 
  The Mi Band 4 has a responsive touch screen that doesn’t lag when switching between screens or loading data. It has an impressive feature set for a fitness tracker in this price range, although some of the tools aren’t always pinpoint accurate, and you won’t get as many perks as you’d get with a fitness tracker in a higher price range. All in all, I was impressed with the fitness tracker’s overall performance.
@@ -98,6 +110,15 @@ Lifewire / Erika Rawes
 
  On the downside, the step counter overstates steps, and it’ll sometimes track other hand movements as steps, like typing or swinging my arm. The heart rate monitor was dramatically inaccurate by as much as 15 beats per minute compared to a chest strap. However, the accuracy of the heart monitor improved when I placed the tracker in a better location on my wrist. The tracker lacks built-in GPS, and it uses your phone’s GPS for location based tracking.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/b-bHMwN4n7fkxgT3X0dueEvAuZ8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-2-4e096d92f3324689bed126949cdb0a14.jpg)
 
  Lifewire / Erika Rawes
@@ -108,10 +129,30 @@ Lifewire / Erika Rawes
 
  In addition to customizing settings and widgets and tracking your data, the Mi Fit app works with other products like the Mi Composition scale, which can provide a more comprehensive experience, including body weight and balance data.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/uyTDWcqaPVwpPOnZeijBG5Y2MYM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-5-040745fab732483a957277c9daaa82ca.jpg)
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Battery: Up to 20 days**
 
  The Mi Band 4’s battery is phenomenal, as the 135 mAh battery lasts for up to 20 days. Options within the app for things like better sleep monitoring and heart monitoring can greatly reduce battery life, however, the app will warn you about that when selecting such options.
@@ -124,6 +165,9 @@ The 135 mAh battery lasts for up to 20 days.
 
  The only negative about the battery is when it comes time to charge the device. You have to remove the tracker from the band and place it onto a mini charging station. It’s somewhat difficult to remove from the band, and you have to kind of wiggle it out of the band. The unit also fits snugly into the charging station, so you have to gently force the Mi 4 Tracker into the charging station to ensure it’s properly charging. Once you achieve that, it takes about one hour and 45 minutes to reach a full charge.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/kXajF8I7UCVG0wnufwSz3psTRmU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-3-8a9c12e307254854bcd99728db94330c.jpg)
 
  Lifewire / Erika Rawes

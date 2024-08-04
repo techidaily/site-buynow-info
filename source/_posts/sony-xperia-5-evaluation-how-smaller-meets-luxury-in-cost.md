@@ -1,7 +1,7 @@
 ---
 title: Sony Xperia 5 Evaluation - How Smaller Meets Luxury in Cost
-date: 2024-08-02 18:27:22
-updated: 2024-08-03 10:53:56
+date: 2024-08-03T23:04:37.907Z
+updated: 2024-08-04T23:04:37.907Z
 categories:
   - BestProducts
 description: This Article Describes Sony Xperia 5 Evaluation - How Smaller Meets Luxury in Cost
@@ -37,8 +37,14 @@ Lifewire / Jeremy Laukkonen
 
 3.9
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## D-Link DHP-P701AV Powerline AV2000
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/yEenIYDb17_Fxo9Tgt2DnpQFxtQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-HeroSquare-db3b8923e8f945e196de87932b00dc2a.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -65,6 +71,9 @@ Lifewire / Jeremy Laukkonen
 
  While the Powerline AV2000’s specifications are impressive, they don’t always tell the whole story. That’s why we took a pair of these adapters, plugged them in, and tested them to see if they work as well as advertised. We checked things like how easy they are to set up, whether they’re likely to get in the way of other electronics, real-world transfer speeds, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/plySecBvduGkJXsaWpMzfgOg7gU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-04-01bd7072d50949398973fb514e2ea95c.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -77,10 +86,16 @@ Lifewire / Jeremy Laukkonen
 
  Since you can’t plug these into a power strip without suffering a massive hit to data transfer speeds, it’s really nice to have the option to plug a power strip or any other device into the pass-through. Out test unit included the pass-through, and we highly recommend spending the extra money to get the version of the hardware with this feature.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/xx_XMhVtfwHDrdQV9zP4xFm4PkA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-02-4ccab309a3564682aefbd0a48f39355f.jpg)
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: No special knowledge or tools required**
 
  Setting up a wired network with a set of D-Link Powerline AV2000 adapters requires absolutely no networking experience or knowledge. The setup process requires you to plug one adapter into your modem or router with an included Ethernet cable, plug the other adapter into your computer, game console, or any other device that has an Ethernet port, and then plug both adapters into power.
@@ -117,6 +132,9 @@ Lifewire / Jeremy Laukkonen
 
  When tested on data transfer within the network, we measured a maximum transfer speed of 350Mbps. That’s not exactly gigabit, and speeds drop off significantly when the adapters are plugged into different circuits, but it’s still one of the fastest powerline adapters we’ve tested.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ![D-Link Powerline AV2000 Passthrough DHP-P701AV](https://www.lifewire.com/thmb/IXQZNi3pFRjm2tdKfPMhwxTE-DA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4141215-06-5a298aa4450e4adfb249aeae86330406.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -133,6 +151,9 @@ Lifewire / Jeremy Laukkonen
 
  The typical street price for these adapters is pretty close to the competition, but the MSRP is significantly more expensive. Since some competitors, like Extollo, make adapters that are even faster than these, it’s likely that you’re primarily paying for the brand name rather than better performance.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ## **Competition: Beats most of the competition, but doesn’t come out on top**
 
  The D-Link Powerline AV2000 adapters beat most competitors in terms of sheer performance, and the slightly higher price tag is mostly justified by high transfer speeds and reliable connections. The main exception is the Extollo LANSocket 1500, which was a bit faster in our tests, and has an MSRP of just $90.
@@ -151,6 +172,9 @@ Lifewire / Jeremy Laukkonen
 
  The D-Link Powerline AV2000 is a great powerline adapter, but it isn’t the best. We found that these adapters are extremely easy to set up and use, and they provide fast transfer speeds, but there are alternatives that are both faster and less expensive. If you can find a pair on sale, then the price concern goes out the window, and this is a great product to own. Otherwise, take a look at the Extollo LANSocket 1500, which is both faster and less expensive.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  DHP-P701AV Powerline AV2000

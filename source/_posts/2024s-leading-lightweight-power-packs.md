@@ -1,7 +1,7 @@
 ---
 title: 2024'S Leading Lightweight Power Packs
-date: 2024-07-28 14:31:36
-updated: 2024-07-31 10:42:29
+date: 2024-08-03T23:03:59.797Z
+updated: 2024-08-04T23:03:59.797Z
 categories:
   - BestProducts
 description: This Article Describes 2024'S Leading Lightweight Power Packs
@@ -64,10 +64,16 @@ Lifewire / Benjamin Zeman
 
  Linksys really kicked off the router customization movement in 2002 with its first open source router, the iconic WRT54G. The WRT1900AC followed twelve years later in 2014 and the Linksys WRT3200ACM Router improved upon it in 2016\. It introduced the fastest 5GHz band on the market, is Linksys’ first router with Tri-Stream 160, and it’s capable of Multi-User Multiple Input Multiple Output (MU-MIMO) data streaming and beamforming. This router delivers blazing fast speeds and a number of customized settings with advanced monitoring capabilities you won’t find in a normal router.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/xTJh9nKc58L-dK_nTJKAOHW7WCY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_04-d6fd78091be2489c83483672ac57af2e-7c960043bf5f4a259a43c30db125f0f9.jpg)
 
 Lifewire / Benjamin Zeman
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: A nostalgic look**
 
  The Linksys WRT3200ACM Router sticks with the familiar black and blue design of its predecessors. At 9.68 x 7.63 x 2.04 inches and 28.16 ounces it’s fairly large, and the four inch antennas add some additional height, though each antenna is adjustable and detachable.
@@ -90,10 +96,18 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
  At this point you can choose to click the “Manual Configuration” link in the bottom left corner of the setup welcome page or continue with the default setup. After finishing the initial setup, you get access to the dashboard user interface to configure your router at a more in-depth level. The browser interface on the left has a menu with a number of options. We’ll take a look at those options a little later in the software section since they aren’t part of the basic setup process.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/FS8mMgztL5cutF2feLNI4jorFig=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_03-bc6cced22d1c4e12b578da3f8b644d0c.jpg)
 
  Lifewire / Benjamin Zeman
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ## **Connectivity: 3200ACM and MU-MIMO capable**
 
  The Linksys WRT3200ACM is a MU-MIMO Dual-Band Tri-Stream 160 router with 600+2600 Mbps speeds. It’s powered by a 1.8GHz dual-core processor and uses the latest 802.11ac network standards. The 2.4GHz band and 5GHz band run independently of each other, so the router can simultaneously reach theoretical speeds of 600 Mbps on 2.4GHz and a massive 2600 Mbps on the 5GHz band.
@@ -114,6 +128,9 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
  Lifewire / Benjamin Zeman
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: Stock is great, open source is better**
 
  We’ve said it many times before, Linksys has great stock software. They’ve always been at the forefront when it comes to configuration and advanced settings. The current version of their web browser dashboard and their mobile apps are both great and offer a lot of customization. Everything just works and you won’t run into any frustrations like we did with other companies software.
@@ -128,12 +145,22 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
  If you’re new to open source router firmware, we encourage you to do your research first. Open source firmware is really for users who are familiar with building and debugging their own software. It requires more manual maintenance and you’ll need to keep up with any new releases yourself. There are a lot of other less expensive Linksys routers available if you want to test the waters before jumping in with the WRT3200ACM.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ## **Price: Good if you need open source**
 
  The Linksys WRT3200ACM Router typically retails for around $200\. Like other Linksys routers, however, you can find massive deals if you are willing to go refurbished. When available, you can find refurb models on Linksys’ own website for $150, and we’ve seen them elsewhere for as low as $100 in the past.
 
  Even if you don’t go with a refurb, the WRT3200ACM is a good buy, though it’s not a necessity if you aren’t looking to utilize it for its open source capabilities—there are other, cheaper options on the market that will serve your needs just as well.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ## **Linksys WRT3200ACM Router vs. Asus RT-AC5300 Router**
 
  Another router that tends to top the list of[open source routers](https://www.lifewire.com/best-wireless-routers-4038590) is the Asus RT-AC5300, a Tri-Band AC5300, MU-MIMO-capable router marketed towards gamers. This expensive router has a very large footprint and two antennas on each of the four sides. Its $400 MSRP is significantly higher than the Linksys WRT3200ACM, and the lowest retail price we’ve seen is around $270\. Even refurbished, it still goes for $250, the same price as the MSRP of the Linksys WRT3200ACM.
@@ -154,6 +181,9 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 * [Synology RT2600ac Wi-Fi Router](https://www.lifewire.com/synology-rt2600ac-wi-fi-router-review-4797390)
 * [Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008)
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  WRT3200ACM Tri-Stream Gigabit Wi-Fi Router

@@ -1,7 +1,7 @@
 ---
 title: Simplified Speed with the Aukey USB Hub - A Review of Its Sleek Design & Performance
-date: 2024-07-31 18:19:55
-updated: 2024-08-03 11:42:33
+date: 2024-08-03T23:03:59.628Z
+updated: 2024-08-04T23:03:59.628Z
 categories:
   - BestProducts
 description: This Article Describes Simplified Speed with the Aukey USB Hub - A Review of Its Sleek Design & Performance
@@ -40,6 +40,11 @@ Jeremy Laukkonen / Lifewire
 
 ## Apple Mac Mini
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ![Mac mini](https://www.lifewire.com/thmb/cOYA5qGbCuLx8V2Gpf67_t0Wd4o=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_horiz_Mac-Mini-M1-2020-Computer-1-c63ec986a9944869ab0f9ff7b7a0b01d.jpg)
 
 Jeremy Laukkonen / Lifewire
@@ -71,10 +76,17 @@ Jeremy Laukkonen / Lifewire
 
  During my time with the M1 Mac mini, I paid close attention to performance, of course, with a special eye to how well it handles non-native apps and apps that were designed for iOS. The lack of support for Bootcamp meant I wasn’t able to completely leave my old hardware behind, but there’s no getting around it: this is some impressive hardware at any price, let alone a price tag that’s cheaper than the previous iteration of the hardware.
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Mac mini](https://www.lifewire.com/thmb/aEGPK4B55KCbhrof83878utZpZQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mac-Mini-M1-2020-Computer-2-16eb4e84f8694bb6a76cf078906add40.jpg)
 
  Jeremy Laukkonen / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ## Design: Same sleek aluminum chassis
 
  The big changes here are all under the hood, as Apple opted to leave the overall design of the Mac mini (M1, 2020) unchanged from the previous model. It’s still a block of milled aluminum with the same rounded corners, satin finish, and shiny Apple logo emblazoned on the top. The top is smooth and unmarked aside from the logo, and the front and sides of the case are completely featureless aside from a small LED on the front that lets you know when the system is powered on.
@@ -93,6 +105,9 @@ Jeremy Laukkonen / Lifewire
 
  Jeremy Laukkonen / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Setup Process: Fast and painless, but you can’t use a Bluetooth keyboard or mouse
 
  If you’ve ever set up a macOS device before, the setup process isn’t any different here. It’s just a matter of accepting some terms, tweaking some initial settings, and connecting your Apple ID. As always, setup is going to be easier if you have access to another functional piece of Apple hardware that you’re already logged into.
@@ -141,6 +156,9 @@ Jeremy Laukkonen / Lifewire
 
  Aside from lack of support from game developers, the only real drawback here in terms of gaming comes from the HDMI port itself. While the M1 Mac mini can pump out[4K graphics](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) , it’s limited to a 60Hz refresh rate. That’s fine for most casual gamers, but anyone who has fallen in love with their high refresh rate monitor will experience a bit of pain here.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ## Productivity: Ready for work
 
  The great thing about the Mac mini line is that it’s always been so flexible. You can use a Mac mini for work, but the size and relative affordability of the hardware means you aren’t locked into using it that way. If you do aim to use an M1 Mac mini for work though, it’s more than up to the task. Native apps and the operating system itself run fast and smooth as you could possibly hope, with none of the sitting around looking at spinning beach balls that you may have gotten used to with older hardware.
@@ -153,12 +171,18 @@ Jeremy Laukkonen / Lifewire
 
  Multitasking also works flawlessly, and I was able to juggle an impressive number of browser windows, intensive apps like Photoshop and Handbrake, voice and video chat over Discord, and more without running into any real problems.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Audio: It’s there if you need it
 
  The M1 Mac mini is great in almost every category, but audio isn’t one of them. There’s a speaker inside that sleek aluminum block, but it isn’t one you’ll care to listen to. It’s tinny and hollow, and absolutely a placeholder for more capable external speakers. You’ll want to hook up headphonesor some kind of speakers or soundbar shortly after setting the M1 Mac mini up, because the built-in speaker isn’t really even suitable for watching YouTube videos, let alone listening to music or streaming your favorite shows or movies.
 
  The M1 Mac mini does include a 3.5mm headphone jack on the back along with built-in Bluetooth, so you have a lot of options. Just make sure to budget for some sort of external speakers or headphones, because you don’t want to get stuck with the built-in speaker.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Mac mini](https://www.lifewire.com/thmb/OZrKjTPGUmo00carhaedBa9WhTU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mac-Mini-M1-2020-Computer-5-bc84da59dfdf440c8d53a096509c232b.jpg)
 
  Jeremy Laukkonen / Lifewire
@@ -171,6 +195,10 @@ Jeremy Laukkonen / Lifewire
 
  I also tested the wireless connection, hooking the M1 Mac mini to my[Eero mesh network](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008) . When connected wirelessly, I measured a respectable 284 Mbps down and 54 Mbps up. At the same time, in the same location, my[HP Spectre x360](https://www.lifewire.com/hp-spectre-x360-15t-touch-laptop-review-4773540) measured 254Mbps down and 63Mbps up.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## Software: So long, Windows compatibility
 
  Software is the biggest stumbling block for M1 hardware during these early days, as there isn’t a whole lot out there that’s actually designed to run on Apple Silicon. Big Sur was built specifically for this hardware and to integrate seamlessly with Rosetta 2 for running legacy Intel macOS apps, and a number of first party Apple apps also run natively, but that’s about it at launch.
@@ -187,6 +215,9 @@ Jeremy Laukkonen / Lifewire
 
  The Mac mini saw a price increase alongside its last major retool, but Apple actually played against tradition and handed us a price reduction with the transition to M1 hardware. The baseline M1 Mac mini is actually hundreds of dollars cheaper than the previous iteration of the hardware, which is remarkable considering how much more powerful it is. The last Intel Mac mini was already a good deal, so the even cheaper M1 Mac mini looks even better in comparison. Considering its capabilities, it’s also a good deal when compared to non-Apple mini desktop hardware like the Intel NUC lineup.
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Mac mini](https://www.lifewire.com/thmb/G2V98ugnO-cdk-GaL11FUP0RWvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mac-Mini-M1-2020-Computer-7-c899b9f13f09448699fee766ab51a2bd.jpg)
 
  Jeremy Laukkonen / Lifewire
@@ -211,6 +242,9 @@ Jeremy Laukkonen / Lifewire
 
  The Apple Mac mini with M1 is a tremendously impressive piece of hardware, offering staggering performance at an affordable price. The only real catch here is that in leaving Intel behind, Apple may have left you in the lurch. If you currently can’t get by without running specific apps through Windows by way of Bootcamp, then the M1 Mac mini just isn’t what you’re looking for. If you can live and work in a world that’s entirely free of Windows, then the M1 Mac mini is ready to welcome you home.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Apple iPad Air 4](https://www.lifewire.com/apple-ipad-air-4-review-5091874)

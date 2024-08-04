@@ -1,7 +1,7 @@
 ---
 title: Fellowes' Best Value Microban Wired Keyboard - Comprehensive Review and Assessment
-date: 2024-07-30 11:48:34
-updated: 2024-07-31 10:53:24
+date: 2024-08-03T23:04:00.414Z
+updated: 2024-08-04T23:04:00.414Z
 categories:
   - BestProducts
 description: This Article Describes Fellowes' Best Value Microban Wired Keyboard - Comprehensive Review and Assessment
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/NVu5gdmMECRVQkvCY_3ARM-gZVI=/400x300/fi
 
 ## Oculus Quest 2 Elite Strap with Battery and Carrying Case
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![Oculus Quest 2 Elite Strap With Battery and Carrying Case](https://www.lifewire.com/thmb/mjtuI_9QNH3vOkXcKfnWAd2rmT0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus_Quest_2_Elite_Strap_HeroSquare-44edad5e6e114dc3887c4d81912b0181.jpg)
 
 Lifewire / Andrew Hayward
@@ -66,12 +69,18 @@ Lifewire / Andrew Hayward
 
  Available on its own for $49 or with a battery pack and carrying case for $129, the Elite Strap is a major improvement and worthwhile pickup for anyone who doesn’t love the original fit. I tested the latter configuration with the integrated battery pack and included case.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Design: A more supportive strap
 
  While the standard Oculus Quest 2 strap is simply made up of fabric bands—one around the back of your head and the other over the top—the Elite Strap is mostly plastic and significantly more supportive. That’s because it helps offset the weight of the visor itself by using the back of your head to securely keep the entire headset in place, thus minimizing its ability to sag or feel heavy on your face.
 
  The Elite Strap does this by having a soft plastic, oval-like brace at the back, which gently presses against the back of your head. It’s supported in part by a single fabric strap on the top, but more crucially by a locking mechanism on the back.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Oculus Quest 2 Elite Strap With Battery and Carrying Case](https://www.lifewire.com/thmb/g-QXyXCZitYdlr7F5TWDuzllhuY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus_Quest_2_Elite_Strap_02-83833091dfde4b3b9e2253177901bb66.jpg)
 
 Lifewire / Andrew Hayward
@@ -96,6 +105,9 @@ Lifewire / Andrew Hayward
 
  Once it’s secured, simply plug the USB-C cable on the side of the Elite Strap into the Quest 2 visor, as this adds power from the battery pack into your total supply. Now you’ll charge the entire headset via the USB-C port beneath the dial on the Elite Strap, which provides power to both the visor and strap batteries.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Comfort: Effective and adjustable
 
  Comfort is one of the driving forces behind the creation of the Elite Strap, and a major reason anyone would consider paying $49 or more for a different strap. Some people might find the Oculus Quest 2’s strap to be perfectly fine, but in my own testing, it was just tolerable: The headset felt heavy and was never as securely fastened in place as I wanted it to be. It was a big step down from the original Quest’s solid, rubberized plastic strap.
@@ -108,6 +120,9 @@ Lifewire / Andrew Hayward
 
 Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Battery: Double the uptime
 
  The Oculus Quest 2’s built-in battery lasts only about two hours, and the Elite Strap’s secondary 4,676mAh pack effectively doubles that tally. It adds roughly two more hours of use, meaning you’ll have the freedom to play for much longer sessions and/or charge the headset less often.
@@ -118,6 +133,9 @@ Lifewire / Andrew Hayward
 
  Granted, there are DIY options out there for boosting the Quest 2’s battery life, including plugging in a portable power bank and either sticking it into your pocket or otherwise affixing it to your body or headset. Depending on the size of the power bank, you could get significantly more uptime from that kind of solution and at a lower cost—but that’s more hassle and it’s a less elegant solution than the official option here.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ## Price: Not cheap, but it’s worth it
 
  After spending $299 on a VR headset, some might bristle at spending another $49 for a different strap—or $129 for that strap, double the battery life, and a case. However, if the Quest 2’s standard strap isn’t meeting your needs, then the Elite Strap is well worth the extra cash.
@@ -126,6 +144,9 @@ Lifewire / Andrew Hayward
 
  Do you need the whole bundle with the battery pack and case, though? If you typically use the Quest 2 in short sessions and don’t mind plugging it in on a regular basis, then probably not. The battery_can_ be a major benefit, particularly if you find yourself sticking around in VR for longer time spans, but that’s not always the case for users. The Elite Strap, in my view, provides the greatest enhancement within this bundle.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Oculus Quest 2 Elite Strap With Battery and Carrying Case](https://www.lifewire.com/thmb/edSGh2YZZ5OIkwkHbEJnwtUjfGc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus_Quest_2_Elite_Strap_05-e018715e02944614b51af8a2cb98f055.jpg)
 
 Lifewire / Andrew Hayward
@@ -148,6 +169,9 @@ Lifewire / Andrew Hayward
 * [Oculus Rift Headset and Controllers](https://www.lifewire.com/oculus-rift-review-4690370)
 * [Oculus Go Standalone VR Headset](https://www.lifewire.com/oculus-go-vr-headset-review-4690298)
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Quest 2 Elite Strap with Battery and Carrying Case

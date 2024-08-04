@@ -1,7 +1,7 @@
 ---
 title: "Disappointment in the Pits: How PS5's Exclusive 'Godfall' Misses the Mark"
-date: 2024-07-31 20:44:59
-updated: 2024-08-02 10:19:31
+date: 2024-08-03T23:04:19.764Z
+updated: 2024-08-04T23:04:19.764Z
 categories:
   - BestProducts
 description: "This Article Describes Disappointment in the Pits: How PS5's Exclusive 'Godfall' Misses the Mark"
@@ -32,6 +32,9 @@ thumbnail: https://thmb.techidaily.com/7145ec69591f6ebc68facf261c1d68971298e27f3
 * [ Apple Watch Series 9 \[GPS 41mm\] Smartwatch](https://www.amazon.com/Apple-Smartwatch-Aluminum-Fitness-Resistant/dp/B0CSV9Y331?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $280 (was $399)
 * [ Apple Watch SE (2nd Gen) \[GPS 40mm\] Smartwatch](https://www.amazon.com/dp/B0CHX7R6WJ?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $169 (was $249)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## AirPods
 
 * [Apple AirPods Pro (2nd Generation)](https://www.amazon.com/Apple-Generation-Cancelling-Transparency-Personalized-dp-B0D1XD1ZV3/dp/B0D1XD1ZV3?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $169 (was $249)
@@ -39,6 +42,9 @@ thumbnail: https://thmb.techidaily.com/7145ec69591f6ebc68facf261c1d68971298e27f3
 * [Apple AirPods (2nd Generation)](https://www.amazon.com/dp/B07PXGQC1Q?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $69 (was $129)
 * [Apple AirPods (3rd Generation) Wireless Ear Buds](https://www.amazon.com/dp/B0D1WXVQTN?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $120 (was $169)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## iPads & MacBooks
 
 * [Apple iPad Pro (10.5-inch, Wi-Fi + Cellular, 64GB) - Rose Gold](https://www.amazon.com/dp/B071GGB84Y?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $505 (was $779)
@@ -47,8 +53,14 @@ thumbnail: https://thmb.techidaily.com/7145ec69591f6ebc68facf261c1d68971298e27f3
 * [Apple 2024 MacBook Air 13-inch Laptop with M3 chip](https://www.amazon.com/dp/B071GGB84Y?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $899 (was $1099)
 * [Apple 2022 MacBook Air Laptop with M2 chip](https://www.amazon.com/2022-Apple-MacBook-Laptop-chip/dp/B0B3CDZLTB?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $799 (was $999)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Apple AirTag
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ![Apple AirTag, Amazon Apple](https://www.lifewire.com/thmb/FipFdA6HAHhnqkyPxPSxtPkhMbA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/amazon-apple-after-christmas-deals-121923-8-34d5dafd52504e70ac9e89bc39b8aed6.jpg)
 
 Amazon
@@ -69,6 +81,9 @@ Amazon
 
 ## Apple Pencil (2nd generation)
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Apple Pencil (2nd Generation)](https://www.lifewire.com/thmb/s0BIvaUqu6ZcjV4a9mIbMddr6Hw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ApplePencil2ndGeneration-c36a1762bd384a35bd468ba37708e1a3.jpg)
 
 Apple
@@ -89,8 +104,14 @@ Amazon
 
  Apple's AirPods Pro (2nd gen) offer excellent wireless sound, active noise cancellation, and four pairs of silicone tips so you can get the perfect fit. (And keep them in your ears!)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## Apple iPad 10.2-inch (9th Generation)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Apple 10.2-inch iPad 64GB (9th generation).](https://www.lifewire.com/thmb/Fz5fzdr5T2V7XBiWdboOc99fwHc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleiPad9thGeneration_Amazon-0fbd83ca454840278d06c4a85943f974.jpg)
 
 Amazon
@@ -101,6 +122,9 @@ Amazon
 
 ## Apple Watch Series 9 \[GPS 41mm\] Smartwatch
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Three Apple Watches in a row. Starting on the left is the Apple Watch SE (gen 2), Apple Watch Series 9 in the middle, and the Apple Watch Ultra 2 on the right.](https://www.lifewire.com/thmb/2xI4aMDe_iS79cxcVVcfvcWyMq0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleWatchlineup-b20fe549d8374cac9ec8afd8e08118a2.jpg)
 
 Apple, Inc.

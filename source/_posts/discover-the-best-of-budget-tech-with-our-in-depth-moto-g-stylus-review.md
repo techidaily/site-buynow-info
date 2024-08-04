@@ -1,7 +1,7 @@
 ---
 title: Discover the Best of Budget Tech with Our In-Depth Moto G Stylus Review
-date: 2024-08-02 23:25:53
-updated: 2024-08-04 10:18:41
+date: 2024-08-03T23:04:17.009Z
+updated: 2024-08-04T23:04:17.009Z
 categories:
   - BestProducts
 description: This Article Describes Discover the Best of Budget Tech with Our In-Depth Moto G Stylus Review
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/Eu1nig7-utzgqDJmy7P3JFFNLdc=/400x300/fi
 
 ## Rexing V1 DashCam
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/uK2E64Wzmh1SC5wGVrVGSMMtQgk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_HeroSqaure-ac1bb2840cb04106b14f3838b80a3bf2.jpg)
 
 Lifewire / Danny Chadwick
@@ -39,6 +42,9 @@ Lifewire / Danny Chadwick
 
 ## Rexing V1 DashCam
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/5zZ5bclZ7zJVo8nRB2Y33JNM3w4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_HeroSqaure-ac1bb2840cb04106b14f3838b80a3bf2.jpg)
 
 Lifewire / Danny Chadwick
@@ -64,6 +70,9 @@ Lifewire / Danny Chadwick
 
  It has all the additional features you’d expect from a[dashcam](https://www.lifewire.com/types-of-dash-cameras-534889) , like loop recording and crash detection, and even some unique ones like timelapse recording. If you’re in the market for a dashcam, the Rexing V1 is definitely worth considering.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/JfL4E5NnuBPl6-93Hv3PI4IJsV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_05-bcfff5f440b545378c9ee4e6b431ffac.jpg)
 
  Lifewire / Danny Chadwick
@@ -100,6 +109,9 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Camera Quality: Basic**
 
  You can set this dash-mounted camera to capture footage in either 720p or 1080p resolution, which is pretty limited. Similar dashcams can capture footage up to 2560 x 1440 resolution, with others going all the way up to 4K. However, if all you’re looking for is a simple security device, 1080p will do just fine.
@@ -110,6 +122,9 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Performance: Set it and forget it**
 
  During our testing, we took the Rexing V1 on several lengthy drives through the cities and countryside of northern Utah. In the week that we had it, we never had a problem with how it functioned. It stayed firmly attached to the windshield, powered on every time we turned the ignition and never missed a frame while we were driving. This is one of those devices that embodies the “set it and forget it” mentality.
@@ -124,10 +139,16 @@ Lifewire / Danny Chadwick
 
  Like the rest of the dashboard cameras we tested, the Rexing V1 has the ability to record audio, but it does a middling job of it. Voices in the car and sounds coming from the interior speakers were clear enough to understand, but sounds from outside the vehicle were muddy at best.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: A good value**
 
  The Rexing V1 retails for $130, but as of the time of this writing, can typically be purchased for closer to $100\. We feel like this is a perfectly appropriate price for this device—it falls right in the middle of the typical dashcam price range, providing better performance than super budget models, but without the high-tech features of the more expensive options out there. In short, it’s a good price for a solid, basic device.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ## **Competition: Z3 Plus vs. Rexing V1**
 
  If you’re wondering if you want to pay the extra $25 or so for the Z-Edge Z3 Plus dashcam (which retails for $125), the decision will come down to form factor and image quality—everything else is pretty much the same.

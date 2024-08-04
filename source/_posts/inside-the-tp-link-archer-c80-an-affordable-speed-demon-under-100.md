@@ -1,7 +1,7 @@
 ---
 title: "Inside the TP-Link Archer C80: An Affordable Speed Demon Under $100"
-date: 2024-08-01 14:33:14
-updated: 2024-08-04 12:14:15
+date: 2024-08-03T23:04:42.705Z
+updated: 2024-08-04T23:04:42.705Z
 categories:
   - BestProducts
 description: "This Article Describes Inside the TP-Link Archer C80: An Affordable Speed Demon Under $100"
@@ -13,8 +13,14 @@ thumbnail: https://thmb.techidaily.com/6b8b8cd944b78f2fca9befdc6ff94bcc8ad2bce09
 
 3
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## TP-Link Archer C9 Wireless Router
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![TP-Link Archer C9 AC1900](https://www.lifewire.com/thmb/6VSQssBUxUcvd585IJcj9jrMZWE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAC1900_HeroSquare-68c63e89f59a47a2944b2a73434417e9.jpg)
 
 Lifewire / Erika Rawes
@@ -38,8 +44,14 @@ Lifewire / Erika Rawes
 
 3
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## TP-Link Archer C9 Wireless Router
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ![TP-Link Archer C9 AC1900](https://www.lifewire.com/thmb/5L4k_oD-GKPyliYY-jL-tLQH-Uk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAC1900_HeroSquare-68c63e89f59a47a2944b2a73434417e9.jpg)
 
 Lifewire / Erika Rawes
@@ -88,10 +100,16 @@ Lifewire / Erika Rawes
 
  As I traveled far away from the router, I was able to maintain a signal, but the speed slowed down quite a bit. In the backyard, another area where I often experience drop-offs, the speed came in at 39 Mbps. I repeated the Ookla speed test numerous times, and the results remained around the same in each room. I was able to get slightly higher speeds on an iPhone 11, but overall the router performed extremely well at close proximity, but not so well at a distance.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![TP-Link Archer C9 AC1900](https://www.lifewire.com/thmb/gPQRxhQBJ13ETuiP-7-Vy9eGcss=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAC1900_05-4ddd14a5299f45279789011ce3b9e8ea.jpg)
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Key features: Guest network and parental controls**
 
  The C9 has two USB ports (one USB 2.0 and one USB 3.0), so you can share printers or storage over the network.
@@ -118,6 +136,10 @@ Lifewire / Erika Rawes
 
  The Archer C9 AC1900 is an older model, so it’s not as readily available as it was a couple of years back. You can typically find it for around $120, which is a good price for a long-range router with its feature set.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ## **TP-Link Archer C9 AC1900 vs. ASUS RT-AC1900**
 
  The ASUS RT-AC1900 typically sells for closer to $150, but you can find it refurbished or on sale for around the same price as the Archer AC1900\. The two routers look similar at first glance—they both have three very long antennas protruding from the top. They have similar specifications, including a dual-core processor, AC1900 speed, and dual-bands, and a long-range. But, the ASUS RT-AC1900 offers a few perks, like TrendMicro security and NVIDIA GameStream technology.

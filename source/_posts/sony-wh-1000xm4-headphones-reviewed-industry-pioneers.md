@@ -1,7 +1,7 @@
 ---
 title: Sony WH-1000XM4 Headphones Reviewed - Industry Pioneers
-date: 2024-07-29 14:23:31
-updated: 2024-07-31 11:58:30
+date: 2024-08-03T23:04:47.352Z
+updated: 2024-08-04T23:04:47.352Z
 categories:
   - BestProducts
 description: This Article Describes Sony WH-1000XM4 Headphones Reviewed - Industry Pioneers
@@ -13,6 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/5S8xpr946IHbwJZO4KOyD9PhuRY=/400x300/fi
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Garmin Forerunner 45
 
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/9iHW-uJhBOq8W0g0_3J6JJ3oe10=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-HeroSquare-2cc58de569434b0fa44a3c79eb0c1777.jpg)
@@ -37,6 +40,9 @@ Lifewire / Todd Braylor
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Garmin Forerunner 45
 
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/o718az7uF1ea0o2yiaw0vFBeQvU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-HeroSquare-2cc58de569434b0fa44a3c79eb0c1777.jpg)
@@ -69,6 +75,9 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ## **Setup Process: Charge, sync, and go**
 
  The Garmin Forerunner 45 is easy and quick to set up. Download the Garmin Connect app on your phone or tablet (available in the Apple App Store or Google Play Store) and you can easily sync it to the watch.
@@ -91,6 +100,9 @@ Lifewire / Todd Braylor
 
  The wristband is made of a flexible silicone material and has a lightly textured exterior side, while the interior side of the band (against your skin) is smooth. Thanks to its comfortable band and smaller overall size, it’s can be worn overnight to get 24/7 heart rate data and sleep monitoring.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/nHZkcIXB7C8qBgrCAwhmdxoMV0Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-03-b3713bbdd0f244b889d434fbe17613b7.jpg)
 
  Lifewire / Todd Braylor
@@ -115,6 +127,9 @@ Lifewire / Todd Braylor
 
  Garmin Coach can also adjust itself based on performance metrics like heart rate and V02 max to either push you if you’re improving or dial things back if you're going too hard.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ## **Battery: Long battery life for days of activity or races**
 
  The Garmin Forerunner 45 has a rechargeable lithium battery that can last up to seven days in normal watch mode and up to 13 hours continuously when in GPS mode.
@@ -125,6 +140,9 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Software: Minimal graphics with widgets in place of apps**
 
  The FR45 has a minimal OS and the visuals of the display are quite basic. The screen is always on and the simple graphics are designed for high visibility when you are on the move and working out, which is ideal for checking your progress during exercise. The display feels very utilitarian and the graphics do exactly what they intend to do: tell you the info you need to know without any distractions.
@@ -139,6 +157,9 @@ Lifewire / Todd Braylor
 
  The safety alert is similar, allowing you to send a preset alert message with your location as a follow link to a designated emergency contact. But unlike incident detection, the safety alert is sent manually and designed to be used any time you find yourself in a potentially unsafe situation while out running or biking. Both of these features require that your smartphone is within Bluetooth range.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: Training essentials for a decent price**
 
  The Garmin Forerunner 45 carries an MSRP of $199.99, which is a pretty decent deal for a GPS watch with the added Garmin Coach features.
@@ -173,6 +194,9 @@ Lifewire / Todd Braylor
 * [Garmin Forerunner 945](https://www.lifewire.com/garmin-forerunner-945-review-4768586)
 * [Fitbit Inspire HR](https://www.lifewire.com/fitbit-inspire-hr-review-4768656)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Forerunner 45

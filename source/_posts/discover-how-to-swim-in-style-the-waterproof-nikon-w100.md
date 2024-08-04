@@ -1,7 +1,7 @@
 ---
 title: "Discover How to Swim in Style: The Waterproof Nikon W100"
-date: 2024-08-02 20:12:27
-updated: 2024-08-03 10:52:31
+date: 2024-08-03T23:04:22.033Z
+updated: 2024-08-04T23:04:22.033Z
 categories:
   - BestProducts
 description: "This Article Describes Discover How to Swim in Style: The Waterproof Nikon W100"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/43c06cd54be27b9a1da971cc73bbcba750a0ab4f1
 
 5
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Apple MacBook Pro 16-inch (2021)
 
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/L5Mbsc5JB_OpmoLJkqia2EonbI8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-hero-8413a7aa67ca443bb241da703c1025b2.jpg)
@@ -37,8 +40,14 @@ Lifewire / Sascha Brodsky
 
 5
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Apple MacBook Pro 16-inch (2021)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/Bj4JU3ddfkgYppYQYoy1GmCukCA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-hero-8413a7aa67ca443bb241da703c1025b2.jpg)
 
 Lifewire / Sascha Brodsky
@@ -74,6 +83,9 @@ Lifewire / Sascha Brodsky
 
  However, the tiny details make all the difference in the design of the new MacBook. The Pro just feels nicer than any laptop Apple has ever made in many different ways starting with the incredibly smooth hinge mechanism when you open it up.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/dFndxams3xUoua0_gkYqRycgBdU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-1-db37ffedba744e8eb2070780c0d8de10.jpg)
 
 Lifewire / Sascha Brodsky
@@ -82,6 +94,9 @@ Lifewire / Sascha Brodsky
 
  Apple has also gone full circle and replaced the ports it removed in previous iterations of the MacBook. You get a MagSafe connector, headphone jack, SD card slot, HDMI port, and three Thunderbolt 4 ports, which should be enough for almost any user. There’s no USB-A port but most people won’t miss it.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Keyboard: Precision is everything
 
  The joy of using the MacBook Pro really becomes apparent when you start typing on the keyboard. It’s got a scissor key mechanism that feels precise and offers excellent feedback.
@@ -102,6 +117,9 @@ Lifewire / Sascha Brodsky
 
  The new MacBook’s trackpad works perfectly, which is more than you can about the one on most Windows laptops. I had no trouble flicking the cursor accurately around the screen when spending hours editing documents.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Display: Bright and beautiful
 
  The Pro sports the best display I’ve ever used on any computer and might be a reason to buy this model all by itself. It screams quality.
@@ -116,6 +134,9 @@ Lifewire / Sascha Brodsky
 
  Text looks terrific on the Pro, and I ended up spending time gazing at Word documents just to admire the way words look so crisp and defined. Video playback was equally impressive, with the Mini-LED screen revealing a level of detail that made me want to rewatch my favorite movies. The no-glare coating also works very well, even when using the Pro in direct sunlight.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Performance: Sizzling speed that stays cool
 
  The MacBook Pro uses the same cutting-edge M1 chip, designed by Apple, that’s been powering some of the company’s other machines over the past year.
@@ -140,6 +161,9 @@ Lifewire / Sascha Brodsky
 
  Multi-Core: 7552
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ## Battery: Keeps on going and going
 
  One of the benefits of the new M1 chip is its efficiency. Despite its power, the chip sips energy. The M1 Pro ran for 16 hours on its battery during continuous use, making it the longest-lasting laptop I've ever tried.

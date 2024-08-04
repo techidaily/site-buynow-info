@@ -1,7 +1,7 @@
 ---
 title: Don't Miss Out! Score Amazing Deals on Roku Devices During Prime Day Sale Events
-date: 2024-07-30 14:33:42
-updated: 2024-08-02 12:51:48
+date: 2024-08-03T23:04:14.404Z
+updated: 2024-08-04T23:04:14.404Z
 categories:
   - BestProducts
 description: This Article Describes Don't Miss Out! Score Amazing Deals on Roku Devices During Prime Day Sale Events
@@ -34,6 +34,9 @@ thumbnail: https://www.lifewire.com/thmb/LvLoQ9-K0KJwUj-Ozbt9jQn-RNk=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## Roku Express
 
 [View On Amazon $28](https://www.amazon.com/dp/B07WVFCVJN?tag=lifewire-onsite-prod-20&ascsubtag=4843482%7Cn6750f600d9b249fab0a1ade20b4f782c20%7CB07WVFCVJN)
@@ -55,10 +58,16 @@ thumbnail: https://www.lifewire.com/thmb/LvLoQ9-K0KJwUj-Ozbt9jQn-RNk=/400x300/fi
 
  With the ubiquity of[smart TVs](https://www.lifewire.com/best-smart-tvs-4135681) preloaded with premium streaming apps, what’s the purpose of[streaming devices](https://www.lifewire.com/best-devices-to-buy-for-streaming-tv-4061016) like the Roku Express? When you tune in to the Express, you get access to thousands of free and premium shows you may never have discovered on the choice few apps of your smart TV, or on the same reruns that show up on your cable subscription. If you’re afraid of leaving cable, know that many primetime shows are on some streaming platform out there, and for much less money. You can get started with a $30 streaming device and a $10 subscription.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Roku Express](https://www.lifewire.com/thmb/5BliKk_HCRh9uM25VqPW6CH1Aeo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Roku_HeroHoriz-d20f17de8595463eb5e4bdf55a2f3387.jpg)
 
  Lifewire/Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Small and easy to position**
 
  The Roku Express is a small package consisting of a palm-sized remote and the actual streaming box, which is half that size. It comes along with a power brick and micro USB to power the box, a battery for the remote, a two-foot HDMI cable, and an adhesive strip to stick your box to, say, the bottom of your television.
@@ -73,6 +82,9 @@ thumbnail: https://www.lifewire.com/thmb/LvLoQ9-K0KJwUj-Ozbt9jQn-RNk=/400x300/fi
 
  The exceptionally cheap price tag is also reflected in the quality of the other extras. The HDMI cable is incredibly flimsy, as are the micro USB cable. However, if they seldom move, they shouldn’t break and they’ll get the job done. Besides, I have to give credit to Roku for including any cables at all for a budget product.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ## **Setup Process: Fast and simple to get started**
 
  Roku’s included guide is great. It’s full of diagrams and photos to answer any basic questions you may have about positioning or connection. The actual setup process is similarly simple. Use the micro USB cable to power your Express box, connect the box to an open HDMI port on your TV, and make sure your TV’s on the right output.
@@ -89,6 +101,9 @@ thumbnail: https://www.lifewire.com/thmb/LvLoQ9-K0KJwUj-Ozbt9jQn-RNk=/400x300/fi
 
  However, we didn’t have any crashing issues with the Roku Express, and while slow, performance was smooth. Videos and channels did load, eventually. It’s a budget streamer with patient performance, but it’s serviceable if you can’t spend an extra twenty dollars on a more upgraded streamer.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ![Roku Express](https://www.lifewire.com/thmb/Kfml_LPtHefv5s-BdnKptfzmw3s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Roku_02-a744cef9b4b14025bcd288fca6b25f11.jpg)
 
  Lifewire/Emily Ramirez
@@ -111,6 +126,9 @@ thumbnail: https://www.lifewire.com/thmb/LvLoQ9-K0KJwUj-Ozbt9jQn-RNk=/400x300/fi
 
  For only $10 to $20 more, you get a faster experience and more functionality out of Roku’s other offerings, so if you can afford it, the Premiere and Streaming Stick+ are the better value. As we move forward,[4K](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) streaming is becoming the new standard, so it’s worth it to upgrade from the Express’s 1080p resolution.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Roku Express](https://www.lifewire.com/thmb/xRjJqzIOYJAHEemk7NGlxVNl6wg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Roku_03-1b5930c20109404082b05511fae6aa5c.jpg)
 
  Lifewire/Emily Ramirez

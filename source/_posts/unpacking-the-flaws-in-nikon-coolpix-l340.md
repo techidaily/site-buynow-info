@@ -1,7 +1,7 @@
 ---
 title: Unpacking the Flaws in Nikon Coolpix L340
-date: 2024-08-01 13:28:31
-updated: 2024-08-03 11:14:34
+date: 2024-08-03T23:04:48.801Z
+updated: 2024-08-04T23:04:48.801Z
 categories:
   - BestProducts
 description: This Article Describes Unpacking the Flaws in Nikon Coolpix L340
@@ -13,6 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/LabzxKCzCCN4VL_6tx5323yIhLs=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Pioneer BDR-XD05B Blu-ray Burner
 
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/criWlDbpC_WTmf9GyQYLoo2NOvM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_HeroSquare-7488fe2dd07248ca99020859f82cefaf.jpg)
@@ -40,6 +43,9 @@ Lifewire / Scott Gercken
 
 ## Pioneer BDR-XD05B Blu-ray Burner
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/nC_G9Nr8iQMb-lVdoUhQTXWP5lo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_HeroSquare-7488fe2dd07248ca99020859f82cefaf.jpg)
 
 Lifewire / Scott Gercken
@@ -77,10 +83,30 @@ Lifewire / Scott Gercken
 
  One of the benefits of a typical clamshell, top-loading drive is that there’s a physical button to press that opens the drive, a simple mechanism that will pop the top even when it’s unplugged. That feature alone might make the wobbly top worth it, but it doesn’t work that way on this drive—the top won’t open unless you plug the drive into a computer.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/fUaHdcy3m2p6xK0x76rqvkRIi1s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_03-c61c4933818c4874b8edcadfca341ca9.jpg)
 
  Lifewire / Scott Gercken
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ## **Setup Process: Some baffling software issues**
 
  The setup process for the Pioneer BDR-XD05B is both really easy and frustrating. The easy part is that we only needed to plug the USB cord into the right slots to get it running on the Macbook we used to test it. The frustrating part is that the included software only works on Windows computers. A major producer like Pioneer only including PC software is very frustrating.
@@ -93,6 +119,9 @@ Lifewire / Scott Gercken
 
  Lifewire / Scott Gercken
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: Good for an inexpensive Blu-ray burner**
 
  We did two tests to see check the burner’s performance. First, we ripped a 37GB Blu-ray copy of_Die Hard_ to check the burner’s read speed for a commercial Blu-ray. Using the program MakeMKV, it took 70 minutes to make a copy.
@@ -107,6 +136,10 @@ Lifewire / Scott Gercken
 
  We also connected the computer to an HD TV through the HDMI drive and didn’t get the 1080p we expected. Instead, the resolution was stuck at 726p and the image quality was terrible, worse than a DVD. The Blu-ray image was extremely noisy and filled with huge pixels. If you want to watch movies, don’t use this drive, except maybe to make yourself more appreciative of your Blu-ray player.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ## **Sound Quality: Seriously, don’t watch Blu-rays on this drive**
 
  We think that the best reason to watch a Blu-ray isn’t the sharp[HD image](https://www.lifewire.com/what-you-need-to-see-hd-1847338) but the depth of sound this format can produce. But you don’t get any of that when you watch a Blu-ray using the Pioneer BDR-XD05B, because you have to watch it on a computer with computer speakers. It didn’t get any better when we connected the computer to the TV via HDMI—the sound remained flat and muddy.
@@ -139,6 +172,9 @@ Lifewire / Scott Gercken
 
  On one hand, the Pioneer BDR-XD05B is a light, portable Blu-ray burner with decent performance at a low cost. On the other hand, it also feels flimsy and has a smudge-magnet finish. It’s a solid performer in its price range, but there are other portable Blu-ray burners without these faults (albeit generally for more cash).
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  BDR-XD05B Blu-ray Burner

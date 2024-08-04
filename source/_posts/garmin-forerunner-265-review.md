@@ -1,7 +1,7 @@
 ---
 title: Garmin Forerunner 265 Review
-date: 2024-07-31 17:53:43
-updated: 2024-08-03 10:53:29
+date: 2024-08-03T23:03:55.927Z
+updated: 2024-08-04T23:03:55.927Z
 categories:
   - BestProducts
 description: This Article Describes Garmin Forerunner 265 Review
@@ -15,6 +15,11 @@ thumbnail: https://www.lifewire.com/thmb/cqe4AOlmHazUKa_4vZ1ipCp_YuQ=/400x300/fi
 
 ## Garmin Forerunner 45
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/9iHW-uJhBOq8W0g0_3J6JJ3oe10=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-HeroSquare-2cc58de569434b0fa44a3c79eb0c1777.jpg)
 
 Lifewire / Todd Braylor
@@ -69,6 +74,9 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Charge, sync, and go**
 
  The Garmin Forerunner 45 is easy and quick to set up. Download the Garmin Connect app on your phone or tablet (available in the Apple App Store or Google Play Store) and you can easily sync it to the watch.
@@ -77,6 +85,9 @@ Lifewire / Todd Braylor
 
  Once you sync it to the app and charge it up to 100%, you're ready to wear your new Forerunner 45 and get going.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/dDyZtrCdCkQOgVcBV6cAwVcFi68=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-04-2c87d86b2b60411b9ebf6696851a2d3b.jpg)
 
  Lifewire / Todd Braylor
@@ -95,6 +106,9 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ## **Performance: Sport modes, sleep tracking, and Garmin Coach**
 
  We tested the Forerunner 45 on a series of daily trail runs plus a long run and were pleased with its functionality. It features an optical heart rate sensor that charts your average and max heart rates plus an estimation of your V02 max⁠ (the maximum amount of oxygen you can uptake during exercise).
@@ -121,6 +135,9 @@ Lifewire / Todd Braylor
 
  13 hours in GPS mode means the FR45 won't die on you in the middle of a marathon, 50K, or possibly even longer races. During our testing process, we found the battery life lasted about four days with daily training runs, all of which lasted around 45 minutes. The FR45 charges back up to 100% in about an hour’s time.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/n0CH4Oi-eCGFGFAbYCvyN1zYh5s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-05-60bd2ccaf84c4b588407fb69ec57cf39.jpg)
 
  Lifewire / Todd Braylor
@@ -139,6 +156,9 @@ Lifewire / Todd Braylor
 
  The safety alert is similar, allowing you to send a preset alert message with your location as a follow link to a designated emergency contact. But unlike incident detection, the safety alert is sent manually and designed to be used any time you find yourself in a potentially unsafe situation while out running or biking. Both of these features require that your smartphone is within Bluetooth range.
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: Training essentials for a decent price**
 
  The Garmin Forerunner 45 carries an MSRP of $199.99, which is a pretty decent deal for a GPS watch with the added Garmin Coach features.
@@ -147,6 +167,9 @@ Lifewire / Todd Braylor
 
  Unless you are specifically looking for other features in a Garmin GPS watch for specific uses, chances are you won't miss them for daily running with the Forerunner 45.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Competition: Garmin Forerunner 45 vs. Polar Ignite**
 
  Options abound in the active lifestyle wearables market, and the $200 range is a good benchmark price for getting a full-GPS watch with a variety of training tools.
@@ -173,6 +196,9 @@ Lifewire / Todd Braylor
 * [Garmin Forerunner 945](https://www.lifewire.com/garmin-forerunner-945-review-4768586)
 * [Fitbit Inspire HR](https://www.lifewire.com/fitbit-inspire-hr-review-4768656)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Forerunner 45

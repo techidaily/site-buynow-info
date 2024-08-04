@@ -1,7 +1,7 @@
 ---
 title: Exploring the Performance Excellence of OWC Mercury Pro Drives - In-Depth Review
-date: 2024-07-30 14:37:30
-updated: 2024-08-02 11:35:16
+date: 2024-08-03T23:04:50.379Z
+updated: 2024-08-04T23:04:50.379Z
 categories:
   - BestProducts
 description: This Article Describes Exploring the Performance Excellence of OWC Mercury Pro Drives - In-Depth Review
@@ -38,8 +38,14 @@ Jeremy Laukkonen / Lifewire
 
 4.7
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Apple Mac Mini
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Mac mini](https://www.lifewire.com/thmb/cOYA5qGbCuLx8V2Gpf67_t0Wd4o=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_horiz_Mac-Mini-M1-2020-Computer-1-c63ec986a9944869ab0f9ff7b7a0b01d.jpg)
 
 Jeremy Laukkonen / Lifewire
@@ -75,6 +81,9 @@ Jeremy Laukkonen / Lifewire
 
  Jeremy Laukkonen / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ## Design: Same sleek aluminum chassis
 
  The big changes here are all under the hood, as Apple opted to leave the overall design of the Mac mini (M1, 2020) unchanged from the previous model. It’s still a block of milled aluminum with the same rounded corners, satin finish, and shiny Apple logo emblazoned on the top. The top is smooth and unmarked aside from the logo, and the front and sides of the case are completely featureless aside from a small LED on the front that lets you know when the system is powered on.
@@ -89,6 +98,9 @@ Jeremy Laukkonen / Lifewire
 
  The biggest disappointment here, aside from the fact that the M1 Mac mini didn’t receive any sort of aesthetic update, is that Apple removed two Thunderbolt ports and the ability to upgrade your memory. The first isn’t that big of an issue, since the Mac mini looked great before and still looks great. The lack of Thunderbolt ports, similarly, isn’t a huge deal, because there are a ton of ways to get around such a limitation. The lack of upgradeability certainly removes a degree of flexibility from the hardware, though, making it much more important to select the amount of memory and storage that you’ll be comfortable with for the life of the device.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ![Mac mini](https://www.lifewire.com/thmb/xpt3pmIvU6FTBUo0tBDpyp3BERE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mac-Mini-M1-2020-Computer-3-844f657110aa424db6f1e5bac1b19eda.jpg)
 
  Jeremy Laukkonen / Lifewire
@@ -101,6 +113,9 @@ Jeremy Laukkonen / Lifewire
 
  For example, I was able to plug in the dongle from my Logitech K400+ Touch Keyboard, and the Mac mini recognized the peripheral immediately. That allowed me to complete the setup process without digging around for wired peripherals.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ## Performance: Unreal performance with some hiccups
 
  While the Mac mini (M1, 2020) remained mostly unchanged from a design perspective, the internals received a massive overhaul. This is Apple’s first desktop to receive its new M1 chip, and that’s a really big deal. Though one of the M1’s headline features, reduced power use, isn’t as big a deal here as it is in the MacBook Air, this chip is still massively more powerful than anything you’ve ever seen in a Mac before. In fact, the Mac mini has the exact same chip as the MacBook Pro, with one more GPU core than the MacBook Air.
@@ -117,10 +132,17 @@ Jeremy Laukkonen / Lifewire
 
  In addition to GFXBench, I also ran the WildLife benchmark from 3DMark that’s designed for iOS, made possible by Big Sur’s native support for iOS applications. In that test, the Mac mini scored 17,930 overall and registered 107fps. Both numbers were a bit higher than the MacBook Air managed on the same test, which is understandable since the Mac mini GPU has one more core.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ![Mac mini](https://www.lifewire.com/thmb/H6vCqcN2s5HOQG5MJWawrPxairg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mac-Mini-M1-2020-Computer-6-cd1693bee2f4429fafd1a57ecffbce81.jpg)
 
  Jeremy Laukkonen / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Gaming: Limited but promising
 
  This is one area where Apple’s decision to switch from Intel to their own bespoke silicon is unlikely to pay off for a while. The issue is that while the M1 chip is powerful, it’s going to take a while for game developers to offer any kind of real support for it. That means the already anemic Mac gaming scene could be even more anemic until devs see a reason to put substantial resources into games that run natively on the ARM-based M1 hardware. In the long term, cross-compatibility between macOS and iOS apps could end up being a massive game-changer.
@@ -141,6 +163,9 @@ Jeremy Laukkonen / Lifewire
 
  Aside from lack of support from game developers, the only real drawback here in terms of gaming comes from the HDMI port itself. While the M1 Mac mini can pump out[4K graphics](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) , it’s limited to a 60Hz refresh rate. That’s fine for most casual gamers, but anyone who has fallen in love with their high refresh rate monitor will experience a bit of pain here.
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Productivity: Ready for work
 
  The great thing about the Mac mini line is that it’s always been so flexible. You can use a Mac mini for work, but the size and relative affordability of the hardware means you aren’t locked into using it that way. If you do aim to use an M1 Mac mini for work though, it’s more than up to the task. Native apps and the operating system itself run fast and smooth as you could possibly hope, with none of the sitting around looking at spinning beach balls that you may have gotten used to with older hardware.
@@ -153,6 +178,9 @@ Jeremy Laukkonen / Lifewire
 
  Multitasking also works flawlessly, and I was able to juggle an impressive number of browser windows, intensive apps like Photoshop and Handbrake, voice and video chat over Discord, and more without running into any real problems.
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Audio: It’s there if you need it
 
  The M1 Mac mini is great in almost every category, but audio isn’t one of them. There’s a speaker inside that sleek aluminum block, but it isn’t one you’ll care to listen to. It’s tinny and hollow, and absolutely a placeholder for more capable external speakers. You’ll want to hook up headphonesor some kind of speakers or soundbar shortly after setting the M1 Mac mini up, because the built-in speaker isn’t really even suitable for watching YouTube videos, let alone listening to music or streaming your favorite shows or movies.
@@ -183,6 +211,9 @@ Jeremy Laukkonen / Lifewire
 
  For the time being, the trade off is that Big Sur and native apps like Safari run extremely well, and with remarkably low power consumption and heat generation compared to Intel Macs.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Price: More affordable than ever
 
  The Mac mini saw a price increase alongside its last major retool, but Apple actually played against tradition and handed us a price reduction with the transition to M1 hardware. The baseline M1 Mac mini is actually hundreds of dollars cheaper than the previous iteration of the hardware, which is remarkable considering how much more powerful it is. The last Intel Mac mini was already a good deal, so the even cheaper M1 Mac mini looks even better in comparison. Considering its capabilities, it’s also a good deal when compared to non-Apple mini desktop hardware like the Intel NUC lineup.

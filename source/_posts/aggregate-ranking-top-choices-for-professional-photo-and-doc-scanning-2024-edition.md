@@ -1,7 +1,7 @@
 ---
 title: "Aggregate Ranking: Top Choices for Professional Photo and Doc Scanning - 2024 Edition"
-date: 2024-07-31 14:48:43
-updated: 2024-08-03 12:44:26
+date: 2024-08-03T23:04:10.250Z
+updated: 2024-08-04T23:04:10.250Z
 categories:
   - BestProducts
 description: "This Article Describes Aggregate Ranking: Top Choices for Professional Photo and Doc Scanning - 2024 Edition"
@@ -42,6 +42,10 @@ Erika Rawes / Lifewire
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ## Raspberry Pi 400
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/Lx1zPft9GUcm5A0WBJsxvP8fCUM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Raspberry-Pi-400-Mini-PC-1-2e3e0817c1ad4570a7c3a8d70b7e991b.jpg)
@@ -76,10 +80,16 @@ Erika Rawes / Lifewire
 
  The most recent iteration of the Raspberry Pi, the Raspberry Pi 400, has better processing and the Pi computer built right into a keyboard. This allows for an even more compact personal computer, and the Pi 400 kit even includes a microSD card with the OS preloaded. To see how this new Pi compares to previous generation models and other mini PCs, I tested it for a week. Here’s my full review of the Raspberry Pi 400.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Design: A PC inside of a keyboard
 
  Previous versions of the Raspberry Pi didn’t exactly come across as accessible to the typical PC user who spends most of their time surfing the web. The older Raspberry Pi models look like a mini motherboard with ports and other components attached. The Raspberry Pi 400 is completely different, as the board is housed inside a keyboard for easier setup and use. It’s reminiscent of those all-in-one PC keyboards from the 80s.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/7BA0HRUVuCSmbiMi4uyFWkXVuKg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-3-58854ebe9d964ccc984e44f77619fa1a.jpg)
 
 Erika Rawes / Lifewire
@@ -90,6 +100,9 @@ Erika Rawes / Lifewire
 
  On the back of the Pi 400, you’ll find a slot for the microSD card, as well as all of the ports. It has two micro HDMI slots, three USB slots (two 3.0 and one 2.0), a horizontal 40-pin GPIO header, and the port for the power supply. The power button is on the keyboard itself—press F10 to power on the Pi, and press Fn + F10 to power it off.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Setup Process: Easier than previous Pi models
 
  The Raspberry Pi 400 is still...well, a[Raspberry Pi](https://www.lifewire.com/raspberry-pi-4102621) . It isn’t a traditional PC in the sense that it doesn’t have full capabilities like a typical laptop,[desktop computer](https://www.lifewire.com/best-desktop-pcs-4045927) , or even mini computer. The Pi is just a computer—it doesn’t even have an operating system unless you add one (fortunately, this Pi includes the OS with the kit). Even when you add the OS, the Pi has a relatively barebones interface. The whole purpose of a Raspberry Pi is to be whatever you want it to be—a personal computer, a smart home controller, a gaming system, or whatever else you can think of.
@@ -98,6 +111,9 @@ Erika Rawes / Lifewire
 
  The whole purpose of a Raspberry Pi is to be whatever you want it to be—a personal computer, a smart home controller, a gaming system, or whatever else you can think of.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Projects: Keyboard helps in some ways, hinders in others
 
  One great thing about[Raspberry Pi](https://www.lifewire.com/what-is-raspberry-pi-4042337) is that there’s a community of users to help you out with project ideas, to share terminal commands, and to help with troubleshooting. Pi computers are great for makers, but once I really started experimenting with the Pi 400, I realized the keyboard is beneficial in some areas, but it’s limiting in others.
@@ -106,10 +122,16 @@ Erika Rawes / Lifewire
 
  It would be difficult to make anything outdoors with a keyboard, and it would be tough to use the Pi as a security camera when it’s inside of a keyboard. You can remove the Pi from the keyboard if you really want to, but that would kind of defeat the purpose of going with the 400 model. Instead of removing the board, you could just opt for a Pi 4, although it has a lower CPU clock (1.5 Ghz).
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/oideXrFtpj_WzRtq1qacMhsc7Dg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-2-6fbd163b7ed849f684963b93ae8b8735.jpg)
 
 Erika Rawes / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ## Display: Dual mini HDMI ports
 
  The Pi 400 has two mini HDMI slots, so you could connect two displays if you wanted to. It can display in 4K as well, which is impressive for a mini PC under $100\.
@@ -124,6 +146,9 @@ Erika Rawes / Lifewire
 
  The PC-in-a-keyboard design makes the Pi 400 Kit less like a computer you have to build, and more like a PC you can start using right out of the box.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## Gaming: Minecraft Pi, RetroPie, and more
 
  The Raspberry Pi 400 Kit with the included Raspberry Pi OS card has a few games preloaded, like Soccer, Boing, Bunner, and Minecraft Pi. Minecraft Pi lets you build Minecraft style, while also learning about programming languages.
@@ -158,12 +183,18 @@ Erika Rawes / Lifewire
 
  Pi computers are great for makers, but once I really started experimenting with the Pi 400, I realized the keyboard is beneficial in some areas, but it’s limiting in others.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ## Software: Learn to code
 
  In addition to a basic office suite, photo processing software, and games, the Pi 400 Kit comes with several coding applications like Scratch, Scratch 2, Scratch 3, Blue Jay Java IDE, Green Foot Java IDE, Geany, Mathematica, Sense HAT Emulator, and more.
 
  Although the Raspberry Pi OS is basic, the included applications make this an ideal computer for a beginner who wants to learn basic computer programming skills. The interface includes a direct connection to the Pi site, where you can find numerous project ideas from 3D print templates to robotics projects.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Price: An amazing value
 
  Unless you’re well-versed in using a Pi, I would not suggest going with the Pi 400 alone. It’s best to go with the kit. The Pi 400 kit costs around $100, and that’s a great price considering everything you get. It makes an excellent gift for a young techie or anyone who wants to learn more about computers or automation.

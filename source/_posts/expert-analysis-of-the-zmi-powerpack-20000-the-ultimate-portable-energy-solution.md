@@ -1,7 +1,7 @@
 ---
 title: Expert Analysis of the ZMI PowerPack 20000 - The Ultimate Portable Energy Solution
-date: 2024-07-31 12:24:22
-updated: 2024-08-03 12:42:29
+date: 2024-08-03T23:04:10.399Z
+updated: 2024-08-04T23:04:10.399Z
 categories:
   - BestProducts
 description: This Article Describes Expert Analysis of the ZMI PowerPack 20000 - The Ultimate Portable Energy Solution
@@ -39,6 +39,9 @@ thumbnail: https://www.lifewire.com/thmb/1Rmbv2Fs0ooDvUVovB4L9UeYVwc=/400x300/fi
 
 ## ZMI PowerPack 20000
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/FttxoftMtHF3B2ZGmP2QubmOp3I=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-HeroSquare-492efa01c9e54737bfa9d16223ff9d82.jpg)
 
  Lifewire / Andrew Hayward
@@ -65,6 +68,9 @@ thumbnail: https://www.lifewire.com/thmb/1Rmbv2Fs0ooDvUVovB4L9UeYVwc=/400x300/fi
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ## **Design: Small but powerful**
 
  The ZMI PowerPack 20000’s size is easily one of its biggest selling points. While it is a little heavy at 14.3 ounces, this power bank is the approximate width and height of a large smartphone, measuring up very closely to the size of my Apple iPhone 11 Pro at 6.3 x 3.2 inches (HWD). Of course, the 0.8-inch thickness is quite a bit larger than any phone today, but unlike most laptop-friendly charging banks, ZMI’s can still fit into a pocket or handbag with ease.
@@ -77,6 +83,9 @@ thumbnail: https://www.lifewire.com/thmb/1Rmbv2Fs0ooDvUVovB4L9UeYVwc=/400x300/fi
 
  This power bank doesn’t have an AC port for full-sized power plugs, as some competing power banks do, but it also costs less and is much smaller than those alternatives typically are.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/vaINPELrwcWnOZDsX1ztKkCouww=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-03-1530f666df824f6281040c2ae3285eb2-2e7956941b91403aa888795a7e5e2e33.jpeg)
 
 Lifewire / Andrew Hayward
@@ -93,6 +102,9 @@ Lifewire / Andrew Hayward
 
  The PowerPack 20000 also charged a[Samsung Galaxy S10](https://www.lifewire.com/samsung-galaxy-s10-review-4685690) smartphone from nothing to 100 percent in 1 hour, 47 minutes using the USB-C PD port, with four lights still remaining on the power bank. This sizable power bank should be able to charge an average smartphone a few times over, not to mention a[Nintendo Switch](https://www.lifewire.com/nintendo-switch-review-4707563) . Larger laptop batteries will naturally suck away more of the battery capacity on a full charge.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/asGVK-moJ54HvqyY9N6Kb-KM8hw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-04-828899fb01024cd4a0e35980251c04b4.jpg)
 
  Lifewire / Andrew Hayward
@@ -103,6 +115,9 @@ Lifewire / Andrew Hayward
 
  With larger laptop-friendly battery packs sometimes selling for well north of $100, the $70 price point of the ZMI PowerPack 20000 is an incredibly attractive deal.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ## **ZMI PowerPack 20000 vs Mophie Powerstation AC**
 
  ZMI’s PowerPack 20000 is about half the size and weight of the[Mophie Powerstation AC](https://www.lifewire.com/mophie-powerstation-ac-review-5071990) (see on[Amazon](https://www.amazon.com/dp/B078GYSBVR?linkCode=ogi&th=1&psc=1&tag=lifewire-onsite-prod-20&ascsubtag=5071991%7Cn210c12f6fa164d19b551ef300c5549c018%7C) ), which has a AC power port on one end, not to mention a larger 24,000mAh cell. Those are both stellar benefits, plus the fabric-lined exterior gives it a distinctive allure. That said, Mophie’s pack sells for $200, and we’d only recommend it if you must have the AC power outlet for charging a power-hungry laptop. If the ZMI PowerPack 20000 will meet your charging needs, however, it’s a much better bargain.
@@ -113,6 +128,9 @@ Lifewire / Andrew Hayward
 
  It’s honestly difficult to find anything to complain about with the ZMI PowerPack 20000\. It’s powerful and does a great job of charging laptops and phones, it has enough capacity to handle those tasks with ease, it’s compact and well-designed, and the price is fantastic. It’s half the size of the giant Anker power brick that I’ve brought on my last two international trips and can handle all of the same tasks. In other words,_this_ is the power brick I’m bringing on my next trip.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  PowerPack 20000

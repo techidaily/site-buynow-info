@@ -1,7 +1,7 @@
 ---
 title: Microsoft Surface Duo - An Expensive Device Marred by Software Issues
-date: 2024-08-01 17:25:24
-updated: 2024-08-04 12:16:39
+date: 2024-08-03T23:03:58.682Z
+updated: 2024-08-04T23:03:58.682Z
 categories:
   - BestProducts
 description: This Article Describes Microsoft Surface Duo - An Expensive Device Marred by Software Issues
@@ -39,6 +39,9 @@ Lifewire / Yoona Wagener
 
 ## TCL 32S325 32-Inch 720p Roku Smart LED TV
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![TCL 32S325 32-inch 720p Roku Smart LED TV (2019)](https://www.lifewire.com/thmb/TYfvRKErNnR2aF0zqZnvQgYwr1E=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4118401-1-11eb3228bd75430096b66602ce0af022.jpg)
 
 Lifewire / Yoona Wagener
@@ -65,6 +68,9 @@ Lifewire / Yoona Wagener
 
  We tested this diminutive Roku TV, paying special attention to the setup process, picture and sound quality, and overall viewing and user experience.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ![TCL 32S325 32-inch 720p Roku Smart LED TV (2019)](https://www.lifewire.com/thmb/zc6qNrFNxxBi1Iv6l09UeQhniHE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4118401-2-0a2778725f5f4f808134778c56e6bd82.jpg)
 
  Lifewire / Yoona Wagener
@@ -81,6 +87,9 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process** :**Uncomplicated but a little sluggish**
 
  You would expect a 32-inch TV to be easy to handle. And this petite and almost weightless device doesn’t disappoint. It’s a cinch to set up and doesn’t require another person to move around. Attaching the two TV stand legs took less than a minute, but there is also the option of mounting this television as long as you purchase a VESA 100 x 100 wall mount with 8-millimeter screws.
@@ -103,6 +112,9 @@ Lifewire / Yoona Wagener
 
  While none of these settings yield out-of-this-world picture quality, the viewing experience is pleasantly nuanced and customizable. The only issue we had was that at times the picture just looked too small, especially in close-up shots that gave the appearance that people’s heads were clipped even more than intended. Changing the default picture size setting from the normal setting, which zooms in slightly to reduce noisy edges, to the default setting—which eliminates any zooming—made a very slight difference.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![TCL 32S325 32-inch 720p Roku Smart LED TV (2019)](https://www.lifewire.com/thmb/A-BPt2kvOPN7lnYsYrwB1yi6mCg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4118401-3-90620926f31e4fb89f7d4fb47c95bf98.jpg)
 
  Lifewire / Yoona Wagener
@@ -113,6 +125,9 @@ Lifewire / Yoona Wagener
 
  Like picture quality, sound is surprisingly powerful despite the size of this device.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: Clean and easy to use**
 
  The Roku OS is one of the most straightforward streaming platform interfaces out there. The menu is uncluttered and it’s easy to toggle through and locate general settings.
@@ -125,6 +140,18 @@ Lifewire / Yoona Wagener
 
  The app did disconnect from the TV once or twice for no apparent reason while we were in private listening mode, but easily reconnected. And in terms of other performance issues, we noticed launching apps took an average of 10 seconds on the initial load, which isn’t very speedy. But loading times were much faster with repeated launches. We did also notice some sluggish responses to remote prompts when toggling through some apps—Netflix in particular.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: One of the least expensive smart TVs on the market**
 
  The suggested retail price for the TCL 32S325 is only $169.99\. That’s quite a steal given the strengths of this device. As smart TVs continue to add on assets like HDR and 4K picture quality, prices increase considerably the higher you go in size. There aren’t many new 32-inch smart TVs on the market at this price and for the feature set. If you want a full 1080p TV, the Sony KDL32W600D 32-Inch HD Smart TV is a few years older and retails for around $300\. The Samsung 32-inch Class N5300 1080p Smart LED TV retails for slightly less at around $250\. Still, given the above-average picture and sound and usability of the TCL 32S325, it’s an affordable and compelling smart TV option for compact living quarters.
@@ -143,6 +170,9 @@ Lifewire / Yoona Wagener
 
  The TCL 32S325 32-inch 720p Roku Smart LED TV (2019) is certainly small, but it’s mighty when it comes to value. This inexpensive HD TV doesn’t boast the most astonishing picture quality, but the solid viewing experience, smart features, and ease of use make for a value-rich plug-and-play smart TV. It blends in and won’t overwhelm dorm rooms, studio apartments, or smaller rooms in your home.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  32S325 32-Inch 720p Roku Smart LED TV

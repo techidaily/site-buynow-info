@@ -1,7 +1,7 @@
 ---
 title: "Top Performance RC Helicopter Explored: An In-Depth Review of Blade E-Flite's mC^[email Protected]RTF Model"
-date: 2024-07-31 15:31:10
-updated: 2024-08-02 10:51:42
+date: 2024-08-03T23:04:24.053Z
+updated: 2024-08-04T23:04:24.053Z
 categories:
   - BestProducts
 description: "This Article Describes Top Performance RC Helicopter Explored: An In-Depth Review of Blade E-Flite's mC^[email Protected]RTF Model"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/025f6d9d96521fea43b8d17c7244b091345a22a6d
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ## TP-Link Archer C50 Dual Band Wi-Fi Router
 
 ![TP-Link Archer C50](https://www.lifewire.com/thmb/e7HPSZZPrP9qXUble5RJ1tNdrOw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4038590-4_Hero-5c9107c7c9e77c00014a9e1d.jpg)
@@ -65,6 +68,9 @@ Lifewire / Jordan Provost
 
  We tested the TP-Link Archer C50 for a week, and while its an affordable router, it might not be worth the investment, especially if you live with several people that need access to the internet at the same time.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ## **Design: Small and nondescript**
 
  The Archer C50’s small, lightweight plastic build makes it feel kind of flimsy in the hand. But at its price point you can’t expect a heavy-duty body. Luckily, it's not an eyesore—the router is all black, with the body having a sectioned design and glossy finish. Because it’s so small, the bright green LEDs in the front are its more prominent feature.
@@ -81,12 +87,19 @@ Lifewire / Jordan Provost
 
  There’s a QR code printed on the side of the box, and all you’ll have to do is scan it with your smartphone, download the app it links to, and follow the on-screen instructions. We set it up in our home with Xfinity 250Mbps service, and the entire process was done within two minutes. We were then able to log into the management portal and change our[SSID](https://www.lifewire.com/definition-of-service-set-identifier-816547) and password.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: Just enough**
 
  The TP-Link Archer C50 management portal is, as you may expect, pretty barren. This router isn’t exactly bursting with features, so there’s no real need for a bunch of flashy pages. When you first log in, you’ll be able to view a network map, and you’ll have access to all the quick settings you’ll need. Clicking over to the advanced tab lets you change some more in-depth settings, though most users will never have to touch this.
 
  You can also fiddle around with parental controls and change settings for any USB devices you have attached, like a printer or external storage. There’s also support for guest networks, which we thought was surprising in such an inexpensive router—this will let you set up a secondary network for guests, so you don’t have to give out your network password or compromise your network security.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![TP-Link Archer C50](https://www.lifewire.com/thmb/RkNeCw07e__xnVRb8iV-keivLCA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4038590-4_3-5c9112e146e0fb000172f0ec.jpg)
 
  Lifewire / Jordan Provost
@@ -121,10 +134,16 @@ Lifewire / Jordan Provost
 
  Frankly, we were surprised at how great the Archer C50’s range was.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Affordability over performance**
 
  The TP-Link Archer C50’s main saving grace is the price. You can pick it up for $59.99 MSRP, though at the time of this writing it’s sitting at $39 on Amazon. That’s an extraordinarily low price for a wireless router, but you get what you pay for. Spending just an extra $10-$20 will drastically improve your experience, especially if you’re using broadband. But, again, for DSL users that need to supply their own router, the range alone is worth the 40 bucks.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![TP-Link Archer C50](https://www.lifewire.com/thmb/7XO9AlL7doeyciw0X33vk6MLWpk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4038590-4_6-5c911347c9e77c0001ff0b7f-c3e8a53350f74b9682d94e49bc0116f9.jpg)
 
 Lifewire / Jordan Provost
@@ -143,12 +162,18 @@ Lifewire / Jordan Provost
 
  When you’re going for a router in this price range, you shouldn’t expect to get high-end performance, but when it can’t even deliver the advertised speeds on a broadband connection it’s a problem. However, if you don’t have a broadband connection, and you won’t be bottlenecked by the router’s limitations, the long range is enough to warrant a recommendation. Just don’t expect to do much in the way of multi-device streaming, it’s just not built for that.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Asus RT-AC68U](https://www.lifewire.com/asus-rt-ac68u-review-4788080)
 * [Linksys EA8300 Router](https://www.lifewire.com/linksys-ea8300-router-review-4774025)
 * [Synology RT2600ac Wi-Fi Router](https://www.lifewire.com/synology-rt2600ac-wi-fi-router-review-4797390)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Archer C50 Dual Band Wi-Fi Router

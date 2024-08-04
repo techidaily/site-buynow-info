@@ -1,7 +1,7 @@
 ---
 title: Dissecting the Shortcomings of Nikon L340
-date: 2024-08-03 10:38:41
-updated: 2024-08-04 11:37:51
+date: 2024-08-03T23:04:09.404Z
+updated: 2024-08-04T23:04:09.404Z
 categories:
   - BestProducts
 description: This Article Describes Dissecting the Shortcomings of Nikon L340
@@ -17,6 +17,9 @@ Buying a new[smart TV](https://www.lifewire.com/what-is-a-smart-tv-4140172) does
 
  Our Top Picks
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ## [Amazon](https://www.amazon.com/tvs/?tag=lifewire-onsite-prod-20&ascsubtag=4164092%7Cnbed2f9e3849f4c2b955e513b4727c27416%7C)
 
 ![Sony KD55X720E 55-Inch 4k Ultra HD Smart LED TV](https://www.lifewire.com/thmb/zL6fl10C4m2kTVhjqbd6DY7SSzQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SonyKD55X720E55-Inch4kUltraHDSmartLEDTV-5ae2296bfa6bcc0036833c06.jpg)
@@ -27,6 +30,9 @@ Buying a new[smart TV](https://www.lifewire.com/what-is-a-smart-tv-4140172) does
 
  Moreover, Amazon offers helpful customer service and easy returns – most television orders will ship for free. When you're looking for a new TV at a great price and the convenience of shipment right to your door, don't overlook Amazon.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## [Walmart](https://www.walmart.com/cp/tv-video/1060825)
 
 ![SAMSUNG 65&#34; Class Curved 4K (2160P) Ultra HD Smart QLED HDR TV](https://www.lifewire.com/thmb/gtaur41ippil2WcpMY6V6mTIJNg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SAMSUNG65ClassCurved4K2160PUltraHDSmartQLEDHDRTV-5ae229a28e1b6e0037c6f2ed.jpeg)
@@ -69,6 +75,9 @@ Buying a new[smart TV](https://www.lifewire.com/what-is-a-smart-tv-4140172) does
 
 ## [B&H Photo, Video, and Pro Audio](https://www.bhphotovideo.com/c/buy/Flat-Panel-Televisions/ci/2500/N/3965713807)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Sony KDL-48W650D 48-inch 1080p LED/LCD TV](https://www.lifewire.com/thmb/b-KwMxBqVu4xWj3zN6BEuRsKR20=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/sony-KDL48W650D-1080p-smart-tv-5b4250efc9e77c00370da324.jpg)
 
  Sony KDL-48W650D 48-inch 1080p LED/LCD TV.  Image courtesy of Amazon
@@ -77,6 +86,9 @@ Buying a new[smart TV](https://www.lifewire.com/what-is-a-smart-tv-4140172) does
 
  They also have a page dedicated to daily deals; this is a great way to see if you can save a little extra money without looking for promo codes or coupons. If browsing the site on the weekend, you should note that the company observes Shabbat and all Jewish holidays. So, if you put something in your cart on Friday evening, you won't be able to checkout until after sundown on Saturday or when the holiday observance ends. They have an alert system that emails you when checkout re-opens, allowing you to pick right back up where you left off.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Choose a TV Retailer and Get the Best Deal
 
  With so many brick-and-mortar and online retailers, shopping for a new TV can be a slog. Even though many big box retailers now allow for online shopping, you can still spend hours, days, or weeks scrolling through inventory selections, comparing brands and models. Shopping online for television can be daunting in its own right since you can't physically see the TV; this makes it difficult to visualize it in your space and challenging to know the picture and audio quality.
@@ -91,6 +103,9 @@ Buying a new[smart TV](https://www.lifewire.com/what-is-a-smart-tv-4140172) does
 
  Sometimes, you can find a great deal while you're there, but going back home to buy online can frequently allow you to take advantage of online-only rebates or coupons.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ![Ikea TV Stand Makeover](https://www.lifewire.com/thmb/4_13trq9nGaUcIe22YsnP8pPy_U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ikea-TV-Stand-Makeover-via-smallspaces.about.com-56a889403df78cf7729ea039.jpg)
 
  Song Bird Blog via HomeTalk
@@ -101,24 +116,39 @@ Buying a new[smart TV](https://www.lifewire.com/what-is-a-smart-tv-4140172) does
 
  If you're thinking of springing for the most expensive television, you may be paying for features you don't need and won't use. It's important to consider what you want your new television to do and where you'll have it in your home. Will it be the primary television in your living room or home theater? You'll want a decent-sized screen and plenty of smart features to binge-watch your favorite shows and movies. Will it be a secondary TV in your bedroom or kids' playroom? Look at smaller televisions and models without streaming capabilities to monitor what your children are watching.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Samsung Frame TV - TV Viewing Mode](https://www.lifewire.com/thmb/4NlrvFP4z3ApRPaGZXmBbs26QbI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/samsung-frame-tv-aaa-59b6dd7dd088c0001176262c.jpg)
 
  Samsung Frame TV - TV Viewing Mode.  Image provided by Samsung
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Price Matching
 
  Have you ever bought something in-store or online, only to find the same thing at a different place for a better price? Many retailers have a price matching policy; if you find the same television model at one of their competitors for a better price, they'll match it to keep you as a loyal customer. To take advantage of this, you often need a copy of the sale ad or promotional price to show as proof, and the sale price usually has to be the most recent to claim a price match.
 
  Price matching can be a great way to save money and get a good deal on a new TV if store loyalty is essential to you. It's also great for customers who live in areas where there are only a few retailers; for example, if Walmart is the only big box store near you, but you've found an excellent TV sale price at Best Buy an hour away, you can take the sale ad to Walmart and still get a good deal. Not all stores offer this policy, so it's essential to ask an associate or customer service representative beforehand.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Wall Mounted TV and Media Console](https://www.lifewire.com/thmb/u4fTSa3rYLdZIC2otIcwcOHHurM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ikea-TV-Stand-Hack-DIY-via-smallspaces.about.jpg-56a889425f9b58b7d0f3249b.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ## Home Delivery and Site-to-Store Shipping
 
  If you have a smaller vehicle or can't borrow a van or truck from a friend or family member, you may want to consider buying from a home-delivery retailer. You can ask customer service about having a TV that was purchased in-store delivered to your home; some stores even have staff who will help you set up your new TV and make sure everything works before leaving, making returns easier. It eliminates awkward and dangerous driving with a larvae TV box half hanging out of your trunk.
 
  Many retailers now offer site-to-store shipping. You can order a television from the retailer's website, have it shipped to the store for free, and pick it up the next day or at your convenience. It's an excellent option for people who live in apartment buildings or are worried about having a high-priced item shipped directly to their home. Shipping to the store for pickup later means that your new TV will be kept safe from theft and damage from bad weather.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ![Woman Standing In Electronics Store Facing TVs](https://www.lifewire.com/thmb/wdMTZhhZc9_E-15Voa_X1sEBMSU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-142547173-woman-tvs-5983293622fa3a001036d2c4-401fe3c9e27a416992b3c22c5c12c24b.jpg)
 
  Image provided by Getty Images - Glow Images, Inc - Collection: Glow - 142547173

@@ -1,7 +1,7 @@
 ---
 title: "Hours-Worthy Gamer's Throne: The Mavix M^9 Gaming Chair Assessment"
-date: 2024-07-29 11:26:34
-updated: 2024-08-01 10:11:52
+date: 2024-08-03T23:04:46.311Z
+updated: 2024-08-04T23:04:46.311Z
 categories:
   - BestProducts
 description: "This Article Describes Hours-Worthy Gamer's Throne: The Mavix M^9 Gaming Chair Assessment"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/441d853e672f2da2cc47c9b5003852c7b54a8c4bd
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ## Apeman C450 Dash Cam
 
 ![Apeman C450 Dashcam](https://www.lifewire.com/thmb/R-SkTPUBgYZCUaD9aixocd8OUy8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_HeroSquare2-c752b8527e31471e9018279dea42a8ca.jpg)
@@ -37,6 +40,9 @@ Lifewire / Danny Chadwick
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ## Apeman C450 Dash Cam
 
 ![Apeman C450 Dashcam](https://www.lifewire.com/thmb/qtPoWkWW4veIi00rgbPVt6Q4pu8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_HeroSquare2-c752b8527e31471e9018279dea42a8ca.jpg)
@@ -66,6 +72,9 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## **Design: All the basics**
 
  The Apeman C450 has a three-inch screen that’s bright, detailed, and provides an at-a-glance view of the camera’s status. If it were much bigger, it would be both a distraction and dangerous visual obstruction.
@@ -80,6 +89,10 @@ Lifewire / Danny Chadwick
 
  This car camera stores video on a[MicroSD card](https://www.lifewire.com/move-apps-to-sd-card-on-android-4178982) . There isn’t one included, so you’ll have to buy one. And while Apeman claims that the maximum size is 32GB, we tried out a 64GB card and it worked just fine—we filled it up to capacity and didn’t notice any problems with the device or the footage.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/A63ztrIxThbZlrb_lHJH3YL7778=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_02-6ef4e204d0bd452b9601ec468e5358bf.jpg)
 
  Lifewire / Danny Chadwick
@@ -108,6 +121,9 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: Travels as well as the rest of them**
 
  During our testing, the Apeman C450 performed exactly as we expected. It never shut down unexpectedly, it stayed attached to the windshield, and it yielded no problems during the drive.
@@ -146,12 +162,18 @@ Lifewire / Danny Chadwick
 
  Despite a poor-quality build and some design quirks, the Apeman C450 does its job as a dashcam. It has a discreet design, captures pretty good-quality video, and has important extra features like collision detection and a surveillance mode. If you can get past some of its foibles, it's definitely worth the price tag.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [DDpai mini3](https://www.lifewire.com/ddpai-mini3-review-4770579)
 * [Rexing V1 DashCam](https://www.lifewire.com/rexing-v1-dashcam-review-4770571)
 * [Anker Roav DashCam C1](https://www.lifewire.com/anker-roav-dashcam-c1-review-4773139)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  C450 Dash Cam

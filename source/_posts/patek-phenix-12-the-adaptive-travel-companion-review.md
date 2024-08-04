@@ -1,7 +1,7 @@
 ---
 title: "Patek Phénix 12: The Adaptive Travel Companion Review"
-date: 2024-07-30 11:29:20
-updated: 2024-08-02 11:26:50
+date: 2024-08-03T23:03:59.212Z
+updated: 2024-08-04T23:03:59.212Z
 categories:
   - BestProducts
 description: "This Article Describes Patek Phénix 12: The Adaptive Travel Companion Review"
@@ -13,8 +13,14 @@ thumbnail: https://thmb.techidaily.com/211db9f13ec1073ddec092ae09ea49a02164e4f7a
 
 4
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## X-Plane 11 Global Flight Simulator
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/6zqUG0dXodiu77fxFaPt_4CTLHM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_HeroSquare-05bcd9665c244e8591478794f6732934.jpg)
 
 Lifewire / Zach Sweat
@@ -39,6 +45,9 @@ Lifewire / Zach Sweat
 
 ## X-Plane 11 Global Flight Simulator
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/8OsXHzWBVNEzvelLnfybKyzm3bk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_HeroSquare-05bcd9665c244e8591478794f6732934.jpg)
 
 Lifewire / Zach Sweat
@@ -67,6 +76,10 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## **Setup Process: Preflight checklist**
 
  Currently, the game is available to be purchased from a number of online retailers in either disc or digital download format. We opted to go the old-school route and purchased the game in a pack of discs, so we’ll cover this option, but if you want to grab the software online, the steps are mostly the same (even simpler).
@@ -89,6 +102,9 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Gameplay: As close as you can get to flying a plane in your home**
 
  Booting up X-Plane 11, you’re greeted with a host of available options to choose from before your flight. While not nearly as deep as FSX, there are a lot of things you can pick between. If you’re just getting started, the Flight School will teach you the basics of flight in the game and allow you to get acclimated. If you’re not a newcomer, however, you can jump straight into the plane and environment of your choosing.
@@ -159,12 +175,18 @@ Lifewire / Zach Sweat
 
  Without a doubt, X-Plane 11 is the best current-generation flight simulator you can buy. While there are some issues with optimization, if you’ve got the computer for it, the game is stunning and currently provides the best real-world experiences.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Alienware Aurora R7](https://www.lifewire.com/alienware-aurora-r7-review-4689097)
 * [Blade E-flite mCX2 RTF RC](https://www.lifewire.com/blade-e-flite-mcx2-rtf-rc-helicopter-review-4774670)
 * [Syma S111G RC Helicopter](https://www.lifewire.com/syma-s111g-rc-helicopter-review-4774696)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  11 Global Flight Simulator

@@ -1,7 +1,7 @@
 ---
 title: "The Lenovo IdeaPad 130S Insight: Compact Power for the Practical Laptop Enthusiast"
-date: 2024-08-02 13:27:44
-updated: 2024-08-04 11:52:21
+date: 2024-08-03T23:04:38.770Z
+updated: 2024-08-04T23:04:38.770Z
 categories:
   - BestProducts
 description: "This Article Describes The Lenovo IdeaPad 130S Insight: Compact Power for the Practical Laptop Enthusiast"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/eeef901d1f6e0f72044944aeb5612974e0f0cbfc3
 
 ## Lenovo Thinkpad X1 Fold
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Lenovo Thinkpad X1 Fold](https://www.lifewire.com/thmb/nz6QQcRoYxT9-vZdRJvHnRqit6c=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_horiz_Lenovo-X1-Fold-1-14756f522df84525a64a007692b7a0ff.jpg)
 
 Andy Zahn / Lifewire
@@ -42,8 +45,14 @@ Andy Zahn / Lifewire
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Lenovo Thinkpad X1 Fold
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Lenovo Thinkpad X1 Fold](https://www.lifewire.com/thmb/m_vIjFrzd75ye5pEp_0Px7yJw4Y=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_horiz_Lenovo-X1-Fold-1-14756f522df84525a64a007692b7a0ff.jpg)
 
 Andy Zahn / Lifewire
@@ -79,6 +88,9 @@ Andy Zahn / Lifewire
 
 Andy Zahn / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Design: Bizarre and beautiful shapeshifter
 
  There really is nothing quite like the Lenovo X1 Fold; it’s truly the first commercially available folding screen[PC](https://www.lifewire.com/what-is-a-pc-4780849) , and taking it out and using it for the first time is a novel experience. Getting used to folding a screen in half takes time, and I was bracing myself for the crunch of breaking glass, which thankfully never came.
@@ -93,6 +105,9 @@ Andy Zahn / Lifewire
 
  The interior is a different story, with its large screen that appears distorted and lumpy when powered off and folded out flat. It also has wide matte plastic bezels which make the interior look rather rough and unfinished, but after using the X1 Fold for a while I came to appreciate the bezels for the comfortable handholds that they are. They are soft and tactile, and can really help you hold on to the device. Coupled with the soft leather back, this is a shockingly ergonomic laptop, regardless of what shape it’s currently in.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Lenovo Thinkpad X1 Fold](https://www.lifewire.com/thmb/p0Qc_HB2JX9ZmWvnGQvS7H2Ox9g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo-X1-Fold-7-c4b412e5b6f1404d91668a87bfa69dcc.jpg)
 
 Andy Zahn / Lifewire
@@ -107,6 +122,10 @@ Andy Zahn / Lifewire
 
 Andy Zahn / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Display: Absolutely spectacular
 
  Whatever you may say about the other aspects of the X1 Fold and its daring design, the one thing that is beyond dispute is the quality of its high-resolution[OLED display](https://www.lifewire.com/oled-organic-led-4151091) . With a resolution of 2048x1536 in a 13.3-inch device, it delivers crystal clear detail, thanks to the resulting high pixel density, but the real star of the show is the OLED. The deep blacks and rich colors put other more traditional displays to shame, and to some extent, it helps justify the hefty price tag beyond the novelty of its folding design.
@@ -133,6 +152,9 @@ Andy Zahn / Lifewire
 
  Overall, the X1 Fold is definitely superior to a traditional tablet in terms of typing and navigation, but it’s not exactly a laptop replacement in this regard. However, it does function spectacularly as a drawing tablet. The included Lenovo Mod Pen is extremely accurate, which makes this a great companion for artists on the go.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Lenovo Thinkpad X1 Fold](https://www.lifewire.com/thmb/SreHCwqxjjZpgsINWuMbPmtuOoE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo-X1-Fold-9-6b25f0217be34b8d8b3685f8419206fe.jpg)
 
 Andy Zahn / Lifewire
@@ -155,6 +177,9 @@ Andy Zahn / Lifewire
 
  The single speaker on one side of the X1 Fold isn’t bad, but its quality isn’t the issue. The problem is that it's singular, and all on its lonesome it can’t hope to deliver loud or impressive audio. The best that can be said is that it's there if you need it, but honestly, you’re going to want to use external audio if at all possible with this device.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Lenovo Thinkpad X1 Fold](https://www.lifewire.com/thmb/TzQnSBet8ESte9--b4aREI2Fo3A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo-X1-Fold-4-f985e96cb6e741c083693c69311e91b7.jpg)
 
 Andy Zahn / Lifewire
@@ -169,14 +194,24 @@ Andy Zahn / Lifewire
 
  Don’t plan on using the X1 Fold for anything more than the most basic of photo editing and graphic design applications.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Battery Life: Reasonably long-lasting
 
  Lenovo’s claims of 8.5 to 10.4 hours of battery life was fairly accurate. This is definitely adequate, though not terribly impressive by modern laptop standards. It will get you through a day of work without having to recharge, depending on use, of course.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Price: Bleeding money on the cutting edge
 
  As tested, the X1 Fold will set you back $2,750, and that is this brilliant device’s greatest Achilles heel. That much money would buy you a seriously powerful gaming laptop capable of so much more than the measly i5 processor and 8GB of RAM that power the X1 Fold. The tiny 256GB SSD is insultingly small. Its components would be more at home in a laptop one third the price. However, with the X1 Fold, you’re not paying for power, and it's really up to you to judge if the neat tricks justify the cost, though that beautiful OLED certainly sweetens the deal.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Lenovo Thinkpad X1 Fold](https://www.lifewire.com/thmb/jI8D6QycYNFCrYWyKfFsEeNKMBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo-X1-Fold-2-f2581e0132f740469409d73a90c10ce6.jpg)
 
 Andy Zahn / Lifewire
@@ -199,6 +234,9 @@ Andy Zahn / Lifewire
 * [Lenovo Ideapad 14](https://www.lifewire.com/lenovo-ideapad-laptop-review-4843583)
 * [Lenovo 130S](https://www.lifewire.com/lenovo-130s-review-4843631)
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Thinkpad X1 Fold

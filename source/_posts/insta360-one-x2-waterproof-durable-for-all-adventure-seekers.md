@@ -1,7 +1,7 @@
 ---
 title: "Insta360 One X2: Waterproof, Durable for All Adventure Seekers"
-date: 2024-07-30 21:23:51
-updated: 2024-08-02 10:40:12
+date: 2024-08-03T23:03:59.551Z
+updated: 2024-08-04T23:03:59.551Z
 categories:
   - BestProducts
 description: "This Article Describes Insta360 One X2: Waterproof, Durable for All Adventure Seekers"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/5164fa265fad5df086cc8d529b2f3b17fbfd41642
 
 ## Insta360 One X2
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Insta360 One X2](https://www.lifewire.com/thmb/9u9WmKWD9-s05N5xJb7xlPowUbc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Insta360_One_X2_HeroSquare-80809b6088f0400baa121b1e7d14e4b1.jpg)
 
 Lifewire / Andy Zahn
@@ -98,14 +101,28 @@ Lifewire / Andy Zahn
 
  One thing to remember about the One X2 is that its 5.7K recording resolution isn’t as sharp and detailed as you might expect, and when you crop down to a standard 16:9 frame you end up with[1080p](https://www.lifewire.com/what-the-term-1080p-means-1846837) . That’s good enough for viewing on a phone or small tablet, but the low resolution, as well as noise and image artifacts, become pretty significant when viewed on a large computer monitor.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## Audio: Unimpressive overall
 
  The audio recording on the One X2 could be charitably described as mediocre. It’s there, and it’s useable, but in a camera that would otherwise be well suited to vlogging, given its portable size and ease of use, it's a little disappointing.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ## Storage Requirements: Hefty file size
 
  Though it may be the bare minimum for decent 360 footage, the 5.7L video footage the One X2 captures is still highly demanding in how much storage space it requires. A single short video clip easily takes up hundreds of megabytes of space, so you’ll want a big microSD card and plenty of hard drive space on your PC and/or[smartphone](https://www.lifewire.com/best-smartphones-4043781) .
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ## Software: Brilliant but buggy
 
  Most of my problems with the One X2 have to do with the Insta360 app, and the big one is with the difficulty of connecting to the camera. Every time I connected to the One X2, I had to tap the connect button in the app over and over again until it finally connected.
@@ -128,10 +145,16 @@ Lifewire / Andy Zahn
 
 Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Price: Good value
 
  With an MSRP of $430, the One X2 is only a little more expensive than a high-end action camera, but it’s not bad for a 360 camera. It’s a good value if being able to shoot 360-degree video is a necessity for you.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Insta360 One X2 vs. GoPro Hero 9 Black
 
  You may well be trying to decide between a 360 camera and a traditional action camera, in which case the obvious choice to match against the Insta360 One X2 is the[GoPro HERO9 Black](https://www.lifewire.com/gopro-hero9-black-review-5120078) . On the surface, the GoPro looks like the obvious choice for far better image and audio quality with better durability at a lower price point. However, if what you want is to record special moments in your life without having to even think about the camera, then you should go with the One X2.
@@ -148,6 +171,9 @@ Lifewire / Andy Zahn
 * [AKASO EK7000 Pro 4K Action Camera](https://www.lifewire.com/akaso-ek7000-pro-4k-action-camera-review-4770265)
 * [GoPro HERO7 Black](https://www.lifewire.com/gopro-hero7-black-review-4705929)
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  One X2

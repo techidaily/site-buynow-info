@@ -1,7 +1,7 @@
 ---
 title: Score Amazing Deals on OnePlus Phones for Prime Day Shopping!
-date: 2024-07-30 10:30:23
-updated: 2024-08-02 12:19:16
+date: 2024-08-03T23:03:56.961Z
+updated: 2024-08-04T23:03:56.961Z
 categories:
   - BestProducts
 description: This Article Describes Score Amazing Deals on OnePlus Phones for Prime Day Shopping!
@@ -39,6 +39,9 @@ thumbnail: https://www.lifewire.com/thmb/fkcO6_M_60BB6CKFs6BawDnUuDg=/400x300/fi
 * [Apple AirPods (2nd Generation)](https://www.amazon.com/dp/B07PXGQC1Q?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $69 (was $129)
 * [Apple AirPods (3rd Generation) Wireless Ear Buds](https://www.amazon.com/dp/B0D1WXVQTN?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $120 (was $169)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ## iPads & MacBooks
 
 * [Apple iPad Pro (10.5-inch, Wi-Fi + Cellular, 64GB) - Rose Gold](https://www.amazon.com/dp/B071GGB84Y?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $505 (was $779)
@@ -47,8 +50,14 @@ thumbnail: https://www.lifewire.com/thmb/fkcO6_M_60BB6CKFs6BawDnUuDg=/400x300/fi
 * [Apple 2024 MacBook Air 13-inch Laptop with M3 chip](https://www.amazon.com/dp/B071GGB84Y?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $899 (was $1099)
 * [Apple 2022 MacBook Air Laptop with M2 chip](https://www.amazon.com/2022-Apple-MacBook-Laptop-chip/dp/B0B3CDZLTB?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $799 (was $999)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Apple AirTag
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Apple AirTag, Amazon Apple](https://www.lifewire.com/thmb/FipFdA6HAHhnqkyPxPSxtPkhMbA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/amazon-apple-after-christmas-deals-121923-8-34d5dafd52504e70ac9e89bc39b8aed6.jpg)
 
 Amazon
@@ -59,6 +68,9 @@ Amazon
 
  Need more? Grab a four-pack below.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## AirTag 4 Pack
 
 ![A set of four Apple AirTags](https://www.lifewire.com/thmb/oSijRZK4BqdndZJLrET-tiN-Kp0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleAirTag-6c3832f854c24710890ba380ef01ff86.jpg)
@@ -69,6 +81,9 @@ Amazon
 
 ## Apple Pencil (2nd generation)
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Apple Pencil (2nd Generation)](https://www.lifewire.com/thmb/s0BIvaUqu6ZcjV4a9mIbMddr6Hw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ApplePencil2ndGeneration-c36a1762bd384a35bd468ba37708e1a3.jpg)
 
 Apple
@@ -81,6 +96,9 @@ Apple
 
 ## Apple AirPods Pro (2nd Generation)
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Apple AirPods Pro (2nd Generation) Wireless Earbuds MagSafe Charging Case Bluetooth](https://www.lifewire.com/thmb/9LYkEpw7wOpkz--AFsFl9hcufdk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/apple-airpods-pro-2nd-generation-wireless-earbuds-magsafe-charging-case-bluetooth-9ab1bb1064b048788597d1478ff047d8.jpg)
 
 Amazon
@@ -89,6 +107,9 @@ Amazon
 
  Apple's AirPods Pro (2nd gen) offer excellent wireless sound, active noise cancellation, and four pairs of silicone tips so you can get the perfect fit. (And keep them in your ears!)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## Apple iPad 10.2-inch (9th Generation)
 
 ![Apple 10.2-inch iPad 64GB (9th generation).](https://www.lifewire.com/thmb/Fz5fzdr5T2V7XBiWdboOc99fwHc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleiPad9thGeneration_Amazon-0fbd83ca454840278d06c4a85943f974.jpg)
@@ -99,6 +120,9 @@ Amazon
 
  Need a tablet but don't want to break the bank? This 9th gen iPad is fast, with ample storage (256 GB), and is compatible with popular accessories including Apple's Smart Keyboard case.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ## Apple Watch Series 9 \[GPS 41mm\] Smartwatch
 
 ![Three Apple Watches in a row. Starting on the left is the Apple Watch SE (gen 2), Apple Watch Series 9 in the middle, and the Apple Watch Ultra 2 on the right.](https://www.lifewire.com/thmb/2xI4aMDe_iS79cxcVVcfvcWyMq0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleWatchlineup-b20fe549d8374cac9ec8afd8e08118a2.jpg)

@@ -1,7 +1,7 @@
 ---
 title: "Samsung UN65 RU8000 FX ZA: A Masterpiece of Modern Design and Intuitive Tech Showcased in Our Full Review"
-date: 2024-07-31 22:30:11
-updated: 2024-08-03 11:44:32
+date: 2024-08-03T23:03:54.612Z
+updated: 2024-08-04T23:03:54.612Z
 categories:
   - BestProducts
 description: "This Article Describes Samsung UN65 RU8000 FX ZA: A Masterpiece of Modern Design and Intuitive Tech Showcased in Our Full Review"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/d28e7047daab181b2a6cda74108f4cb993066496e
 
 ## Samsung Galaxy Watch Active2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Samsung Galaxy Watch Active2](https://www.lifewire.com/thmb/Ttod1pj32tMmx9tm6GR5CMHEa1w=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_GalaxyWatchActive2_HeroSquare-8ec2b040552f4e82b569c140246d3e1f.jpg)
 
 Lifewire / Yoona Wagener
@@ -73,6 +76,9 @@ Lifewire / Yoona Wagener
 
  The Samsung Galaxy Watch Active2 is streamlined, sporty, and simple to navigate. It comes with a vibrant SUPER AMOLED 360x360 1.2-inch display that’s easy to view in all different lighting conditions with adjustable brightness levels, the ability to use an upward wrist gesture or tap to wake, and the option of an always-on display.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![Samsung Galaxy Watch Active2](https://www.lifewire.com/thmb/N4yT__TbwVbN6a39Bt2U0VY1NIE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_GalaxyWatchActive2_02-4211271093364edba39310d3d9b09691.jpg)
 
 Lifewire / Yoona Wagener
@@ -83,6 +89,9 @@ Lifewire / Yoona Wagener
 
  The swipe-down quick access menu comes with even more useful features for activating the most relevant settings based on the situation. These helpful aids include shortcuts for enabling night mode to inactivate the screen and any notices while you’re sleeping and freezing the screen from interferences in the pool by turning on the water lock button. I experienced strong feedback and responsiveness with every tap or menu navigation, never feeling as if I’d lost my place or that the watch failed to register my inputs.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ## What’s New: New sizing, connectivity, and fitness tracking in the Active2
 
  While the general appearance and feature set hasn’t changed dramatically, the Active2 presents some clear differences over the original[Samsung Galaxy Watch Active](https://www.lifewire.com/samsung-galaxy-watch-active-review-4766873) . The Active2 increases the display by 0.1 inches or 0.3 inches in the new larger case size that appeals to more wrist sizes.
@@ -107,6 +116,9 @@ Lifewire / Yoona Wagener
 
  Though it has a sporty edge, the band is replaceable for a more formal style, and the color options add personality that rivals models from brands such as Apple, Fitbit, and Garmin. Take color coordination further by adding your favorite shades using the My style watch face. Even if you stick with basic black, the Active2 provides a strong case for 24/7 wear as a smartwatch that blends in nicely for daily wear.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Performance: A much-improved fitness tracker
 
  A device called Active2 should have the chops to track exercise and wellness, and this watch delivers even better than the original Active. Like the first-generation model, the Active2 tracks 39 different workouts, including automatic logging of popular exercises such as running. When running with the Active, I experienced underwhelming and slightly inaccurate GPS and heart rate capture compared with a Garmin device. That wasn’t my experience with the Active2.
@@ -123,6 +135,9 @@ Lifewire / Yoona Wagener
 
  The Active2 performed with flying colors outside of running, automatically detecting walking and cycling workouts, tracking sleep cycles, and encouraging movement throughout the day. I got a kick out of the friendly animated figures that popped up if I hadn’t moved within the hour, suggesting I take a walk or stretch—and offering a pat on the back when I started and stayed moving.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ## Battery: Not an overachiever but consistent
 
  Samsung suggests that the Active2 should last 43 hours in the aluminum version and 60 hours in the stainless steel model. The claim that this is a multi-day device is right on target. I saw a consistent run time of 2.5 to three days, depending on how I used it. Streaming Spotify music or enabling the always-on display during runs predictably depleted the battery faster.
@@ -139,6 +154,9 @@ Lifewire / Yoona Wagener
 
  Android users enjoy the ease of responding to emails, calls, and messages directly from the Active2 (when it’s nearby and connected) with canned responses, emojis, and even voice input and hand-drawn responses. There’s also a new SOS feature for alerting a contact if you’ve experienced a fall. All of these features are made more accessible in standalone mode with the LTE model. Samsung Galaxy smartphone users enjoy even more symbiosis with their phones with features such as Wireless PowerShare and ECG monitoring from the Samsung Health app.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ![Samsung Galaxy Watch Active2](https://www.lifewire.com/thmb/FGyDnFtFBooJPFED4m8KKx1gHxY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_GalaxyWatchActive2_03-03f2d0ff893f44228dbd65b6ce357f43.jpg)
 
 Lifewire / Yoona Wagener
@@ -151,6 +169,9 @@ Lifewire / Yoona Wagener
 
  The Samsung Galaxy Watch Active2 starts at $250 for the Bluetooth model or $270 for the LTE version. These price points still slot this watch below the top-tier models that ask a premium of well over $400\. Even with the standard Bluetooth and Wi-Fi connected Active2, you’ll find a lineup of apps and tools that cover most smartwatch needs. From automatic fitness tracking and some advanced health metrics to call and text response and music storage, this small and capable wearable is multi-talented and priced reasonably for its abilities.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ## Samsung Galaxy Watch Active 2 vs. Fitbit Sense
 
  The Fitbit Sense is the premium smartwatch from the Fitbit Brand, priced at $300, though it’s possible to find it for near $250\. Like the Active2, the Fitbit delivers watch face personalization, heart rate monitoring, onboard GPS, contactless pay, and automatic workout and all-day activity tracking.
@@ -167,12 +188,18 @@ Lifewire / Yoona Wagener
 
  The Samsung Galaxy Watch Active2 performs true to its name as a wearable that helps promote and match an active lifestyle with a slim and durable build, advanced running metrics, ECG monitoring, and a generous suite of apps and connected features. The full customization available on Android and Samsung Galaxy smartphones, in particular, makes the Active2 a compelling smartwatch choice for non-iOS users.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Apple Watch SE](https://www.lifewire.com/apple-watch-se-review-5088223)
 * [Garmin Vivomove HR](https://www.lifewire.com/garmin-vivomove-hr-review-4843913)
 * [Mobvoi TicWatch Pro 4G LTE](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Galaxy Watch Active2

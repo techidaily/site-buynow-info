@@ -1,7 +1,7 @@
 ---
 title: "Explore the Syma S111G Remote Controlled Copter: Great Deals and Indoor Adventures"
-date: 2024-08-01 19:25:28
-updated: 2024-08-04 10:50:24
+date: 2024-08-03T23:04:04.961Z
+updated: 2024-08-04T23:04:04.961Z
 categories:
   - BestProducts
 description: "This Article Describes Explore the Syma S111G Remote Controlled Copter: Great Deals and Indoor Adventures"
@@ -32,6 +32,9 @@ thumbnail: https://thmb.techidaily.com/1f190d8040197877fe9d91a786d037cb715f0068f
 * [ Apple Watch Series 9 \[GPS 41mm\] Smartwatch](https://www.amazon.com/Apple-Smartwatch-Aluminum-Fitness-Resistant/dp/B0CSV9Y331?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $280 (was $399)
 * [ Apple Watch SE (2nd Gen) \[GPS 40mm\] Smartwatch](https://www.amazon.com/dp/B0CHX7R6WJ?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $169 (was $249)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## AirPods
 
 * [Apple AirPods Pro (2nd Generation)](https://www.amazon.com/Apple-Generation-Cancelling-Transparency-Personalized-dp-B0D1XD1ZV3/dp/B0D1XD1ZV3?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $169 (was $249)
@@ -39,6 +42,9 @@ thumbnail: https://thmb.techidaily.com/1f190d8040197877fe9d91a786d037cb715f0068f
 * [Apple AirPods (2nd Generation)](https://www.amazon.com/dp/B07PXGQC1Q?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $69 (was $129)
 * [Apple AirPods (3rd Generation) Wireless Ear Buds](https://www.amazon.com/dp/B0D1WXVQTN?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $120 (was $169)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## iPads & MacBooks
 
 * [Apple iPad Pro (10.5-inch, Wi-Fi + Cellular, 64GB) - Rose Gold](https://www.amazon.com/dp/B071GGB84Y?tag=lifewire-onsite-prod-20&ascsubtag=8675891%7Cncd5a4dce533d4683bd835c8043a91a8c10%7C) , $505 (was $779)
@@ -49,6 +55,9 @@ thumbnail: https://thmb.techidaily.com/1f190d8040197877fe9d91a786d037cb715f0068f
 
 ## Apple AirTag
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Apple AirTag, Amazon Apple](https://www.lifewire.com/thmb/FipFdA6HAHhnqkyPxPSxtPkhMbA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/amazon-apple-after-christmas-deals-121923-8-34d5dafd52504e70ac9e89bc39b8aed6.jpg)
 
 Amazon
@@ -59,6 +68,9 @@ Amazon
 
  Need more? Grab a four-pack below.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ## AirTag 4 Pack
 
 ![A set of four Apple AirTags](https://www.lifewire.com/thmb/oSijRZK4BqdndZJLrET-tiN-Kp0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleAirTag-6c3832f854c24710890ba380ef01ff86.jpg)
@@ -89,8 +101,14 @@ Amazon
 
  Apple's AirPods Pro (2nd gen) offer excellent wireless sound, active noise cancellation, and four pairs of silicone tips so you can get the perfect fit. (And keep them in your ears!)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Apple iPad 10.2-inch (9th Generation)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Apple 10.2-inch iPad 64GB (9th generation).](https://www.lifewire.com/thmb/Fz5fzdr5T2V7XBiWdboOc99fwHc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleiPad9thGeneration_Amazon-0fbd83ca454840278d06c4a85943f974.jpg)
 
 Amazon
@@ -99,8 +117,14 @@ Amazon
 
  Need a tablet but don't want to break the bank? This 9th gen iPad is fast, with ample storage (256 GB), and is compatible with popular accessories including Apple's Smart Keyboard case.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ## Apple Watch Series 9 \[GPS 41mm\] Smartwatch
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ![Three Apple Watches in a row. Starting on the left is the Apple Watch SE (gen 2), Apple Watch Series 9 in the middle, and the Apple Watch Ultra 2 on the right.](https://www.lifewire.com/thmb/2xI4aMDe_iS79cxcVVcfvcWyMq0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleWatchlineup-b20fe549d8374cac9ec8afd8e08118a2.jpg)
 
 Apple, Inc.

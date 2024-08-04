@@ -1,7 +1,7 @@
 ---
 title: Is the Samsung Galaxy Tab S3 Still a Great Choice? - In-Depth Analysis
-date: 2024-07-30 17:22:48
-updated: 2024-08-02 11:54:28
+date: 2024-08-03T23:03:53.642Z
+updated: 2024-08-04T23:03:53.642Z
 categories:
   - BestProducts
 description: This Article Describes Is the Samsung Galaxy Tab S3 Still a Great Choice? - In-Depth Analysis
@@ -37,6 +37,9 @@ Lifewire / Bill Thomas
 
 3
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Netgear C3000 Cable Modem Router
 
 ![Netgear C3000](https://www.lifewire.com/thmb/Ga2OrNlpcgoBAByp_iB08VrN5h0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-4_1-3b77a598c3cd4836b8b632578b3b437e.jpg)
@@ -77,18 +80,30 @@ Lifewire / Bill Thomas
 
  Lifewire / Bill Thomas
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear C3000](https://www.lifewire.com/thmb/_9ERrc4mSXFjpZAVMAwwqbfpLwM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_3-2f5e1e38512d41019430d063e63b7f9b.jpg)
 
  Lifewire / Bill Thomas
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear C3000](https://www.lifewire.com/thmb/8U-jHJ6otxXt5vRq8FVLubPNOpI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_2-a6aa93cceeaf4d9ca6bb0d989200b2ea.jpg)
 
  Lifewire / Bill Thomas
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear C3000](https://www.lifewire.com/thmb/7eGgp_5LZf8d-PMDe578GB4_hEI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-4_5-7c5c666203504b9ab932de0b70f14522.jpg)
 
  Lifewire / Bill Thomas
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Setup Process: Exceptionally easy
 
  Setting up a cable modem can be a complicated and time consuming process. Not so with the Netgear C3000—when we set it up it was almost plug-and-play. It could be because this modem isn’t the most complex piece of hardware, but it was ready for activation_seconds_ after we plugged it in. We connected via ethernet, launched a browser and within minutes we activated our 250 Mbps Xfinity service. We’re not sure if our experience was a fluke, but we were pleasantly surprised.
@@ -103,6 +118,9 @@ Lifewire / Bill Thomas
 
  Lifewire / Bill Thomas
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Network Performance: Keep your expectations low
 
  This device has an N300 network rating, which means your speeds should top out at 300Mbps on a single band. But your actual network speed won’t reach that. In testing the wireless performance of the Netgear C3000, our wireless speed topped out at 54 Mbps just three feet from the modem. We pay for a 250 Mbps plan, so we were getting about 20% of our rated speed.
@@ -119,6 +137,9 @@ Lifewire / Bill Thomas
 
  There’s also a Netgear Genie mobile app on both Google Play and the App Store. The app gives you the same controls as the management portal, but with a much more user-friendly interface. This is what we’d recommend most people use to[manage their network](https://www.lifewire.com/how-to-set-up-your-home-wi-fi-network-2378223) .
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Price: Expensive for what it is
 
  The Netgear C3000 cable modem will set you back a whopping $94.99 at retail. Considering that you can get a 8x4 DOCSIS 3.0 cable modem for around $50 and an N300 wireless router for less than $20, it’s not exactly the best deal out there.
@@ -127,6 +148,9 @@ Lifewire / Bill Thomas
 
  Unless you’re dead-set on buying an all-in-one device, buying a separate modem and router is going to be the more economical option.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Netgear C3000 vs. TP-Link TC-W7960S
 
  In terms of competition, we looked at the TP-LINK TC-W7960S, which is almost identical spec-for-spec but more a bit more expensive. It will set you back $97 if you’re buying it full price. Fortunately, the TP-Link Modem has two more wired ports so you can have more devices hard-wired in, and you won’t have to rely so much on wireless. Either way, with so many devices these days needing wireless connections, picking up a dedicated wireless router is never a bad idea.
@@ -143,6 +167,9 @@ Lifewire / Bill Thomas
 * [Netgear C3700 Cable Modem Router](https://www.lifewire.com/netgear-c3700-cable-modem-router-review-4686094)
 * [Motorola MG7700](https://www.lifewire.com/motorola-mg7700-review-4589346)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  C3000 Cable Modem Router

@@ -1,7 +1,7 @@
 ---
 title: "Premier Basketball Game: Dive Into NBA 2K19"
-date: 2024-08-01 19:19:19
-updated: 2024-08-02 10:59:38
+date: 2024-08-03T23:04:39.618Z
+updated: 2024-08-04T23:04:39.618Z
 categories:
   - BestProducts
 description: "This Article Describes Premier Basketball Game: Dive Into NBA 2K19"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/ad251382f0a7d8c655d1ecfe442682eca929097f4
 
 4.7
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## PetCube Play 2
 
 ![Petcube Play 2](https://www.lifewire.com/thmb/fi4QKVoNpmF0orWr6-09-W2GJQY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/PetCube_PetCameras_Play2_HeroSquare-1fac0e7ac5604adbbc5e1443c8904884.jpg)
@@ -37,8 +40,14 @@ thumbnail: https://thmb.techidaily.com/ad251382f0a7d8c655d1ecfe442682eca929097f4
 
 4.7
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## PetCube Play 2
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Petcube Play 2](https://www.lifewire.com/thmb/Ih0OyKYEFJOY46U7eBWO2udCMIc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/PetCube_PetCameras_Play2_HeroSquare-1fac0e7ac5604adbbc5e1443c8904884.jpg)
 
  Lifewire / Sandra Safford
@@ -63,18 +72,27 @@ thumbnail: https://thmb.techidaily.com/ad251382f0a7d8c655d1ecfe442682eca929097f4
 
  Making the most of time away from our pets is a big concern for pet owners. Even leaving for work has its own requirements, such as checking for food, water, and your pet's well-being. The Play 2 is made for those pet owners who just can't look away for a whole day. Improved field of view and newly added Alexa functionality make an amazing quality pet camera even better.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Tiny device blends in anywhere**
 
  The Play 2 has a subtle design that blends in with other home electronics. The reflective black plastic on the front face hides fingerprints fairly well, but the matte black plastic on the top is easily smudged. Unless someone got close enough to read the word “Petcube,” they would never know that this little camera marks you as pet-obsessed. The wide field of view and small size of the Play 2 means it can fit just about anywhere without being intrusive.
 
  Lifewire / Sandra Stafford
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: App-guided setup takes minutes**
 
  The Petcube Play 2 is so easy to set up it doesn’t even include a manual. The Petcube app prompts you through creating an account and profiles for your pets, which can include their names, pictures, and birth dates if you know them. The app guides you through the process of pairing the Play 2 to your phone and connecting it to[Wi-Fi](https://www.lifewire.com/what-is-wi-fi-2377430) . The laser requires no setup, but it can be recalibrated if necessary. Mine worked just fine with the default calibration.
 
  Lifewire / Sandra Stafford
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## **Video Quality: Beautifully clear picture quality**
 
  I tested the Play 2 in my house lit by the unrelenting Texas sun. The Petcube Play 2, like its predecessor, records in[1080p](https://www.lifewire.com/what-the-term-1080p-means-1846837) . In daylight, the picture quality is so good that I can make out every whisker on my cat’s face. It’s a bit grainy at times, but there isn’t a pet cam on the market that performs better. Even the wealthiest pet owners aren’t going to pay for a cam that records in 4K. Pets don’t do much at night, but with the laser, I was able to entice my pets to cooperate for testing the automatic night vision. The recording quality at night is still very good, but grainier than during the day.

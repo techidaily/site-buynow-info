@@ -1,7 +1,7 @@
 ---
 title: Google Pixel 5 Review
-date: 2024-08-01 13:57:37
-updated: 2024-08-02 12:49:51
+date: 2024-08-03T23:04:50.040Z
+updated: 2024-08-04T23:04:50.040Z
 categories:
   - BestProducts
 description: This Article Describes Google Pixel 5 Review
@@ -38,8 +38,14 @@ Lifewire / Yoona Wagener
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ## TCL 50S425 50-inch 4K Smart LED Roku TV
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/3k1MkB4svn07bDvaUq6CGgLhZl8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_HeroSquare-beccb9820dfd4a878196fac8bdf1d541.jpg)
 
 Lifewire / Yoona Wagener
@@ -66,10 +72,16 @@ Lifewire / Yoona Wagener
 
  We tested the TCL 50S425 and were impressed by the ease of setup, picture quality, and user-friendliness of this[smart TV](https://www.lifewire.com/what-is-a-smart-tv-4140172) .
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/8IJD6mxL-mHDn0MMWWRd5yZERlc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_04-bbd6d026c9ec48df9f12c934b7def674.jpg)
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Lightweight and straightforward**
 
  Smart TVs range in size, typically starting from 32 inches and reaching all the way up to 85 inches and beyond. If you can’t accommodate or don’t want a really large television, the TCL 50-inch Roku TV offers a decent middle ground that will appeal to shoppers who want an apartment or dorm-friendly TV without sacrificing quality.
@@ -112,6 +124,9 @@ Lifewire / Yoona Wagener
 
  Regular picture mode and the predefined 4K HDR picture settings were on point, which made viewing right out of the box extremely easy and pleasant. We were also pleased by the picture quality from all angles. Getting too close or too far out to the right or left did reveal some shadows and distortion, but only at fairly extreme angles.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/Lv4B9e6LaJSHW7NSl-Braa2vnmc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_03-b8155781e440420aa0c6c2bf19f9fe6a.jpg)
 
  Lifewire / Yoona Wagener
@@ -124,10 +139,16 @@ Lifewire / Yoona Wagener
 
  In our testing experience in a small room, the internal speakers were more than adequate without the need for additional speakers. If you do want another layer of dimension to your audio, you might consider opting for the Roku[wireless speakers](https://www.lifewire.com/wireless-speakers-and-home-theater-1846770) designed specifically for Roku TV sets.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/oA3AbTZysdVWZbOWuuVGOa56_8c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_02-04183ae8dcd44b778b4da0e7706d5df2.jpg)
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: Intuitive and streamlined**
 
  Simplicity and quality are two of the greatest strengths of this TV and a big part of the equation is the operating system. The TCL 50S425 operates on Roku OS 9.1, and it’s extremely user-friendly. Updates are automatic so there’s no manual effort required on your part, and the interface is laid out in a clear and uncomplicated manner.
@@ -136,6 +157,9 @@ Lifewire / Yoona Wagener
 
  While the remote doesn’t come with a built-in speaker, the free Roku app does offer a voice-assistant feature. It’s best when completing a general search for a show or actor or for launching a particular app. If you have a Google Assistant or Amazon Alexa enabled device, this Roku TV will support them, and they offer a generally better experience than using the Roku app voice remote function.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ## **Price: A great bargain on a budget**
 
  If you don’t want to spend a fortune on a 4K TV, but you want to get as much value as possible, the TCL 50S425 50-inch Roku TV is a compelling option. It retails for $350, which situates it in the growing and competitive class of 4K TVs under $500\. In the TCL 4-Series alone you have several other models to consider that all share the same specifications except for size. The larger 55-inch TCL Roku TV retails for just $30 more than the 50-inch version and features a larger screen size of 54.6 inches. It may not seem considerable, but if you’re limited with space, the extra width and height (five and two inches, respectively) can actually feel like a pretty massive difference. And if you opt for a smaller display and a lower price tag, the 43-inch TCL Roku TV retails for about $280, but you’re sacrificing 7 inches of display.

@@ -1,7 +1,7 @@
 ---
 title: The Lightest Laptop with Muscle - A Thorough Examination of the LG Gram 17 Model
-date: 2024-07-29 21:47:14
-updated: 2024-08-01 11:14:44
+date: 2024-08-03T23:04:47.377Z
+updated: 2024-08-04T23:04:47.377Z
 categories:
   - BestProducts
 description: This Article Describes The Lightest Laptop with Muscle - A Thorough Examination of the LG Gram 17 Model
@@ -13,6 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/plhq-qtTIvBCJ2jL0ayJXgsB4TE=/400x300/fi
 
 4
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Alienware Aurora R7
 
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/mgtquLrY-jPbXryeiPiK4PShYo4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_2LW4045927-1-7ee01493034d4631894328a424e3ac52.jpg)
@@ -37,6 +40,9 @@ Lifewire / Gannon Burgett
 
 4
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Alienware Aurora R7
 
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/emzd7Km2ZWo2iwJHim7f3cQirPc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_2LW4045927-1-7ee01493034d4631894328a424e3ac52.jpg)
@@ -85,10 +91,17 @@ Lifewire / Gannon Burgett
 
 Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Complex settings, simplified**
 
  Setting up the Alienware Aurora R7 was fairly straightforward. In the box was the tower, a mouse, a keyboard, and the power cable. After connecting the Aurora R7 to power, plugging in the mouse and keyboard, and attaching a monitor, it was just a matter of going through Window 10’s setup process to get the ball rolling.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## **Performance: It’ll take nearly anything you throw at it**
 
  The Alienware Aurora R7 model we tested was configured with an Intel Core i7-8700 CPU, an NVIDIA GeForce GTX 1070 8GB graphics card,16GB of[RAM](https://www.lifewire.com/what-is-random-access-memory-ram-2618159) , and a 256GB M.2 PCIe SSD powering the operating system and apps. Meanwhile, a 2TB HDD served as the mass media storage.
@@ -113,6 +126,9 @@ Lifewire / Gannon Burgett
 
  In our hardwired tests, the Aurora R7 easily achieved perfect speeds across the board for our Gigabit fiber optic connection. The wireless connection proved nearly perfect as well, with steady speeds both up and down, with minimal ping. Regardless of whether we were gaming or downloading large video files, the computer kept up connection whether it was next to the router or three rooms away.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/WZgne8muGMTOdD29ReFAQROJJL4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4045927-3-21501d80d0d84039b9db4cc0e924b13e.jpg)
 
  Lifewire / Gannon Burgett
@@ -129,6 +145,9 @@ Lifewire / Gannon Burgett
 
  OC Controls is a dedicated program for controlling overclocking levels of the memory and CPU. The program not only makes it easy to control the overclocking settings, but also helps you keep an eye on temperatures while you game.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: Pricey compared to DIY, but otherwise a solid value**
 
  The Alienware Aurora R7 with the aforementioned specifications retails for $1,699 (MSRP). Compared to other pre-built computers, it’s a bit high as we’ll see below. It’s also a good bit more expensive than other DIY gaming builds. Convenience isn’t cheap and the Aurora R7 is no exception.
@@ -139,6 +158,9 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## **Competition: Convenience rules above all else**
 
  Judging competitors of the Alienware Aurora R7 can get incredibly tricky considering all the different configurations available, not to mention the option of building your own computer. That said, one pre-built gaming PC stands out alongside the Aurora R7 in terms of specs and value—the MSI Infinite X.
@@ -155,12 +177,18 @@ Lifewire / Gannon Burgett
 
  The Alienware Aurora R7 is a wonderful option if you’re looking for a pre-built gaming PC that requires little to no hands-on time to get up and running. Out of the box, it’s ready to take on nearly any game you throw at it, usually at the highest settings. Sure, it’s a bit pricier than a DIY PC, but its compact case, tool-less access, and upgradability makes it a solid option for someone who wants a plug-and-play gaming rig.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Lenovo ThinkCentre M720 Tower](https://www.lifewire.com/lenovo-thinkcentre-m720-tower-review-4776238)
 * [HP Flagship Pro Desktop](https://www.lifewire.com/hp-flagship-pro-desktop-review-4776228)
 * [Acer Aspire TC-885-ACCFLi3O Desktop PC](https://www.lifewire.com/acer-aspire-tc-885-accfli3o-desktop-pc-review-4776155)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Aurora R7

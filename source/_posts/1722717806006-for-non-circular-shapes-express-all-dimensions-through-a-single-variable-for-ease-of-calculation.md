@@ -1,7 +1,7 @@
 ---
 title: For Non-Circular Shapes, Express All Dimensions Through a Single Variable for Ease of Calculation.
-date: 2024-08-01 20:38:12
-updated: 2024-08-04 10:40:20
+date: 2024-08-03T23:04:13.873Z
+updated: 2024-08-04T23:04:13.873Z
 categories:
   - BestProducts
 description: This Article Describes For Non-Circular Shapes, Express All Dimensions Through a Single Variable for Ease of Calculation.
@@ -13,6 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/bptkPuLZHhXM0lJcBFRMHvXtAhQ=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Raspberry Pi 400
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/Gmg1bX1GHP4gGx2wCClYDURkzKI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Raspberry-Pi-400-Mini-PC-1-2e3e0817c1ad4570a7c3a8d70b7e991b.jpg)
@@ -44,6 +47,9 @@ Erika Rawes / Lifewire
 
 ## Raspberry Pi 400
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/Lx1zPft9GUcm5A0WBJsxvP8fCUM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Raspberry-Pi-400-Mini-PC-1-2e3e0817c1ad4570a7c3a8d70b7e991b.jpg)
 
 Erika Rawes / Lifewire
@@ -76,6 +82,10 @@ Erika Rawes / Lifewire
 
  The most recent iteration of the Raspberry Pi, the Raspberry Pi 400, has better processing and the Pi computer built right into a keyboard. This allows for an even more compact personal computer, and the Pi 400 kit even includes a microSD card with the OS preloaded. To see how this new Pi compares to previous generation models and other mini PCs, I tested it for a week. Here’s my full review of the Raspberry Pi 400.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ## Design: A PC inside of a keyboard
 
  Previous versions of the Raspberry Pi didn’t exactly come across as accessible to the typical PC user who spends most of their time surfing the web. The older Raspberry Pi models look like a mini motherboard with ports and other components attached. The Raspberry Pi 400 is completely different, as the board is housed inside a keyboard for easier setup and use. It’s reminiscent of those all-in-one PC keyboards from the 80s.
@@ -98,6 +108,9 @@ Erika Rawes / Lifewire
 
  The whole purpose of a Raspberry Pi is to be whatever you want it to be—a personal computer, a smart home controller, a gaming system, or whatever else you can think of.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Projects: Keyboard helps in some ways, hinders in others
 
  One great thing about[Raspberry Pi](https://www.lifewire.com/what-is-raspberry-pi-4042337) is that there’s a community of users to help you out with project ideas, to share terminal commands, and to help with troubleshooting. Pi computers are great for makers, but once I really started experimenting with the Pi 400, I realized the keyboard is beneficial in some areas, but it’s limiting in others.
@@ -110,12 +123,18 @@ Erika Rawes / Lifewire
 
 Erika Rawes / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## Display: Dual mini HDMI ports
 
  The Pi 400 has two mini HDMI slots, so you could connect two displays if you wanted to. It can display in 4K as well, which is impressive for a mini PC under $100\.
 
  The Raspberry Pi 400 doesn’t have a DSI port for connecting a capacitive touchscreen display, but you can connect just about any compatible HDMI monitor as long as you use a micro HDMI to[HDMI cable](https://www.lifewire.com/hdmi-cables-and-connectors-what-you-need-to-know-4685377) .
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Performance: Not bad for the size
 
  The Pi 400 is the fastest Pi yet, with a 1.8GHz quad-core processor (compared to 1.5GHz on the previous model Pi 4). It doesn’t feel sluggish when booting up, nor does it lag when moving between different applications.
@@ -130,12 +149,18 @@ Erika Rawes / Lifewire
 
  You can turn your Raspberry Pi 400 into a RetroPie gaming system, where you can play classic games from Nintendo, Nintendo 64, Sega, Atari, and more. I created a RetroPie using a Raspberry Pi 3 a few years back, and I’d have to connect a keyboard for any updates or changes. The new keyboard form factor makes things a bit easier with the Pi 400\.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Productivity: LibreOffice and helpful accessories
 
  The Kit with the included Raspberry Pi OS has LibreOffice applications preloaded. You get LibreOffice Base, Calc, Draw, Impress, Math, and Writer. This is helpful for homework, work, keeping track of your command lines, basic word processing, or for creating spreadsheets.
 
  The accessories tab includes a PDF viewer and a calculator, as well as a text editor and an SD card copier. You also have a basic web browser—plenty of tools to get you started.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ## Audio: Bluetooth connectivity
 
  You won’t find built-in speakers, but the Pi 400 will play audio on your monitor’s speakers when you use the HDMI to mini HDMI cable included in the kit. It also has Bluetooth for connecting a pair of wireless headphones. I had no problem connecting a few different types of Bluetooth headphones to the Pi. There’s no audio output jack, but you can connect compatible USB speakers if you launch the appropriate USB commands in the terminal.
@@ -164,6 +189,9 @@ Erika Rawes / Lifewire
 
  Although the Raspberry Pi OS is basic, the included applications make this an ideal computer for a beginner who wants to learn basic computer programming skills. The interface includes a direct connection to the Pi site, where you can find numerous project ideas from 3D print templates to robotics projects.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ## Price: An amazing value
 
  Unless you’re well-versed in using a Pi, I would not suggest going with the Pi 400 alone. It’s best to go with the kit. The Pi 400 kit costs around $100, and that’s a great price considering everything you get. It makes an excellent gift for a young techie or anyone who wants to learn more about computers or automation.
@@ -172,6 +200,9 @@ Erika Rawes / Lifewire
 
 Erika Rawes / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Raspberry Pi 400 Kit vs. Arduino Student Kit
 
  The Arduino Student Kit comes with the Arduino Uno, which is a microcontroller board based on ATmega328P. It comes with a bunch of accessories for all sorts of electronics, automation, and coding projects. The Arduino Kit is more like the older Pi models in that it’s tiny, and designed for building different types of projects.

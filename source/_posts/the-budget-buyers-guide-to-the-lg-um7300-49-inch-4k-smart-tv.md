@@ -1,7 +1,7 @@
 ---
 title: The Budget Buyer's Guide to the LG UM7300 49-Inch 4K Smart TV
-date: 2024-08-03 11:59:15
-updated: 2024-08-04 11:35:13
+date: 2024-08-03T23:04:10.150Z
+updated: 2024-08-04T23:04:10.150Z
 categories:
   - BestProducts
 description: This Article Describes The Budget Buyer's Guide to the LG UM7300 49-Inch 4K Smart TV
@@ -13,8 +13,20 @@ thumbnail: https://www.lifewire.com/thmb/pMjUpWPjl0bwY_P8UbndZxzm-NM=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Netgear Nighthawk X10 AD7200 Router
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ![Netgear Nighthawk X10 AD7200](https://www.lifewire.com/thmb/qU5CSGt_Rfj9LA-RPz9fQEylRoU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_HeroSquare-885945bb208b49a583aca8da1aa09378.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -41,6 +53,9 @@ thumbnail: https://www.lifewire.com/thmb/pMjUpWPjl0bwY_P8UbndZxzm-NM=/400x300/fi
 
 ## Netgear Nighthawk X10 AD7200 Router
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear Nighthawk X10 AD7200](https://www.lifewire.com/thmb/0rm8vUox5EoeaGCQJw0E5XQxwck=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_HeroSquare-885945bb208b49a583aca8da1aa09378.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -95,6 +110,9 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Connectivity: AD7200 tri-band with MU-MIMO and 10G SFP+**
 
  The Netgear Nighthawk X10 AD7200 is an AD7200 tri-band router, which means it’s capable of providing 1733Mbps over a 5GHz wireless network, 800Mbps over a 2.4GHz network, and a blistering 4600Mbps over a 60Hz network. That last one is the key feature here, as only 802.11ad routers like this one feature a super-high-speed 60GHz network.
@@ -109,6 +127,9 @@ Lifewire / Jeremy Laukkonen
 
  For physical connectivity, the Nighthawk X10 features six Ethernet ports, two of which can be used together to create a single 2Gbps connection. You also get two USB 3.0 ports for connecting USB drives and a single 10Gbps SFP+ LAN port. This final port is potentially the most interesting, and also most niche since it allows you to connect a high-speed NAS server, a secondary switch for more Ethernet ports, or other devices that require a bunch of high-speed bandwidth.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ## **Network Performance: Fantastic 5GHz performance, WiGig leaves a bit to be desired**
 
  Since this is an 802.11ad router, and the 60GHz WiGig network is the key feature here, that’s where I’m going to start. All of my tests are performed using a 1Gbps Mediacom cable internet connection, so any testing done on an 802.11ad router like this involves data transfer speeds within my network, not the internet connection. For testing purposes, I have a[laptop](https://www.lifewire.com/best-laptops-to-buy-4043650) that I retrofitted with a network interface card featuring the QCA9005 chipset.
@@ -119,6 +140,9 @@ Lifewire / Jeremy Laukkonen
 
  The bottom line is that this router provides truly awesome speeds at very short distances, but the benefit falls off sharply, and you’d be better off using the 5GHz network even a few feet away.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/Jwl6BD38cWznmN0op6bpzAmBs_U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_03-4cfe683a7cf94e94b14c0ec2be12da50.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -147,6 +171,9 @@ Lifewire / Jeremy Laukkonen
 
  I plugged in one of my media-filled SSD USB drives and had no trouble streaming to any of the Plex clients I have on my network.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Not bad if you really need 802.11ad**
 
  With an MSRP of $500, and a street price closer to $250, the Nighthawk X10 AD7200 is a tough sell to most consumers. It features a wireless technology that hasn’t really caught on, and which most consumers just won’t be able to take advantage of. For the money you’d spend on this router, you could get a high-end 802.11ax router.

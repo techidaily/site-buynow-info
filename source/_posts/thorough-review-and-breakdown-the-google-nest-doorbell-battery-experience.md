@@ -1,7 +1,7 @@
 ---
 title: "Thorough Review and Breakdown: The Google Nest Doorbell (Battery) Experience"
-date: 2024-07-30 10:19:36
-updated: 2024-08-02 11:29:39
+date: 2024-08-03T23:04:22.728Z
+updated: 2024-08-04T23:04:22.728Z
 categories:
   - BestProducts
 description: "This Article Describes Thorough Review and Breakdown: The Google Nest Doorbell (Battery) Experience"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/94367d0839b4e8bd552f4ff0b46203c6692aa9dd5
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Motorola MG7700 Cable Modem and Router
 
 ![Motorola MG7700](https://www.lifewire.com/thmb/wUfud-dw3x-fQBAILjgQYd_Srx4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-4082541-3-2-5c8fadb846e0fb00014a9735.jpg)
@@ -66,6 +69,9 @@ Lifewire / Claire Cohen
 
  We recently reviewed the MG7700 to examine just how well it would perform in an average home environment by evaluating the design, ease of setup, network speeds, and software features.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ## Design: Simple and functional
 
  The Motorola MG7700 is fairly compact at 9.1 x 2.6 x 2.6 inches with a gray finish and a black stand. On the front of the device, you’ll find several indicator lights that tell you if it’s powered up, whether any traffic is flowing through your network, and if people are connected to your wireless network. The light indicators are easy to see and understand — something you don’t typically find in a modem from your cable company.
@@ -82,6 +88,9 @@ Lifewire / Claire Cohen
 
  The Best Cable Modems on the Market
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Setup Process: Location, location, location
 
  Since the Motorola MG7700 is a combined cable modem and router, you’ll need to plug it into[your ISP’s coaxial cable](https://www.lifewire.com/introduction-to-network-cables-817868) in order to pipe Internet into your home. This can limit your placement locations a bit since coax cables are often installed by your provider in less-than-ideal locations, especially if you live in an apartment building.
@@ -98,6 +107,9 @@ Lifewire / Claire Cohen
 
  Information about approved third-party equipment can usually be found on your cable provider’s website. If not, it’s best to call and ask before you buy. We were able to set it up on Spectrum without any trouble.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ## Connectivity: The latest standards
 
  The Motorola MG7700 is a 24x8 DOCSIS 3.0 modem that doubles as a wireless router. It has 24 downstream channels (which are lanes that handle network traffic, so the more, the better) allowing it to potentially hit a 1 Gbps download speed. There are eight upstream channels for a maximum 246 Mbps upload. This is a pretty standard set of connectivity protocols that makes it a lot faster than 16x4 modems, but slower than 32x8 ones.
@@ -112,6 +124,14 @@ Lifewire / Claire Cohen
 
  The “1900” represents the maximum theoretical bandwidth the router is capable of. In this case, the MG7700 could hit 1,900 Mbps, but again, this is only if your cable provider supports it, not to mention other factors like wireless interference due to congested bands and throttling from your provider.
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Network Performance: Fast speeds with a caveat
 
  Once we got the modem up and running, it delivered outstanding speeds, reliably maxing out our 100 Mbps Spectrum plan when we were hard-wired via the LAN ports.
@@ -130,10 +150,17 @@ Lifewire / Claire Cohen
 
  Overall, if you live in a large apartment or a modestly-sized home, you won’t be disappointed by the performance of the MG7700.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Software: User-friendly options
 
  The MG7700’s built-in software is customizable, too. Once your router is set up, you can go to a specified IP address (the instructions will tell you which one) in your Web browser to change settings, including the name of the default network, enabling password protection, toggling the channels your router will communicate on, and more. There’s also an Advanced page that allows you to set up a[firewall](https://www.lifewire.com/definition-of-firewall-817568) or enable parental controls. Overall, the settings are well laid out, easy to understand, and simple to change.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Price: Good value for the speed
 
  At $189.99 (MSRP), the MG7700 isn’t quite as a cheap as standalone modems, which can cost as little as $30, but incorporating both a modem and router into one device makes the price more palatable.
@@ -156,6 +183,9 @@ Lifewire / Claire Cohen
 
  The Motorola MG 7700 boasts four gigabit-ready LAN ports, delivered blazing fast 100Mbps speeds over dual-band Wi-Fi in our testing, and has outstanding user controls that are easy for anyone to use. It does best in homes of 2,000 square feet and can handle a dozen devices or more. That said, if you’re someone with a larger home or higher bandwidth requirements for a large number of devices, you may be better served by a tri-band router.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Netgear Nighthawk C7000](https://www.lifewire.com/netgear-nighthawk-c7000-review-4686068)

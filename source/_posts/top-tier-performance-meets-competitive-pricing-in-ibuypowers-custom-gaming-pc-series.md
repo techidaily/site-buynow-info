@@ -1,7 +1,7 @@
 ---
 title: Top-Tier Performance Meets Competitive Pricing in IBUYpower's Custom Gaming PC Series
-date: 2024-07-31 22:50:41
-updated: 2024-08-03 10:39:44
+date: 2024-08-03T23:04:37.577Z
+updated: 2024-08-04T23:04:37.577Z
 categories:
   - BestProducts
 description: This Article Describes Top-Tier Performance Meets Competitive Pricing in IBUYpower's Custom Gaming PC Series
@@ -13,8 +13,19 @@ thumbnail: https://www.lifewire.com/thmb/UnyBLjb4wrvcnqHLipqKlONIkCg=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## TP-Link Archer A6 AC1200 Gigabit Smart Wi-Fi Router
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TP-Link Archer A6 AC1200 Router](https://www.lifewire.com/thmb/hTth7_RTT4bEi0nhlZj7rPvMYL0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_HeroSquare-3758788658a244148a04b7346643557b.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -40,6 +51,9 @@ Lifewire / Jeremy Laukkonen
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## TP-Link Archer A6 AC1200 Gigabit Smart Wi-Fi Router
 
 ![TP-Link Archer A6 AC1200 Router](https://www.lifewire.com/thmb/eB886Wl9r3D8YMg227kYv9GRkJs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_HeroSquare-3758788658a244148a04b7346643557b.jpg)
@@ -68,6 +82,9 @@ Lifewire / Jeremy Laukkonen
 
  Specifications don’t always tell the whole story, so I recently spent about five days with a TP-Link Archer A6 plugged into my own network. I tested how well it holds up under daily use with a lot of data-hungry devices connected at once, tested top speeds and range on both bands, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ## **Design: Improved over older designs**
 
  The Archer A6 doesn’t exactly stand out of the crowd, but it’s a definite improvement over the older C7 that I keep around for testing purposes. Instead of the flat or glossy black finish seen on most routers, the A6 has a two-tone crosshatched pattern that creates an interesting visual effect. The edges are rounded instead of angular, and the top actually curves gently downward when viewed head-on.
@@ -82,6 +99,9 @@ Lifewire / Jeremy Laukkonen
 
  The Archer A6 doesn’t exactly stand out of the crowd, but it’s a definite improvement over the older C7 that I keep around for testing purposes.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ## **Setup Process: Completely painless once you unwrap the antennas**
 
  This router comes fully assembled, which makes it a bit easier and faster to set up than most. I’m not a fan of the fact that you can’t remove the antennas, but it definitely saves a bit of time. Unfortunately, that saved time is mostly wiped out by the ridiculous wrap job TP-Link does on the side antennas.
@@ -96,6 +116,9 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Connectivity: Dual-band with MU-MIMO, but lacking in physical ports**
 
  The TP-Link Archer A6 is an AC1200[dual-band router](https://www.lifewire.com/dual-band-wireless-networking-explained-818279) that supports MU-MIMO beamforming. The total throughput is a little on the light side if you have a lot of devices, but MU-MIMO is a nice feature to see in such an affordable unit.
@@ -104,6 +127,14 @@ Lifewire / Jeremy Laukkonen
 
  On the physical side, the A6 comes with a bare minimum single WAN port and four LAN ports. There isn’t even a single USB port, so you can’t use this router to host a networked USB drive.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ## **Network Performance: Decent performance for a budget router**
 
  I tested this router on a Mediacom[Gigabit Ethernet](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) connection, performing extensive tests on the wired Ethernet connection and both wireless bands, in addition to regular use over the course of about five days.

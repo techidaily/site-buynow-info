@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Evaluation of the Apple iPad Mini 5: Compact Device, Maximum Performance"
-date: 2024-08-02 22:21:55
-updated: 2024-08-04 11:15:44
+date: 2024-08-03T23:04:29.423Z
+updated: 2024-08-04T23:04:29.423Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Evaluation of the Apple iPad Mini 5: Compact Device, Maximum Performance"
@@ -13,8 +13,15 @@ thumbnail: https://thmb.techidaily.com/d02ecec5426e8e1f2da5e128e095f9718e5fc3c11
 
 3.7
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ## Halo Bolt Portable Charger/Jump Starter
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Halo Bolt Portable Charger/Jump Starter](https://www.lifewire.com/thmb/VanJTMWZjo_p7o3jv1uHBa1hAf8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-HeroSquare-889ebc2fc6b54573a26c09cabb34bd5c.jpg)
 
 Lifewire / Andrew Hayward
@@ -73,6 +80,9 @@ Lifewire / Andrew Hayward
 
  The Halo Bolt also comes with an array of accessories, including a wall charging adapter, a car charging adapter, jumper cables, a USB-to-micro USB cable, and a cinching pouch for quick storage of all the above. All of the cables and accessories are a welcome bonus.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/nYYltjJN71EGK1Dwv2_XABixuhs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-04-85b590a9939a4f44b0c7a510a456b80f.jpg)
 
  Lifewire / Andrew Hayward
@@ -87,6 +97,9 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Charging Speed and Battery: Not so long-lasting**
 
  The Halo Bolt has 58,830mWh of battery power within, and the official description suggests that it can provide up to several hours of additional usage for a MacBook Pro or[iPad Air](https://www.lifewire.com/apple-ipad-air-2019-review-4688969) . In my testing, the results didn’t quite match those targets.
@@ -101,6 +114,9 @@ Lifewire / Andrew Hayward
 
  For example, charging a[Samsung Galaxy S10](https://www.lifewire.com/samsung-galaxy-s10-review-4685690) smartphone using one of the Halo Bolt’s USB-A ports took 2 hours and 56 minutes to complete at a paltry 5.19W (4.76V x 1.09A), starting from 0 percent. However, when I repeated the test using Samsung’s charger via the AC port, it finished in 1 hour and 34 minutes thanks to fast charging—nearly half the total time.
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/MNFqifirQ0sn61GPO1e-bLQ1t8s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-06-8bc3449bd35243aaaf67272c1d3774a6-bc803e0a114b4116adf3078af6a2de00.jpeg)
 
 Lifewire / Andrew Hayward
@@ -121,6 +137,9 @@ Lifewire / Andrew Hayward
 
  The Halo Bolt isn’t the best option for charging laptops, but it is a solid all-around device for providing backup power to a broader array of gadgets, not to mention jump-starting a car. This versatile device is smart to have around if you drive a car and are frequently mobile with your portable gadgets. I wouldn’t bring it with me on vacation, but it could prove useful before long as a backup device to keep handy.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Bolt ACDC 58830 mWh Portable Charger/Jump Starter

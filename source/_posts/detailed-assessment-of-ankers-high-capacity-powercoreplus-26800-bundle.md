@@ -1,7 +1,7 @@
 ---
 title: Detailed Assessment of Anker's High-Capacity PowerCore+ 26800 Bundle
-date: 2024-08-01 23:32:19
-updated: 2024-08-04 11:50:15
+date: 2024-08-03T23:04:06.786Z
+updated: 2024-08-04T23:04:06.786Z
 categories:
   - BestProducts
 description: This Article Describes Detailed Assessment of Anker's High-Capacity PowerCore+ 26800 Bundle
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/xomn4fOwspGABiC-og6gHsRlGnE=/400x300/fi
 
 4.1
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## DBPOWER 600A Peak 18000mAh Portable Car Jump Starter
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![600A Peak 18000mAh Portable Car Jump Starter](https://www.lifewire.com/thmb/zoSakt2DeEHvZbIU0RNWljw5x0A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DBPower_JumpStarter_5LW4140286_HeroSquare-4defda07335a4d7bafb41bb20cacee2f.jpg)
 
  Lifewire / Tony Mitera
@@ -76,6 +82,9 @@ thumbnail: https://www.lifewire.com/thmb/xomn4fOwspGABiC-og6gHsRlGnE=/400x300/fi
 
  The accessory kit contains a wall charger and a 12V port charger for the unit, a DC cable, and a variety of ends to allow for charging a laptop. The jumper cables sprout from a module that plugs into a specific port on the unit and terminate in your standard clamps. The module itself has a status light that illuminates to indicate the unit’s readiness to jump start the car.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Setup Process: The cables are short but easy to use**
 
  It's a breeze using the 600A to jump start a car. You plug the jumper cable module into the unit, which will cause its module light to flash green, then connect the red clamp to the positive terminal on your car’s battery and the black clamp to the negative terminal which will cause the module light to illuminate solid green. With our test vehicle it was a little difficult to get the clamps on the negative terminal as they are a little large, and the cables themselves are on the short side. With the clamps in position all that is left is to start the car and remove the clamps in reverse order.
@@ -84,6 +93,10 @@ It's a breeze using the 600A to jump start a car.
 
  If it’s other devices that need power, you simply need to turn the unit on and then plug them into the appropriate port. For a laptop, that means you must pick the correct adapter, use the power button to switch the unit to the right power mode for your laptop, and plug it into the DC power port. For a phone or other USB device you pretty much just need to pick one of the two ports and plug in, though the smart port provides better amperage and faster charging.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## **Performance: Immediate power to get you back on the road**
 
  When it comes to its ability to provide power, the DBPOWER Portable Jump Starter doesn’t disappoint. It reliably started a 2011 Hyundai Elantra that had a battery depleted down to 10V with zero issues, multiple times. With as small as it is, we did have some (thankfully unfounded) concerns that the unit might slide down into the engine bay as soon as the engine started.
@@ -92,6 +105,9 @@ It's a breeze using the 600A to jump start a car.
 
  Charging USB devices is not only simple but fast as well, with a sustained 1,200 mAh current. This level of charging will top off your devices in a hurry, and with 18,000 mAh capacity the unit should be able to charge a phone like the Samsung Galaxy S10 five times over. Be aware that if your phone uses a USB-C or Thunderbolt connection you’ll need to provide your own cable.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Key Features: A decent flashlight and, oddly, a compass**
 
  Small as it's, the DBPOWER Portable Jump Starter has a few extra features of note. The flashlight built into the case is decent, but doesn’t put out much light and does so within a relatively narrow angle. However, with as small as the unit is, you can easily just hold the whole thing in your hand like a flashlight to illuminate whatever you need.
@@ -104,6 +120,9 @@ It packs a ton of value into its diminutive size.
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: A low cost for such a feature-packed jump starter**
 
  You can find this model available online for between $70 and $75, and at that price point it packs a ton of value into its diminutive size. There are other units that are a little less expensive, but generally at the expense of some features or included accessories.

@@ -1,7 +1,7 @@
 ---
 title: Top-Rated Ergonomic Trackballs
-date: 2024-08-03 22:57:31
-updated: 2024-08-04 10:11:10
+date: 2024-08-03T23:04:20.493Z
+updated: 2024-08-04T23:04:20.493Z
 categories:
   - BestProducts
 description: This Article Describes Top-Rated Ergonomic Trackballs
@@ -13,6 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/ioL8F-cFZKDYYRvWMdxK3t9HP5I=/400x300/fi
 
 4.6
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## MoKo Universal Foldable Keyboard
 
  What We Like
@@ -37,6 +40,9 @@ thumbnail: https://www.lifewire.com/thmb/ioL8F-cFZKDYYRvWMdxK3t9HP5I=/400x300/fi
 
 4.6
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ## MoKo Universal Foldable Keyboard
 
 [View On Amazon](https://www.amazon.com/MoKo-Universal-Ultra-Thin-Bluetooth-Compatible/dp/B01EHSLFAY/?tag=lifewire-onsite-prod-20&ascsubtag=4780289%7Cn5042862dc88b4247855b5214c266875a05%7CB01EHSLFAY)
@@ -59,10 +65,17 @@ thumbnail: https://www.lifewire.com/thmb/ioL8F-cFZKDYYRvWMdxK3t9HP5I=/400x300/fi
 
  Thanks to its compact, foldable design, it’s easy to throw in a purse, backpack, or pocket and take along on any adventure, making it an excellent Bluetooth keyboard for frequent travelers. With a general retail price of about $26, we found it to be well worth the investment during a week’s worth of testing.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![MoKo Universal Foldable Bluetooth Keyboard](https://www.lifewire.com/thmb/gc10rUCSYdVdK9mjhhhyWwNX5Ns=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Moko_ErgoKeyboards_2LW4147386_02-6aa51e84e0c246f0987efcf9b7a55ffa.jpg)
 
  Lifewire / Emily Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ## Design: Small, Compact, and Light
 
  Unlike traditional, full-size ergonomic keyboards, the MoKo is small—hardly larger than your hand when folded down to its collapsed size. Extended out, it’s only about a foot in length. It’s perfect for tossing in a purse, backpack,[laptop bag](https://www.lifewire.com/best-laptop-bags-to-buy-4072282) , or pocket and taking along on any commute or adventure. Better yet, thanks to a convenient magnet along the edges of the frame, there’s no fear of it accidentally opening up and being damaged in transit. The soft-grip back not only offers additional protection but also ensures that it’s not likely to shift on any surface upon which you’re typing. With these combined features, it’s a wonderful little travel companion.
@@ -87,10 +100,16 @@ thumbnail: https://www.lifewire.com/thmb/ioL8F-cFZKDYYRvWMdxK3t9HP5I=/400x300/fi
 
  The MoKo is small—hardly larger than your hand when folded down to its collapsed size.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Battery: Plenty of Juice for Work
 
  The battery life of the MoKo is easy to fall in love with. The MoKo’s charge time is just under two hours and it can support up to 40 hours of uninterrupted work or 30 days of standby time. One added bonus of the keyboard being rechargeable was that we weren’t dependent upon having batteries when the keyboard inevitably ran out of charge. It also has the added benefit of entering a battery-saving mode after sitting idle for 30 minutes, so if you walk away and forget about it, it won’t continue to run out its charge. Reconnecting is easy, too. Simply press any key and, within 30 seconds or less, it’s ready for use.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Price: Highly Affordable
 
  Travel-size ergonomic keyboards generally retail for anywhere from $20-$50\. The MoKo retails for around $27 on Amazon. With its low price point, compact build, excellent portability, and great battery life, it’s well worth the price for commuters and frequent flyers who have limited space.

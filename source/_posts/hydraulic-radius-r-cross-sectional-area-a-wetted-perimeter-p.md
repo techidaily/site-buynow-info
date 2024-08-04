@@ -1,7 +1,7 @@
 ---
 title: Hydraulic Radius (R) = Cross-Sectional Area (A) / Wetted Perimeter (P).
-date: 2024-08-01 16:47:29
-updated: 2024-08-04 11:59:43
+date: 2024-08-03T23:03:54.082Z
+updated: 2024-08-04T23:03:54.082Z
 categories:
   - BestProducts
 description: This Article Describes Hydraulic Radius (R) = Cross-Sectional Area (A) / Wetted Perimeter (P).
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/bptkPuLZHhXM0lJcBFRMHvXtAhQ=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Raspberry Pi 400
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/Gmg1bX1GHP4gGx2wCClYDURkzKI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Raspberry-Pi-400-Mini-PC-1-2e3e0817c1ad4570a7c3a8d70b7e991b.jpg)
 
 Erika Rawes / Lifewire
@@ -42,8 +48,14 @@ Erika Rawes / Lifewire
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Raspberry Pi 400
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/Lx1zPft9GUcm5A0WBJsxvP8fCUM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Raspberry-Pi-400-Mini-PC-1-2e3e0817c1ad4570a7c3a8d70b7e991b.jpg)
 
 Erika Rawes / Lifewire
@@ -80,6 +92,9 @@ Erika Rawes / Lifewire
 
  Previous versions of the Raspberry Pi didn’t exactly come across as accessible to the typical PC user who spends most of their time surfing the web. The older Raspberry Pi models look like a mini motherboard with ports and other components attached. The Raspberry Pi 400 is completely different, as the board is housed inside a keyboard for easier setup and use. It’s reminiscent of those all-in-one PC keyboards from the 80s.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/7BA0HRUVuCSmbiMi4uyFWkXVuKg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-3-58854ebe9d964ccc984e44f77619fa1a.jpg)
 
 Erika Rawes / Lifewire
@@ -90,6 +105,9 @@ Erika Rawes / Lifewire
 
  On the back of the Pi 400, you’ll find a slot for the microSD card, as well as all of the ports. It has two micro HDMI slots, three USB slots (two 3.0 and one 2.0), a horizontal 40-pin GPIO header, and the port for the power supply. The power button is on the keyboard itself—press F10 to power on the Pi, and press Fn + F10 to power it off.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Setup Process: Easier than previous Pi models
 
  The Raspberry Pi 400 is still...well, a[Raspberry Pi](https://www.lifewire.com/raspberry-pi-4102621) . It isn’t a traditional PC in the sense that it doesn’t have full capabilities like a typical laptop,[desktop computer](https://www.lifewire.com/best-desktop-pcs-4045927) , or even mini computer. The Pi is just a computer—it doesn’t even have an operating system unless you add one (fortunately, this Pi includes the OS with the kit). Even when you add the OS, the Pi has a relatively barebones interface. The whole purpose of a Raspberry Pi is to be whatever you want it to be—a personal computer, a smart home controller, a gaming system, or whatever else you can think of.
@@ -98,6 +116,9 @@ Erika Rawes / Lifewire
 
  The whole purpose of a Raspberry Pi is to be whatever you want it to be—a personal computer, a smart home controller, a gaming system, or whatever else you can think of.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ## Projects: Keyboard helps in some ways, hinders in others
 
  One great thing about[Raspberry Pi](https://www.lifewire.com/what-is-raspberry-pi-4042337) is that there’s a community of users to help you out with project ideas, to share terminal commands, and to help with troubleshooting. Pi computers are great for makers, but once I really started experimenting with the Pi 400, I realized the keyboard is beneficial in some areas, but it’s limiting in others.
@@ -106,6 +127,18 @@ Erika Rawes / Lifewire
 
  It would be difficult to make anything outdoors with a keyboard, and it would be tough to use the Pi as a security camera when it’s inside of a keyboard. You can remove the Pi from the keyboard if you really want to, but that would kind of defeat the purpose of going with the 400 model. Instead of removing the board, you could just opt for a Pi 4, although it has a lower CPU clock (1.5 Ghz).
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/oideXrFtpj_WzRtq1qacMhsc7Dg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-2-6fbd163b7ed849f684963b93ae8b8735.jpg)
 
 Erika Rawes / Lifewire
@@ -144,6 +177,10 @@ Erika Rawes / Lifewire
 
 Erika Rawes / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## Network: Ethernet or dual-band Wi-Fi
 
  The Pi 400 has dual-band Wi-Fi, so you can connect it to a 2.4GHz or 5GHz network. It also has Bluetooth, as well as a[Gigabit Ethernet port](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) for wired connectivity.
@@ -158,6 +195,9 @@ Erika Rawes / Lifewire
 
  Pi computers are great for makers, but once I really started experimenting with the Pi 400, I realized the keyboard is beneficial in some areas, but it’s limiting in others.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Software: Learn to code
 
  In addition to a basic office suite, photo processing software, and games, the Pi 400 Kit comes with several coding applications like Scratch, Scratch 2, Scratch 3, Blue Jay Java IDE, Green Foot Java IDE, Geany, Mathematica, Sense HAT Emulator, and more.

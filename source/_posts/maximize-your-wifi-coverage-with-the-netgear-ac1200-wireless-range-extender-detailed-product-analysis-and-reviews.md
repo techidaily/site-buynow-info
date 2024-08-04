@@ -1,7 +1,7 @@
 ---
 title: Maximize Your WiFi Coverage with the Netgear Ac1200 Wireless Range Extender - Detailed Product Analysis and Reviews
-date: 2024-07-30 17:49:24
-updated: 2024-08-02 12:58:30
+date: 2024-08-03T23:04:45.492Z
+updated: 2024-08-04T23:04:45.492Z
 categories:
   - BestProducts
 description: This Article Describes Maximize Your WiFi Coverage with the Netgear Ac1200 Wireless Range Extender - Detailed Product Analysis and Reviews
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/TmDOFeGHXlA2eEwc65iiUVoWGUY=/400x300/fi
 
 ## Netgear AC1200 Wireless WiFi Range Extender (EX6200)
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/5uYQ7n2CL2KkI81CwaUI6k-kg6I=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-2LW4043312-1-5c924aa1c9e77c0001e11e41.jpg)
 
 Lifewire / Fred Meyer
@@ -39,6 +42,9 @@ Lifewire / Fred Meyer
 
 ## Netgear AC1200 Wireless WiFi Range Extender (EX6200)
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/ypwoGr7PKp9XOfm_EgF2BsvzZkg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-2LW4043312-1-5c924aa1c9e77c0001e11e41.jpg)
 
 Lifewire / Fred Meyer
@@ -65,12 +71,18 @@ Lifewire / Fred Meyer
 
  We spent a week testing it, evaluating the design, ease of setup, network performance, and software.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## **Design: A router’s aesthetics**
 
  The red-and-black color scheme of the EX6200 makes it look more like something out of Netgear's Nighthawk line rather than their standard series of extenders. It has a more premium feel than most extenders, and it's refreshing compared to the boring white plug-in boxes that house the majority of its peers.
 
  One of the most noticeable things about the EX6200 is that it's big. Not in a bad way, but it's definitely an atypical extender design. It can either lay flat, or you can use the included stand to install it vertically. We preferred using the stand since it's very slim and takes up very little space in this configuration.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/lHiNdBeYxT8ClO7fv3LwEZqMjWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-6-5c924b2dc9e77c0001a9278c.jpg)
 
  Lifewire / Fred Meyer
@@ -87,6 +99,9 @@ Lifewire / Fred Meyer
 
  Alternatively, you can either plug into one of the Ethernet ports, or connect via the temporary network the EX6200 creates when you first turn it on. Check the manual for the web address to access the extender's interface (<www.mynetext.net>), and the bottom of the router for the default username and password (change this immediately), log in and follow the wizard that loads to get connected.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/Lny9pSzLcp1hItabWfQAbx8cAoc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-2-5c924b5846e0fb0001f8d14a.jpg)
 
  Lifewire / Fred Meyer
@@ -107,6 +122,9 @@ Lifewire / Fred Meyer
 
 Lifewire / Fred Meyer
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Connectivity: Hardwire everything**
 
  The Netgear AC1200 Wireless WiFi Range Extender (EX6200) has dual-band Wi-Fi, boasting two antennas. It transmits and receives on the 2.4GHz and 5GHz bands and is compatible with Wi-Fi b/g/n/ac devices. The EX6200 is pretty run-of-the-mill when it comes to wireless connectivity, and its AC1200 rating (300Mbps+900Mbps) puts it roughly in the mid-range category. It's not a speed demon, but it's more than adequate for most applications.
@@ -121,6 +139,9 @@ Lifewire / Fred Meyer
 
  If you have a wired connection to the internet, but no spare router, you can use the EX6200 in Access Point mode and it'll allow you to connect via Wi-Fi. However, unlike a router, it doesn't have a built-in DHCP server (Dynamic Host Configuration Protocol which provides an[IP address](https://www.lifewire.com/what-is-an-ip-address-2625920) ) so you'll still need a device that can handle that task somewhere in your network.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/ZHlEjP4KLtEcUqCvuXTg1eZBnFg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-3-5c924c8f46e0fb0001770187-2a10c24af5834857aeb7b4cfcd1cc6a9.jpg)
 
 Lifewire / Fred Meyer
@@ -151,6 +172,9 @@ Lifewire / Fred Meyer
 
  If you're in the market for an extender, the EX6200 is one of our favorites. It doesn't excel in any category, but it does everything it’s designed to do well.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008)

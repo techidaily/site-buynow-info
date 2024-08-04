@@ -1,7 +1,7 @@
 ---
 title: "A Buyer's Selection of Ergonomic Keyboard Cushions: Top Picks"
-date: 2024-08-01 10:55:59
-updated: 2024-08-03 12:31:45
+date: 2024-08-03T23:04:13.884Z
+updated: 2024-08-04T23:04:13.884Z
 categories:
   - BestProducts
 description: "This Article Describes A Buyer's Selection of Ergonomic Keyboard Cushions: Top Picks"
@@ -39,6 +39,9 @@ Lifewire / Emily Isaacs
 
 4.9
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Microsoft Surface Ergonomic Keyboard
 
 ![Microsoft Surface Ergonomic Keyboard](https://www.lifewire.com/thmb/OTYRC4PtfZO9h5RTG8oHiroYrDg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_4LW4147386_HeroSquare-3ef573df092942b58b61bf36ce218fb3.jpg)
@@ -64,10 +67,16 @@ Lifewire / Emily Isaacs
 
  Microsoft is no stranger to computers and their accessories, and it’s obvious with the Microsoft Surface Keyboard that they’ve put a considerable amount of thought into its design. This[ergonomic keyboard](https://www.lifewire.com/best-ergonomic-keyboards-4147386) is not only built with high-quality materials to ensure its longevity, but it’s comfortable and intuitive to use. We tested this keyboard over the period of a week, read on to see what we found.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Sleek and comfortable**
 
  The Surface is a sleek ergonomic keyboard and a welcome addition to the Microsoft family. Like many ergonomic keyboards, it’s designed to help your wrists sit at an instinctive, comfortable angle that encourages natural movement to prevent[repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) . The keys have a slight divot in the center so fingers naturally conform to their shape, making the keys comfortable and easy to type on.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ![Microsoft Surface Ergonomic Keyboard](https://www.lifewire.com/thmb/XepNCNj18GnNs8V1INrxR7tnMGo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_4LW4147386_04-1edde9a5b2264b4abb528945ffae167f.jpg)
 
  Lifewire / Emily Isaacs
@@ -80,6 +89,9 @@ Lifewire / Emily Isaacs
 
  Unlike some ergonomic keyboards that can hog space, forcing users to overreach for mice which can lead to shoulder injuries in place of wrist injuries, the Surface is wide enough that your hands sit comfortably but small enough that it’s easy to reach for your mouse when you want it. It’s the Goldilocks of keyboards with a fit that feels just right.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Easy for PCs**
 
  The Microsoft Surface Ergonomic Keyboard arrives in a mid-size box containing the Surface itself as well as a small white box tucked underneath it. This contains a product information pamphlet and quick start setup guide.
@@ -90,6 +102,9 @@ Lifewire / Emily Isaacs
 
  Lifewire / Emily Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Features: Well-conceived function keys**
 
  The Surface has function keys for pausing multimedia, skipping forward or backward in multimedia, increasing or decreasing volume, muting volume, increasing brightness or decreasing brightness, and several others. It really feels like Microsoft thought of every way their users interact with keyboards and tried to meet their needs.
@@ -100,6 +115,9 @@ Lifewire / Emily Isaacs
 
  The keyboard features Bluetooth 4.0 technology, so it’s able to establish a wireless connection of up to 32 feet with Bluetooth-capable devices.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: Expensive, but worth it for the quality**
 
  Retailing for $129 (MSRP) or around $99 on Amazon, the Surface is a pricey little keyboard. Between the quality of the build materials, the comfort of the keyboard’s design, its wireless capabilities, and its great battery life, the Surface is a worthwhile investment for people who spend a significant amount of time in front of a PC. If you don’t spend much time on your PC, however, a cheaper, non-ergonomic model may be a better fit.
@@ -128,6 +146,9 @@ Lifewire / Emily Isaacs
 
  The Microsoft Surface Ergonomic Keyboard is a quality, wireless ergonomic keyboard that’s well worth the investment if you spend a significant portion of your time typing on your computer. It’s a splurge to be sure, but it’s worth the price for the quality you receive.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Surface Ergonomic Keyboard

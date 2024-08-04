@@ -1,7 +1,7 @@
 ---
 title: SunSafe Gaming with Bose SoundSports Frames
-date: 2024-08-04 17:30:17
-updated: 2024-08-05 10:58:29
+date: 2024-08-03T23:04:30.669Z
+updated: 2024-08-04T23:04:30.669Z
 categories:
   - BestProducts
 description: This Article Describes SunSafe Gaming with Bose SoundSports Frames
@@ -70,6 +70,9 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## **Design: Sleek, but not as refined as you’d expect**
 
  Bose Frames are available in two styles: Alto and Rondo. The Alto option is larger, with lenses that measure about two inches across, a distance of 0.7 inches between the lenses, and an overall length (from the lenses to the end of the arms) of 6.4 inches.
@@ -98,6 +101,9 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Sound Quality: Warm but not immersive**
 
  The Bose brand is known for its high-quality speakers and headphones, so there’s a lot on the line for these frames. Even though there is no ear tip or[bone conduction](https://www.lifewire.com/best-wireless-earbuds-4140480) technology (headphones that deliver sound through the cheekbones to the inner ear), we were impressed with how crisp, warm, and close the listening experience was. We never experienced a far-away feeling or worried about disturbing others around us since only a minimal amount of sound leaks out.
@@ -110,6 +116,9 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: An app that doesn’t do much**
 
  The Bose Frames require setup through the Bose Connect app, which is available for both[Android](https://www.lifewire.com/what-is-google-android-1616887) and[iOS](https://www.lifewire.com/what-is-ios-1994355) devices. It functions first and foremost as a way to pair and manage devices your connecting devices. Bose says you can establish up to eight device connections, but only one connection can be used at a time.
@@ -118,6 +127,9 @@ Lifewire / Yoona Wagener
 
  The Bose Connect app is also the place to view current Bose AR ([augmented reality](https://www.lifewire.com/augmented-reality-ar-definition-4155104) ) apps. Clicking on the AR icon in the app leads to what Bose calls the Experience Showcase, which features third-party apps built around music, audio, gaming, sports, and travel experiences.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance:** **Bose AR experience needs some work**
 
  The Bose AR platform is still new and emerging, and as of right now there are only three products that are enabled with the technology: Bose Frames, Bose Headphones 700, and Bose QC35 headphones II. Each of these devices have built-in sensors that pick up on head and body movements and orientation, and this information is used by the AR apps.
@@ -130,6 +142,10 @@ Lifewire / Yoona Wagener
 
  While the Bose AR functionality is a sort of hidden perk of these frames, it still feels like its very much in the early stages. It’s best to temper any high expectations at this point, but the quality of experience and offerings are likely to expand with further development.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## **Price** :**Not exorbitant compared to smart sunglasses**
 
  Both the Bose Rondo and Alto frames are priced at $199.99 MSRP. While this is a bit pricey for a regular sunglasses, these obviously have a lot of additional features. But the price would feel even fairer if the lenses were polarized or could be swapped out with prescription lenses.
@@ -138,6 +154,9 @@ Lifewire / Yoona Wagener
 
  On the other end of the spectrum, the Vuzix Blade Smart Glasses retail for $999.99, but they also perform a wide array of smart functions like recording video, watching media, and snapping pictures. If you’re looking for a compromise that skews more toward stylish and less on the “smart” side of things, the Bose Frames may be the better pick.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ## **Competition: Choosing a fit based on your lifestyle**
 
  The Bose Frames don’t really qualify as[smart glasses](https://www.lifewire.com/best-smart-glasses-4172796) , but it’s worth considering those options when deciding whether the Bose sunglasses fit the bill. There are two models that are relatively close in price and could appeal to the same shopper who wants a stylish pair of sunglasses that offer something extra.

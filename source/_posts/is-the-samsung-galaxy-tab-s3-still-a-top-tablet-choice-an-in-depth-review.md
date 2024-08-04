@@ -1,7 +1,7 @@
 ---
 title: Is the Samsung Galaxy Tab S3 Still a Top Tablet Choice? An In-Depth Review
-date: 2024-07-31 13:48:59
-updated: 2024-08-02 12:57:59
+date: 2024-08-03T23:04:00.906Z
+updated: 2024-08-04T23:04:00.906Z
 categories:
   - BestProducts
 description: This Article Describes Is the Samsung Galaxy Tab S3 Still a Top Tablet Choice? An In-Depth Review
@@ -39,6 +39,9 @@ thumbnail: https://www.lifewire.com/thmb/hgfVVc_iMa83bvRlfflT3qTmoLA=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Samsung UN55RU7300FXZA 55-Inch 4KUHD 7 Series
 
 ![Samsung 55-inch RU7300](https://www.lifewire.com/thmb/ddedGp-jeYkQ5Qz9QdGOUAr46Ko=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_CurvedTVs_RU7300_HeroSquare-361d1958f9884b29ae9c9fb72824c549.jpg)
@@ -73,6 +76,9 @@ thumbnail: https://www.lifewire.com/thmb/hgfVVc_iMa83bvRlfflT3qTmoLA=/400x300/fi
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: An appealing arc**
 
  The Samsung 55-inch RU7300 has a bit more visual pop than your average[large-screen 4K HDR set](https://www.lifewire.com/best-tvs-to-buy-4061107) because it is physically popping out towards you on the right and left sides, unlike a standard flat television. It’s a subtle curve overall, but enough to be just noticeable—especially from the sides. That might make it an awkward fit for wall mounting, but it has a distinctive edge that’s unlike nearly every other TV you’ll find in stores.
@@ -85,12 +91,19 @@ thumbnail: https://www.lifewire.com/thmb/hgfVVc_iMa83bvRlfflT3qTmoLA=/400x300/fi
 
  Low input lag means that games feel responsive, making this set well-suited for gaming.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Setup Process: Legs or wall**
 
  If you’re setting the Samsung RU7300 up on a stand or table, then you’ll need to install the legs. That is extremely straightforward: each is designated for a certain side and simply requires popping in and tightening a couple of screws. Meanwhile, if you opt for wall-mounting, you’ll need a standard VESA 200x200 mount—however, you may need longer screws. The screws on my existing wall mount (for a flat-screen TV) weren’t long enough, so I had to order specialized ones.
 
  Initial software setup can take a few minutes, as you’ll be prompted to log into a Wi-Fi network if you don’t have an Ethernet cable plugged into an active connection, and you may have to download updates to Samsung’s built-in interface. It was a pretty quick process for me.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## **Image Quality: Crisp, but could be bolder**
 
  At 3840x2160 (4K Ultra HD) resolution, Samsung’s RU7300 has sharpness covered, delivering crisply detailed visuals across the board. Native 4K media looks fantastic, as expected, and lower-resolution media scales up pretty smoothly. And low input lag means that games feel responsive, making this set well-suited for gaming.
@@ -99,14 +112,23 @@ thumbnail: https://www.lifewire.com/thmb/hgfVVc_iMa83bvRlfflT3qTmoLA=/400x300/fi
 
  As for the curved design, it’s difficult to really see the advantages beyond wanting something a bit different from the pack. Whether playing games or watching movies or TV shows, I didn’t feel like the picture was any more immersive due to the slight arc of the display. But the curved screen does bring some notable downsides, such as ambient light more clearly reflecting off of the curves, and viewing angles suffering at wider angles.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Samsung 55-inch RU7300](https://www.lifewire.com/thmb/GaFmEEESPt4pM-0PAQ3JifVZPOw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_CurvedTVs_RU7300_03-e3e60b2553d84a6cb6a03c52a94073a0.jpg)
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Audio Quality: Totally solid sound**
 
  The Samsung 55-inch RU7300 has a pair of stereo speakers with a total output of 20W, and they’ll get the job done for everyday viewing of streaming shows and movies, and playing games. Playback is clear and full, although it’s not heavy on bass—and unlike a lot of other modestly-priced televisions, I wasn’t immediately itching for a soundbar. You’ll see an improvement from external speakers, certainly, but it doesn’t feel as necessary here.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Software: Clean, but incomplete**
 
  Samsung’s own[Tizen OS-based](https://www.lifewire.com/what-is-tizen-4580383) Smart Hub interface is used on this curved smart TV, providing easy access to streaming video apps and settings. Most of the heavy hitters are here, either already installed or available via the built-in app marketplace, including Netflix, Hulu, Amazon Prime Video, YouTube, and even[Apple TV](https://www.lifewire.com/what-is-apple-tv-1994193) . There are some omissions, however: both Twitch and Bravo were missing in action when I searched for them. Samsung also offers a number of free streaming channels in partnership with Pluto TV, in case you miss the sensation of flipping channels for something to watch.

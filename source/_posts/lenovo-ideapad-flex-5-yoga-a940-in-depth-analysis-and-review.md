@@ -1,7 +1,7 @@
 ---
 title: Lenovo IdeaPad Flex 5 (Yoga A940) In-Depth Analysis and Review
-date: 2024-08-03 17:15:52
-updated: 2024-08-04 12:53:47
+date: 2024-08-03T23:04:44.580Z
+updated: 2024-08-04T23:04:44.580Z
 categories:
   - BestProducts
 description: This Article Describes Lenovo IdeaPad Flex 5 (Yoga A940) In-Depth Analysis and Review
@@ -37,8 +37,14 @@ Lifewire / Gannon Burgett
 
 4
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Alienware Aurora R7
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/emzd7Km2ZWo2iwJHim7f3cQirPc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_2LW4045927-1-7ee01493034d4631894328a424e3ac52.jpg)
 
 Lifewire / Gannon Burgett
@@ -65,6 +71,9 @@ Lifewire / Gannon Burgett
 
  For our review, we tested the Alienware Aurora R7 configured with an Intel Core i7 8700, Nvidia GeForce GTX 1070 8GB, 1TB HDD, 256GB M.2 PCIe SSD storage, and 16GB of RAM. Read on to see how it fared in games, benchmarks, and day-to-day use and see if it’s worth the high price.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/ZHUtcT-UchRoDP6TS6RcsX2MSQU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4045927-4-0a0b8fbcdc824e1c9abf26cdd1ef57c4.jpg)
 
  Lifewire / Gannon Burgett
@@ -85,10 +94,17 @@ Lifewire / Gannon Burgett
 
 Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Complex settings, simplified**
 
  Setting up the Alienware Aurora R7 was fairly straightforward. In the box was the tower, a mouse, a keyboard, and the power cable. After connecting the Aurora R7 to power, plugging in the mouse and keyboard, and attaching a monitor, it was just a matter of going through Window 10’s setup process to get the ball rolling.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## **Performance: It’ll take nearly anything you throw at it**
 
  The Alienware Aurora R7 model we tested was configured with an Intel Core i7-8700 CPU, an NVIDIA GeForce GTX 1070 8GB graphics card,16GB of[RAM](https://www.lifewire.com/what-is-random-access-memory-ram-2618159) , and a 256GB M.2 PCIe SSD powering the operating system and apps. Meanwhile, a 2TB HDD served as the mass media storage.
@@ -103,6 +119,9 @@ Lifewire / Gannon Burgett
 
  Overall, the Aurora R7 tested on-par or ahead of other PCs with similar specs. As is to be expected, it excelled in the graphics department, but it certainly didn’t struggle with multitasking and everyday tasks.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/tHYfoI6_7SBEzzlShmeBOabqaNw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4045927-5-05e1d507405c4e0288fa00242bf06396.jpg)
 
  Lifewire / Gannon Burgett
@@ -117,6 +136,9 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: Baked in goodies to simplify a few pain points of gaming**
 
  As is to be expected for a gaming PC, the Alienware Aurora R7 runs on Windows 10 64-bit. It’s a typical install in every sense of the word, but it does come with a few extra bits of software specifically designed for Alienware, including Alienware Command Center, AlienFusion, and OC Controls.
@@ -155,12 +177,18 @@ Lifewire / Gannon Burgett
 
  The Alienware Aurora R7 is a wonderful option if you’re looking for a pre-built gaming PC that requires little to no hands-on time to get up and running. Out of the box, it’s ready to take on nearly any game you throw at it, usually at the highest settings. Sure, it’s a bit pricier than a DIY PC, but its compact case, tool-less access, and upgradability makes it a solid option for someone who wants a plug-and-play gaming rig.
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Lenovo ThinkCentre M720 Tower](https://www.lifewire.com/lenovo-thinkcentre-m720-tower-review-4776238)
 * [HP Flagship Pro Desktop](https://www.lifewire.com/hp-flagship-pro-desktop-review-4776228)
 * [Acer Aspire TC-885-ACCFLi3O Desktop PC](https://www.lifewire.com/acer-aspire-tc-885-accfli3o-desktop-pc-review-4776155)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Aurora R7

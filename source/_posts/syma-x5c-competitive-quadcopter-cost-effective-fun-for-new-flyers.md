@@ -1,7 +1,7 @@
 ---
 title: "SYMA X5C Competitive Quadcopter: Cost-Effective Fun for New Flyers"
-date: 2024-08-01 12:30:53
-updated: 2024-08-03 12:32:36
+date: 2024-08-03T23:04:29.862Z
+updated: 2024-08-04T23:04:29.862Z
 categories:
   - BestProducts
 description: "This Article Describes SYMA X5C Competitive Quadcopter: Cost-Effective Fun for New Flyers"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/b122329db8c6b3d63423f9307655a76116968c0c0
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ## The Outer Worlds
 
 ![The Outer Worlds](https://www.lifewire.com/thmb/ilSMK7MdhAHIYF1KI5F6dWzNOnI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-HeroSquare-5886d4533ee146b18daef3a40898b264.jpg)
@@ -60,6 +63,9 @@ Lifewire / Kelsey Simon
 
  The Outer Worlds is a single-player[action-adventure game](https://www.lifewire.com/game-play-and-streaming-4781449) full of guns, colonists, spaceships, and monsters. You’ll venture out into a sci-fi world and try to save your ship which has had a serious malfunction. The shooting in Outer Worlds is fun, but the game’s best feature is its choice-driven story. We played the game on PC for roughly 20 hours, thoroughly enjoying its dark humor and fun gameplay.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ## **Story: Engaging dialogue and dark humor**
 
  The Outer Worlds is a science fiction game with a focus on dry, dark humor. You’ll start the game by waking up on a malfunctioning spaceship. A man has woken you from stasis and says he needs you to save the ship and all the people living in stasis upon it. His name is Phineas Welles, and he’ll give you a very brief rundown that you’re to meet a smuggler who will take you to someone who can save your ship and people. As you go through this short cutscene sequence, you’ll be prompted to make your character, select your aptitude, skills, and attributes, before Phineas will drop you in a pod down to a planet where you’re to meet the smuggler, Hawthorne.
@@ -94,6 +100,9 @@ Lifewire / Kelsey Simon
 
  The main focus of Outer Worlds is to offer players a fun and humorous story with interesting dialogue prompts that can change the plot and effect characters. The shooting is just a fun way to progress the story.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![The Outer Worlds](https://www.lifewire.com/thmb/ax345l2R5dAgwtloXADYi2mrtKE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-03-933e9037c06d4754b04cca743675f3e5.jpg)
 
  Lifewire / Kelsey Simon
@@ -102,10 +111,16 @@ Lifewire / Kelsey Simon
 
  The Outer Worlds doesn’t attempt to do anything amazing with its graphics, which is totally fine. There’s no artistic flair like with Borderlands, nor is there an attempt at extremely realistic textures like with Monster Hunter: World, but the Outer Worlds does enough. The graphics are on par with other big name titles, and the landscapes of the various planets you’ll visit are interesting and different enough. This helps make exploration fun, but really, there isn’t anything amazing about the graphics. They are what they need to be. The only other thing also worth mentioning is the slightly humorous, constant propaganda that you’ll come across in various areas. In Emerald Vale, the starting area, you’ll start to see this theme and it will be carried through the rest of the game.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ![The Outer Worlds](https://www.lifewire.com/thmb/sJTEo9nCHPyxpxLeue9TFUvPEaI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-04-2e28a12a6aac4163a86a580d2dac979f.jpg)
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Not bad if you enjoy story-driven games**
 
  The Outer Worlds costs $60 new, although you might be able to catch it on sale if you watch closely. Even at full cost, it’s a game worth buying if you enjoy science fiction inspired first-person shooters―or more specifically, single-player shooter games with a focus on storytelling. As someone who often doesn’t like spending loads of money on a new game, I will say that Outer Worlds was one I didn’t mind buying. The game is fun and well written. It’s an adventure to be had, and while it’s not the best game that’s ever been made, it’s a solid, well-made game that most will enjoy.
@@ -120,6 +135,9 @@ Lifewire / Kelsey Simon
 
  The Outer Worlds is a story-drive first-person shooter that has a great sense of humor. Each decision you make will impact how the game unfolds. The shooting, while basic, is fun and provides the perfect vehicle to propel you forward on your adventure. Overall, The Outer Worlds is a solid game if you’re looking for a fun, humorous single-player experience.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  The Outer Worlds

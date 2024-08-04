@@ -1,7 +1,7 @@
 ---
 title: "Zoom Down to Size: Canon’s Powerful SX420 Compact Camera Review"
-date: 2024-08-01 16:17:41
-updated: 2024-08-02 11:10:27
+date: 2024-08-03T23:04:20.089Z
+updated: 2024-08-04T23:04:20.089Z
 categories:
   - BestProducts
 description: "This Article Describes Zoom Down to Size: Canon’s Powerful SX420 Compact Camera Review"
@@ -39,6 +39,9 @@ Lifewire / Gannon Burgett
 
 ## Anker PowerCore+ 26800 Battery Pack
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Anker](https://www.lifewire.com/thmb/B8fIpC1_9JQjWCu_QhJoNePOP2Y=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_HEROWebSQUARE-5c90fd70c9e77c0001eb1cc6.jpg)
 
 Lifewire / Gannon Burgett
@@ -63,10 +66,16 @@ Lifewire / Gannon Burgett
 
  Anker has made a name for itself as one of the most reliable gadgets and accessories manufacturers in the game. Despite their reasonable prices, the quality continues to impress and its Anker PowerCore+ 26800 PD with 30W Power Delivery Charger is no exception. We've spent some time with this laptop battery charger and put it to the test to see just how well Anker's compact battery pack holds up against a variety of gadgets.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Plush and light for travelers**
 
  If you've owned any Anker products, you'll immediately recognize the PowerCore+ 26800\. It features a minimal rectangular design made of extruded aluminum with rounded edges for a very smooth look and feel. It weighs roughly 1.3 pounds, which gives it a premium feel without feeling too heavy.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Anker](https://www.lifewire.com/thmb/brfc42RYlVrJLOHjyc0IbNzEQ0k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_5Web-5c90fc18c9e77c0001ac191d.jpg)
 
  Lifewire / Gannon Burgett
@@ -95,16 +104,26 @@ Lifewire / Gannon Burgett
 
  For the smartphones, we made sure the PowerCore+ 26800 was charged up entirely and ran both the iPhone XS and Samsung Galaxy S8 Active through complete battery cycles until the battery pack was out of juice. The iPhone XS was charged six and a half times with an average time of an hour and a half using the PowerIQ USB port with a Lightning cable. The Samsung Galaxy S8 Active, on the other hand, managed seven and a half charges with an average charge time of an hour and fifteen minutes using the included USB Type-C to USB Type-C cable.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![Anker](https://www.lifewire.com/thmb/tJwshohQXfV-U0_iKVTCkHEhFLU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-3-_6Web-5c90fcc6c9e77c0001a92733.jpg)
 
  Lifewire / Gannon Burgett
 
  We tested the PowerCore+ 26800 on our 2016 MacBook Pro 15-inch four different times to get a solid average. With the laptop completely dead, the battery pack managed to charge it to 100% in just three and a half hours with a little battery life to spare.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: Perfectly priced for its power**
 
  The Anker PowerCore+ 26800 retails for $129.99\. That alone is a deal in terms of power output, but add in the 30W USB wall charger and the two cables and it's an absolute steal. The USB wall charger alone goes for $25.99 and the cables easily add up to $10 together, meaning you're effectively paying $100 for the charger.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## **Anker PowerCore+ 26800 vs. RAVPower 26800**
 
  Anker PowerCore+ 26800 has an almost identical competitor, the RAVPower 26800\. The two battery packs feature the exact same capacity and both are capable of outputting 30W charging via their respective USB Type-C ports.
@@ -119,6 +138,11 @@ Lifewire / Gannon Burgett
 
  Yes, it's a little more expensive than its RAVPower contemporary, but considering the included accessories and more thoughtful design, it makes it worth it to spring the extra cash, especially when you take into account the 18-month warranty Anker offers.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [MaxOak 185Wh/50000mAh Battery Pack](https://www.lifewire.com/maxoak-185wh-50000mah-battery-pack-review-4589398)

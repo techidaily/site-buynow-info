@@ -1,7 +1,7 @@
 ---
 title: "Critique of Rayman Legends: Superb Artistry in an Old-School Sideways Journey Game"
-date: 2024-08-03 19:24:51
-updated: 2024-08-05 11:57:30
+date: 2024-08-03T23:04:01.696Z
+updated: 2024-08-04T23:04:01.696Z
 categories:
   - BestProducts
 description: "This Article Describes Critique of Rayman Legends: Superb Artistry in an Old-School Sideways Journey Game"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/b4ed3f08ab6e820bb58ff66c5f5e67696c65d753e
 
 ## Ubisoft Rayman Legends
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Rayman Legends](https://www.lifewire.com/thmb/3cugvPa-w5uei8fX1IKDgss6NTA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_HERO_RaymanLegends_20190118184305-5c8ff9e046e0fb00016ee128.jpg)
 
 Lifewire / Kelsey Simon
@@ -37,6 +40,9 @@ Lifewire / Kelsey Simon
 
 4.6
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Ubisoft Rayman Legends
 
 ![Rayman Legends](https://www.lifewire.com/thmb/BWfy9xiaiEgYE-OIFR3VbBg-LW8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_HERO_RaymanLegends_20190118184305-5c8ff9e046e0fb00016ee128.jpg)
@@ -65,6 +71,9 @@ Lifewire / Kelsey Simon
 
  Setup for Rayman Legends is what you would expect. You’ll open up the[PlayStation 4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) case (or if you buy the game electronically through your PS4, you’ll begin the download process after purchase), pop in the disk, and you’ll be ready to play. Be aware, though, that certain features of the game will not be accessible if your PS4 is not connected to the internet. Specifically, you won’t be able to access the Challenges mode, where you can play weekly challenges against other Rayman Legends players.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Plot: Not much of one, but who cares?**
 
  The Rayman games have been around for years, dating back to the original, which was published in 1995\. Since then, the story, characters, art, and gameplay have come a long way. In this game, you’ll choose a level―each of which is uniquely themed and has multiple maps for you to work your way through.
@@ -79,6 +88,9 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Gameplay: What this is really about**
 
  Rayman Legends is a[2D platformer](https://www.lifewire.com/what-is-a-platform-game-812371) , reminiscent of such games as Super Mario Bros. and Donkey Kong, but with its own history and development. Be prepared to do lots of jumping, the occasional timed run, and even a few boss fights. Thankfully, Rayman Legend is fairly forgiving when it comes to platformers. The controls are smooth, jumps are generally easy to land, and a glide feature can save you when you accidentally jump too late. Plus, a nice distribution of save points make it easy to try again if you do die.
@@ -91,6 +103,9 @@ Lifewire / Kelsey Simon
 
  In the game, there are six levels, each with roughly ten maps. You’ll have to work your way through the first level to unlock the second, and so forth. Unlocks are achieved when you reach a certain number of Teensies saved―which the Magician has locked up and hidden in various places throughout each map. There is also a type of in-game currency called "Lums" that you collect as you run through each map (they look like pink or gold fireflies).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Rayman Legends](https://www.lifewire.com/thmb/oJz1vIp26cdVH1115RCHTapRpTE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/RaymanLegends_20190118215643-5c8ffe7346e0fb000146adbb.jpg)
 
  Lifewire / Kelsey Simon
@@ -107,6 +122,9 @@ Lifewire / Kelsey Simon
 
  Rayman Legends has a unique look, which is represented fairly well by its bright and eye-catching cover. It doesn’t attempt to be realistic but embraces cartoon-like graphics, with goofy characters and villains mildly reminiscent of real-life creatures. In the level titled Toad Story, you’ll come across screaming toad monsters carrying swords and shields.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Rayman Legends](https://www.lifewire.com/thmb/ccE0U5KQNuFzIwrnVe2EtwkrG_g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/RaymanLegends_20190118211106-5c90015f46e0fb000146adbe.jpg)
 
  Lifewire / Kelsey Simon
@@ -125,6 +143,9 @@ Lifewire / Kelsey Simon
 
  The beauty of these maps is how well the gameplay is designed to match the beats of the song, from how each jump will strike with the strum of a guitar, or how the smash of a drum will be timed with the slaying of an enemy. The levels might take you a few tries to finish, as they’re timed and require precision, but they’re fun enough you won’t mind doing them again.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Very reasonable for the content**
 
  Rayman Legends can be purchased for most systems at around $20\. Sometimes PlayStation will put the item on sale, and you might even be able to get a copy for less than $15.
@@ -147,6 +168,9 @@ Lifewire / Kelsey Simon
 
  Between the co-op option, the extra levels, the ability to replay Rayman Origins, and all the other things you can unlock from special heroes to scratchers, this game has a lot to offer for gamers of all ages.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [LEGO Worlds](https://www.lifewire.com/lego-dimensions-review-4686589)

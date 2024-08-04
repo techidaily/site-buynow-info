@@ -1,7 +1,7 @@
 ---
 title: In-Depth Review of the Netgear Nighthawk X4 – Ultimate Performance in Home Wi-Fi Expansion
-date: 2024-07-30 23:20:51
-updated: 2024-08-02 11:32:12
+date: 2024-08-03T23:04:46.346Z
+updated: 2024-08-04T23:04:46.346Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Review of the Netgear Nighthawk X4 – Ultimate Performance in Home Wi-Fi Expansion
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/uxDV6gAMWH9kIOjex5JpDeJJBLY=/400x300/fi
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ## Netgear Nighthawk X4 AC2200 Wi-Fi Mesh Extender (EX7300)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![Nighthawk X4 Wi-Fi Mesh Extender](https://www.lifewire.com/thmb/7kS7DQauBW2bFdYTVLBms3-Q84Q=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkX4_HeroHoriz-992cc019c1e64ea59b9ce72905f0381c.jpg)
 
  What We Like
@@ -36,6 +42,10 @@ thumbnail: https://www.lifewire.com/thmb/uxDV6gAMWH9kIOjex5JpDeJJBLY=/400x300/fi
 
 ## Netgear Nighthawk X4 AC2200 Wi-Fi Mesh Extender (EX7300)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ![Nighthawk X4 Wi-Fi Mesh Extender](https://www.lifewire.com/thmb/pbxpBfhizGFobbPawynEvJ-QMRE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkX4_HeroHoriz-992cc019c1e64ea59b9ce72905f0381c.jpg)
 
 [View On Amazon $69](https://www.amazon.com/dp/B01D6JEMWS?tag=lifewire-onsite-prod-20&ascsubtag=4846224%7Cn858b25cedf594108aeff6df6076e962e00%7CB01D6JEMWS) [View On Walmart $149](https://www.walmart.com/ip/NETGEAR-Nighthawk-AC2200-X4-WiFi-Mesh-Extender-EX7300-100NAS/53552961)
@@ -66,6 +76,9 @@ thumbnail: https://www.lifewire.com/thmb/uxDV6gAMWH9kIOjex5JpDeJJBLY=/400x300/fi
 
  On the left side are On/Off and WPS connectivity buttons, as well as a switch that lets you swap between using the device as an extender (to repeat an existing Wi-Fi signal) or an access point, which would create a wireless network from a plugged-in Ethernet cable from your modem. That[Ethernet port](https://www.lifewire.com/what-is-an-ethernet-port-817546) is on the bottom of the device, and when in the typical extender mode, you can use it to plug in a wired device to access the wireless network.
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear Nighthawk X4 (EX7300) Wi-Fi Mesh Extender](https://www.lifewire.com/thmb/ahWiBPBlk75slmsmgc-c4cnSgf8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkX4_03-6a6cab81b4ec4da39c89aa3a92cb1f16.jpg)
 
  Lifewire / Andrew Hayward
@@ -100,10 +113,16 @@ thumbnail: https://www.lifewire.com/thmb/uxDV6gAMWH9kIOjex5JpDeJJBLY=/400x300/fi
 
  Online gaming was also smooth across the board with the Netgear Nighthawk X4\. I saw a typical ping of around 38 with both the 2.4GHz and 5GHz extended networks in Rocket League, and a couple points faster when plugged into the Ethernet port. I played several matches across the configuration options and encountered no sluggishness.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Netgear Nighthawk X4 Wi-Fi Mesh Extender](https://www.lifewire.com/thmb/ugGkkd4SJutt9ZSqg6hsgakNAAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkX4_05-8a00f82288884d71bd867f253500e04f.jpg)
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ## **Price: Worth the investment**
 
  At an MSRP of $150 but often seen now for $130, the Netgear Nighthawk X4 Wi-Fi Mesh Extender costs a fair bit more than a simpler entry-level extender, but the strong performance—especially on the 5GHz band—makes it a worthy investment if you plan on playing online games or streaming extensive media. There are much cheaper Wi-Fi extenders out there, however (like the one below), if your needs aren’t very extensive.

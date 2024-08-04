@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of Budget-Friendly Mobvoi TicWatch E2: Is Cheap Enough?"
-date: 2024-07-31 16:58:55
-updated: 2024-08-01 10:21:55
+date: 2024-08-03T23:04:11.796Z
+updated: 2024-08-04T23:04:11.796Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis of Budget-Friendly Mobvoi TicWatch E2: Is Cheap Enough?"
@@ -38,6 +38,9 @@ Lifewire / Yoona Wagener
 
 4.2
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ## Mobvoi TicWatch Pro 3 GPS
 
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/N-GQ6pPXvhJw5LQ_NHsY_n8NkZQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_HeroSquare-666cef27669e4f4ea53d69a546098b20.jpg)
@@ -72,6 +75,11 @@ Lifewire / Yoona Wagener
 
  The all-black build and face design gives this watch a sporty feel, extended by the two large buttons that serve as handy controls for launching workouts or waking the display. This display is also touch-responsive, which I found functioned well generally. There were moments when taps and swipes didn't seem to register immediately. These incidents were infrequent and minor when compared to the general user-friendliness of the device.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ## Comfort: Bulky for extended wear
 
  The TicWatch Pro 3 shed some weight from its previous iteration, making it slimmer and lighter overall, according to Mobvoi. Still, the stainless steel face isn't exactly light at 1.48 ounces. The display also measures nearly 1.9 inches across and about 0.5 inches deep. Those dimensions presented challenges for my 5.5-inch wrist.
@@ -86,6 +94,9 @@ Lifewire / Yoona Wagener
 
  One surprising and slightly disappointing aspect of the design is the watch's lack of durability. Though it's safe for swimming, I avoided showering with it after consulting the product documentation and forums. Contrary to the IP68 rating, Mobvoi doesn't recommend this for use in the shower or any contact with soapy water—and won't offer a replacement if you experience performance issues after doing so.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/dmQpg73jtc8s6Xxx-CSGe6DOKEc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_04-262f4af125a04f3fab6055508f2c6d3b.jpg)
 
 Lifewire / Yoona Wagener
@@ -96,12 +107,18 @@ Lifewire / Yoona Wagener
 
  As a fitness tracker, the TicWatch Pro 3 performs adequately. GPS capture was usually quite fast with some lags on cloudy days, and when compared to a Garmin smartwatch, it wasn't far off on distance, average page, and heart rate on running workouts.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/24UwZRaSR9Dx9_LbhC0ICDpEF2s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_03-35584bf0589a4ad19fcd9280d973018c.jpg)
 
 Lifewire / Yoona Wagener
 
  Sleep data was a little inconsistent in terms of when the device detected sleep. Sometimes the sleep start times were a couple of hours off. Generally, I was pleased with the presentation of sleep and exercise data. It's easy enough to glance at results from the watch and entirely forego a companion app.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Software: Feature overlap creates some confusion
 
  While the TicWatch Pro 3 runs on Wear OS, there is a confusing redundancy with fitness tracking created by the inclusion of both Google Fit and Mobvoi TicWatch fitness widgets. It comes across as an attempt to fill in gaps and also enhance the user experience. For example, the TicOxygen app allows users to track SPO2 levels, which Google Fit lacks. And the TicSleep app uses heart rate and SPO2 readings to offer more detailed sleep data.
@@ -136,6 +153,9 @@ Lifewire / Yoona Wagener
 
 Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Price: A bit costly for those missing a few premium features
 
  The TicWatch Pro 3 retails for nearly $300, a considerable investment on par with some[smartphones](https://www.lifewire.com/best-smartphones-4043781) . It's also steep considering that, unlike some premium wearables, this watch lacks an ECG monitor or other wellness bells and whistles. Fit personalization isn't as generous as some wearables, either.
@@ -144,6 +164,9 @@ Lifewire / Yoona Wagener
 
  Though the strap is replaceable, the size of the display could be prohibitively unwieldy. But for an Android smartphone user who can find a great fit, this watch promises well-rounded connectivity and fitness tracking.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Mobvoi TicWatch Pro 3 GPS vs. Samsung Galaxy Watch3
 
  Another timepiece-inspired smartwatch to consider is the Samsung Galaxy Watch3\. Size-wise, it's smaller, with 1.2-inch and 1.4-inch case options. Instead of Wear OS, the Watch3 runs on Tizen OS, which is really friendliest to Samsung Galaxy phones—but is widely compatible with Android and iOS mobile devices. The fitness/wellness suite also surpasses the TicWatch Pro 3 with advanced metrics such as built-in SPO2, VO2 max, and ECG monitoring. The Watch3 also takes the lead where durability is concerned with military-grade toughness against drops, dust, and water.
@@ -158,6 +181,9 @@ Lifewire / Yoona Wagener
 
  The Mobvoi TicWatch Pro 3 GPS is a sporty, sleek smartwatch with good looks and great battery life. While the larger profile won't fit everyone, Android users, in particular, will find a lot to enjoy about this customizable wearable that functions as a daily workout tracker, smartwatch companion, and reliable time-telling accessory.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Apple Watch SE](https://www.lifewire.com/apple-watch-se-review-5088223)

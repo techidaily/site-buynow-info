@@ -1,7 +1,7 @@
 ---
 title: Capture Life's Moments with FZ80 Review Insights
-date: 2024-07-30 14:18:35
-updated: 2024-08-02 12:25:33
+date: 2024-08-03T23:04:00.766Z
+updated: 2024-08-04T23:04:00.766Z
 categories:
   - BestProducts
 description: This Article Describes Capture Life's Moments with FZ80 Review Insights
@@ -13,6 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/P0Z-EiIsLrbIygF_tvrq0-blP1k=/400x300/fi
 
 3.1
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ## HP Notebook 15
 
 ![HP Notebook 15](https://www.lifewire.com/thmb/b3ZgX_8zTO6E2dB2hwJdBO31F24=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_5LW4043278-HP-Notebook-15-4-867220d9429742748f0e51dab6ab0946.jpg)
@@ -38,6 +41,9 @@ Lifewire / Jeremy Laukkonen
 
 3.1
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## HP Notebook 15
 
 ![HP Notebook 15](https://www.lifewire.com/thmb/uGjqdYURbA1RcFfxaRwesN5LDDg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_5LW4043278-HP-Notebook-15-4-867220d9429742748f0e51dab6ab0946.jpg)
@@ -71,10 +77,16 @@ Lifewire / Jeremy Laukkonen
 
  We put an HP Notebook 15 to the test around the office and at home to see how it handles daily tasks beyond basic benchmark numbers. We looked at things like speaker quality, its ability to handle productivity tasks and gaming, in-use battery life, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![HP Notebook 15](https://www.lifewire.com/thmb/ByP4cHLIz7Vshzf3Ac-DIXvvdQs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW4043278-HP-Notebook-15-2-32edd74fefa149f3addd156e886ab4c2.jpg)
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Premium looks at a budget price**
 
  When designing a sub-$300 desktop replacement like the HP Notebook 15, compromises are made in order to hit that budget-friendly price tag. Aesthetics are usually the first concession, but the HP Notebook 15 actually looks very nice. The matte finish of the shell has a pleasant texture and gives a nice visual flare to what could have been an unremarkable design.
@@ -85,6 +97,11 @@ Lifewire / Jeremy Laukkonen
 
  The laptop is less than an inch thick at the rear, and it slopes down to an even thinner profile at the front. It does weigh in at over four and a half pounds, which cuts down on portability somewhat, but the short battery life means you won’t be carrying this one with you everywhere anyway.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ## **Setup Process: Generally straightforward, but bloatware can extend the initial setup**
 
  The HP Notebook 15 is a[Windows 10](https://www.lifewire.com/windows-10-2626217) laptop, and the setup process isn’t anything out of the ordinary for a laptop like this. We timed the initial setup, and it took less than 15 minutes from plugging it in and turning it on to hitting the desktop for the first time. HP does ask for some information (including your email address) during the signup process, but most OEMs have a similar process for setting up support and warranty information.
@@ -101,6 +118,10 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ## **Performance: Outperformed by Intel HP Notebooks with similar specs**
 
  The HP Notebook 15 suffers in the performance department due to its AMD A6-9225 and 4GB of[RAM](https://www.lifewire.com/what-is-random-access-memory-ram-2618159) . It’s perfectly capable of performing basic productivity tasks like word processing, web browsing, email, and even spreadsheets, but comparable models with even slightly better processors and additional RAM beat it in every important benchmark.
@@ -139,14 +160,32 @@ Lifewire / Jeremy Laukkonen
 
  The lack of 802.11ac won’t be a concern if your wireless router doesn’t support 5 GHz, but it’s nice to have that option if you want to stream video or download large files.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![HP Notebook 15](https://www.lifewire.com/thmb/QJf5J5Be4RdHKzylG4pIFs6FBo4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW4043278-HP-Notebook-15-1-f27ddc931d944435bb93ac8febfa88a9.jpg)
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ## **Camera: Just an unimpressive 720p webcam**
 
  The HP Notebook 15 includes a 720p webcam that works well enough for video chat, but it’s a little blurry and washed out for use in professional teleconferencing. It’s there if you need it, but it isn’t anything special.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Battery: Mediocre battery life requires frequent charging**
 
  The HP Notebook 15 has a three-cell 41Wh battery according to its specific sheet, and that matches what we found in our testing. Our readings showed a 41,040 mWh design capacity and a 41,040 full charge capacity. Unfortunately, that just isn’t enough battery to support this laptop.
@@ -155,6 +194,9 @@ Lifewire / Jeremy Laukkonen
 
  In our testing, we found that the HP Notebook 15 battery holds up for about four and a half hours of constant use. That’s enough for light use, but isn’t enough to hold you over for a full day of work or school without plugging the charger in at some point. With very light use and the Wi-Fi turned off, the battery lasts a couple hours longer.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ## **Software: Excessive bloatware clogs up the works**
 
  The HP Notebook 15 comes equipped with Windows 10 and free trials of McAfee antivirus and Microsoft 365\. It also has a handful of basic Windows apps installed by default, and a lot of bloatware from HP — there are about ten different apps, including HP JumpStart and HP Audio Switch, that we think most users will want to uninstall.

@@ -1,7 +1,7 @@
 ---
 title: TP-Link AC1200 Wi-Fi Range Extender RE305 Review
-date: 2024-07-31 16:35:53
-updated: 2024-08-01 11:11:17
+date: 2024-08-03T23:03:54.275Z
+updated: 2024-08-04T23:03:54.275Z
 categories:
   - BestProducts
 description: This Article Describes TP-Link AC1200 Wi-Fi Range Extender RE305 Review
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/u5Qf7KbfeDnZm8gfCxaxy8baBY0=/400x300/fi
 
 ## TP-Link RE305 AC1200 Wi-Fi Range Extender
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/JNtLTx9_CWWq4Wy4WH2D2pMI1qw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
 
 Lifewire / Claire Cohen
@@ -63,6 +66,9 @@ Lifewire / Claire Cohen
 
  We spent over a week testing it in our home, evaluating design, ease of setup and network performance.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design:** **Neither seen nor heard**
 
  The RE305 is quite small and unobtrusive, with a plastic white exterior and silver accents that’s meant to blend in, not stand out. At just 3.1 x 3.1 x 2.4 (LWH) inches unboxed and 6.4 ounces, it's one of the most diminutive Wi-Fi solutions on the market. That means it's simple to plug into a spare outlet anywhere your wireless signal needs bolstering.
@@ -81,6 +87,9 @@ Lifewire / Claire Cohen
 
  First, you plug in the extender to an outlet, then use any computer to connect to its network. After plugging it into an outlet, we found that it popped up immediately on our MacBook Pro's available wireless network list. Once connected to the network, setup is done via the web address listed on the guide.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/PS8-Iywv5MsnOo99Fir-jNOiPF8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-4-5c924206c9e77c0001ff0bb8.jpg)
 
  Lifewire / Claire Cohen
@@ -99,16 +108,34 @@ Lifewire / Claire Cohen
 
  Out in the yard, there were occasionally drops in connection, particularly when trying to load YouTube videos or play online games via mobile devices. Speeds didn't usually waver, however, though we didn't quite get the full 300mbps our wired connection typically summons. The product advertises 867Mbps on a 5GHz connection and 300 Mbps on a 2.4Ghz connection, so it did provide what was promised, albeit with some dropouts over the five-day testing period.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/Lyz1QcuQDPYlUp5pPBJiL0YKSag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-2-5c9241dcc9e77c0001a92785.jpg)
 
  Lifewire / Claire Cohen
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Software: Clean and easy to understand**
 
  The browser-based setup procedure couldn't be easier, and there's no extraneous software to concern yourself with save for the aforementioned optional app for device management. It's a pleasant, minimalistic mint green website with a clean interface and easy-to-read text. Two tabs at the top include the Quick Setup option or Settings, where more advanced users can tweak options to their liking.
 
  It's a bit bereft of some functionality for veteran extender users who may want to fiddle with settings and skip the "easy mode" setup, but it does its job particularly well. It even includes a[QR code](https://www.lifewire.com/scan-qr-codes-on-smartphone-4154658) to scan for users to download the wireless management app straight from the setup page. It doesn't take any real doing to reach this website either, and can be accessed at any time from the network.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: A deal at any price**
 
  At a list price of $59.99, the RE305 is a fantastic deal, considering it's typically on sale for much cheaper, often $10 to $15 less than retail. It isn't TP-Link's lowest-end option, but the performance and speeds offered for the price are certainly more than your money's worth, especially if you live in a larger home and pay for higher internet speeds. It’s important to keep in mind that it won’t include all the features you’ll get with pricier extenders like multiple ethernet ports or additional antennas, but this basic setup is just about all the average user needs, anyway.
@@ -129,6 +156,9 @@ Lifewire / Claire Cohen
 
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  RE305 AC1200 Wi-Fi Range Extender

@@ -1,7 +1,7 @@
 ---
 title: "Scandinavian Tech Showdown: Skagen Falster 2 Vs. Apple's Designer Phones"
-date: 2024-07-31 13:38:48
-updated: 2024-08-01 10:42:40
+date: 2024-08-03T23:04:11.420Z
+updated: 2024-08-04T23:04:11.420Z
 categories:
   - BestProducts
 description: "This Article Describes Scandinavian Tech Showdown: Skagen Falster 2 Vs. Apple's Designer Phones"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/4f82ef6a5653e12bb243abaaf90bd8a672c270d2a
 
 ## DBPOWER 600A Peak 18000mAh Portable Car Jump Starter
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![600A Peak 18000mAh Portable Car Jump Starter](https://www.lifewire.com/thmb/zoSakt2DeEHvZbIU0RNWljw5x0A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DBPower_JumpStarter_5LW4140286_HeroSquare-4defda07335a4d7bafb41bb20cacee2f.jpg)
 
  Lifewire / Tony Mitera
@@ -39,6 +42,9 @@ thumbnail: https://thmb.techidaily.com/4f82ef6a5653e12bb243abaaf90bd8a672c270d2a
 
 4.1
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ## DBPOWER 600A Peak 18000mAh Portable Car Jump Starter
 
 ![600A Peak 18000mAh Portable Car Jump Starter](https://www.lifewire.com/thmb/lCHc739SU7lyQkMIbG0aNWYsqy8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DBPower_JumpStarter_5LW4140286_HeroSquare-4defda07335a4d7bafb41bb20cacee2f.jpg)
@@ -66,6 +72,9 @@ thumbnail: https://thmb.techidaily.com/4f82ef6a5653e12bb243abaaf90bd8a672c270d2a
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ## **Design: A rugged brick of power contained within its own nice case**
 
  The unit and all its accessories are contained within a semi-hard case with a relatively durable zipper holding the two sides of the case together. One side contains the unit itself within a foam insert, and the other is an elastic mesh pouch for all the accessories. The idea here is that you can keep the case stashed in your trunk or under a seat and have everything you need.
@@ -84,6 +93,10 @@ It's a breeze using the 600A to jump start a car.
 
  If it’s other devices that need power, you simply need to turn the unit on and then plug them into the appropriate port. For a laptop, that means you must pick the correct adapter, use the power button to switch the unit to the right power mode for your laptop, and plug it into the DC power port. For a phone or other USB device you pretty much just need to pick one of the two ports and plug in, though the smart port provides better amperage and faster charging.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ## **Performance: Immediate power to get you back on the road**
 
  When it comes to its ability to provide power, the DBPOWER Portable Jump Starter doesn’t disappoint. It reliably started a 2011 Hyundai Elantra that had a battery depleted down to 10V with zero issues, multiple times. With as small as it is, we did have some (thankfully unfounded) concerns that the unit might slide down into the engine bay as soon as the engine started.
@@ -92,6 +105,9 @@ It's a breeze using the 600A to jump start a car.
 
  Charging USB devices is not only simple but fast as well, with a sustained 1,200 mAh current. This level of charging will top off your devices in a hurry, and with 18,000 mAh capacity the unit should be able to charge a phone like the Samsung Galaxy S10 five times over. Be aware that if your phone uses a USB-C or Thunderbolt connection you’ll need to provide your own cable.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Key Features: A decent flashlight and, oddly, a compass**
 
  Small as it's, the DBPOWER Portable Jump Starter has a few extra features of note. The flashlight built into the case is decent, but doesn’t put out much light and does so within a relatively narrow angle. However, with as small as the unit is, you can easily just hold the whole thing in your hand like a flashlight to illuminate whatever you need.
@@ -104,6 +120,9 @@ It packs a ton of value into its diminutive size.
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: A low cost for such a feature-packed jump starter**
 
  You can find this model available online for between $70 and $75, and at that price point it packs a ton of value into its diminutive size. There are other units that are a little less expensive, but generally at the expense of some features or included accessories.

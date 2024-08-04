@@ -1,7 +1,7 @@
 ---
 title: Unparalleled Flexibility with MSI's Professional MP161E2 - A Portable Monitor Revolution
-date: 2024-07-31 18:40:35
-updated: 2024-08-03 11:36:46
+date: 2024-08-03T23:04:25.378Z
+updated: 2024-08-04T23:04:25.378Z
 categories:
   - BestProducts
 description: This Article Describes Unparalleled Flexibility with MSI's Professional MP161E2 - A Portable Monitor Revolution
@@ -72,6 +72,9 @@ Lifewire / Rebecca Isaacs
 
  The wooden veneer immediately caught my eye. Named after the famous Theodore Roosevelt, this desk incorporates a wooden walnut veneer to give its classic look. It’s this American design, along with rustic knobs on the sole drawer, that give it a timeless look that can complement any home. Even better were the two USB ports that were incorporated beside the buttons for raising and lowering the desk.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ![Flexispot Theodore Standing Desk](https://www.lifewire.com/thmb/du2Ec4SmWWkaWQQCKbMuR4NiBUo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FlexiSpot_StandingDesk_02-4a15245115084875b6ac05ba8f4c6a53.jpg)
 
 Lifewire / Rebecca Isaacs
@@ -86,6 +89,9 @@ Lifewire / Rebecca Isaacs
 
  The Theodore Standing Desk also turned out to be the perfect place to store my[Jabra Talk 45 Headset](https://www.lifewire.com/jabra-talk-45-review-5070286#:~:text=A%20great%2C%20feature%2Dpacked%20Bluetooth,with%20its%20voice%20command%20features.) and[Microsoft RVF Arc Touch Mouse](https://www.lifewire.com/microsoft-rvf-arc-touch-mouse-review-4799143) so I wouldn’t keep losing them around the house. The desk’s drawer is about three inches deep, so it could also easily store important papers. And, since the desk space is so large, I could easily fit two 17-inch laptops on there and have extra space to hold my cell phone, planner, and a desk lamp with room to spare.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Flexispot Theodore Standing Desk](https://www.lifewire.com/thmb/frfVa5g5ngg9vZAugmed_f2jsho=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FlexiSpot_StandingDesk_03-b929f6838e464f14ad5615d440449658.jpg)
 
 Lifewire / Rebecca Isaacs
@@ -98,6 +104,9 @@ Lifewire / Rebecca Isaacs
 
  One of my biggest gripes about the controls is that sometimes the buttons didn’t register when I first pressed them.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Flexispot Theodore Standing Desk](https://www.lifewire.com/thmb/IfBuQB7ShOvw2XlkJal4eCb1myE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FlexiSpot_StandingDesk_04-1e85750d263e43f4815a4b1eeddf41a1.jpg)
 
 Lifewire / Rebecca Isaacs
@@ -106,10 +115,22 @@ Lifewire / Rebecca Isaacs
 
  At around $500, before desk accessories like a[standing desk mat](https://www.lifewire.com/best-standing-desk-mats-4155870) , the Flexispot Theodore is very reasonably priced. Keep in mind that you’re not paying for real wood, which factors into the price tag, but a wood veneer finish. Fancier, more modern-looking standings desks can run close to $1,000\.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Flexispot Theodore Standing Desk](https://www.lifewire.com/thmb/u2023DggV3o9Pw8Y6CDkCOuqu3U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FlexiSpot_StandingDesk_05-595174532f3846fcb2093e11b083b32f.jpg)
 
 Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ## FlexiSpot Theodore vs. Rain Design iLevel 2 Laptop Stand
 
  Let’s say that perhaps a standing desk you’re thinking about investing in a[standing desk converter](https://www.lifewire.com/best-standing-desks-5118383) like the Rain Design iLevel 2 Laptop Stand. At around $51, it seems like it would be a no-brainer to go for the cost-effective option here.
@@ -124,12 +145,18 @@ Lifewire / Rebecca Isaacs
 
  The complete height adjustability and the complimentary USB ports on the Flexispot Theodore Standing Desk are perfect for any home that wants to retain a classic look while getting a major modern upgrade. With the small storage drawer, it’s the perfect standing desk to complete any home office.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [CumulusPRO Standing Desk Mat](https://www.lifewire.com/cumuluspro-standing-desk-mat-review-4775314)
 * [Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/ergodriven-topo-review-4775310)
 * [Ergohead Standing Desk Mat](https://www.lifewire.com/ergohead-standing-desk-mat-review-4775317)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Theodore Standing Desk

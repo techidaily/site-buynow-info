@@ -1,7 +1,7 @@
 ---
 title: The HP OMEN Obelisk - An Expert Review on Cutting-Edge Value in Desktops
-date: 2024-08-01 14:49:31
-updated: 2024-08-03 12:36:35
+date: 2024-08-03T23:04:25.806Z
+updated: 2024-08-04T23:04:25.806Z
 categories:
   - BestProducts
 description: This Article Describes The HP OMEN Obelisk - An Expert Review on Cutting-Edge Value in Desktops
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/eet3-JUCe-afDSmBjGLeKPT2dAw=/400x300/fi
 
 ## Ubiquiti Amplifi HD Mesh Wi-Fi System
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ![Amplifi HD](https://www.lifewire.com/thmb/qzQaLlac--q8GkxuTKk83OA0RKQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_HeroSquare-fdb67079a06b415b98467919ec8e34a6.jpg)
 
 Lifewire / Erika Rawes
@@ -77,12 +80,18 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Setup: Couldn’t get any easier**
 
  The setup for the Amplifi HD system is probably the easiest setup process I’ve encountered. The app walks you through the process step-by-step, with pictures to guide you on each instruction. The most difficult part was deciding where to place the two mesh points in my test home. I placed one in the far bedroom and one in my office, two rooms that notoriously experience drop-offs.
 
  By default, the app creates a dual (2.4 and 5Ghz) network, which directs traffic based on the most efficient pathways. You can create separate 2.4 and 5Ghz networks, or make other adjustments as you see fit though. You can change the band on the mesh points (from 2.4 to 5Ghz), create additional SSIDs, and more. For the purpose of testing, I used the default combined network and allowed the system to direct network traffic between bands.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ## **Connectivity: Lags when you add too many devices**
 
  The Amplifi HD system is not Wi-Fi 6 capable.[It has 802.11ac](https://www.lifewire.com/wireless-standards-802-11a-802-11b-g-n-and-802-11ac-816553) , and it's backwards compatible. On the back of the router sit four gigabit LAN ports in addition to the WAN connection. There’s no multigig port, but the four ports were a welcome addition.
@@ -91,6 +100,9 @@ Lifewire / Erika Rawes
 
  In my test home, speeds from my ISP max out at 500 Mbps. In the same room as the main router, Ookla measured the speed at 131 Mbps. The speed remained consistent throughout the home, even in rooms that typically experience drop offs with other routers. However, outside in the backyard, the speed reduced to 111 Mbps.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Key Features: A display screen**
 
  The touchscreen on the front of the main router can display the time, total GB, WAN and Router IP addresses, internet speeds, and port statuses. You touch the screen to cycle through the different screen options. The power cable connects via[USB-C](https://www.lifewire.com/usb-c-4149490) , and there’s a USB 2.0 port as well, but it doesn’t allow you to connect an external hard drive (the port is reserved for future use).
@@ -99,12 +111,18 @@ Lifewire / Erika Rawes
 
  The app creates a dual (2.4 and 5Ghz) network, which directs traffic based on the most efficient pathways.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ## **Software: Amplifi App**
 
  In the Amplifi App, you can set up a guest network, manage devices, pause the internet, check the health of the system, and check your speeds on your entire network and on individual devices. You can optimize the priority level for each of your devices between normal, streaming, or gaming.
 
  You can also set up parental controls and control your system remotely. The app is extremely user friendly and simple to navigate. There are a few more advanced features, like assigning static IPs and port forwarding, but overall the app is designed for the average user.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Amplifi HD](https://www.lifewire.com/thmb/2X1DxWPlS1VXqnwsUCG5qviJXwc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_03-56584e48b76942519745c71443c2e8d5.jpg)
 
  Lifewire / Erika Rawes
@@ -123,6 +141,13 @@ Lifewire / Erika Rawes
 
  The Amplifi HD mesh system is attractive and does provide coverage for a huge area, but it doesn’t deliver lightning-fast speeds in a home with dozens of connected devices.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Amplifi HD Mesh Wi-Fi System

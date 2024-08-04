@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Review: How the Nintendo Switch Sets New Standards in Gaming on the Go"
-date: 2024-08-01 22:43:30
-updated: 2024-08-02 10:35:23
+date: 2024-08-03T23:04:33.297Z
+updated: 2024-08-04T23:04:33.297Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Review: How the Nintendo Switch Sets New Standards in Gaming on the Go"
@@ -41,8 +41,14 @@ thumbnail: https://thmb.techidaily.com/7e2e77f0d86cd559dbfa986d906ed8c2ea5221019
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Epic Games Fortnite Battle Royale
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/yKnzys72tFvgGQZW2fK7TCAspSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fortnite_Battle-Royale_Standard-Mode_HeroSquare-2f7eb4d812104cb290c513cb5db717fd.jpg)
 
  Lifewire / Emily Isaacs
@@ -82,6 +88,9 @@ thumbnail: https://thmb.techidaily.com/7e2e77f0d86cd559dbfa986d906ed8c2ea5221019
 
  Lifewire / Emily Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Gameplay: Simple for easy pick up and play**
 
  To win the Victory Royale, players compete solo, with a partner, or in squads of three to four people. Games are quick, lasting anywhere from 15-20 minutes once you get the hang of things, although it’s always possible to die earlier. The game starts by placing 100 players on Spawn Island while it queues up the teams. Once ready, everyone on the island is transported onto a Battle Bus which floats over the Fortnite map, allowing players to leap down and begin their quest to the top.
@@ -92,12 +101,18 @@ thumbnail: https://thmb.techidaily.com/7e2e77f0d86cd559dbfa986d906ed8c2ea5221019
 
  The storm is an ever-encroaching threat that closes over set intervals and deals damage that increases over time to players trapped within its boundaries, forcing everyone closer together as the safe zone shrinks. The last team standing will claim the Victory Royale for themselves.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Graphics: Good, campy fun**
 
  Fortnite’s graphics are campy, oversaturated, and brightly-colored fun making them a treat to look at. Unlike competitors such as PUBG or Apex Legends, Fortnite’s graphics trade realism for cartoonish, exaggerated features. When combined with the emotes and skins earned throughout the game, these can create some very entertaining in-game visuals.
 
  It’s worth noting that DirectX 12 support is officially here for PC users, which means that people playing on higher quality graphics cards should see a more consistent gameplay experience thanks to an increased and more stable frame rate. If your system is older, you can play on reduced settings, but it does make the picture choppy and difficult to follow. It’ll get the job done, but we wouldn’t recommend it.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/1EGFvaMlK-nV8KKnng7WcI-X7iI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fortnite_BattleRoyale_StandardMode_03-aff88589c9a04d05a9663f5a75975706.jpg)
 
  Lifewire / Emily Isaacs
@@ -120,6 +135,9 @@ thumbnail: https://thmb.techidaily.com/7e2e77f0d86cd559dbfa986d906ed8c2ea5221019
 
  To access the premium rewards, players need to buy into the Battle Pass by purchasing in-game currency known as V-Bucks. The Battle Pass costs 950 V-Bucks or $9.50\. If you value cosmetic upgrades, it’s a fun add-on. If cosmetics aren’t as important to you, the Battle Pass is easily a feature you can skip, but if you like having a variety of goals you can work towards and earn, then it’s a no brainer. Each Battle Pass is only valid for the season in which they are bought, so if you’re joining late in the season consider if it’s worth it to invest in a reward system you may not be able to complete.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/Ock_qOb167XfWuEIuPpuFC0DpUQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fortnite_Battle-Royale_Standard-Mode_05-95fe04b07a934bdbbcf8ae58496c736c.jpg)
 
  Lifewire / Emily Isaacs
@@ -132,10 +150,22 @@ thumbnail: https://thmb.techidaily.com/7e2e77f0d86cd559dbfa986d906ed8c2ea5221019
 
  If you love earning a variety of rewards, are intrigued by building mechanics, or just appreciate a casual game you can pick up and play, Fortnite’s Battle Royale is the clear winner.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## **Price: Free to play**
 
  The only decision players need to make is whether or not they want to pick up the Battle Pass, which retails for 950 V-Bucks ($9.50). Otherwise,[Fortnite Battle Royale](https://www.lifewire.com/game-play-and-streaming-4781449) is free and available on almost every major platform: PC/Mac, Xbox One, PS4, iOS, Android, and Nintendo Switch. What’s better—cross-platform gameplay is also supported, so you can pick up and play with friends anywhere, anytime.
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Apex Legends vs. Fortnite Battle Royale**
 
  Battle royale games have seen a lot of shake-up in the field lately, with the latest challenger arriving in February 2019 thanks to Respawn Entertainment’s[Apex Legends](https://www.ea.com/games/apex-legends) . Apex Legends is a first-person shooter meets battle royale game where 60 players are dropped onto a map competing with squads of three for domination.

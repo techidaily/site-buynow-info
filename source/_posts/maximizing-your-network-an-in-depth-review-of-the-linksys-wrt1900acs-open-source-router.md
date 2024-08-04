@@ -1,7 +1,7 @@
 ---
 title: "Maximizing Your Network: An In-Depth Review of the Linksys WRT1900ACS Open Source Router"
-date: 2024-08-01 18:36:25
-updated: 2024-08-03 11:34:43
+date: 2024-08-03T23:04:13.159Z
+updated: 2024-08-04T23:04:13.159Z
 categories:
   - BestProducts
 description: "This Article Describes Maximizing Your Network: An In-Depth Review of the Linksys WRT1900ACS Open Source Router"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/1fc6ba74c900007ae783d7c5d15561029afe7a276
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## TP-Link RE305 AC1200 Wi-Fi Range Extender
 
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/JNtLTx9_CWWq4Wy4WH2D2pMI1qw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
@@ -75,12 +78,18 @@ Lifewire / Claire Cohen
 
  There's an[Ethernet port](https://www.lifewire.com/what-is-an-ethernet-port-817546) at the bottom of the device as well as a pinhole reset button, just in case it needs rebooted at any point. It's a bit awkward to hang an[Ethernet cord](https://www.lifewire.com/what-is-an-ethernet-cable-817548) from the extender depending on where you've placed it in your home, but it's a useful addition to bring Ethernet to a desktop, TV, or gaming console without having to put holes in your wall.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Simple and quick**
 
  Setup is extremely simple. There's no software required to install with the RE305, and it’s very quick to set up. It takes a matter of minutes to get it up and running via a web browser. There's a Quick Installation Guide included that outlines out the process. We found it painless to follow.
 
  First, you plug in the extender to an outlet, then use any computer to connect to its network. After plugging it into an outlet, we found that it popped up immediately on our MacBook Pro's available wireless network list. Once connected to the network, setup is done via the web address listed on the guide.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/PS8-Iywv5MsnOo99Fir-jNOiPF8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-4-5c924206c9e77c0001ff0bb8.jpg)
 
  Lifewire / Claire Cohen
@@ -93,16 +102,25 @@ Lifewire / Claire Cohen
 
  There is one important pain point, however, to keep in mind during setup. The extender's administrative password utilizes a default "admin/admin" login, so you'll want to change that to keep unauthorized users out. It can be changed via the TP-Link Tether app, which isn't clearly lined out in the instructions. It isn't required, but if you want to keep your network as secure as possible, it's an important part of setup.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Connectivity and Network Performance:** **Strong, multi-device connectivity**
 
  Several devices were connected to our wireless network, including a MacBook Pro,[iPhone X](https://www.lifewire.com/iphone-x-4150706) , iPad Pro,[Nintendo Switch](https://www.lifewire.com/what-is-the-nintendo-switch-4148184) , and[PlayStation 4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) . When testing the wireless extender's range, at 10 feet to around 70 or so feet away from the router in a 2,100 square foot home, its signal was quite strong, with full bars on an iPhone X and iPad Pro in most areas. One bathroom on the first floor did suffer from occasionally spotty connectivity at around 1,500 feet away from the router.
 
  Out in the yard, there were occasionally drops in connection, particularly when trying to load YouTube videos or play online games via mobile devices. Speeds didn't usually waver, however, though we didn't quite get the full 300mbps our wired connection typically summons. The product advertises 867Mbps on a 5GHz connection and 300 Mbps on a 2.4Ghz connection, so it did provide what was promised, albeit with some dropouts over the five-day testing period.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/Lyz1QcuQDPYlUp5pPBJiL0YKSag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-2-5c9241dcc9e77c0001a92785.jpg)
 
  Lifewire / Claire Cohen
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## **Software: Clean and easy to understand**
 
  The browser-based setup procedure couldn't be easier, and there's no extraneous software to concern yourself with save for the aforementioned optional app for device management. It's a pleasant, minimalistic mint green website with a clean interface and easy-to-read text. Two tabs at the top include the Quick Setup option or Settings, where more advanced users can tweak options to their liking.
@@ -129,6 +147,9 @@ Lifewire / Claire Cohen
 
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  RE305 AC1200 Wi-Fi Range Extender

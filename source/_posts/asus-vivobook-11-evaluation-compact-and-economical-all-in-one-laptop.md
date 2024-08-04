@@ -1,7 +1,7 @@
 ---
 title: Asus VivoBook 11 Evaluation - Compact and Economical All-in-One Laptop
-date: 2024-08-02 20:50:48
-updated: 2024-08-03 12:52:36
+date: 2024-08-03T23:04:41.179Z
+updated: 2024-08-04T23:04:41.179Z
 categories:
   - BestProducts
 description: This Article Describes Asus VivoBook 11 Evaluation - Compact and Economical All-in-One Laptop
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/8MBHODfA-gaYiM-agLZb_H2nNo0=/400x300/fi
 
 ## Kootek Laptop Cooling Pad
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/7No_c3E_HUrSqeMtUM6UkfB2e9Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_HeroSquare-6441809b63624fe0a5eeff086503ee26.jpg)
 
 Lifewire / Andrew Hayward
@@ -36,6 +39,9 @@ Lifewire / Andrew Hayward
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Kootek Laptop Cooling Pad
 
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/vuq5u4XUGBs6ncFjbes1JatZvV8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_HeroSquare-6441809b63624fe0a5eeff086503ee26.jpg)
@@ -86,6 +92,9 @@ Lifewire / Andrew Hayward
 
  The Kootek Laptop Cooling Pad doesn’t require any software or its own power unit to function. Simply place it under your laptop, adjust the height as desired, and then plug the built-in USB cable into your laptop to power it on. As mentioned, you can control the fans using the buttons at the back of the pad, and the USB ports can be used for additional accessories.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/A5iJ3c7mD8guT4DKXitqb3wlp6I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_03-9ec8e6afd494441f8ae20c38ae1fadbb.jpg)
 
 Lifewire / Andrew Hayward
@@ -102,6 +111,9 @@ Lifewire / Andrew Hayward
 
  Meanwhile, I saw a peak internal temperature of 196 degrees when playing Fortnite, along with an external temperature of 118 degrees. With the cooling pad equipped, I saw a slightly lower internal peak of 192 degrees, although it mostly hovered in the 160 to 170-degree range during testing. The external peak with the Kootek pad was 106 degrees. Curiously, I saw the exact same numbers with the Heaven graphics benchmark test with and without the cooling pad: 162 degrees internally and 109 degrees external.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/ppFnQ9kEpjbEV9cYbHzLRI5j-j8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_05-4a4d5ee065a94c3e984ae0c96f4916d8.jpg)
 
 Lifewire / Andrew Hayward
@@ -112,6 +124,9 @@ Lifewire / Andrew Hayward
 
  At $26 from Amazon, the Kootek Laptop Cooling Pad is a reasonably-priced option with solid performance and the ability to accommodate larger laptops. There are cheaper options out there, as well as some with additional features such as temperature sensors and additional fan controls, but Kootek’s device delivers good functionality for the price.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/30UKekQcQjJ1mpixthV5avHNZsE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_02-9e1418002e754b2c8e01cb12f766975a.jpg)
 
 Lifewire / Andrew Hayward
@@ -126,12 +141,18 @@ Lifewire / Andrew Hayward
 
  A clunky design makes the Kootek Laptop Cooling Pad a bit awkward in use, but ultimately it does a solid job of cooling hot laptops and accommodating larger-sized devices. The extra USB ports are handy, especially for port-limited laptops, and the price is reasonable.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 * [North Face Pivoter Backpack](https://www.lifewire.com/north-face-pivoter-backpack-review-4690198)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Laptop Cooling Pad

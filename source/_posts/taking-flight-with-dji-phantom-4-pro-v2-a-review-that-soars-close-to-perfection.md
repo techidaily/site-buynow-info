@@ -1,7 +1,7 @@
 ---
 title: "Taking Flight with DJI Phantom 4 Pro v2: A Review That Soars Close to Perfection"
-date: 2024-07-30 11:27:12
-updated: 2024-08-02 12:17:21
+date: 2024-08-03T23:03:57.829Z
+updated: 2024-08-04T23:03:57.829Z
 categories:
   - BestProducts
 description: "This Article Describes Taking Flight with DJI Phantom 4 Pro v2: A Review That Soars Close to Perfection"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/ad4388017aad038e4020bb83bed704ce1407b9c4a
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ## Motorola MG7700 Cable Modem and Router
 
 ![Motorola MG7700](https://www.lifewire.com/thmb/wUfud-dw3x-fQBAILjgQYd_Srx4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-4082541-3-2-5c8fadb846e0fb00014a9735.jpg)
@@ -40,6 +43,9 @@ Lifewire / Claire Cohen
 
 ## Motorola MG7700 Cable Modem and Router
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Motorola MG7700](https://www.lifewire.com/thmb/3X3Cjz1mO5USWmPRXT1W5zSdqOE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-4082541-3-2-5c8fadb846e0fb00014a9735.jpg)
 
 Lifewire / Claire Cohen
@@ -90,6 +96,9 @@ Lifewire / Claire Cohen
 
  If you do get the choice of where it’s installed, you usually want the coax cable to come in from an unobtrusive corner, not sprouting out from the middle of the living room in an unsightly fashion. Unfortunately, that’s bad for routers which work best in a central location of your house or apartment so the signal covers everywhere you need. If you can’t get find a good spot away from other wireless devices, metal, walls, and other barriers that can impede signal, you may want to invest in a coax cable extension.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Motorola 7700](https://www.lifewire.com/thmb/RfuGGYo_UZvzWOQw8Rb7KZnMkhs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-1-5c8faf2dc9e77c00014a9db2.jpg)
 
  Lifewire / Claire Cohen
@@ -98,6 +107,9 @@ Lifewire / Claire Cohen
 
  Information about approved third-party equipment can usually be found on your cable provider’s website. If not, it’s best to call and ask before you buy. We were able to set it up on Spectrum without any trouble.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## Connectivity: The latest standards
 
  The Motorola MG7700 is a 24x8 DOCSIS 3.0 modem that doubles as a wireless router. It has 24 downstream channels (which are lanes that handle network traffic, so the more, the better) allowing it to potentially hit a 1 Gbps download speed. There are eight upstream channels for a maximum 246 Mbps upload. This is a pretty standard set of connectivity protocols that makes it a lot faster than 16x4 modems, but slower than 32x8 ones.
@@ -122,6 +134,9 @@ Lifewire / Claire Cohen
 
  We tested the Motorola MG7700 in our 4,500-square-foot home while connected to a couple dozen devices (tablets, gaming consoles, computers, smartphones, etc.). The router offered a strong Wi-Fi signal on both 2.4GHz and 5GHz bands on both floors of our home. Everything from surfing the Web to streaming video was solid within an approximate 2,000-square-foot radius. In the basement and more distant locations of the house, the signal was weak, but that’s to be expected.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Motorola MG7700](https://www.lifewire.com/thmb/pHbG256tJv_ubRtv-HdKUka66IA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-3-5c8fb059c9e77c0001a926bf.jpg)
 
  Lifewire / Claire Cohen
@@ -134,6 +149,9 @@ Lifewire / Claire Cohen
 
  The MG7700’s built-in software is customizable, too. Once your router is set up, you can go to a specified IP address (the instructions will tell you which one) in your Web browser to change settings, including the name of the default network, enabling password protection, toggling the channels your router will communicate on, and more. There’s also an Advanced page that allows you to set up a[firewall](https://www.lifewire.com/definition-of-firewall-817568) or enable parental controls. Overall, the settings are well laid out, easy to understand, and simple to change.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Price: Good value for the speed
 
  At $189.99 (MSRP), the MG7700 isn’t quite as a cheap as standalone modems, which can cost as little as $30, but incorporating both a modem and router into one device makes the price more palatable.
@@ -156,11 +174,17 @@ Lifewire / Claire Cohen
 
  The Motorola MG 7700 boasts four gigabit-ready LAN ports, delivered blazing fast 100Mbps speeds over dual-band Wi-Fi in our testing, and has outstanding user controls that are easy for anyone to use. It does best in homes of 2,000 square feet and can handle a dozen devices or more. That said, if you’re someone with a larger home or higher bandwidth requirements for a large number of devices, you may be better served by a tri-band router.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Netgear Nighthawk C7000](https://www.lifewire.com/netgear-nighthawk-c7000-review-4686068)
 * [Netgear C3700 Cable Modem Router](https://www.lifewire.com/netgear-c3700-cable-modem-router-review-4686094)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  MG7700 Cable Modem and Router

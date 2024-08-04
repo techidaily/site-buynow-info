@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive WS-1002 WiFi Weather Station Evaluation: Luxurious Accuracy at an Upscale Price Point"
-date: 2024-08-01 11:51:28
-updated: 2024-08-03 11:59:21
+date: 2024-08-03T23:04:01.685Z
+updated: 2024-08-04T23:04:01.685Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive WS-1002 WiFi Weather Station Evaluation: Luxurious Accuracy at an Upscale Price Point"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/96d4e4e3696a3d428399dbec4c54090942565cd5b
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Apple Watch Series 9 GPS + Cellular 45mm
 
 ![Apple Watch Series 9 (front).](https://www.lifewire.com/thmb/WFGRUAsDxA0krS7sPX6WGqtdVbQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleWatchSeries9front-649521c98f4d421cad652d5c0d1230a4.jpg)
@@ -68,12 +71,18 @@ Lifewire/Molly McLaughlin
 
 [How to Set Up Apple Watch](https://www.lifewire.com/set-up-apple-watch-4589317)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Pricing and What's New
 
  The Apple Watch Series 9 costs $399 for Wi-Fi only, the same as the Series 8 & 7\. To add Cellular, pricing starts at $499\. (I have the Apple Watch Series 9 GPS + Cellular 45mm.)
 
  The last few models have had the same processor, but the Series 9 gets the S9 chip, which promises 30 percent more speed and all-day battery life.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Apple Watch Series 9 on a desk next to its charger.](https://www.lifewire.com/thmb/fnvFdlUB4ml_QaA-kIP14u1pQsU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleWatch9_withcharger-11e49fb444df404b834b2127b3ebcab0.jpg)
 
 Lifewire/Molly McLaughlin
@@ -94,12 +103,18 @@ Lifewire/Molly McLaughlin
 
  One of my favorite features is Theater Mode, which prevents the screen from lighting up when you glance at it or receive a notification. It's perfect for the movies and theater, of course, but it also came in handy when I was recently on jury duty during the trial and needed to keep distractions to a minimum.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Apple Watch Theater Mode screen.](https://www.lifewire.com/thmb/q170D6_ERklcCxR3P_p6t13HV5E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleWatch9_theatermodeoffon-953887b5d6f547c1b334d7912aa139ac.jpg)
 
  It turns on silent mode and makes your Walkie-Talkie status unavailable, but you'll receive haptic notifications.  
 
 [Smart Watches & Wearables](https://www.lifewire.com/theater-mode-on-apple-watch-5115897)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## Fitness Tracking
 
  I use the watch for fitness tracking and try to "close my rings" daily. After a few bike rides where my average speed was skewed because I forgot to pause or unpause the workout during or after a break, I was pleased to find that you can enable automatic pausing (auto-pause) for biking and running.
@@ -120,6 +135,9 @@ Lifewire/Molly McLaughlin
 
 [Smart Watches & Wearables](https://www.lifewire.com/how-to-use-apple-watch-4584460)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Watch Series 9 GPS + Cellular 45mm

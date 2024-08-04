@@ -1,7 +1,7 @@
 ---
 title: Prepare Your Device for Apple's Ventura System Transition
-date: 2024-07-30 18:47:34
-updated: 2024-08-02 12:47:36
+date: 2024-08-03T23:04:03.337Z
+updated: 2024-08-04T23:04:03.337Z
 categories:
   - BestProducts
 description: This Article Describes Prepare Your Device for Apple's Ventura System Transition
@@ -18,6 +18,9 @@ thumbnail: https://www.lifewire.com/thmb/T4reabteJcP4Vrri4hH7VteIfoA=/400x300/fi
 
  This article explains how to add games to an NEC Classic using NES game ROMs you own and a Windows PC.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Add Games to NES Classic
 
  While the re-release of Nintendo's original home console comes with just 30 of the best classic games built in, a new program makes it extremely easy to add more games to your NES Classic edition using a Windows PC. That said, you'll need your own NES game ROMs.
@@ -34,14 +37,30 @@ thumbnail: https://www.lifewire.com/thmb/T4reabteJcP4Vrri4hH7VteIfoA=/400x300/fi
 4. Select**NES (USA/Europe)** .  
 ![Choose NES (USA/Europe)](https://www.lifewire.com/thmb/K0_MIzgjkgi5Do_SG9rO9OU-b-4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/002-add-more-games-to-the-nes-classic-2077915796d24b319622974016b4c322.jpg)
 5. Select**Add more games** to upload the ROMs you want to add to your NES Classic. Only files with the extension .NES will work, although you can also upload ZIP folders containing them.  
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 !['Add more games' selection to upload ROMs to NES Classic](https://www.lifewire.com/thmb/7vHf5faB-1mVibSy9cF1KVJ8qfY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/003-add-more-games-to-the-nes-classic-089a7d2332bb4059b63d6de31fea424a.jpg)
 6. Under the Custom Games list, select the title you want to add cover art to. Select**Google** to retrieve images directly from Google.  
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ![Add cover art by clicking the titles under Custom Games](https://www.lifewire.com/thmb/neOlwOfUiIZx5S1tEn80GL82VMc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/004-add-more-games-to-the-nes-classic-c2bdeef7eff64d139156d138e2c6e7a7.jpg)
 7. On the Hakchi2 toolbar, select**Kernel** \>**Install/Repair,** then select**Yes** when asked if you want to flash the custom kernel.  
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ![Select Kernel > Install/Repair, then click Yes](https://www.lifewire.com/thmb/N_5Vp8fvKlu15K8g8IneRPpgamA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/005-add-more-games-to-the-nes-classic-cf58f3c816484e8e899c26bd4f7adf5e.jpg)
 8. Follow the instructions that appear. You might be required to install some drivers if they didn't automatically install when you connected the console.  
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ![Flash the custom kernel](https://www.lifewire.com/thmb/obxjQ5w6R-YGlPa1SqmQbuWoxcU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Screenshot153-5c5a42ee46e0fb000152fca2.png)
 9. When the process is complete, select**Synchronize selected games with NES/SNES Mini** and confirm you flashed the custom kernel.  
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Select Synchronize selected games with NES/SNES Mini](https://www.lifewire.com/thmb/OQNrcOP_nKxq5Z51RZCf26tzUJ4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/006-add-more-games-to-the-nes-classic-601953ec9f1947eca4af89041d99caba.jpg)
 10. After your ROMs finish uploading, turn off the console and disconnect it from your PC.
 11. Plug in the power source to your NES Classic and turn it on. Your new games will be inside a folder named "New Games" alongside the preloaded titles.

@@ -1,7 +1,7 @@
 ---
 title: "Sony DSC-W800 Unboxing: A Powerful Camera, Great Value Proposition"
-date: 2024-07-31 23:54:25
-updated: 2024-08-03 10:23:52
+date: 2024-08-03T23:04:04.297Z
+updated: 2024-08-04T23:04:04.297Z
 categories:
   - BestProducts
 description: "This Article Describes Sony DSC-W800 Unboxing: A Powerful Camera, Great Value Proposition"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/5497305e7ede52ac11b29b1b9923a18c5f2da5c48
 
 ## Microsoft Surface Laptop 4
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/XootaRyVCeCUWEitc2sglk8R7ko=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Microsoft-Surface-Laptop-4-1-6dfa98797a3d4223834c350422c3cb57.jpg)
 
 Lifewire / Matthew S. Smith
@@ -42,6 +45,9 @@ Lifewire / Matthew S. Smith
 
 ## Microsoft Surface Laptop 4
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/iXEfhVk6SvvDJJJVMnrbl8sG6hw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Microsoft-Surface-Laptop-4-1-6dfa98797a3d4223834c350422c3cb57.jpg)
 
 Lifewire / Matthew S. Smith
@@ -107,6 +113,9 @@ Lifewire / Matthew S. Smith
 
  The touchscreen is compatible with the Surface Pen. This isn’t especially useful given that the Surface Laptop 4 is, well, a laptop, but it’s nice to have the option. I often use the touchscreen as an alternative to the touchpad in casual use, like online shopping or watching YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Performance: AMD and Intel options hold their own
 
  Microsoft offers both AMD and Intel processors for the Surface Laptop 4\. I tested the base model, which has AMD’s Ryzen 5 4680U six-core processor with nine AMD Radeon graphics cores. It also had 8GB of RAM and a 256GB solid-state drive.
@@ -117,6 +126,10 @@ Lifewire / Matthew S. Smith
 
  The AMD processor includes nine Radeon Vega graphics cores. These led the Surface Laptop 4 to a 3DMark Fire Strike score of 2,681 and a GFX Bench Car Chase 2.0 result of 24.6 frames per second. These numbers are respectable but not outstanding. The ThinkPad X1 Titanium Yoga and Dell XPS 13 can achieve better scores with Intel’s latest Iris Xe graphics.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/MrzPvS6-5_LUBvEOlNjt4wv1BTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-3-e45e7bbc46054a69b2065cedce12519a.jpg)
 
 Lifewire / Matthew S. Smith
@@ -133,12 +146,18 @@ Lifewire / Matthew S. Smith
 
  Keyboard backlighting is standard. It’s not bright enough to be obvious in a well-lit room but is effective in dark spaces.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/ZfUq7KgSBkLGGlcycJhWShrQqeg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-5-cc97b158ae2a4aad85a9527ff97d0a76.jpg)
 
 Lifewire / Matthew S. Smith
 
  The Surface Laptop 4’s touchpad is large, measuring four and a half inches wide by three inches deep. It’s responsive but doesn’t pick up unintended input. Multi-touch gestures work extremely well, helping you get the most out of[Windows’ underrated multitasking touchpad shortcuts](https://www.lifewire.com/how-to-use-windows-10-touchpad-gestures-4587314) .
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Audio: Going loud
 
  The Surface Laptop 4 has punchy speakers with excellent volume. There’s great separation between lows, mids, and highs, which avoids the muddy sound that is common to many laptops as speaker volume nears maximum. There’s no subwoofer, so bass can sound flat, but the Laptop 4 provides some sense of depth without overwhelming the rest of the track you’re enjoying.
@@ -151,16 +170,25 @@ Lifewire / Matthew S. Smith
 
  4G LTE cellular data is not available. That’s a bit disappointing, as LTE is available in some Surface Pro devices and in competitors like the ThinkPad X1 Titanium Yoga and HP Spectre x360 13t. Optional LTE would be a match for the Surface Laptop 4’s productivity-first design.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Camera: An okay webcam with Windows Hello
 
  The Surface Laptop 4 has a 720p front-facing camera that suffers all the shortcomings you’d expect from a laptop webcam. It looks ok in a bright room, but even a moderately dim setting will lead to grainy, soft video. The camera fails at proper exposure when lighting is uneven.
 
  An IR camera is standard, so[Windows Hello](https://www.lifewire.com/what-is-windows-hello-4782168) facial recognition login is supported. This feature is easy to enable and extremely quick once set up. It works well in poor or uneven lighting.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Battery: It’s good, but don’t believe the hype
 
  Microsoft says the Surface Laptop 4 will last up to 19 hours on a charge. The laptop might be capable of hitting that number, but it’s misleading. Real-world battery life is much less than Microsoft’s ads would have you believe.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/mOdEoB5ucAztqgsA5IjD6moCN3w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-4-2b59b6b46693409a868e88392e980df1.jpg)
 
 Lifewire / Matthew S. Smith
@@ -189,6 +217,9 @@ Lifewire / Matthew S. Smith
 
  I think most buyers will be happy with either laptop, but the Laptop 4’s performance feels worth the extra $100\.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ## Microsoft Surface Laptop 4 vs. Apple MacBook Air
 
  The Microsoft Surface Laptop 4 and Apple MacBook Air are both portable laptops that start at $999\. Microsoft’s option is larger and heavier with a more useful screen, while the MacBook Air has a smaller but more attractive display.
@@ -213,6 +244,9 @@ Lifewire / Matthew S. Smith
 * [Microsoft Surface Pro 7](https://www.lifewire.com/microsoft-surface-pro-7-review-4797020)
 * [Microsoft's Surface Laptop 2](https://www.lifewire.com/microsoft-surface-laptop-2-review-4779760)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Surface Laptop 4

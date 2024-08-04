@@ -1,7 +1,7 @@
 ---
 title: "Why Microsoft's Flight Simulator X: Gold Edition Is a Must-Have for Enthusiasts"
-date: 2024-07-31 17:53:42
-updated: 2024-08-01 10:39:56
+date: 2024-08-03T23:04:25.921Z
+updated: 2024-08-04T23:04:25.921Z
 categories:
   - BestProducts
 description: "This Article Describes Why Microsoft's Flight Simulator X: Gold Edition Is a Must-Have for Enthusiasts"
@@ -13,8 +13,14 @@ thumbnail: https://thmb.techidaily.com/dab8cabffeddc700c42a5606e02b205ea6f1fa907
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Xiaomi Mi Smart Band 4
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Xiaomi Mi Smart Band 4](https://www.lifewire.com/thmb/gu5s-Vyv187eoyORVVMpZu9AOVM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xiaomi-Mi-Band-4-Fitness-Tracker-1-0f0e3854f10a4a2595aacd594e37472b.jpg)
 
 Lifewire / Erika Rawes
@@ -77,6 +83,9 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Comfort: A water resistant removable band**
 
  The Xiaomi Mi Band 4 is water resistant with a 5 ATM rating. This means the band can go in up to 50 meters of water for up to 10 minutes, and it can tolerate shallow water activities like swimming. You can comfortably shower with the band, wear it in the rain, or wear it while you’re drenched in sweat. It doesn’t feel too hot on the wrist either.
@@ -102,16 +111,25 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: Mi Fit App**
 
  The Mi Fit app is somewhat basic, but it provides useful health and fitness information. Some functions, like automatic monitoring, aren’t as easy to find in the app as others, but overall the basic app serves its purpose. As with most fitness trackers, you can set alarms, set event reminders, and share your fitness info. You can view historical data on your heart rate, workouts, steps, and calories burned. You can track your sleep, including deep sleep, light sleep, hours slept, and more.
 
  In addition to customizing settings and widgets and tracking your data, the Mi Fit app works with other products like the Mi Composition scale, which can provide a more comprehensive experience, including body weight and balance data.
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/uyTDWcqaPVwpPOnZeijBG5Y2MYM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-5-040745fab732483a957277c9daaa82ca.jpg)
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Battery: Up to 20 days**
 
  The Mi Band 4’s battery is phenomenal, as the 135 mAh battery lasts for up to 20 days. Options within the app for things like better sleep monitoring and heart monitoring can greatly reduce battery life, however, the app will warn you about that when selecting such options.
@@ -124,10 +142,16 @@ The 135 mAh battery lasts for up to 20 days.
 
  The only negative about the battery is when it comes time to charge the device. You have to remove the tracker from the band and place it onto a mini charging station. It’s somewhat difficult to remove from the band, and you have to kind of wiggle it out of the band. The unit also fits snugly into the charging station, so you have to gently force the Mi 4 Tracker into the charging station to ensure it’s properly charging. Once you achieve that, it takes about one hour and 45 minutes to reach a full charge.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/kXajF8I7UCVG0wnufwSz3psTRmU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-3-8a9c12e307254854bcd99728db94330c.jpg)
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: An amazing value**
 
  The Xiaomi Mi Smart Band 4 is incredibly affordable, selling for $29 on Amazon. The next gen band, the Mi Band 5, is now hitting the market, which is lowering the price of the fourth generation model. The Mi Band 4 isn’t perfect by any means, and it won’t provide the same experience that you’d get with a tracker that costs hundreds of dollars, but it’s a steal at its price point.

@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Depths of Narrative and Setting - 'Torment: Tides of Numenera' Sci-Fi RPG Insights"
-date: 2024-08-02 17:27:22
-updated: 2024-08-03 11:19:32
+date: 2024-08-03T23:04:25.167Z
+updated: 2024-08-04T23:04:25.167Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring the Depths of Narrative and Setting - 'Torment: Tides of Numenera' Sci-Fi RPG Insights"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/ad251382f0a7d8c655d1ecfe442682eca929097f4
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Netgear Nighthawk X4 AC2200 Wi-Fi Mesh Extender (EX7300)
 
 ![Nighthawk X4 Wi-Fi Mesh Extender](https://www.lifewire.com/thmb/7kS7DQauBW2bFdYTVLBms3-Q84Q=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkX4_HeroHoriz-992cc019c1e64ea59b9ce72905f0381c.jpg)
@@ -36,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/ad251382f0a7d8c655d1ecfe442682eca929097f4
 
 ## Netgear Nighthawk X4 AC2200 Wi-Fi Mesh Extender (EX7300)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![Nighthawk X4 Wi-Fi Mesh Extender](https://www.lifewire.com/thmb/pbxpBfhizGFobbPawynEvJ-QMRE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkX4_HeroHoriz-992cc019c1e64ea59b9ce72905f0381c.jpg)
 
 [View On Amazon $69](https://www.amazon.com/dp/B01D6JEMWS?tag=lifewire-onsite-prod-20&ascsubtag=4846224%7Cn858b25cedf594108aeff6df6076e962e00%7CB01D6JEMWS) [View On Walmart $149](https://www.walmart.com/ip/NETGEAR-Nighthawk-AC2200-X4-WiFi-Mesh-Extender-EX7300-100NAS/53552961)
@@ -58,6 +65,9 @@ thumbnail: https://thmb.techidaily.com/ad251382f0a7d8c655d1ecfe442682eca929097f4
 
  It also has advanced technologies such as MU-MIMO and beamforming, so it feels like a fully capable device. You’ll pay a bit more for this one compared to some of the entry-level plug-in Wi-Fi extenders, but if your home is plagued by wireless dead zones or you just want to ensure a more consistent high-speed signal throughout your dwelling, then this is a strong option. I tested the Netgear Nighthawk X4 for several days in my house for a variety of needs, including everyday work, playing online games, and streaming media.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Hearty, but still compact**
 
  At just over 6 inches tall and 3 inches wide, the Netgear Nighthawk X4 Wi-Fi Mesh Extender might look a little too large to hang from a wall outlet, but most of the weight is concentrated at the base where it plugs in. It’ll only take up one plug on an outlet, leaving the other free, and it stayed securely in place during use.
@@ -66,6 +76,9 @@ thumbnail: https://thmb.techidaily.com/ad251382f0a7d8c655d1ecfe442682eca929097f4
 
  On the left side are On/Off and WPS connectivity buttons, as well as a switch that lets you swap between using the device as an extender (to repeat an existing Wi-Fi signal) or an access point, which would create a wireless network from a plugged-in Ethernet cable from your modem. That[Ethernet port](https://www.lifewire.com/what-is-an-ethernet-port-817546) is on the bottom of the device, and when in the typical extender mode, you can use it to plug in a wired device to access the wireless network.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Netgear Nighthawk X4 (EX7300) Wi-Fi Mesh Extender](https://www.lifewire.com/thmb/ahWiBPBlk75slmsmgc-c4cnSgf8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkX4_03-6a6cab81b4ec4da39c89aa3a92cb1f16.jpg)
 
  Lifewire / Andrew Hayward
@@ -104,10 +117,17 @@ thumbnail: https://thmb.techidaily.com/ad251382f0a7d8c655d1ecfe442682eca929097f4
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Worth the investment**
 
  At an MSRP of $150 but often seen now for $130, the Netgear Nighthawk X4 Wi-Fi Mesh Extender costs a fair bit more than a simpler entry-level extender, but the strong performance—especially on the 5GHz band—makes it a worthy investment if you plan on playing online games or streaming extensive media. There are much cheaper Wi-Fi extenders out there, however (like the one below), if your needs aren’t very extensive.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ## **Netgear Nighthawk X4 vs. TP-Link RE200**
 
 [TP-Link’s RE200](https://www.lifewire.com/tp-link-re200wi-fi-range-extender-review-4846136) (view at[Walmart](https://www.walmart.com/ip/42300087) ) is similar in its plug-in approach, but it’s much smaller and costs a fraction of the price at $30\. It also gave me solid connectivity on 2.4GHz, although the 5GHz performance left something to be desired.

@@ -1,7 +1,7 @@
 ---
 title: "The Pursuit of Flawlessness: An In-Depth Look at the Upgraded DJI Phantom 4 Pro V2"
-date: 2024-07-31 11:33:43
-updated: 2024-08-01 11:58:25
+date: 2024-08-03T23:04:17.328Z
+updated: 2024-08-04T23:04:17.328Z
 categories:
   - BestProducts
 description: "This Article Describes The Pursuit of Flawlessness: An In-Depth Look at the Upgraded DJI Phantom 4 Pro V2"
@@ -15,6 +15,11 @@ thumbnail: https://thmb.techidaily.com/34ef4ca08c3dfcb784929375e3e95bcc8f2ba6210
 
 ## Raspberry Pi 400
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/Gmg1bX1GHP4gGx2wCClYDURkzKI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Raspberry-Pi-400-Mini-PC-1-2e3e0817c1ad4570a7c3a8d70b7e991b.jpg)
 
 Erika Rawes / Lifewire
@@ -44,6 +49,10 @@ Erika Rawes / Lifewire
 
 ## Raspberry Pi 400
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/Lx1zPft9GUcm5A0WBJsxvP8fCUM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Raspberry-Pi-400-Mini-PC-1-2e3e0817c1ad4570a7c3a8d70b7e991b.jpg)
 
 Erika Rawes / Lifewire
@@ -80,6 +89,9 @@ Erika Rawes / Lifewire
 
  Previous versions of the Raspberry Pi didn’t exactly come across as accessible to the typical PC user who spends most of their time surfing the web. The older Raspberry Pi models look like a mini motherboard with ports and other components attached. The Raspberry Pi 400 is completely different, as the board is housed inside a keyboard for easier setup and use. It’s reminiscent of those all-in-one PC keyboards from the 80s.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/7BA0HRUVuCSmbiMi4uyFWkXVuKg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-3-58854ebe9d964ccc984e44f77619fa1a.jpg)
 
 Erika Rawes / Lifewire
@@ -98,6 +110,9 @@ Erika Rawes / Lifewire
 
  The whole purpose of a Raspberry Pi is to be whatever you want it to be—a personal computer, a smart home controller, a gaming system, or whatever else you can think of.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Projects: Keyboard helps in some ways, hinders in others
 
  One great thing about[Raspberry Pi](https://www.lifewire.com/what-is-raspberry-pi-4042337) is that there’s a community of users to help you out with project ideas, to share terminal commands, and to help with troubleshooting. Pi computers are great for makers, but once I really started experimenting with the Pi 400, I realized the keyboard is beneficial in some areas, but it’s limiting in others.
@@ -106,6 +121,9 @@ Erika Rawes / Lifewire
 
  It would be difficult to make anything outdoors with a keyboard, and it would be tough to use the Pi as a security camera when it’s inside of a keyboard. You can remove the Pi from the keyboard if you really want to, but that would kind of defeat the purpose of going with the 400 model. Instead of removing the board, you could just opt for a Pi 4, although it has a lower CPU clock (1.5 Ghz).
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/oideXrFtpj_WzRtq1qacMhsc7Dg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-2-6fbd163b7ed849f684963b93ae8b8735.jpg)
 
 Erika Rawes / Lifewire
@@ -116,6 +134,9 @@ Erika Rawes / Lifewire
 
  The Raspberry Pi 400 doesn’t have a DSI port for connecting a capacitive touchscreen display, but you can connect just about any compatible HDMI monitor as long as you use a micro HDMI to[HDMI cable](https://www.lifewire.com/hdmi-cables-and-connectors-what-you-need-to-know-4685377) .
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Performance: Not bad for the size
 
  The Pi 400 is the fastest Pi yet, with a 1.8GHz quad-core processor (compared to 1.5GHz on the previous model Pi 4). It doesn’t feel sluggish when booting up, nor does it lag when moving between different applications.
@@ -130,12 +151,18 @@ Erika Rawes / Lifewire
 
  You can turn your Raspberry Pi 400 into a RetroPie gaming system, where you can play classic games from Nintendo, Nintendo 64, Sega, Atari, and more. I created a RetroPie using a Raspberry Pi 3 a few years back, and I’d have to connect a keyboard for any updates or changes. The new keyboard form factor makes things a bit easier with the Pi 400\.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Productivity: LibreOffice and helpful accessories
 
  The Kit with the included Raspberry Pi OS has LibreOffice applications preloaded. You get LibreOffice Base, Calc, Draw, Impress, Math, and Writer. This is helpful for homework, work, keeping track of your command lines, basic word processing, or for creating spreadsheets.
 
  The accessories tab includes a PDF viewer and a calculator, as well as a text editor and an SD card copier. You also have a basic web browser—plenty of tools to get you started.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Audio: Bluetooth connectivity
 
  You won’t find built-in speakers, but the Pi 400 will play audio on your monitor’s speakers when you use the HDMI to mini HDMI cable included in the kit. It also has Bluetooth for connecting a pair of wireless headphones. I had no problem connecting a few different types of Bluetooth headphones to the Pi. There’s no audio output jack, but you can connect compatible USB speakers if you launch the appropriate USB commands in the terminal.
@@ -150,6 +177,9 @@ Erika Rawes / Lifewire
 
  Here at my home in the Research Triangle in North Carolina, my Wi-Fi speeds max out at 400Mbps. I was able to get respectable speeds on this mini PC, with around 100Mbps upload and 30Mbps download. I did not attempt a hardwired connection.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ## Camera: No CSI port, but you can use a USB webcam
 
  The Pi 400 doesn’t have the CSI (camera serial interface) port for connecting the camera accessory, and this limits the types of projects you can create to a certain extent.
@@ -158,6 +188,9 @@ Erika Rawes / Lifewire
 
  Pi computers are great for makers, but once I really started experimenting with the Pi 400, I realized the keyboard is beneficial in some areas, but it’s limiting in others.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Software: Learn to code
 
  In addition to a basic office suite, photo processing software, and games, the Pi 400 Kit comes with several coding applications like Scratch, Scratch 2, Scratch 3, Blue Jay Java IDE, Green Foot Java IDE, Geany, Mathematica, Sense HAT Emulator, and more.

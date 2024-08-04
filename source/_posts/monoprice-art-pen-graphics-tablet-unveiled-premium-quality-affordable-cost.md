@@ -1,7 +1,7 @@
 ---
 title: "Monoprice Art Pen Graphics Tablet Unveiled: Premium Quality, Affordable Cost"
-date: 2024-08-02 18:13:52
-updated: 2024-08-04 11:31:36
+date: 2024-08-03T23:03:56.924Z
+updated: 2024-08-04T23:03:56.924Z
 categories:
   - BestProducts
 description: "This Article Describes Monoprice Art Pen Graphics Tablet Unveiled: Premium Quality, Affordable Cost"
@@ -39,6 +39,9 @@ Lifewire / Danny Chadwick
 
 ## Apeman C450 Dash Cam
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![Apeman C450 Dashcam](https://www.lifewire.com/thmb/qtPoWkWW4veIi00rgbPVt6Q4pu8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_HeroSquare2-c752b8527e31471e9018279dea42a8ca.jpg)
 
 Lifewire / Danny Chadwick
@@ -62,10 +65,16 @@ Lifewire / Danny Chadwick
 
  If you’re on a budget and in the market for a dashboard camera, the Apeman C450 is a worthy consideration. For under $50, it captures smooth, detailed video in full 1080p HD resolution. It’s easy to use (even though the user manual is substandard) and it won’t give you any problems during the drive. It does have a few points of frustration, but that shouldn’t be a shock at this price point—it’s hard to make a truly good dashcam for this cheap.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/wyf8r7L4gDINa5Etodv7VR7ogds=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_03-3a8b995526fe491b9634a885db40804a.jpg)
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: All the basics**
 
  The Apeman C450 has a three-inch screen that’s bright, detailed, and provides an at-a-glance view of the camera’s status. If it were much bigger, it would be both a distraction and dangerous visual obstruction.
@@ -80,6 +89,9 @@ Lifewire / Danny Chadwick
 
  This car camera stores video on a[MicroSD card](https://www.lifewire.com/move-apps-to-sd-card-on-android-4178982) . There isn’t one included, so you’ll have to buy one. And while Apeman claims that the maximum size is 32GB, we tried out a 64GB card and it worked just fine—we filled it up to capacity and didn’t notice any problems with the device or the footage.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/A63ztrIxThbZlrb_lHJH3YL7778=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_02-6ef4e204d0bd452b9601ec468e5358bf.jpg)
 
  Lifewire / Danny Chadwick
@@ -98,6 +110,9 @@ Lifewire / Danny Chadwick
 
  Your first time using the Apeman C450, you also have the option to set up a time and date stamp as well as a car identification number on your videos. This is a nice option to keep track of when a video was recorded, and which car it was recorded from if you have more than one camera in different vehicles.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Camera Quality: Acceptable for a budget device**
 
  You can set this dashcam to capture video in 1080p, 720p, and VGA resolution. That’s impressive for a camera this size, and Apeman puts 1080p Full HD front and center in their marketing materials. While it provides a good level of detail and clarity in the video, it’s worth noting that other dashcams out there can record in resolutions up to 1440p.
@@ -128,10 +143,16 @@ Lifewire / Danny Chadwick
 
  One thing to note about this car dashboard camera is that the battery life is quite short. When we tested the Apeman C450, it powered down 28 minutes after we unplugged it. If you want continuous recording, it must be connected to power at all times.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Affordable even on a budget**
 
  The defects of this dashcam can be forgiven pretty easily considering that it costs less than $50\. If you’re looking for a very inexpensive device, the Apeman C450 is a decent if somewhat flawed solution—it’s definitely not built as solidly and lacks the high resolution of its more expensive competitors, but if you are comfortable working around those shortcomings, this dashcam performs pretty well for the price.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Competition: Apeman C450 vs. Z-Edge Z3 Plus**
 
  We tested the Apeman C450 side by side with the Z-Edge Z3 Plus dashcam. The Z3 Plus is considerably more expensive, and while we found these two devices to be generally similar in form and function, we ultimately favored the Z3 Plus because it lacks the small annoyances that made the Apeman C450 frustrating.

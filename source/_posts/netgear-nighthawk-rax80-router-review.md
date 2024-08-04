@@ -1,7 +1,7 @@
 ---
 title: Netgear Nighthawk RAX80 Router Review
-date: 2024-07-29 21:29:43
-updated: 2024-08-01 11:25:58
+date: 2024-08-03T23:04:28.948Z
+updated: 2024-08-04T23:04:28.948Z
 categories:
   - BestProducts
 description: This Article Describes Netgear Nighthawk RAX80 Router Review
@@ -36,8 +36,14 @@ Lifewire / Claire Cohen
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Netgear Nighthawk C7000 DOCSIS 3.0 AC1900 Wi-Fi Cable Modem Router
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear Nighthawk C7000](https://www.lifewire.com/thmb/OV2nfW5mduqPEhexOyXCeTMKajo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4082541-4-9cd1eee50edf4975a739591263d7f54d.jpg)
 
 Lifewire / Claire Cohen
@@ -74,6 +80,9 @@ Lifewire / Claire Cohen
 
  While this modem does have wireless capabilities, the antennae are inside the device, which makes for a more streamlined look.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ![Netgear Nighthawk C7000](https://www.lifewire.com/thmb/XBxyGD8RCZUzuy5c-9PSfLF4OBY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4082541-3-a9db59bb3f7a4f6aa4d7b1d852f4ee99.jpg)
 
  Lifewire / Claire Cohen
@@ -102,6 +111,10 @@ Lifewire / Claire Cohen
 
  The Netgear Nighthawk C7000 has three antennae built in, too. This means it has dual-band connectivity and a rated speed of AC1900, which can deliver up to 600 Mbps and 1,3000 Mbps on the 2.4GHz and 5.0GHz bands, respectively. So, even with our extreme 250Mbps internet connection, the modem was able to keep up during even the busiest times.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ![Netgear Nighthawk C7000](https://www.lifewire.com/thmb/lQeMP8N7uIA0CjbxZqkH0q0LICU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4082541-2-8832c46a0891440caed03fdfb4ae3507.jpg)
 
  Lifewire / Claire Cohen
@@ -120,10 +133,16 @@ Lifewire / Claire Cohen
 
  We should also note that the Netgear Nighthawk C7000 doesn’t support[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) or QoS capabilities, which is a disappointing omission in a device this expensive. However, we set up 6 different devices in our living room, all streaming HD video on YouTube. We then ran a speed test to see how it affected the network. We still got about 152 Mbps, even under all that stress. You won’t get full speed when everyone’s hitting the network hard, but it’ll still be serviceable.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Price: A premium that’s worth it
 
  The Netgear Nighthawk C7000 is going to set you back $209, which might sound like a lot if you already have a modem set up. But take a look at your cable and internet bill and see how much you’re paying each month to rent a modem from your ISP. You won’t have to pay that anymore with the Nighthawk C7000\. Over time, this device can actually pay for itself.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Netgear Nighthawk C7000 vs. Motorola MT7711
 
  The Netgear Nighthawk C7000 has plenty of competition—most notably the Motorola MT7711, which retails for $199\. Not only does this Motorola modem have similar specs (24x8 DOCSIS 3.0 channels and AC1900 wireless capabilities), it also includes two phone ports. These ports are compatible with Xfinity’s phone service, so if you have a landline, you can use this modem for that, too. It’s a bit cheaper than Netgear’s modem, and it looks a little cheaper, too.
@@ -135,6 +154,9 @@ Lifewire / Claire Cohen
  **Recommended for anyone with a fast broadband connection.**
  The fact that this modem can pay for itself in time is really the main appeal. But with fantastic performance and good looks thrown in, the Nighthawk C7000 is a no brainer.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Netgear C3700 Cable Modem Router](https://www.lifewire.com/netgear-c3700-cable-modem-router-review-4686094)

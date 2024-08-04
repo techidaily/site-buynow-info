@@ -1,7 +1,7 @@
 ---
 title: "Canon's ELPH 190: Reliable, Reasonably Priced"
-date: 2024-08-02 11:29:21
-updated: 2024-08-03 11:13:40
+date: 2024-08-03T23:03:55.295Z
+updated: 2024-08-04T23:03:55.295Z
 categories:
   - BestProducts
 description: "This Article Describes Canon's ELPH 190: Reliable, Reasonably Priced"
@@ -13,8 +13,14 @@ thumbnail: https://thmb.techidaily.com/528781abe64eff7e57733460b453c6895f2f9ec89
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## New Bee LC-B41 Bluetooth Earpiece
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![New Bee LC-B41](https://www.lifewire.com/thmb/xwUsYAgIVW9583_9I35ND4f0SsQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NewBee_BluetoothHeadsets_LCB41_HeroSquare-2ff9227981ee4cce88d0dccaf0bae6c7.jpg)
 
 Lifewire / Erika Rawes
@@ -66,12 +72,18 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Small and inconspicuous**
 
  The New Bee is relatively small, measuring a little over two inches in length and about 0.6 inches wide. It comes in three different colors: black, white, or gold. The exterior finish is glossy, and it has silver trim that gets thicker at the rounded off bottom portion of the headset. Overall, this headset looks more like a typical electronic device than some of the other units I’ve tested.
 
  There are three hard button controls on the New Bee, which are ideally located for the easiest possible access. On one side sits a physical on and off slider switch, and the other side has a volume control switch. The brand name “New Bee” is printed along the front of the glossy surface, and you press on the front glossy surface of the headset to answer and end calls. Since the call button is so large, it’s easier to answer a call while you’re performing other tasks.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ## **Comfort: Wears well for long periods**
 
  The New Bee LC-41 is lightweight and comfortable to wear for long time periods, but it’s more comfortable without the addition of the ear hook. If you’re not partaking in heavy activity, the New Bee stays in the ear pretty well, but if you’re going to the gym or going for a run, you’ll want the added support of the ear hook.
@@ -100,10 +112,16 @@ Lifewire / Erika Rawes
 
  New Bee features HD voice and CVC (clear voice capture) 6.0 noise cancellation.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: A budget headset under $20**
 
  The price tag is insanely affordable. You can buy the New Bee LC-41 headset for around $17, which is an excellent value considering the battery life and all of the included accessories.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **New Bee LC-41 vs. Jabra Steel**
 
  The[Jabra Steel](https://www.lifewire.com/jabra-steel-review-4843475) headset costs around four times the price of the New Bee, and it offers some advantages like water, shock, and dust resistance. The Jabra is designed for those who need a durable, rugged headset for the outdoors, and it comes with a five-year limited warranty.

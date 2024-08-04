@@ -1,7 +1,7 @@
 ---
 title: Differences Between Sony's PS5 Slim Model and Full-Sized Console
-date: 2024-07-30 17:46:46
-updated: 2024-08-02 12:46:14
+date: 2024-08-03T23:04:24.641Z
+updated: 2024-08-04T23:04:24.641Z
 categories:
   - BestProducts
 description: This Article Describes Differences Between Sony's PS5 Slim Model and Full-Sized Console
@@ -13,8 +13,15 @@ thumbnail: https://www.lifewire.com/thmb/68I6u9msGdO0PAbsjsm9Tjr4KsM=/540x405/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## Netgear Powerline PL1200
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LJwkWIKV_tIoZmxEqV9kr7ByA1Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_HeroSquare-d40232740fc34cdbb9b7197a7bda177d.jpg)
 
 Lifewire / Jordan Oloman
@@ -38,6 +45,9 @@ Lifewire / Jordan Oloman
 
 ## Netgear Powerline PL1200
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/rYExgRawgStvNWLyEyCyiiEqyOI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_HeroSquare-d40232740fc34cdbb9b7197a7bda177d.jpg)
 
 Lifewire / Jordan Oloman
@@ -66,6 +76,10 @@ Lifewire / Jordan Oloman
 
  Lifewire / Jordan Oloman
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ## **Design: Sharp edges and frustration**
 
  The Netgear Powerline 1200 kit doesn’t really care about your living room or bedroom aesthetic. It’s a monolithic, white glossy plastic box that juts out of the wall. If you’re looking for something inoffensive and reserved, the Netgear offering doesn’t deliver. The edges are sharp and the adapter is quite large in order to house all of the technology and the Ethernet sockets necessary to complete the network.
@@ -98,6 +112,14 @@ Lifewire / Jordan Oloman
 
  Lifewire / Jordan Oloman
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: A solid improvement**
 
  Using the device across our living room and bedroom, in two different setups across the course of a month, we found that the Netgear Powerline kit gave us a reliable upgrade to internet efficiency. Our initial connection speed (as per[Speedtest](https://www.speedtest.net/) ) offered a 68.4Mbps download speed, with 3.60Mbps upload speed, and sub-10-millisecond ping. The Netgear kit with an Ethernet cable attached to our laptop afforded us an 88Mbps download speeds and 6Mbps upload speeds.
@@ -128,6 +150,9 @@ Lifewire / Jordan Oloman
 
  The Netgear Powerline 1200 is incredibly reliable, albeit poorly designed. It is obstructive in the design department, fairly ugly to look at and comes with just one connection and awfully short Ethernet cables. Yet it has a true plug and play setup process with no compromises, and offers a reliable upgrade to your home network speeds. If you can look past the strange design choices this is the perfect introductory kit for Powerline beginners that does everything you need it to.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Powerline PL1200

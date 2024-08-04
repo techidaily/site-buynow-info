@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Guide to Kensun Portable Air Compressor: Durability and Mobility Tested"
-date: 2024-08-02 20:51:59
-updated: 2024-08-04 11:54:53
+date: 2024-08-03T23:04:11.535Z
+updated: 2024-08-04T23:04:11.535Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Guide to Kensun Portable Air Compressor: Durability and Mobility Tested"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/a27b3a3de27d6b4c9a23aaf5bc90c6e51b30c3f53
 
 4.9
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ## Jaco SmartPro Digital Tire Inflator Pump
 
 ![Jaco SmartPro Digital Tire Inflator](https://www.lifewire.com/thmb/Zen4KJ79dgFOiAoxcIwd-DLRfas=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/JacoTireInflator_HeroSquare-3363a32b2cad4c91b4662ed6f6a93ce1.jpg)
@@ -38,6 +41,9 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.9
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Jaco SmartPro Digital Tire Inflator Pump
 
 ![Jaco SmartPro Digital Tire Inflator](https://www.lifewire.com/thmb/fTLjCd9CqbSCdmXD-XxJjBhyfSw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/JacoTireInflator_HeroSquare-3363a32b2cad4c91b4662ed6f6a93ce1.jpg)
@@ -64,6 +70,9 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design and Features: Simple, compact, intuitive**
 
  At just 7.5 inches wide, 2.5 inches tall and 6 inches long, this is the smallest, most compact portable tire inflator we tested. When it’s in its carrying case, it only weighs 2 pounds, 31 ounces. Even small children should be able to carry it. If you need a portable tire inflator but don't have a lot of space, this pump is exactly what you want.
@@ -88,6 +97,9 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ## **Setup Process: Up and running in less than three minutes**
 
  Jaco provides a brief, but informative user manual tucked in the carrying case. Despite how intuitive this pump is to use, you should take five minutes to read the whole thing. During testing, we timed how long it takes to get out of your driver’s seat, retrieve the pump from the trunk, connect it to power, attach it to an under-inflated tire, set the pressure and start the pump. On average, the whole process took about 1 minute, 30 seconds.
@@ -96,6 +108,9 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: Reliable across the highways of America**
 
  In order to recreate the situations that you’re most likely to use a portable tire inflator, we took the models we tested on a long road trip through the states of Nevada, Utah, and Wyoming. When we stopped at rural rest areas and gas stations along the way, we deflated the tires on our car to 20 PSI—the point where they are dangerously low to drive on.
@@ -128,6 +143,11 @@ Lifewire / Jeffrey Daniel Chadwick
 
  The Jaco SmartPro Digital Tire Inflator is a great addition to the jumper cables and triangle reflectors in your trunk. Its focus on safety, portability, and accuracy makes it very attractive for people looking to be prepared, and you can usually find it on sale for a reasonable price.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  SmartPro Digital Tire Inflator Pump

@@ -1,7 +1,7 @@
 ---
 title: "The Lenovo ThinkPad X12 Reviewed: A Top-Tier 2-in-1 Laptop with a First-Class Keyboard Design"
-date: 2024-08-01 17:57:16
-updated: 2024-08-04 12:48:51
+date: 2024-08-03T23:03:56.057Z
+updated: 2024-08-04T23:03:56.057Z
 categories:
   - BestProducts
 description: "This Article Describes The Lenovo ThinkPad X12 Reviewed: A Top-Tier 2-in-1 Laptop with a First-Class Keyboard Design"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/80c8f2832769bf50662b01ca1e988a4c71933b23e
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ## Lenovo ThinkPad X1 Titanium Yoga (20QA000EUS)
 
 ![Lenovo ThinkPad X1 Titanium Yoga](https://www.lifewire.com/thmb/TMjKsegUgl5JzAC4gJeK0Xc7aT0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Lenovo-ThinkPad-X1-Titanium-Yoga-1-eed9ce854c7c4e45b1b1312abc4db01e.jpg)
@@ -78,6 +81,9 @@ Lifewire / Matthew S. Smith
 
  Titanium is a durable material with a premium reputation, but it doesn’t look or feel different from aluminum. Lenovo solves this with a bumpy, tactile surface on the X1 Titanium Yoga’s display lid. It’s instantly different from smooth, slippery competitors. This 2-in-1 feels premium and luxurious the moment you pick it up.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ![Lenovo ThinkPad X1 Titanium Yoga](https://www.lifewire.com/thmb/E8GYytfe0kZjbTrwpxN0b8N5aC0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo-ThinkPad-X1-Titanium-Yoga-6-365b06caa6e14007bf0655d04828722e.jpg)
 
 Lifewire / Matthew S. Smith
@@ -102,12 +108,18 @@ Lifewire / Matthew S. Smith
 
  The aspect ratio reminds me of my first laptop: a ThinkPad T42 I purchased in college. I loved that screen’s size, and while the X1 Titanium Yoga isn’t as square, it’s still an upgrade over a traditional widescreen display. The Titanium’s screen is perfect for working with long documents or multitasking with two windows side-by-side.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Lenovo ThinkPad X1 Titanium Yoga](https://www.lifewire.com/thmb/YsLLj2-yQBwEq2GnyyHBwN5giFk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo-ThinkPad-X1-Titanium-Yoga-2-f732e0f2d9e24718a3bc28338febae40.jpg)
 
 Lifewire / Matthew S. Smith
 
  Aspect ratio aside, the display isn’t remarkable. It’s an IPS touchscreen with 2256x1504 resolution, leading to a mediocre pixel density of 201 pixels per inch. That’s not as sharp as the optional 4K displays found on similarly priced alternatives like[Dell’s XPS 13 2-in-1](https://www.lifewire.com/dell-xps-13-7390-2-in-1-review-5113106) . The display has good color accuracy and a respectable contrast ratio of 1000:1, but the same can be said of nearly every alternative from the XPS 13 2-in-1 to[Apple’s MacBook Pro](https://www.lifewire.com/macbook-pro-13-inch-m1-2020-review-5092658) and HP’s Spectre x360 14\.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ## Performance: More than meets the eye
 
  I tested the ThinkPad X1 Titanium Yoga equipped with an Intel Core i5-1130G7 processor, 16GB of RAM, and a 512GB solid-state drive. This close to the laptop’s entry-level configuration, though Lenovo does offer a model with 8GB of RAM and 256GB of storage. An upgraded model with a Core i7-1160G7 processor is available.
@@ -122,6 +134,9 @@ Lifewire / Matthew S. Smith
 
  The 2-in-1’s good benchmark scores translated well to everyday performance. It felt smooth and responsive in a variety of situations and handled more demanding tasks, like photo editing, without much issue. This is not a[workstation laptop](https://www.lifewire.com/best-laptops-to-buy-4043650) , so it has limitations, but its overall performance is impressive given its thin profile and low weight.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Productivity: Another great keyboard from Lenovo
 
  Thin design often comes at the expense of keyboard quality. Surprisingly, the super-think ThinkPad X1 Titanium Yoga avoids this problem. It has a spacious, sensible layout, and key feel is enjoyable. Key travel is just 1.35mm, which is noticeably shallow, but respectable for a thin laptop. I wrote most of this review on the laptop and enjoyed every minute of it.
@@ -148,6 +163,9 @@ Lifewire / Matthew S. Smith
 
  Fast charging is supported, with Lenovo saying that 30 minutes of charging will provide up to 4 hours of battery life. My testing found this was accurate.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## Audio: Clear, crisp, and pointed in the right direction
 
  A pair of 2-watt forward-facing speakers serve the ThinkPad X1 Titanium Yoga’s audio. They’re reasonably loud at maximum volume but have trouble overcoming ambient noise, such as a nearby air conditioner or box fan. They provide clear dialogue and reasonably enjoyable music.
@@ -162,6 +180,13 @@ Lifewire / Matthew S. Smith
 
  However, the laptop only hit 25Mbps to 40Mbps in my detached office, which is about 40 feet from a powerful Wi-Fi 6 compatible mesh router node. It’s a disappointing result, as a desktop with a Wi-Fi 5 adapter exceeds 100Mbps in the same location.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ## Camera: Making the most of 720p
 
  Need to make a video call? The ThinkPad X1 Titanium Yoga’s webcam won’t impress with its sharpness, but the camera is better than most at achieving an attractive, well-balanced image. It’s perfectly usable for meetings or chatting with friends on Zoom.
@@ -172,6 +197,9 @@ Lifewire / Matthew S. Smith
 
  Want privacy? The camera has a physical privacy switch that covers the camera. It only covers the 720p webcam, however: the IR sensor remains uncovered and continues to function when the privacy switch is engaged.
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Software: No bloat here
 
  All ThinkPad X1 Titanium Yoga models ship with Windows 10 Pro. Microsoft’s operating system.[Windows 10](https://www.lifewire.com/windows-10-2626217) is an exceptional desktop operating system with great built-in multitasking features and the best app compatibility of any operating system available on a 2-in-1\. I doubt most ThinkPad buyers want another operating system even if it were available.
@@ -184,6 +212,9 @@ Lifewire / Matthew S. Smith
 
  Prices for the Titanium Yoga X1 go from $1,685 and upwards depending on configuration and coupons, but the upgrades provided by these models are limited to a slightly faster Intel Core i7-1160G7 processor and up to 1TB of solid-state storage. My review unit, which was the $3,369 MSRP model with Core i5 processor, 16GB of RAM, and 512GB solid-state drive, should work for most buyers. At the time of this writing, it's also available for a hefty discount.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Lenovo ThinkPad X1 Titanium Yoga vs. Dell XPS 13 2-in-1
 
  Dell’s XPS 13 2-in-1 is a strong competitor and arguably the best premium Windows 2-in-1 on the market today. Despite the Titanium’s use of its namesake metal, the XPS 13 2-in-1 feels more robust and looks more attractive. The Dell is slightly thicker at 0.51 inches and is heavier at 2.9 pounds. The XPS 13 2-in-1 also holds an advantage in resolution thanks to an option 4K display.
@@ -202,6 +233,9 @@ Lifewire / Matthew S. Smith
 
  The Lenovo ThinkPad X1 Titanium Yoga doesn’t feel as premium as its price suggests, but it’s a highly functional and powerful 2-in-1 that will please frequent travelers. The display’s 3:2 aspect ratio is great for multitasking and the keyboard is enjoyable to use for hours at a time. 2-in-1 shoppers looking for a larger display than a typical 12 or 13-inch widescreen device, without the weight and size of a 14-inch alternative, should give the X1 Titanium Yoga serious consideration.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Lenovo Thinkpad X12 Detachable](https://www.lifewire.com/lenovo-thinkpad-x12-detachable-review-5176484)

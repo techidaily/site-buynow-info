@@ -1,7 +1,7 @@
 ---
 title: Expert Review of Linksys's WRT1900ACS - The Open Source WiFi Router You Should Consider
-date: 2024-07-30 13:39:23
-updated: 2024-08-02 12:44:55
+date: 2024-08-03T23:04:01.265Z
+updated: 2024-08-04T23:04:01.265Z
 categories:
   - BestProducts
 description: This Article Describes Expert Review of Linksys's WRT1900ACS - The Open Source WiFi Router You Should Consider
@@ -13,6 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/If8GxErGHTjgANe1aTqz5h0ZVGM=/400x300/fi
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Sealoc Outdoor TV Full Weatherized 55" UHD Smart Weatherproof LED Television
 
 ![SkyVue 55-inch Sealoc Costal Silver TV](https://www.lifewire.com/thmb/uyIYN745zw-UJZ8sDjpcxk5bhqA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_HERO_Square-a5f526f61e0641158a8503d02b6058b1.jpg)
@@ -36,6 +39,9 @@ thumbnail: https://www.lifewire.com/thmb/If8GxErGHTjgANe1aTqz5h0ZVGM=/400x300/fi
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ## Sealoc Outdoor TV Full Weatherized 55" UHD Smart Weatherproof LED Television
 
 ![SkyVue 55-inch Sealoc Costal Silver TV](https://www.lifewire.com/thmb/hfv-N-kUKUqrdbk4rO9ay7vh_to=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_HERO_Square-a5f526f61e0641158a8503d02b6058b1.jpg)
@@ -75,6 +81,9 @@ thumbnail: https://www.lifewire.com/thmb/If8GxErGHTjgANe1aTqz5h0ZVGM=/400x300/fi
 
  Compared to other outdoor TVs on the market, the SkyVue Sealoc Coastal Silver is slim and sleek, which not only creates a beautiful profile more akin to your average TV, but also makes for a much lighter piece of equipment.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![SkyVue 55-inch 4K Outdoor TV](https://www.lifewire.com/thmb/8jle4bs6PXyy2Qzvq1c0IJW_V2E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_15_Horiz-f55f96dc584047a0b61f1e05f56976cc.jpg)
 
  Lifewire / Gannon Burgett
@@ -91,20 +100,32 @@ thumbnail: https://www.lifewire.com/thmb/If8GxErGHTjgANe1aTqz5h0ZVGM=/400x300/fi
 
  Overall, unless you’re exposing this unit to salty seawater day in, day out, in the harshest environments, I have a hard time seeing how this TV won’t hold up for years to come.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![SkyVue 55-inch 4K Outdoor TV](https://www.lifewire.com/thmb/GJ1StKRMx12EggdPfSJWCSSS7aY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_02_Horiz-1df71300a60d421f848d96050a856fbe-d93884cf38ee40188089dc6d114570d3.jpg)
 
 Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Not much to it**
 
  Getting started with the 55-inch Coastal Silver TV is more or less plug and play. Since it doesn’t come with a stand, you will need some sort of wall mount (this particular model uses 400x400mm VESA mounting points). I suggest getting a great outdoor-specific mount to prevent unwanted rust, but if you’re planning on keeping it in a more covered area, you might be able to get away with a standard wall mount.
 
  Once mounted and plugged in, it’s simply a matter of plugging in your peripherals and turning the TV on. On the topic of peripherals, it’s important to note that unless you’re using a compact stick-style device—such as a[Google Chromecast](https://www.lifewire.com/guide-to-chromecast-2438213) or[Amazon Fire TV Stick](https://www.lifewire.com/amazon-fire-tv-stick-4k-review-4691492) —you’ll want to find a way to run cables to another weatherproof location, as there isn’t any room on the TV itself to mount or hide the devices.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ![SkyVue 55-inch 4K Outdoor TV](https://www.lifewire.com/thmb/OnY0-xZAailZsOzbKDqy1Zy3Gaw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Skyvue_55inch_OutdoorTV_1LW4154865_03_Horiz-65682943818f4cb49f1fe614eaeb18e6.jpg)
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Image and Audio Quality: Fantastic, rain or shine**
 
  While this particular TV is branded as a full-sun Sealoc unit, underneath the branding and weather-sealing it’s an LG 6-series 4K HDR TV that’s been custom calibrated by Sealoc to offer specialized adjustments for optimized viewing in bright or direct-sun environments.

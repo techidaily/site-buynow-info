@@ -1,7 +1,7 @@
 ---
 title: "The Crossover of Chic and Cardio: A Balanced Review of the Amazfit GTS Wearable"
-date: 2024-07-30 22:34:31
-updated: 2024-08-01 11:19:44
+date: 2024-08-03T23:04:41.474Z
+updated: 2024-08-04T23:04:41.474Z
 categories:
   - BestProducts
 description: "This Article Describes The Crossover of Chic and Cardio: A Balanced Review of the Amazfit GTS Wearable"
@@ -38,8 +38,14 @@ Alice Newcome-Beill / Lifewire
 
 4.9
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Apple MacBook Pro 13-inch (M1, 2020)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ![MacBook Pro 13-inch](https://www.lifewire.com/thmb/TqAmFtyGvc2unYMhCqBwCNA1p1o=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Macbook_Pro_M1_2020_04-4d24391cc1a74240a35da5017f4f6a79.jpg)
 
 Alice Newcome-Beill / Lifewire
@@ -68,6 +74,9 @@ _We purchased the MacBook Pro_   _so our reviewer could test out the laptop. Kee
 
  Apart from opening the door to running apps natively on the MacOS, this also adds a surprising amount of speed and makes the new MacBook Pro a game-changer in the world of high-powered[laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) . Along with its superior performance, you get an impressive battery life and the great-feeling keyboard and touchpad you’ve come to expect from Apple. The overall performance blew me away during my weeks of testing.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![MacBook Pro 13-inch](https://www.lifewire.com/thmb/ntkaAZ17MhOZeQmWB7CyrNXS5BE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Macbook-Pro_1M1_2020_03-d4cbb9b7ef82466fa52ba32c1244fc78.jpg)
 
  Alice Newcome-Beill / Lifewire
@@ -80,6 +89,9 @@ _We purchased the MacBook Pro_   _so our reviewer could test out the laptop. Kee
 
  The MacBook Pro features two Thunderbolt/USB 4 ports that support charging, DisplayPort, Thunderbolt 3, and USB 3.1 Gen 2\. If you want additional slots like an SD card reader of USB ports, you’ll need to use a USB-C hub.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Keyboard: A great typing and productivity experience
 
  If you've used a MacBook keyboard recently, you'll know what to expect here as they still use the scissor-type switches. The keys are a backlit chiclet-style design with low travel distance. I initially thought that the keyboard might be too crowded, and while making the leap from a[17-inch laptop](https://www.lifewire.com/best-17-inch-laptops-832683) layout to a 13-inch initially seemed pretty drastic, my fingers quickly acclimated to the smaller layout without too many missteps.
@@ -90,6 +102,9 @@ _We purchased the MacBook Pro_   _so our reviewer could test out the laptop. Kee
 
  Alice Newcome-Beill / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Touchpad: A soft touch
 
  While it didn't feel mushy, the "barely-there" haptic response on the touchpad initially left me wishing for something a little punchier. But Apple has done quite a bit more than just provide us with a large singular button here.
@@ -106,6 +121,9 @@ _We purchased the MacBook Pro_   _so our reviewer could test out the laptop. Kee
 
  The display can hit an impressive 500 nits of brightness, features rich, accurate colors, and great viewing angles. Another noteworthy improvement is the remarkably slim bezel on the 13-inch display, which lends a slick futuristic look to the laptop and gives you just a little more usable real-estate on your screen without increasing the size of the device itself.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![MacBook Pro 13-inch](https://www.lifewire.com/thmb/-G_75srm3Qddt1nvHSP6rMO7yyc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Macbook_Pro_M1_2020_05-10007afca69547238297d4135852b975.jpg)
 
  Alice Newcome-Beill / Lifewire
@@ -138,6 +156,9 @@ _We purchased the MacBook Pro_   _so our reviewer could test out the laptop. Kee
 
  This shift represents an effort on the part of Apple to prove that it can once again innovate in the realm of computing now that it has more control over the overall architecture being used in its systems. While this new silicon boasts some truly impressive boosts to performance overall, there is a small drawback in that some apps that you lean on for productivity may not be fully optimized to work with the M1, even with the improvements brought by Big Sur.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Battery: This fruit has juice
 
  Another of the more noticeable improvements to the MacBook Pro is the extended battery life. I’m happy to report that in my testing, running a[4K](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) movie at maximum brightness on loop, it took the MacBook a little over 18 hours to deplete its charge. This makes Apple's latest laptop one of the best laptops for battery life currently available. What's even more amazing is how quickly it can be topped off. From being completely drained, we were able to boot up and get fully charged using the included adapter in just under an hour and a half.
@@ -156,10 +177,16 @@ _We purchased the MacBook Pro_   _so our reviewer could test out the laptop. Kee
 
  For instance, an HP x360 Spectre with a similar performance configuration will cost around the same as an M1 MacBook. This isn't carte blanche to just bin the MacBook you bought last year but this year's MacBook represents the best value we've seen in an Apple laptop for some time.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![MacBook Pro 13-inch](https://www.lifewire.com/thmb/laPPg5mKf354wXXqoaU3Vz_jRuM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Macbook_Pro_M1_2020_04-4d24391cc1a74240a35da5017f4f6a79.jpg)
 
  Alice Newcome-Beill / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ## Apple MacBook Pro (M1) vs. HP Spectre x360
 
  The HP Spectre x360 does offer slightly more flexibility at a similar price point, thanks to Windows. But even the latest 10th Gen i7 Intel processors really can't match the performance of the new Apple CPUs. The x360 is a slightly more robust machine, in terms of both size and hardware, incorporating more RAM, more storage, and a beefier GPU for better gaming performance. Unfortunately, the extra hardware makes the x360 much heavier, as well as making it run substantially warmer and louder when under load. The extra hardware is also more demanding of the battery, giving the x360 a drastically reduced battery life when compared to the MacBook Pro.

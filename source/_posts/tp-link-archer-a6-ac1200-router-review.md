@@ -1,7 +1,7 @@
 ---
 title: TP-Link Archer A6 AC1200 Router Review
-date: 2024-07-31 17:56:31
-updated: 2024-08-01 10:52:43
+date: 2024-08-03T23:04:00.621Z
+updated: 2024-08-04T23:04:00.621Z
 categories:
   - BestProducts
 description: This Article Describes TP-Link Archer A6 AC1200 Router Review
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/9b5WE0hWNq0hignQSSRGsA0Dy8U=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## TP-Link Archer A6 AC1200 Gigabit Smart Wi-Fi Router
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TP-Link Archer A6 AC1200 Router](https://www.lifewire.com/thmb/hTth7_RTT4bEi0nhlZj7rPvMYL0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_HeroSquare-3758788658a244148a04b7346643557b.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -42,6 +48,9 @@ Lifewire / Jeremy Laukkonen
 
 ## TP-Link Archer A6 AC1200 Gigabit Smart Wi-Fi Router
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TP-Link Archer A6 AC1200 Router](https://www.lifewire.com/thmb/eB886Wl9r3D8YMg227kYv9GRkJs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_HeroSquare-3758788658a244148a04b7346643557b.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -82,6 +91,9 @@ Lifewire / Jeremy Laukkonen
 
  The Archer A6 doesn’t exactly stand out of the crowd, but it’s a definite improvement over the older C7 that I keep around for testing purposes.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Setup Process: Completely painless once you unwrap the antennas**
 
  This router comes fully assembled, which makes it a bit easier and faster to set up than most. I’m not a fan of the fact that you can’t remove the antennas, but it definitely saves a bit of time. Unfortunately, that saved time is mostly wiped out by the ridiculous wrap job TP-Link does on the side antennas.
@@ -96,6 +108,10 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## **Connectivity: Dual-band with MU-MIMO, but lacking in physical ports**
 
  The TP-Link Archer A6 is an AC1200[dual-band router](https://www.lifewire.com/dual-band-wireless-networking-explained-818279) that supports MU-MIMO beamforming. The total throughput is a little on the light side if you have a lot of devices, but MU-MIMO is a nice feature to see in such an affordable unit.
@@ -104,6 +120,9 @@ Lifewire / Jeremy Laukkonen
 
  On the physical side, the A6 comes with a bare minimum single WAN port and four LAN ports. There isn’t even a single USB port, so you can’t use this router to host a networked USB drive.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Network Performance: Decent performance for a budget router**
 
  I tested this router on a Mediacom[Gigabit Ethernet](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) connection, performing extensive tests on the wired Ethernet connection and both wireless bands, in addition to regular use over the course of about five days.
@@ -136,6 +155,9 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Good price for the features**
 
  With an MSRP of $50, the Archer A6 represents pretty decent value for the level of performance and the feature set it offers. You may want to step up to a more expensive unit if you have a big house or a lot of devices, and it is missing features like a USB port, but the Archer A6 is priced very well for what you get.

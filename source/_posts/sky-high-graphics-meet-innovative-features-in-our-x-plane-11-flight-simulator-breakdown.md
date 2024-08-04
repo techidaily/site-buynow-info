@@ -1,7 +1,7 @@
 ---
 title: Sky High Graphics Meet Innovative Features in Our X-Plane 11 Flight Simulator Breakdown
-date: 2024-08-01 16:13:35
-updated: 2024-08-04 10:13:28
+date: 2024-08-03T23:03:55.047Z
+updated: 2024-08-04T23:03:55.047Z
 categories:
   - BestProducts
 description: This Article Describes Sky High Graphics Meet Innovative Features in Our X-Plane 11 Flight Simulator Breakdown
@@ -37,6 +37,9 @@ thumbnail: https://www.lifewire.com/thmb/MBcm7iL0UxUxBoeT9Kt0_tihqzQ=/400x300/fi
 
 3.8
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Microsoft Flight Simulator X: Gold Edition
 
 ![Microsoft Flight Simulator X: Gold Edition](https://www.lifewire.com/thmb/qdqiCl5ARAuMH7mtUAu6szKbUM0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW840502MicrosoftFlightSimX_HeroSquare-ff9662e0ea894d8e8964aa8b64e9af9f.jpg)
@@ -63,6 +66,9 @@ thumbnail: https://www.lifewire.com/thmb/MBcm7iL0UxUxBoeT9Kt0_tihqzQ=/400x300/fi
 
  So how does this legendary flight simulator hold up today? It’s not without its flaws, but the experience is still a solid one. Check out our review here and see for yourself.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![Microsoft Flight Simulator X: Gold Edition](https://www.lifewire.com/thmb/uwjre5Sam8ge-OfnA-CJEUdp8Vo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW840502MicrosoftFlightSimX_02-308281f4a45a45439f265538706d4f33.jpg)
 
  Lifewire / Zach Sweat
@@ -89,6 +95,9 @@ thumbnail: https://www.lifewire.com/thmb/MBcm7iL0UxUxBoeT9Kt0_tihqzQ=/400x300/fi
 
  We chose to go with the Thrustmaster T16000M FCS HOTAS, including the added pedals, which is one of the more popular options that doesn’t cost an arm and a leg. To get your new HOTAS installed, simply plug everything into your computer, connect the pedals, and Windows should recognize the peripherals and set them up. Once they’re ready, you can go into your settings in FSX and fine-tune things, map the buttons and functions to whatever custom functions you prefer, and jump into a game with your new HOTAS.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Microsoft Flight Simulator X: Gold Edition](https://www.lifewire.com/thmb/q7UBmrCRA6IrC6gs4BrRYIfrWRc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW840502MicrosoftFlightSimX_03-a1872076dd974dc1a989684c97e2d45f.jpg)
 
  Lifewire / Zach Sweat
@@ -115,10 +124,16 @@ thumbnail: https://www.lifewire.com/thmb/MBcm7iL0UxUxBoeT9Kt0_tihqzQ=/400x300/fi
 
  The addition of a HOTAS also really adds to the experience and immersion of the game, and we highly recommend picking one up if you can. During our testing, the Thrustmaster T16000M FCS paired quite nicely with FSX and allowed us to custom tailor controls to our liking. The ability to pilot your virtual aircraft with somewhat realistic peripherals definitely adds a nice level of detail to the gameplay.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Microsoft Flight Simulator X: Gold Edition](https://www.lifewire.com/thmb/oUI0sMg_D0Wrf9Maq7QACUvz4sI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW840502MicrosoftFlightSimX_04-a52be5fb83e54c04acfc68a9b28af39d-2c15555da01247beb7532ce91594646d.jpg)
 
 Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ## **Graphics: Like traveling back in time**
 
  It’s no surprise that a game made all the way back in 2006 feels old when it comes to graphics. You won’t be impressed by the lackluster textures, lighting effects or animations in FSX if you’ve never played it in the past.
@@ -131,6 +146,9 @@ Lifewire / Zach Sweat
 
  Aircraft textures on the outside are perhaps the highlight of this area, but the ground, buildings, cockpit, and controls don’t exactly look amazing. You can, however, download some mods to add HD resolutions to things that will help remedy this, and they’re pretty easy to install.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Cheap unless you want the DLC**
 
  So with a 13-year-old game like FSX, you’d expect the price to be quite low, right? While FSX can typically be found for around $25 on Steam, and you can frequently find it on sale for just $5\. This gets you the Gold Edition that includes all the original content and the Acceleration expansion. So for the price, it’s pretty fair—especially considering how many hundreds of hours you can get from the base game.
@@ -139,6 +157,9 @@ Lifewire / Zach Sweat
 
  We should also mention here that there are plans in place for FSX to finally get a true successor in the near future with Microsoft’s Flight Simulator 2020 just on the horizon, so it may be worth it to hold off.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Microsoft Flight Simulator X vs. X-Plane 11 Global Flight Simulator**
 
  The biggest competitor out to FSX is another fan-favorite—X-Plane 11\. While it does feel a little unfair to compare such a new game against FSX, the two are perhaps the best available in the market at this time. The newest flight sim from Microsoft is a much better direct competitor.

@@ -1,7 +1,7 @@
 ---
 title: The Apeman C450 Reviewed - Budget Dashcam Revealed for Safety Enthusiasts!
-date: 2024-07-30 22:48:24
-updated: 2024-08-01 10:13:16
+date: 2024-08-03T23:04:16.795Z
+updated: 2024-08-04T23:04:16.795Z
 categories:
   - BestProducts
 description: This Article Describes The Apeman C450 Reviewed - Budget Dashcam Revealed for Safety Enthusiasts!
@@ -13,8 +13,15 @@ thumbnail: https://www.lifewire.com/thmb/WTlBDsMy0aOOrRnHQ5Khcv2pWZE=/400x300/fi
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ## Xiaomi Mi Smart Band 4
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Xiaomi Mi Smart Band 4](https://www.lifewire.com/thmb/gu5s-Vyv187eoyORVVMpZu9AOVM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xiaomi-Mi-Band-4-Fitness-Tracker-1-0f0e3854f10a4a2595aacd594e37472b.jpg)
 
 Lifewire / Erika Rawes
@@ -73,10 +80,16 @@ Lifewire / Erika Rawes
 
  One area where the Xiaomi Mi 4 really shines is its screen, which is a 0.95-inch full color AMOLED display with 400 nits max brightness. The tempered glass screen is clear and vivid, with a fingerprint resistant coating to help maintain a clean appearance. You can see a huge difference between the screen quality on the Mi Band 4 and its predecessor, the Mi Band 3, which was too dim and difficult to read. The Mi Band 4 is clear and bright, and you can easily read the display from a distance. The interface is well designed too, and you can choose between a large library of different watch faces. I chose a watch face that includes a small image of a unicorn. You can also customize your watch face and add a picture from your photo library.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/oCYh365Kx4bFT1nCDvemWNcGEYI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-6-64089d35ecca457d9f49477537785d34.jpg)
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Comfort: A water resistant removable band**
 
  The Xiaomi Mi Band 4 is water resistant with a 5 ATM rating. This means the band can go in up to 50 meters of water for up to 10 minutes, and it can tolerate shallow water activities like swimming. You can comfortably shower with the band, wear it in the rain, or wear it while you’re drenched in sweat. It doesn’t feel too hot on the wrist either.
@@ -98,6 +111,9 @@ Lifewire / Erika Rawes
 
  On the downside, the step counter overstates steps, and it’ll sometimes track other hand movements as steps, like typing or swinging my arm. The heart rate monitor was dramatically inaccurate by as much as 15 beats per minute compared to a chest strap. However, the accuracy of the heart monitor improved when I placed the tracker in a better location on my wrist. The tracker lacks built-in GPS, and it uses your phone’s GPS for location based tracking.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/b-bHMwN4n7fkxgT3X0dueEvAuZ8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-2-4e096d92f3324689bed126949cdb0a14.jpg)
 
  Lifewire / Erika Rawes
@@ -124,10 +140,16 @@ The 135 mAh battery lasts for up to 20 days.
 
  The only negative about the battery is when it comes time to charge the device. You have to remove the tracker from the band and place it onto a mini charging station. It’s somewhat difficult to remove from the band, and you have to kind of wiggle it out of the band. The unit also fits snugly into the charging station, so you have to gently force the Mi 4 Tracker into the charging station to ensure it’s properly charging. Once you achieve that, it takes about one hour and 45 minutes to reach a full charge.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/kXajF8I7UCVG0wnufwSz3psTRmU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-3-8a9c12e307254854bcd99728db94330c.jpg)
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: An amazing value**
 
  The Xiaomi Mi Smart Band 4 is incredibly affordable, selling for $29 on Amazon. The next gen band, the Mi Band 5, is now hitting the market, which is lowering the price of the fourth generation model. The Mi Band 4 isn’t perfect by any means, and it won’t provide the same experience that you’d get with a tracker that costs hundreds of dollars, but it’s a steal at its price point.
@@ -142,6 +164,9 @@ The 135 mAh battery lasts for up to 20 days.
 
  The Xiaomi Mi Smart Band 4 offers a lot of features for a little bit of cash.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Mi Smart Band 4

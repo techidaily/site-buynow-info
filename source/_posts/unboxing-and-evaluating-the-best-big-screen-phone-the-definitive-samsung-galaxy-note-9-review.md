@@ -1,7 +1,7 @@
 ---
 title: "Unboxing and Evaluating the Best Big Screen Phone: The Definitive Samsung Galaxy Note 9 Review"
-date: 2024-08-01 15:52:57
-updated: 2024-08-03 11:38:50
+date: 2024-08-03T23:04:45.615Z
+updated: 2024-08-04T23:04:45.615Z
 categories:
   - BestProducts
 description: "This Article Describes Unboxing and Evaluating the Best Big Screen Phone: The Definitive Samsung Galaxy Note 9 Review"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/e274a732c7d0d3f61527d48aecc65a65fbbf84ca4
 
 ## Samsung UN65NU8000FXZA
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/p_vV8LWwbJ2oMuL1UYGHR2p4huI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-1-97ff5fdad950453785f7a3f5491bf8fd.jpg)
 
 Lifewire / Andy Zahn
@@ -41,6 +44,18 @@ Lifewire / Andy Zahn
 
 ## Samsung UN65NU8000FXZA
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/J81HLCswW9vG3SGkOY0nkv2_soM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-1-97ff5fdad950453785f7a3f5491bf8fd.jpg)
 
 Lifewire / Andy Zahn
@@ -69,6 +84,9 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Big and tough**
 
  The Samsung NU8000 is an elegant television with an attractive rear exterior, thin profile, and discretely sized bezels. As a 65” display you can expect it to dominate all but the most cavernous living rooms, but thanks to that slim profile and its slender bezels it occupies the minimum amount of space possible for such a large screen.
@@ -95,6 +113,9 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ## **Image Quality: A real letdown**
 
  The good news is the NU8000 delivers great[4k](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) details; the bad news is that colors and contrast are flawed and muted. We immediately noticed the problems this TV has with rendering HDR content. Watching films and TV shows in movie mode provided the best experience, but trying to view nature shows, high-resolution photos, or other content where highly accurate colors and dynamic range are important demonstrated this screen’s faults.
@@ -111,6 +132,9 @@ Lifewire / Andy Zahn
 
  Overall we were disappointed by the quality of image of this TV, and that’s a big mark against a device whose primary purpose is to provide an excellent cinematic viewing experience. With a less expensive display, we would not be so bothered by such issues, but the $1,000 price tag warrants holding the NU8000 to a higher standard.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/0imcVI8dzYw11TAOKkt8EnXJE5k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-2-0c325c2d3f1e448d9d0b10f24152a097.jpg)
 
  Lifewire / Andy Zahn
@@ -119,10 +143,16 @@ Lifewire / Andy Zahn
 
  The speakers in the NU8000 are not bad at all for built-in TV[speakers](https://www.lifewire.com/best-surround-sound-speakers-4059402) . They provide decent overall sound quality that's just a little flat sounding. This flatness can be easily fixed in software to provide a much punchier and more satisfying listening experience. It won’t replace a good surround sound system, but they're more than adequate. This screen would work well in a minimalistic space-saving setup.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/AXYnUtoRwLv0QLo0Xm0_W28X-zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-5-531f7de77d9746ba993c9966f10920be.jpg)
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: A little slow**
 
  Samsung has built an excellent interface for its smart TVs, and the NU8000 is no exception. All your favorite apps are here, many of them pre-installed. Navigation is easy, and we had no trouble changing settings or finding our way around apps. Smart home, AI assistant, and voice integration capability allow you to configure it as a nerve center for your connected devices.
@@ -135,6 +165,9 @@ Lifewire / Andy Zahn
 
  With an MSRP of $999 the NU8000 is certainly no bargain, especially considering that superior displays are available for the same cost. However, as this is an older TV it may be possible to find steep discounts that make up for its deficiencies.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Competition: NU8000 vs RU8000**
 
  When talking about the NU8000 it's impossible not to compare it to the newer and superior RU8000, especially considering their identical MSRP. Though in most respects they're technically identical, clearly there is a lot going on under the hood that elevates the RU8000 over the NU8000\. The display of the RU8000 provides noticeably better contrast and color rendition than the NU8000\. The software, though identical, runs much more smoothly on the RU8000, and the connection of the remote control was much more reliable.

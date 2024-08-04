@@ -1,7 +1,7 @@
 ---
 title: Can You Trust Inexpensive SSL Providers?
-date: 2024-08-01 18:45:50
-updated: 2024-08-04 12:54:50
+date: 2024-08-03T23:03:54.327Z
+updated: 2024-08-04T23:03:54.327Z
 categories:
   - BestProducts
 description: This Article Describes Can You Trust Inexpensive SSL Providers?
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/Z9ymr03xR0-Ps9_0u85DKMDPW10=/400x300/fi
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ## Motorola MG7700 Cable Modem and Router
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ![Motorola MG7700](https://www.lifewire.com/thmb/wUfud-dw3x-fQBAILjgQYd_Srx4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-4082541-3-2-5c8fadb846e0fb00014a9735.jpg)
 
 Lifewire / Claire Cohen
@@ -38,8 +44,14 @@ Lifewire / Claire Cohen
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## Motorola MG7700 Cable Modem and Router
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ![Motorola MG7700](https://www.lifewire.com/thmb/3X3Cjz1mO5USWmPRXT1W5zSdqOE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-4082541-3-2-5c8fadb846e0fb00014a9735.jpg)
 
 Lifewire / Claire Cohen
@@ -66,12 +78,18 @@ Lifewire / Claire Cohen
 
  We recently reviewed the MG7700 to examine just how well it would perform in an average home environment by evaluating the design, ease of setup, network speeds, and software features.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Design: Simple and functional
 
  The Motorola MG7700 is fairly compact at 9.1 x 2.6 x 2.6 inches with a gray finish and a black stand. On the front of the device, you’ll find several indicator lights that tell you if it’s powered up, whether any traffic is flowing through your network, and if people are connected to your wireless network. The light indicators are easy to see and understand — something you don’t typically find in a modem from your cable company.
 
  The MG7700 has a power port on the back, as well as a coaxial port for connecting your service provider’s cable to the device. There are also four[local area network](https://www.lifewire.com/what-is-lan-4684071) (LAN) ports if you want to directly plug your computers and other devices into the modem using an Ethernet cable.
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Motorola MG7700](https://www.lifewire.com/thmb/djrbmUe-WrBQ_Tx-xD6258JjBmU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-4-5c8faefcc9e77c0001a926be.jpg)
 
  Lifewire / Claire Cohen
@@ -112,6 +130,9 @@ Lifewire / Claire Cohen
 
  The “1900” represents the maximum theoretical bandwidth the router is capable of. In this case, the MG7700 could hit 1,900 Mbps, but again, this is only if your cable provider supports it, not to mention other factors like wireless interference due to congested bands and throttling from your provider.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Network Performance: Fast speeds with a caveat
 
  Once we got the modem up and running, it delivered outstanding speeds, reliably maxing out our 100 Mbps Spectrum plan when we were hard-wired via the LAN ports.
@@ -130,6 +151,9 @@ Lifewire / Claire Cohen
 
  Overall, if you live in a large apartment or a modestly-sized home, you won’t be disappointed by the performance of the MG7700.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Software: User-friendly options
 
  The MG7700’s built-in software is customizable, too. Once your router is set up, you can go to a specified IP address (the instructions will tell you which one) in your Web browser to change settings, including the name of the default network, enabling password protection, toggling the channels your router will communicate on, and more. There’s also an Advanced page that allows you to set up a[firewall](https://www.lifewire.com/definition-of-firewall-817568) or enable parental controls. Overall, the settings are well laid out, easy to understand, and simple to change.

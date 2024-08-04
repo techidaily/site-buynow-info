@@ -1,7 +1,7 @@
 ---
 title: Studio Softbox Review for Novice Producers
-date: 2024-07-30 20:28:51
-updated: 2024-08-02 10:25:12
+date: 2024-08-03T23:04:48.676Z
+updated: 2024-08-04T23:04:48.676Z
 categories:
   - BestProducts
 description: This Article Describes Studio Softbox Review for Novice Producers
@@ -15,6 +15,10 @@ thumbnail: https://www.lifewire.com/thmb/QbTgN-CTQwWhwZPq9bGuXndHr0k=/400x300/fi
 
 ## Microsoft Surface Studio 2
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/w3_fclKJrwWKMdjNp4uFWrKqJLs=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4045927-1-64302c6de74c465d96dcc32ed60ef388.jpg)
 
 Lifewire / Gannon Burgett
@@ -38,6 +42,9 @@ Lifewire / Gannon Burgett
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Microsoft Surface Studio 2
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/NDm3E4PyU6ziij20SUPJFRRc6pY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4045927-1-64302c6de74c465d96dcc32ed60ef388.jpg)
@@ -84,16 +91,25 @@ Lifewire / Gannon Burgett
 
  Moving onto the included accessories, the Surface Keyboard, Surface Mouse, and Surface Pen all felt well-built and thoughtfully designed. They didn’t blow us away, but they feel substantial and should easily last the life of the computer without issue. We would’ve liked to see a Surface Dial tossed in there as well, considering how much the Surface Studio 2 costs and artists and graphic designers being the clear target market.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ## **Setup Process: Quick and simple**
 
  Setting up the Microsoft Surface Studio 2 was rather straightforward. The box it comes in is securely packaged, and designed to handle a bit of abuse on the way to your house. After unpacking, all we had to do was plug in the computer and remove the plastic battery tabs on the Surface Keyboard and Surface Mouse. The Surface Pen should work just fine out of the box.
 
  The software side of setup wasn’t nearly as quick as we had hoped. Despite having a fast internet connection, the setup time took approximately ten minutes, not including an additional system update, which added another five minutes. Microsoft’s Cortana walked us through the setup with audible and on-screen directions, and even tossed in a few snarky comments here and there along the way. Setup also included the process of adding your face for the facial recognition log-in option.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/2YGEvu4_h4VAgUiecjNAvd56F9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-7-0e52038c30364530a5a9bd0ac7011cb7.jpg)
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Display: A treat for your eyes**
 
  The Surface Studio boasts a 28-inch 4500-by-3000 PixelSense display in a 3:2 aspect ratio. It’s a good size and ratio for drawing and graphic design, while the 192 pixels per inch (ppi) makes it crisper than 2K panels. It’s not as pixel-dense as the smaller screen on the 21.5-inch 4K iMac, but the resolution is actually about the same. And unlike the iMac, it’s a 10-point multitouch touchscreen, essentially turning the entire panel into a giant tablet.
@@ -104,6 +120,9 @@ Lifewire / Gannon Burgett
 
  The Zero Gravity hinge allows it for easy adjustment, letting us use it at almost, ranging from nearly flat to fully upright. If you have the Surface Dial you can also unlock a lot of functionality when it comes to photo and video editing. Its omission despite the high price of the Studio feels like a big downside.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/WBpMM3f4iH20J7-9H_NzD1zeBl4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-8-22d53ea12b7c48988b4840af9fb744c4.jpg)
 
  Lifewire / Gannon Burgett
@@ -120,6 +139,9 @@ Lifewire / Gannon Burgett
 
  Overall, the Surface Studio 2 performed admirably considering the rather dated hardware inside, but it would’ve been nice to see a little more processing and graphics power from one of the most expensive desktops on the market. It will handle nearly any graphics program you can throw at it, including Adobe Photoshop, Adobe Lightroom, and various drawing/sketching applications, but don’t plan on rendering 4K video.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/DQ79oTyDKH66WhnF-xIt9ZmemlY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-2-ccf0f17e9c0743edafecfed3f5621135.jpg)
 
  Lifewire / Gannon Burgett
@@ -130,10 +152,16 @@ Lifewire / Gannon Burgett
 
  With both wireless and wired connections, the Surface Studio 2 excelled at every test we threw at it. It didn’t matter whether it was next to the router or a few rooms over, transfer speeds were on target every time with solid ping times to boot.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/rkvuGygIghO9k9Je4rikzH5HvaE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-4-1b719f36dcb3448c9da40160faa18954-a32c44e2f9ca4ed3b4d670458dc6d5f0.jpg)
 
 Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ## **Camera: Decent and usable**
 
  The only camera on the Surface Studio 2 is a 5-megapixel front-facing camera. In addition to capturing stills and Windows Hello facial authentication, it also records 1080p video with dual microphones for audio. The camera proved impressive for an integrated camera and is more than good enough to use for conference calls and even streaming if you have a decent light source on hand.
@@ -178,6 +206,9 @@ Lifewire / Gannon Burgett
 
  The Microsoft Surface Studio 2 has some stand-out features. The massive 28-inch PixelSense touchscreen is the best in the business, the Surface Pen is incredibly responsive, and, as a whole, the machine is beautiful—one of our favorite Microsoft all-in-one’s to date. However, it’s incredibly underpowered for the price Microsoft is charging and while it’s neat, many of its features feel as though they’re designed for a very niche crowd of content creators who are using more affordable iMac’s.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Surface Studio 2

@@ -1,7 +1,7 @@
 ---
 title: The Lenovo P11 Pro Tablet Examined - Exceptional Qualities Marred by Some Limitations
-date: 2024-07-30 21:18:39
-updated: 2024-08-02 12:39:44
+date: 2024-08-03T23:04:40.132Z
+updated: 2024-08-04T23:04:40.132Z
 categories:
   - BestProducts
 description: This Article Describes The Lenovo P11 Pro Tablet Examined - Exceptional Qualities Marred by Some Limitations
@@ -42,8 +42,19 @@ Andy Zahn / Lifewire
 
 4.2
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Lenovo Thinkpad X1 Fold
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Lenovo Thinkpad X1 Fold](https://www.lifewire.com/thmb/m_vIjFrzd75ye5pEp_0Px7yJw4Y=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_horiz_Lenovo-X1-Fold-1-14756f522df84525a64a007692b7a0ff.jpg)
 
 Andy Zahn / Lifewire
@@ -75,10 +86,16 @@ Andy Zahn / Lifewire
 
  As with any pioneering technology, early adopters can expect to encounter pitfalls and teething troubles in Lenovo’s first folding screen laptop, but could they be outweighed by the exciting advantages of such a flexible device?
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Lenovo Thinkpad X1 Fold](https://www.lifewire.com/thmb/3KFmSYd3_u5cpUuIhOmkCh6JkRk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo-X1-Fold-3-8b72e61b43a8491294d1ce6a241efa66.jpg)
 
 Andy Zahn / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ## Design: Bizarre and beautiful shapeshifter
 
  There really is nothing quite like the Lenovo X1 Fold; it’s truly the first commercially available folding screen[PC](https://www.lifewire.com/what-is-a-pc-4780849) , and taking it out and using it for the first time is a novel experience. Getting used to folding a screen in half takes time, and I was bracing myself for the crunch of breaking glass, which thankfully never came.
@@ -93,6 +110,9 @@ Andy Zahn / Lifewire
 
  The interior is a different story, with its large screen that appears distorted and lumpy when powered off and folded out flat. It also has wide matte plastic bezels which make the interior look rather rough and unfinished, but after using the X1 Fold for a while I came to appreciate the bezels for the comfortable handholds that they are. They are soft and tactile, and can really help you hold on to the device. Coupled with the soft leather back, this is a shockingly ergonomic laptop, regardless of what shape it’s currently in.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Lenovo Thinkpad X1 Fold](https://www.lifewire.com/thmb/p0Qc_HB2JX9ZmWvnGQvS7H2Ox9g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo-X1-Fold-7-c4b412e5b6f1404d91668a87bfa69dcc.jpg)
 
 Andy Zahn / Lifewire
@@ -113,16 +133,25 @@ Andy Zahn / Lifewire
 
  My only nitpick is that though viewing angles are very good, the two halves do appear differently due to the varying angles when they are viewed in tablet mode. However, this wasn’t too noticeable or distracting, so it doesn’t really count against the overall excellence of the display. Generally, its aspect ratio is more suited to productivity than media consumption, however, the screen is so vibrant and detailed that movies and shows look great on OLED display, and you can easily ignore the black bars on the top and bottom of the screen.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Setup Process: Straightforward but lacking instructions
 
  The initial setup of[Windows 10](https://www.lifewire.com/windows-10-2626217) went pretty much as normal, though once I got to the desktop there were more than the usual number of firmware and software updates to run. Connecting the Bluetooth keyboard was fairly straight forward, though the power switch on the keyboard is minute and a little tricky to operate.
 
  The Lenovo Mod pen required charging, and this was a little tricky as there don’t seem to be any included instructions for its operation, so I had to look it up. Turns out that the pen opens up to reveal a USB-C port for charging. A small note with accessory setup instructions would have been a big help.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Lenovo Thinkpad X1 Fold](https://www.lifewire.com/thmb/j5U_8HjS3EvXmRyJ91p3AqZMN_Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo-X1-Fold-5-ad46569defe340729f981eba9de378de.jpg)
 
 Andy Zahn / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ## Navigation: A device of many inputs
 
  Using the X1 Fold is an interesting experience, to say the least, but despite being a bit rough around the edges, it really does deliver on its promise of flexibility. The[touchscreen](https://www.lifewire.com/what-is-a-touchscreen-4144770) is as responsive as any other, though when partly folded it can be somewhat tricky to tap things right on the crease.
@@ -137,6 +166,9 @@ Andy Zahn / Lifewire
 
 Andy Zahn / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Performance: A distinct lack of power
 
  With only 8GB of[RAM](https://www.lifewire.com/what-is-random-access-memory-ram-2618159) and an Intel Core i5, you wouldn’t guess that the X1 fold has much in the way of power, and you’d be correct. In the PC Mark 10 test, it came away with a meager score of just 2,470, which is absolutely abysmal, and not what you’d expect from a laptop equipped with a 10th gen Core i5\.
@@ -163,12 +195,18 @@ Andy Zahn / Lifewire
 
  The 5MP webcam in the X1 Fold is no better or worse than I’d expect. It provides acceptable results given good light, and can capture video up to 1440p[resolution](https://www.lifewire.com/what-is-resolution-2767449) . Its placement on one of the short sides of the screen makes it more ideal for use with the X1 Fold in laptop or vertical tablet mode than in landscape tablet mode.
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Connectivity: Fast and flexible
 
  The X1 Fold features[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , Bluetooth 5.1, and a nano Sim slot, so you can potentially connect to a cellular network. This makes the X1 Fold one of the faster and more versatile laptops out there in terms of connecting with the world. I never had reason to complain about its Wi-Fi performance or the reliability of its Bluetooth.
 
  Don’t plan on using the X1 Fold for anything more than the most basic of photo editing and graphic design applications.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Battery Life: Reasonably long-lasting
 
  Lenovo’s claims of 8.5 to 10.4 hours of battery life was fairly accurate. This is definitely adequate, though not terribly impressive by modern laptop standards. It will get you through a day of work without having to recharge, depending on use, of course.
@@ -181,6 +219,9 @@ Andy Zahn / Lifewire
 
 Andy Zahn / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Lenovo Thinkpad X1 Fold vs. Dell XPS 13 7390 2-in-1
 
  If you don’t mind giving up a little bit of flexibility, the Dell XPS 13 7390 2-in-1 offers a thinner, lighter, more refined experience for nearly $1000 less. It’s more powerful, and has significantly more storage capacity, as well as an awesome trackpad and keyboard that make it so much better for typing. Although the XPS 13 will be the better choice for most people, the X1 Fold offers flexibility beyond compare and a glimpse into the exciting technology of the future.

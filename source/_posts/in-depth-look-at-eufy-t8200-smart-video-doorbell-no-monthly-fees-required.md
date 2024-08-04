@@ -1,7 +1,7 @@
 ---
 title: In Depth Look at Eufy T8200 Smart Video Doorbell - No Monthly Fees Required!
-date: 2024-07-30 13:51:52
-updated: 2024-07-31 12:15:23
+date: 2024-08-03T23:04:46.804Z
+updated: 2024-08-04T23:04:46.804Z
 categories:
   - BestProducts
 description: This Article Describes In Depth Look at Eufy T8200 Smart Video Doorbell - No Monthly Fees Required!
@@ -38,8 +38,14 @@ Lifewire / Hayley Prokos
 
 5
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Urban Armor Gear UAG MacBook Pro 13-inch Laptop Case
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/thmb/FtpULeJDToDCBy6PB_Y8rD7mqOg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4153328-1-7cd2eca904ca419e9039c9fdcbdfbbcd.jpg)
 
 Lifewire / Hayley Prokos
@@ -65,6 +71,9 @@ Lifewire / Hayley Prokos
 
  You’ll also likely want to find an option that has an extremely snug fit and a good grip, and that is overall thoughtfully designed with layers of protection. That option could be Under Armor Gear’s MacBook Pro 13-inch Laptop Case, a strategically-designed case that can withstand a drop.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/thmb/fDMp2JRg--bQrlqwhfek_u8CqRE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4153328-3-c586304cdf4944919286e35a760d720f.jpg)
 
  Lifewire / Hayley Prokos
@@ -87,6 +96,9 @@ Lifewire / Hayley Prokos
 
  Lifewire / Hayley Prokos
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: A one-time deal**
 
  On the UAG website, you’ll find a YouTube video designed to guide users through the installation of the case. You should watch it before installing it yourself in order to avoid scratching or otherwise damaging your MacBook Pro.
@@ -101,6 +113,9 @@ Lifewire / Hayley Prokos
 
  The only hassle we encountered when testing usability was the snap closure, which is great for keeping your laptop shut in transit but difficult to pry open when trying to use your computer.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/thmb/9Y7LLmqrhHo_Pbzks49nRtjt4ws=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4153328-4-49105513ae5d4a97ac284ce462185b5d.jpg)
 
  Lifewire / Hayley Prokos
@@ -113,6 +128,9 @@ Lifewire / Hayley Prokos
 
  We dropped the case from standing height on a variety of surfaces … and it sustained virtually no damage (a few superficial scratches at most).
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: A small sum to pay to protect such expensive hardware**
 
  The Urban Armor Gear MacBook Pro 13-Inch Laptop Case retails for $79.95, which is definitely on the more expensive end of the spectrum for a laptop case. But if you are taking your laptop into rugged conditions or you’re simply accident-prone, we think $80 seems a fair amount to pay to keep your far-more-pricey MacBook safe.
@@ -137,6 +155,10 @@ Lifewire / Hayley Prokos
 * [Twelve South BookBook V2 MacBook Case](https://www.lifewire.com/twelve-south-bookbook-v2-macbook-case-review-4689949)
 * [Fintie Protective Case for MacBook Pro 13](https://www.lifewire.com/fintie-protective-case-for-macbook-pro-13-review-4689944)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  UAG MacBook Pro 13-inch Laptop Case

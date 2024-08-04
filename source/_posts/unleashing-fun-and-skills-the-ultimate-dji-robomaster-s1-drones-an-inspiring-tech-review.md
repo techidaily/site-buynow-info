@@ -1,7 +1,7 @@
 ---
 title: "Unleashing Fun & Skills: The Ultimate DJI RoboMaster S1 Drones - An Inspiring Tech Review"
-date: 2024-08-02 21:37:53
-updated: 2024-08-03 12:41:11
+date: 2024-08-03T23:04:00.670Z
+updated: 2024-08-04T23:04:00.670Z
 categories:
   - BestProducts
 description: "This Article Describes Unleashing Fun & Skills: The Ultimate DJI RoboMaster S1 Drones - An Inspiring Tech Review"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/5c5beff306decd9e31c3216a57ffb320c5012e171
 
 ## Mobvoi TicWatch Pro 3 GPS
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/wXSOotjbAduhYyUz7IKsUnjxMCY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_HeroSquare-666cef27669e4f4ea53d69a546098b20.jpg)
 
 Lifewire / Yoona Wagener
@@ -38,8 +41,14 @@ Lifewire / Yoona Wagener
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Mobvoi TicWatch Pro 3 GPS
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/N-GQ6pPXvhJw5LQ_NHsY_n8NkZQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_HeroSquare-666cef27669e4f4ea53d69a546098b20.jpg)
 
 Lifewire / Yoona Wagener
@@ -66,6 +75,9 @@ Lifewire / Yoona Wagener
 
  This Wear OS device is friendly to both iPhone and Android users, though it's decidedly still more beneficial to the latter. Despite missing out on some key features best for[Android phones](https://www.lifewire.com/best-android-smartphones-577403) and generally feeling like this was just a bit too much watch for my wrist, I came away from a few days of use impressed by the battery life and solid workout tracking.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Design: Sleek and sporty with a large display
 
  If you enjoy a prominent display, the TicWatch Pro 3 offers that in spades, with a unique 1.4-inch two-fold design. The top layer is an always-on, low-light display that's usable in an extended battery-saving mode (Essential Mode). Underneath this efficient layer, you'll find a bright 454 x 454 Retina AMOLED display that adjusts automatically based on the amount of available light. Mobvoi also offers an extensive library of watch faces on the device itself or through the companion apps.
@@ -86,6 +98,9 @@ Lifewire / Yoona Wagener
 
  One surprising and slightly disappointing aspect of the design is the watch's lack of durability. Though it's safe for swimming, I avoided showering with it after consulting the product documentation and forums. Contrary to the IP68 rating, Mobvoi doesn't recommend this for use in the shower or any contact with soapy water—and won't offer a replacement if you experience performance issues after doing so.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/dmQpg73jtc8s6Xxx-CSGe6DOKEc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_04-262f4af125a04f3fab6055508f2c6d3b.jpg)
 
 Lifewire / Yoona Wagener
@@ -96,6 +111,9 @@ Lifewire / Yoona Wagener
 
  As a fitness tracker, the TicWatch Pro 3 performs adequately. GPS capture was usually quite fast with some lags on cloudy days, and when compared to a Garmin smartwatch, it wasn't far off on distance, average page, and heart rate on running workouts.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/24UwZRaSR9Dx9_LbhC0ICDpEF2s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_03-35584bf0589a4ad19fcd9280d973018c.jpg)
 
 Lifewire / Yoona Wagener
@@ -112,6 +130,9 @@ Lifewire / Yoona Wagener
 
  You have options for catering the experience to you, which is appealing, but this watch does present a bit of an identity crisis between Wear OS and Mobvoi rather than a seamless partnership.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/ThEB2Hv12xN060OsalPhyRbn4bY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_05-15d86ca8cd8548709c66efced9dfb14a.jpg)
 
 Lifewire / Yoona Wagener
@@ -158,6 +179,9 @@ Lifewire / Yoona Wagener
 
  The Mobvoi TicWatch Pro 3 GPS is a sporty, sleek smartwatch with good looks and great battery life. While the larger profile won't fit everyone, Android users, in particular, will find a lot to enjoy about this customizable wearable that functions as a daily workout tracker, smartwatch companion, and reliable time-telling accessory.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Apple Watch SE](https://www.lifewire.com/apple-watch-se-review-5088223)

@@ -1,7 +1,7 @@
 ---
 title: "Inexpensive, Yet Frustrating: The Nikon COOLPIX A10 Story"
-date: 2024-08-01 15:10:59
-updated: 2024-08-02 10:35:32
+date: 2024-08-03T23:04:43.182Z
+updated: 2024-08-04T23:04:43.182Z
 categories:
   - BestProducts
 description: "This Article Describes Inexpensive, Yet Frustrating: The Nikon COOLPIX A10 Story"
@@ -38,6 +38,9 @@ Lifewire / Scott Gercken
 
 3.5
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ## Nikon Coolpix A10
 
 ![Nikon COOLPIX A10](https://www.lifewire.com/thmb/YC6hZEGkRUots77n6cg8D4tnDfs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_03LW3897833-1-7909edb954234ba998fda175019f4ce7.jpg)
@@ -74,6 +77,9 @@ Lifewire / Scott Gercken
 
  Lifewire / Scott Gercken
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Straightforward and simple**
 
  Like most point-and-shoot cameras, setup is simple. We just inserted the included AA batteries, put in the SD card (not included), and turned it on. The camera ran us through the standard steup (date, time, etc.) and then was ready to go.
@@ -106,6 +112,9 @@ Lifewire / Scott Gercken
 
  We took video both indoors and outdoors, in shade and in the sun. Indoor video was very noisy, and it didn’t get much better when we went outside in great light. We took a comparison video with an old iPhone SE (12 MP camera), and the iPhone had drastically better video quality in all kinds of light. If quality video is important to you, this is not the camera for you.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ## **Software: Not worth mentioning**
 
  The Nikon COOLPIX A10 uses .jpg files for photographs and .avi for movies. While the easiest way to retrieve your photos is through the SD card, Nikon has its own software to pull both photos and videos off the camera, a suite called ViewNX-i which includes both photo software and video editing software as well. One problem: we couldn’t figure out how to install it on the Mac we tested. We downloaded the right files and followed the instructions (several times), but nothing happened.
@@ -114,10 +123,30 @@ Lifewire / Scott Gercken
 
  Fortunately, the COOLPIX A10 works easily with other photo library software, so we didn’t have to rely on Nikon. You should note, however, that the COOLPIX A10 does not come with a USB cord, an annoying oversight. The Nikon COOLPIX A10 also has some basic editing features, but they aren’t worth using if you have a competent PC. You can apply a couple gimmicky filters, and you can crop photos, but why would you try to do any editing on this tiny screen when you could use your computer? It feels like a feature set that some marketing exec dreamed up so they could claim the COOLPIX is ready for Instagram.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ## **Price: Low-priced camera with some major flaws**
 
  The Nikon COOLPIX A10 has a list price of $75, around the same price as many entry-level digital cameras. It takes decent photos, so you can grab some nice vacay pictures at the beach or camping without exposing expensive gear to the weather. Our only major hesitation is around the lengthy delay between taking photos.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Competition: Phone and camera options**
 
 **iPhone 6s:** It’s becoming more and more difficult to justify a separate digital camera from our phones. The iPhone 6s does have a 12 MP camera against the COOLPIX’s 16, but that really only matters if you’re looking to print large photos or need extremely high resolution images. Often, it takes better photos than the COOLPIX A10, and it’s video capabilities are much better.. It doesn’t, however, have the ISO, white balance, or exposure options that the Nikon COOLPIX A10 has, and comes with a slightly larger price tag. We saw prices between $100 and $250 depending on the options, but for that price you also get an iPhone and all the additional functionality that comes with it.
@@ -130,6 +159,9 @@ Lifewire / Scott Gercken
 
  While the Nikon COOLPIX A10 takes beautiful photos, the user experience ruins the camera. It’s difficult to use and locks up for a few seconds after every photo. The sheen of high quality images quickly fades when you’re staring at a warning indicator for long, static moments. Other entry-level cameras perform much better.
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Coolpix A10

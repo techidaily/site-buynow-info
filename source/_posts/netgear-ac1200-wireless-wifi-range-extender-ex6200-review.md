@@ -1,7 +1,7 @@
 ---
 title: Netgear AC1200 Wireless WiFi Range Extender (EX6200) Review
-date: 2024-07-31 14:42:15
-updated: 2024-08-02 11:49:35
+date: 2024-08-03T23:04:00.928Z
+updated: 2024-08-04T23:04:00.928Z
 categories:
   - BestProducts
 description: This Article Describes Netgear AC1200 Wireless WiFi Range Extender (EX6200) Review
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/TmDOFeGHXlA2eEwc65iiUVoWGUY=/400x300/fi
 
 ## LIHAN Bluetooth Handsfree Car Charger FM Transmitter
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![LIHAN LHFM1039 Wireless Bluetooth FM Transmitter](https://www.lifewire.com/thmb/F3BtUGS_Qy6TmbecYqkyRTw0K1w=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_05LW1999388-1-a0e26e2481c1466eb7c6ba19b61ac1e5.jpg)
 
 Lifewire / Benjamin Zeman
@@ -61,10 +64,16 @@ Lifewire / Benjamin Zeman
 
  The LIHAN Bluetooth FM Transmitter is a Bluetooth module for the 12V power outlet in your car that comes in a small package. If you have an older model car without Bluetooth, an FM transmitter can bring you into the modern age—but not all transmitters are created equal. Let’s take a closer look at the design, usability, audio quality, and features to see how well this little transmitter performs.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![LIHAN LHFM1039 Wireless Bluetooth FM Transmitter](https://www.lifewire.com/thmb/mSg2vet114ak7qOuKwbfQVm4tOU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/05LW1999388-2-fec4e7b0197b432aa940131587d54294.jpg)
 
  Lifewire / Benjamin Zeman
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Simple and average**
 
  We tested this transmitter in a 2018 Toyota RAV4, which has two cigarette lighter inputs under the dash. Having a small form factor mean that the Lihan bluetooth FM transmitter fit well in our vehicle. It measures 5.12 x 1.81 x 2.76 inches and 1.76 ounces, with a face that’s a little larger than we expected; we’ve seen smaller[transmitters](https://www.lifewire.com/best-iphone-fm-transmitters-for-car-1999388) , like the Aphaca BT69.
@@ -81,6 +90,9 @@ Lifewire / Benjamin Zeman
 
  Overall we found the design of the transmitter to be very average and unexceptional. Nothing really stood out as good or bad. It’s not the best we’ve tested but it’s functional. We’ve seen worse, especially cramming too much on the front, causing a device to feel crowded like the Criar US-CP24.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ## **Setup Process: Easy as it should be**
 
  This transmitter is really easy to set up, partially because of its dearth of special features. It’s almost plug and play, all you need to do is connect your bluetooth or plug in your MicroSD card or[USB flash drive](https://www.lifewire.com/best-usb-flash-drives-4141193) . After plugging it into our car’s 12V power outlet the display lights up and the device is ready to pair.
@@ -101,12 +113,19 @@ Every other transmitter we’ve tested outperforms the Lihan.
 
  Streaming music through Bluetooth from a USB stick or MicroSD card sounded good as long as the volume was high enough to overpower the noise level. This transmitter does use Bluetooth version 4.0 which is pretty recent.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ## **Price: Too pricey for the problems**
 
  The Lihan Bluetooth Car FM Transmitter averages between $17 and $20, placing it in the same price range as similar products. The Lihan does little to distinguish itself or stand out from similarly priced competitors. Even the packaging is simple and unappealing, with no indication of what’s inside except some small text on the back.
 
  Lihan’s transmitter is average and generic at best. The amount of noise we got from our unit was just too much for us. It fails to stand up against less noisy transmitters, like the Nulaxy KM18 and Aphaca BT69\. We don’t find the Lihan to be worth it, especially when you can find better options in the same price range.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ## **Lihan LHFM1039 vs. Criacr US-CP24**
 
  The Criacr US-CP24 is another compact Bluetooth FM transmitter that is around the same size as the Lihan and has a similar user interface layout. The Criacr was another rather noisy unit but played some lossless audio formats like WAV and FLAC in addition to MP3 and WMA. The Criacr averages in the same price range and wasn’t as noisy as the Lihan (in fact, Lihan’s transmitter had the most noise issues of any transmitter we tested).

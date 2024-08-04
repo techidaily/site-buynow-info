@@ -1,7 +1,7 @@
 ---
 title: "Quality WiFi Solutions on a Budget: The Complete Review of the TP-Link Archer A9 Router Under 100 Dollars"
-date: 2024-07-30 21:35:45
-updated: 2024-08-02 12:34:14
+date: 2024-08-03T23:04:17.254Z
+updated: 2024-08-04T23:04:17.254Z
 categories:
   - BestProducts
 description: "This Article Describes Quality WiFi Solutions on a Budget: The Complete Review of the TP-Link Archer A9 Router Under 100 Dollars"
@@ -38,6 +38,9 @@ Lifewire / Claire Cohen
 
 ## Netgear Nighthawk C7000 DOCSIS 3.0 AC1900 Wi-Fi Cable Modem Router
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear Nighthawk C7000](https://www.lifewire.com/thmb/OV2nfW5mduqPEhexOyXCeTMKajo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4082541-4-9cd1eee50edf4975a739591263d7f54d.jpg)
 
 Lifewire / Claire Cohen
@@ -66,6 +69,9 @@ Lifewire / Claire Cohen
 
  We recently got the Netgear Nighthawk C7000 in for testing, so we can answer all of these questions and more. Let’s find out if this modem is worth the price of admission.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Design: Lightweight and low-profile
 
  For such a high-end modem, the Netgear Nighthawk C7000 is surprisingly thin and light. Compared to the Xfinity modem that we have lying around, it’s a huge improvement.
@@ -74,10 +80,17 @@ Lifewire / Claire Cohen
 
  While this modem does have wireless capabilities, the antennae are inside the device, which makes for a more streamlined look.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear Nighthawk C7000](https://www.lifewire.com/thmb/XBxyGD8RCZUzuy5c-9PSfLF4OBY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4082541-3-a9db59bb3f7a4f6aa4d7b1d852f4ee99.jpg)
 
  Lifewire / Claire Cohen
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Setup: Easy for a modem
 
  Right out of the gate, it’s important to note that modems aren’t quite as straightforward to set up as[your average router](https://www.lifewire.com/difference-between-modem-and-router-4159854) . We had to gather all of our ISP data—account number, username, etc.—before we could get started. Then we connected the Netgear Nighthawk to power and a coax cable (if you were doing this at home, you’d need to disconnect your old modem first).
@@ -86,6 +99,9 @@ Lifewire / Claire Cohen
 
  For such a high-end modem, the Netgear Nighthawk C7000 is surprisingly thin and light.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Software: Getting the job done
 
  While the Netgear Nighthawk C7000 doesn’t have the richest software, it’s enough to effectively manage your network with little to no fuss.
@@ -120,6 +136,9 @@ Lifewire / Claire Cohen
 
  We should also note that the Netgear Nighthawk C7000 doesn’t support[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) or QoS capabilities, which is a disappointing omission in a device this expensive. However, we set up 6 different devices in our living room, all streaming HD video on YouTube. We then ran a speed test to see how it affected the network. We still got about 152 Mbps, even under all that stress. You won’t get full speed when everyone’s hitting the network hard, but it’ll still be serviceable.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Price: A premium that’s worth it
 
  The Netgear Nighthawk C7000 is going to set you back $209, which might sound like a lot if you already have a modem set up. But take a look at your cable and internet bill and see how much you’re paying each month to rent a modem from your ISP. You won’t have to pay that anymore with the Nighthawk C7000\. Over time, this device can actually pay for itself.
@@ -135,6 +154,9 @@ Lifewire / Claire Cohen
  **Recommended for anyone with a fast broadband connection.**
  The fact that this modem can pay for itself in time is really the main appeal. But with fantastic performance and good looks thrown in, the Nighthawk C7000 is a no brainer.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Netgear C3700 Cable Modem Router](https://www.lifewire.com/netgear-c3700-cable-modem-router-review-4686094)

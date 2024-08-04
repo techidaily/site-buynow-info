@@ -1,7 +1,7 @@
 ---
 title: DBPower 600A Maximum Power Jump Starter - 18,000mAh Capacity Review
-date: 2024-08-01 15:35:41
-updated: 2024-08-02 10:15:50
+date: 2024-08-03T23:04:15.750Z
+updated: 2024-08-04T23:04:15.750Z
 categories:
   - BestProducts
 description: This Article Describes DBPower 600A Maximum Power Jump Starter - 18,000mAh Capacity Review
@@ -39,8 +39,14 @@ thumbnail: https://www.lifewire.com/thmb/jW9dJTpk3iyrWiSj4xxjbVltEZg=/400x300/fi
 
 4.1
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ## DBPOWER 600A Peak 18000mAh Portable Car Jump Starter
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![600A Peak 18000mAh Portable Car Jump Starter](https://www.lifewire.com/thmb/lCHc739SU7lyQkMIbG0aNWYsqy8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DBPower_JumpStarter_5LW4140286_HeroSquare-4defda07335a4d7bafb41bb20cacee2f.jpg)
 
  Lifewire / Tony Mitera
@@ -66,6 +72,9 @@ thumbnail: https://www.lifewire.com/thmb/jW9dJTpk3iyrWiSj4xxjbVltEZg=/400x300/fi
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: A rugged brick of power contained within its own nice case**
 
  The unit and all its accessories are contained within a semi-hard case with a relatively durable zipper holding the two sides of the case together. One side contains the unit itself within a foam insert, and the other is an elastic mesh pouch for all the accessories. The idea here is that you can keep the case stashed in your trunk or under a seat and have everything you need.
@@ -76,6 +85,9 @@ thumbnail: https://www.lifewire.com/thmb/jW9dJTpk3iyrWiSj4xxjbVltEZg=/400x300/fi
 
  The accessory kit contains a wall charger and a 12V port charger for the unit, a DC cable, and a variety of ends to allow for charging a laptop. The jumper cables sprout from a module that plugs into a specific port on the unit and terminate in your standard clamps. The module itself has a status light that illuminates to indicate the unit’s readiness to jump start the car.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ## **Setup Process: The cables are short but easy to use**
 
  It's a breeze using the 600A to jump start a car. You plug the jumper cable module into the unit, which will cause its module light to flash green, then connect the red clamp to the positive terminal on your car’s battery and the black clamp to the negative terminal which will cause the module light to illuminate solid green. With our test vehicle it was a little difficult to get the clamps on the negative terminal as they are a little large, and the cables themselves are on the short side. With the clamps in position all that is left is to start the car and remove the clamps in reverse order.
@@ -92,6 +104,9 @@ It's a breeze using the 600A to jump start a car.
 
  Charging USB devices is not only simple but fast as well, with a sustained 1,200 mAh current. This level of charging will top off your devices in a hurry, and with 18,000 mAh capacity the unit should be able to charge a phone like the Samsung Galaxy S10 five times over. Be aware that if your phone uses a USB-C or Thunderbolt connection you’ll need to provide your own cable.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Key Features: A decent flashlight and, oddly, a compass**
 
  Small as it's, the DBPOWER Portable Jump Starter has a few extra features of note. The flashlight built into the case is decent, but doesn’t put out much light and does so within a relatively narrow angle. However, with as small as the unit is, you can easily just hold the whole thing in your hand like a flashlight to illuminate whatever you need.
@@ -122,6 +137,9 @@ It packs a ton of value into its diminutive size.
 
  It’s worth looking at other jump starters to see what they offer, but the DBPOWER 600A Peak 18000mAh Portable Car Jump Starter does everything that it's designed for quite well, is reliable and durable, and comes in a semi-hard case that you can easily stash in just about any vehicle.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  600A Peak 18000mAh Portable Car Jump Starter

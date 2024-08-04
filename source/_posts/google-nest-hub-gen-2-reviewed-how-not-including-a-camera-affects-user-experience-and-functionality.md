@@ -1,7 +1,7 @@
 ---
 title: Google Nest Hub Gen 2 Reviewed – How Not Including a Camera Affects User Experience and Functionality
-date: 2024-07-31 21:24:18
-updated: 2024-08-03 10:52:56
+date: 2024-08-03T23:04:44.946Z
+updated: 2024-08-04T23:04:44.946Z
 categories:
   - BestProducts
 description: This Article Describes Google Nest Hub Gen 2 Reviewed – How Not Including a Camera Affects User Experience and Functionality
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/_nOB6lzooA58y-fATbEsfRW2Rn8=/400x300/fi
 
 3.3
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## Alienware Aurora R9
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/SBirmVys72S63lQd4lWukO_gXRw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
 
 Lifewire / Zach Sweat
@@ -39,6 +45,9 @@ Lifewire / Zach Sweat
 
 ## Alienware Aurora R9
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/BiBvvSXCg5l15o1T-fJmijAM9PQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
 
 Lifewire / Zach Sweat
@@ -95,6 +104,9 @@ Lifewire / Zach Sweat
 
  Inside the case, Alienware has made the new R9 quite upgradeable, allowing owners to easily pull things apart for access to various components. Though it’s a bit cramped inside, the genius ability to swing the PSU (power supply unit) out to the side when the case is removed provides easier access to the motherboard and all its parts. While we’re a bit concerned with the airflow due to this tight fit inside the case, it does allow you to upgrade hardware down the line if you want.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Setup Process: Plug and play**
 
  Because this is a prebuilt, setting up your new PC is super simple—essentially plug and play. This is another hugely important thing to consider if you want to get into PC gaming, but don’t know the first thing about installing an OS, troubleshooting build issues or navigating the BIOS.
@@ -107,6 +119,13 @@ Lifewire / Zach Sweat
 
  From here, you can either fine tune your new PC’s looks within the settings menu or keep things as they are. If you’re using a monitor with a higher refresh rate or resolution, it’s also a good idea to ensure your PC is fully utilizing this by perusing the display settings and options. After all, nobody likes finding out they’ve been stuck on 60Hz with their display that’s capable of hitting 144Hz.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ## **Performance: Results may vary**
 
  Determining the overall performance of the Aurora R9 will entirely be subject to which hardware options or model you purchased. For performance, you get what you pay for. A quick note on this is that you should typically purchase the best components for your specific needs that are within your budget. If you want to primarily game, your GPU is perhaps the most important part, so start there. For those who want a balance between gaming and work performance, make sure you get a decent CPU.
@@ -121,6 +140,9 @@ Lifewire / Zach Sweat
 
  On the whole, this hardware config is decent for light users, but probably not enough for those who want to do a lot of multitasking or intense, CPU-dependent processing.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/zWvKnnWGsRBdtRIHTYYD7HEs0qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-13-88a6bd8dac13438794a0bb038df7757f.jpg)
 
  Lifewire / Zach Sweat
@@ -141,6 +163,9 @@ Lifewire / Zach Sweat
 
  Your gaming performance in relation to the Aurora is subject to your hardware, peripherals and network speeds if playing an online game, so choose the best model you can afford within your budgetary restrictions and keep in mind how you plan to use your PC.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Audio: Decent prebuilt performance and surround sound**
 
  A quality audio setup is something often overlooked when it comes to computers, but it’s something that can really add to the overall enjoyment of your PC. Immersive soundscapes in games and movies, astounding dynamic range in music and crisp, clear dialogue combine to separate the mediocre computers from the great.
@@ -213,6 +238,9 @@ Lifewire / Zach Sweat
 
  With a distinct design that only Alienware can pull off, the Aurora R9 is a futuristic-looking prebuilt PC with a lot of good, but a bit of extra cost. If you love Alienware or the look of the R9, it’s not a bad option, but it’s certainly not the most frugal.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Aurora R9

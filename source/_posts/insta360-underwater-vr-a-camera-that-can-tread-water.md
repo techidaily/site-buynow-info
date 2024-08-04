@@ -1,7 +1,7 @@
 ---
 title: "Insta360 Underwater VR: A Camera That Can Tread Water"
-date: 2024-07-31 22:56:47
-updated: 2024-08-03 10:53:29
+date: 2024-08-03T23:04:12.733Z
+updated: 2024-08-04T23:04:12.733Z
 categories:
   - BestProducts
 description: "This Article Describes Insta360 Underwater VR: A Camera That Can Tread Water"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/ae43e169f6c755c4c2193b461c421a8ddcf3ffe94
 
 ## TP-Link RE305 AC1200 Wi-Fi Range Extender
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/JNtLTx9_CWWq4Wy4WH2D2pMI1qw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
 
 Lifewire / Claire Cohen
@@ -38,6 +41,9 @@ Lifewire / Claire Cohen
 
 ## TP-Link RE305 AC1200 Wi-Fi Range Extender
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/C8f1R4cMjb3MUZ1ViPdvQ67Q7tE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
 
 Lifewire / Claire Cohen
@@ -81,6 +87,9 @@ Lifewire / Claire Cohen
 
  First, you plug in the extender to an outlet, then use any computer to connect to its network. After plugging it into an outlet, we found that it popped up immediately on our MacBook Pro's available wireless network list. Once connected to the network, setup is done via the web address listed on the guide.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/PS8-Iywv5MsnOo99Fir-jNOiPF8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-4-5c924206c9e77c0001ff0bb8.jpg)
 
  Lifewire / Claire Cohen
@@ -93,16 +102,25 @@ Lifewire / Claire Cohen
 
  There is one important pain point, however, to keep in mind during setup. The extender's administrative password utilizes a default "admin/admin" login, so you'll want to change that to keep unauthorized users out. It can be changed via the TP-Link Tether app, which isn't clearly lined out in the instructions. It isn't required, but if you want to keep your network as secure as possible, it's an important part of setup.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Connectivity and Network Performance:** **Strong, multi-device connectivity**
 
  Several devices were connected to our wireless network, including a MacBook Pro,[iPhone X](https://www.lifewire.com/iphone-x-4150706) , iPad Pro,[Nintendo Switch](https://www.lifewire.com/what-is-the-nintendo-switch-4148184) , and[PlayStation 4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) . When testing the wireless extender's range, at 10 feet to around 70 or so feet away from the router in a 2,100 square foot home, its signal was quite strong, with full bars on an iPhone X and iPad Pro in most areas. One bathroom on the first floor did suffer from occasionally spotty connectivity at around 1,500 feet away from the router.
 
  Out in the yard, there were occasionally drops in connection, particularly when trying to load YouTube videos or play online games via mobile devices. Speeds didn't usually waver, however, though we didn't quite get the full 300mbps our wired connection typically summons. The product advertises 867Mbps on a 5GHz connection and 300 Mbps on a 2.4Ghz connection, so it did provide what was promised, albeit with some dropouts over the five-day testing period.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/Lyz1QcuQDPYlUp5pPBJiL0YKSag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-2-5c9241dcc9e77c0001a92785.jpg)
 
  Lifewire / Claire Cohen
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: Clean and easy to understand**
 
  The browser-based setup procedure couldn't be easier, and there's no extraneous software to concern yourself with save for the aforementioned optional app for device management. It's a pleasant, minimalistic mint green website with a clean interface and easy-to-read text. Two tabs at the top include the Quick Setup option or Settings, where more advanced users can tweak options to their liking.
@@ -129,6 +147,10 @@ Lifewire / Claire Cohen
 
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  RE305 AC1200 Wi-Fi Range Extender

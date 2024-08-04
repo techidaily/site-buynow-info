@@ -1,7 +1,7 @@
 ---
 title: "Reviewing the Pioneer BDR-XS06: Efficient and Mobile Blu-Ray Burning for Professionals and Enthusiasts Alike"
-date: 2024-07-31 18:25:29
-updated: 2024-08-02 12:49:23
+date: 2024-08-03T23:04:45.504Z
+updated: 2024-08-04T23:04:45.504Z
 categories:
   - BestProducts
 description: "This Article Describes Reviewing the Pioneer BDR-XS06: Efficient and Mobile Blu-Ray Burning for Professionals and Enthusiasts Alike"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/7771a2b06b1c9409671f87688822caf9758687ec7
 
 ## Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/1WEpNEg3uu2Ow7DpqhXyGzVO8Pw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_HeroSquare-191df3b949f947dc9398373d6f610c19.jpg)
 
 Lifewire / Scott Gercken
@@ -37,8 +40,18 @@ Lifewire / Scott Gercken
 
 4.4
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ## Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/0KtwvTBY-2P8KkZ_aO3Di4x-41c=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_HeroSquare-191df3b949f947dc9398373d6f610c19.jpg)
 
 Lifewire / Scott Gercken
@@ -69,6 +82,9 @@ Lifewire / Scott Gercken
 
  Check out our buyers guide for more information on what you should look for in an optical drive.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Solid construction for portability**
 
  The Pioneer BDR-XS06 Blu-ray Burner is a shiny, silver drive. It’s a tiny 5.3" square, only .7” tall, with a silver top and sides, and a black underside. The bottom has two rubberized feet that run the width of the device, keeping it stable on slippery surfaces, nice if you’re using it away from your desk. The silver outer shell doesn’t smudge easily, so it’ll look nice without constant cleaning.
@@ -91,6 +107,9 @@ Lifewire / Scott Gercken
 
  Even without the software, the BDR-XS06 worked right away. This model works right out of the box with both Windows and MacOS with little to no additional fuss. It’s one of the most plug-and-play burners we’ve tested.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: As advertised**
 
  Like most Blu-ray burners, the BDR-XS06 slows down its read speed when you put in a movie or audio disc. That keeps the noise level low for those media. When it reads data discs, however, the speed picks up, which means more noise. The noise while installing Roxio Toast Lite got to an annoyingly loud level. It might not be too much in a busy office, but it was surprising in the quiet room where we tested it.
@@ -99,6 +118,9 @@ It’s one of the most plug-and-play burners we’ve tested.
 
  To test read/write speeds, we ripped a copy of_Die Hard,_ a 37GB file, using a program called_MakeMKV._ The whole process took an hour and 13 minutes, and the drive hit speeds between 5.2x and 6x. To test the write speeds, we made a backup copy of a 14GB photo library. It took just under 42 minutes, though the same task took 32 minutes on Roxio Toast. While these speeds aren’t the fastest on the market, they live up to Pioneer’s advertising. While using Roxio Toast, the software measured an average write speed of 3x while using a BD-R, though its max speed is 6x for that format.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/hYWwVcK8E-FSog7TpOTOgE-hYnY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_03-df0bfb492ead4e86a35df19618bcd5d4.jpg)
 
  Lifewire / Scott Gercken
@@ -107,6 +129,10 @@ It’s one of the most plug-and-play burners we’ve tested.
 
  While Blu-ray burners and[optical drives](https://www.lifewire.com/what-is-an-optical-disc-drive-2618157) aren’t exactly designed to play movies, we tried it anyway. We used a free Blu-ray player for Mac, and the picture was pretty good. On the Mac, it was sharp, almost as good as a[Blu-ray player](https://www.lifewire.com/best-blu-ray-players-1846400) designed for the TV. Next, we connected an HDMI cable to the Mac to see what it would look like on an[HDTV](https://www.lifewire.com/best-tvs-to-buy-4061107) . It wasn’t as good as on the computer, but it wasn’t bad either. The TV reported that the resolution was 768p at 60hz, not as good as a Blu-ray player built for that purpose, but better than SD.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Sound Quality: Blu-ray quality sound**
 
  While many people rave about[HD](https://www.lifewire.com/what-you-need-to-see-hd-1847338) image quality, we think that the depth of sound is the most exciting feature of the Blu-ray format. When you get all the high-end and low-end sound, it feels more immersive, and the Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner delivered the audio quality you’d expect from a Blu-ray. If you don’t mind the reduction in image quality vs. a dedicated player, the BDR-XS06 could double as a Blu-ray player for your PC or TV.
@@ -143,6 +169,9 @@ It’s one of the most plug-and-play burners we’ve tested.
 
  The Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner is a solid, portable Blu-ray burner. It’s small enough to pack up to take on a trip, and it’s solid enough to give us confidence that it can endure some jostling on the way. It costs a little more than its competitors, but we think the solid construction is worth it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [OWC Mercury Pro External USB 3.1 Gen 1 Optical Drive](https://www.lifewire.com/owc-mercury-pro-review-4774690)

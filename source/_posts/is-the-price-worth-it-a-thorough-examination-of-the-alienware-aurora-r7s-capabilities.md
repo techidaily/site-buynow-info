@@ -1,7 +1,7 @@
 ---
 title: Is the Price Worth It? A Thorough Examination of the Alienware Aurora R7's Capabilities
-date: 2024-08-01 20:23:23
-updated: 2024-08-02 10:49:39
+date: 2024-08-03T23:04:10.516Z
+updated: 2024-08-04T23:04:10.516Z
 categories:
   - BestProducts
 description: This Article Describes Is the Price Worth It? A Thorough Examination of the Alienware Aurora R7's Capabilities
@@ -13,6 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/M9_ZXTYQgFg2VyQ-YDvgn6hIUIY=/400x300/fi
 
 4
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ## Alienware Aurora R7
 
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/mgtquLrY-jPbXryeiPiK4PShYo4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_2LW4045927-1-7ee01493034d4631894328a424e3ac52.jpg)
@@ -65,6 +68,9 @@ Lifewire / Gannon Burgett
 
  For our review, we tested the Alienware Aurora R7 configured with an Intel Core i7 8700, Nvidia GeForce GTX 1070 8GB, 1TB HDD, 256GB M.2 PCIe SSD storage, and 16GB of RAM. Read on to see how it fared in games, benchmarks, and day-to-day use and see if it’s worth the high price.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/ZHUtcT-UchRoDP6TS6RcsX2MSQU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4045927-4-0a0b8fbcdc824e1c9abf26cdd1ef57c4.jpg)
 
  Lifewire / Gannon Burgett
@@ -81,6 +87,9 @@ Lifewire / Gannon Burgett
 
  On the rear of the device, there is no shortage of connections. The back has four USB 3.1 ports, six USB 2.0 ports, a USB-C port, a complete set of audio connectors including an optical input, and an Ethernet port. Finally, you have a display port for the motherboard, but your GTX 1070 will have its own set of display ports.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/D2eCHDgSj6P_M0PYbrxB8UEnWw4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4045927-6-5c5c421e3ce842339e931c622f5ee7fc-037237f24b934550859cfea611274f64.jpg)
 
 Lifewire / Gannon Burgett
@@ -89,6 +98,9 @@ Lifewire / Gannon Burgett
 
  Setting up the Alienware Aurora R7 was fairly straightforward. In the box was the tower, a mouse, a keyboard, and the power cable. After connecting the Aurora R7 to power, plugging in the mouse and keyboard, and attaching a monitor, it was just a matter of going through Window 10’s setup process to get the ball rolling.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ## **Performance: It’ll take nearly anything you throw at it**
 
  The Alienware Aurora R7 model we tested was configured with an Intel Core i7-8700 CPU, an NVIDIA GeForce GTX 1070 8GB graphics card,16GB of[RAM](https://www.lifewire.com/what-is-random-access-memory-ram-2618159) , and a 256GB M.2 PCIe SSD powering the operating system and apps. Meanwhile, a 2TB HDD served as the mass media storage.
@@ -103,10 +115,16 @@ Lifewire / Gannon Burgett
 
  Overall, the Aurora R7 tested on-par or ahead of other PCs with similar specs. As is to be expected, it excelled in the graphics department, but it certainly didn’t struggle with multitasking and everyday tasks.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/tHYfoI6_7SBEzzlShmeBOabqaNw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4045927-5-05e1d507405c4e0288fa00242bf06396.jpg)
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Network: Powerful, consistent connections**
 
  The Alienware Aurora R7 has both wired and wireless connectivity for internet access. On the rear of the PC is a Gigabit Ethernet (RJ-45) port for a hardwired internet connection. On the wireless front, the Aurora R7 uses two external 5GHz amplifiers for strong uplink and downlink speeds. These are boosted by Alienware’s Killer Wireless, an internal lag and latency reduction technology to improve long-distance range and intelligently prioritize the most important traffic.
@@ -139,6 +157,9 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Competition: Convenience rules above all else**
 
  Judging competitors of the Alienware Aurora R7 can get incredibly tricky considering all the different configurations available, not to mention the option of building your own computer. That said, one pre-built gaming PC stands out alongside the Aurora R7 in terms of specs and value—the MSI Infinite X.
@@ -155,12 +176,18 @@ Lifewire / Gannon Burgett
 
  The Alienware Aurora R7 is a wonderful option if you’re looking for a pre-built gaming PC that requires little to no hands-on time to get up and running. Out of the box, it’s ready to take on nearly any game you throw at it, usually at the highest settings. Sure, it’s a bit pricier than a DIY PC, but its compact case, tool-less access, and upgradability makes it a solid option for someone who wants a plug-and-play gaming rig.
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Lenovo ThinkCentre M720 Tower](https://www.lifewire.com/lenovo-thinkcentre-m720-tower-review-4776238)
 * [HP Flagship Pro Desktop](https://www.lifewire.com/hp-flagship-pro-desktop-review-4776228)
 * [Acer Aspire TC-885-ACCFLi3O Desktop PC](https://www.lifewire.com/acer-aspire-tc-885-accfli3o-desktop-pc-review-4776155)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Aurora R7

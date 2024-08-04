@@ -1,7 +1,7 @@
 ---
 title: "Deciding on Digital Reading: IPad Vs Amazon's Kindle & Barnes & Nobles' NOOK"
-date: 2024-08-02 15:33:59
-updated: 2024-08-04 10:58:43
+date: 2024-08-03T23:04:26.039Z
+updated: 2024-08-04T23:04:26.039Z
 categories:
   - BestProducts
 description: "This Article Describes Deciding on Digital Reading: IPad Vs Amazon's Kindle & Barnes & Nobles' NOOK"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/eb5fe9623ef8001592b893ca9dc19a617df53079d
 
 ## Netgear Powerline PL1200
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LJwkWIKV_tIoZmxEqV9kr7ByA1Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_HeroSquare-d40232740fc34cdbb9b7197a7bda177d.jpg)
 
 Lifewire / Jordan Oloman
@@ -36,6 +39,9 @@ Lifewire / Jordan Oloman
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Netgear Powerline PL1200
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/rYExgRawgStvNWLyEyCyiiEqyOI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_HeroSquare-d40232740fc34cdbb9b7197a7bda177d.jpg)
@@ -62,10 +68,16 @@ Lifewire / Jordan Oloman
 
  The Netgear Powerline 1200 Kit serves as a chunky plug-in adapter that offers impressive speeds over wired Ethernet, at the cost of your power sockets. We put it to the test to see if it’s worth the price.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/pTY-hBlPDWY0Ns6j4BVyAl75U-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_04-cd509045b4a3477fab85fdf3c69cacb4.jpg)
 
  Lifewire / Jordan Oloman
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Sharp edges and frustration**
 
  The Netgear Powerline 1200 kit doesn’t really care about your living room or bedroom aesthetic. It’s a monolithic, white glossy plastic box that juts out of the wall. If you’re looking for something inoffensive and reserved, the Netgear offering doesn’t deliver. The edges are sharp and the adapter is quite large in order to house all of the technology and the Ethernet sockets necessary to complete the network.
@@ -78,6 +90,9 @@ Lifewire / Jordan Oloman
 
  There’s also only one Ethernet port on the Netgear kit, which means that you can only improve the wired connection of one device—a poor payoff for all of the manoeuvering you may have to do, especially when there’s certainly space for another port. Overall, the design is obtrusive and frustrating, which is a shame given how reliable adapter is.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LMrQEcpONDZxLUfoMW6U8sX4dQw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_02-a8557f722ac84f29b6efb2a763d22a3c.jpg)
 
  Lifewire / Jordan Oloman
@@ -98,6 +113,9 @@ Lifewire / Jordan Oloman
 
  Lifewire / Jordan Oloman
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: A solid improvement**
 
  Using the device across our living room and bedroom, in two different setups across the course of a month, we found that the Netgear Powerline kit gave us a reliable upgrade to internet efficiency. Our initial connection speed (as per[Speedtest](https://www.speedtest.net/) ) offered a 68.4Mbps download speed, with 3.60Mbps upload speed, and sub-10-millisecond ping. The Netgear kit with an Ethernet cable attached to our laptop afforded us an 88Mbps download speeds and 6Mbps upload speeds.

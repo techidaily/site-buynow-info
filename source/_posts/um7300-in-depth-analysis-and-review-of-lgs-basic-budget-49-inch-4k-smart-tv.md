@@ -1,7 +1,7 @@
 ---
 title: "UM7300: In-Depth Analysis & Review of LG's Basic, Budget 49-Inch 4K Smart TV"
-date: 2024-07-30 13:41:47
-updated: 2024-08-01 11:57:47
+date: 2024-08-03T23:04:01.056Z
+updated: 2024-08-04T23:04:01.056Z
 categories:
   - BestProducts
 description: "This Article Describes UM7300: In-Depth Analysis & Review of LG's Basic, Budget 49-Inch 4K Smart TV"
@@ -13,6 +13,9 @@ thumbnail: https://thmb.techidaily.com/521e77f0b3c0772eff4a23cfd11435c9aec9bd0ff
 
 4.6
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ## Ubisoft Rayman Legends
 
 ![Rayman Legends](https://www.lifewire.com/thmb/3cugvPa-w5uei8fX1IKDgss6NTA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_HERO_RaymanLegends_20190118184305-5c8ff9e046e0fb00016ee128.jpg)
@@ -39,6 +42,9 @@ Lifewire / Kelsey Simon
 
 ## Ubisoft Rayman Legends
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Rayman Legends](https://www.lifewire.com/thmb/BWfy9xiaiEgYE-OIFR3VbBg-LW8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_HERO_RaymanLegends_20190118184305-5c8ff9e046e0fb00016ee128.jpg)
 
 Lifewire / Kelsey Simon
@@ -75,10 +81,16 @@ Lifewire / Kelsey Simon
 
  You’ll chase after him, jumping from platform to platform, slaying the occasional enemy as you go. That's about it when it comes to the plot of Rayman Legends. Sometimes the Magician will give you a specific enemy to dodge, like a giant red dragon, and at the end of certain maps, you’ll get an opportunity to catch him. But really, Rayman Legends isn’t focused on plot; it’s more interested in providing outstanding gameplay.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Rayman Legends](https://www.lifewire.com/thmb/-Un250xgOCxgaGgFeykC6pihaaU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/RaymanLegends_20190118212347-5c8ffe8d46e0fb0001f8d0cc.jpg)
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## **Gameplay: What this is really about**
 
  Rayman Legends is a[2D platformer](https://www.lifewire.com/what-is-a-platform-game-812371) , reminiscent of such games as Super Mario Bros. and Donkey Kong, but with its own history and development. Be prepared to do lots of jumping, the occasional timed run, and even a few boss fights. Thankfully, Rayman Legend is fairly forgiving when it comes to platformers. The controls are smooth, jumps are generally easy to land, and a glide feature can save you when you accidentally jump too late. Plus, a nice distribution of save points make it easy to try again if you do die.
@@ -103,6 +115,9 @@ Lifewire / Kelsey Simon
 
  The Challenges mode, which we mentioned earlier, is where you can attempt weekly challenges, earn rewards, and get your username on the leaderboards. The last feature―our favorite―is the ability to unlock levels from Rayman Origins, the game that came before Rayman Legends. It’s like you’re getting two games for the price of one.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Graphics: Cartoony but appropriate**
 
  Rayman Legends has a unique look, which is represented fairly well by its bright and eye-catching cover. It doesn’t attempt to be realistic but embraces cartoon-like graphics, with goofy characters and villains mildly reminiscent of real-life creatures. In the level titled Toad Story, you’ll come across screaming toad monsters carrying swords and shields.
@@ -113,6 +128,9 @@ Lifewire / Kelsey Simon
 
  In the Fiesta De Los Muertos level, be prepared to smash brightly colored mariachi skeletons. No matter which level, though, the art style is consistent, and while not traditionally beautiful, it’s enjoyable and fun―a perfect fit for the game.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ## **Audio: A hidden treasure**
 
  Generally speaking, the sound and music in Rayman Legends is well designed and fits with the feel of the rest of the game. But there is one thing worth mentioning when it comes to the sound and music of the game―and in our opinion, it’s the coolest thing about Rayman Legends.
@@ -125,6 +143,9 @@ Lifewire / Kelsey Simon
 
  The beauty of these maps is how well the gameplay is designed to match the beats of the song, from how each jump will strike with the strum of a guitar, or how the smash of a drum will be timed with the slaying of an enemy. The levels might take you a few tries to finish, as they’re timed and require precision, but they’re fun enough you won’t mind doing them again.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Very reasonable for the content**
 
  Rayman Legends can be purchased for most systems at around $20\. Sometimes PlayStation will put the item on sale, and you might even be able to get a copy for less than $15.
@@ -147,6 +168,9 @@ Lifewire / Kelsey Simon
 
  Between the co-op option, the extra levels, the ability to replay Rayman Origins, and all the other things you can unlock from special heroes to scratchers, this game has a lot to offer for gamers of all ages.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [LEGO Worlds](https://www.lifewire.com/lego-dimensions-review-4686589)

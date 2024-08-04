@@ -1,7 +1,7 @@
 ---
 title: "Assessing the LG K92 5G Phone: Why the Premium on 5G May Not Be Justified"
-date: 2024-08-03 17:51:19
-updated: 2024-08-04 11:34:15
+date: 2024-08-03T23:04:47.950Z
+updated: 2024-08-04T23:04:47.950Z
 categories:
   - BestProducts
 description: "This Article Describes Assessing the LG K92 5G Phone: Why the Premium on 5G May Not Be Justified"
@@ -41,6 +41,9 @@ Lifewire / Rebecca Isaacs
 
 ## HAVIT 5 Fan Laptop Cooler
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/Oc__n9cXABeKwLweBvavtYWeE9M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_HeroSquare-e793f085fe42447396899e6edb8c57b0.jpg)
 
 Lifewire / Rebecca Isaacs
@@ -71,12 +74,32 @@ _Our reviewer already owned this product._
 
  On top of the pad itself, it comes with a braided USB cord for protection. It could plug into one of two ports, of which I used the spare to add USB charging for USB compatible items like my[Amazon Kindle](https://www.lifewire.com/amazon-kindle-2019-review-4688850) and[Java Bluetooth headset](https://www.lifewire.com/jabra-talk-45-review-5070286) .
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/J6RTKS-ZdzNqPyF_Tm9lloOF1iM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_04-5a7071fefb884ba19eb68638fdbf1b2b.jpg)
 
 Lifewire / Rebecca Isaacs
 
  To me, the design seems a little clunky. It has smooth edges, but it’s clearly designed as a gamer’s edgy laptop cooling pad with seemingly unnecessary grooves that serve only to hold dust. If you’re looking for a simple design, this is not your cooling pad. That being said, the metal mesh pad for air circulation can accommodate laptops ranging from 14 to 17 inches thanks to its 15.87 x 11.81 x 1.34 inches (LWH) in dimension.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ## Fans: Wasn’t blown away
 
  I set up the cooling pad and flipped on the roller switch. HAVIT promises five quiet fans—one 110-millimeter fan, and four other strategically placed 85-millimeter fans. HAVIT holds true to its promise: This cooling pad emits a fairly faint sound I can’t hear through my Samsung Buds headphones, even with their noise cancelling features. The fans are so quiet that if I was gaming, I wasn’t able to hear them.
@@ -93,6 +116,9 @@ Lifewire / Rebecca Isaacs
 
  That’s not to say that this laptop cooling pad doesn’t help cool it down. Since my Eluktronics is getting some much-needed TLC in the shop, I tested the MSI’s internal temps while running[Tropico Six](https://www.lifewire.com/tropico-6-review-5077604) on my laptop. Without the laptop cooling pad, I was running around 187 degrees Fahrenheit. With the cooling pad, it adjusted to around 169 degrees. It’s not much, but it’s enough to make a difference.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Baffles: Adjustable for gaming and typing
 
  If you feel the laptop needs more circulation, the good news is that HAVIT also anticipated these needs, too. Anti-slip baffles offer a sturdy position on any desk, even if you push up the height to a more angled position.
@@ -107,6 +133,9 @@ Lifewire / Rebecca Isaacs
 
  And, if you’re on-the-go and travelling, the HAVIT 5 also packs quite nicely into a suitcase. Be sure to play it safe like I did and pack it around clothes. But if you need to go across country and want to take your gaming laptop with you, this is a good one that will hold up well in luggage.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Price: Ouch
 
  I picked up my HAVIT 5 while it was on sale for around $30 back in 2019, but the usual price is around $50\. That seems a little steep, especially for fans that don’t necessarily pack the punch for gaming that most laptops require. If you keep an eye on Amazon, you can usually get this one for around $30, as it seems to go on sale fairly often.
@@ -115,6 +144,9 @@ Lifewire / Rebecca Isaacs
 
 Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## HAVIT 5 vs. Kootak Laptop Cooling Pad
 
  It makes sense to compare the Kootak Laptop Cooling Pad to the HAVIT. Both have five cooling fans, both fit laptops up to 17 inches, and both offer anti-slip baffles to ensure your laptop is safe if you want to adjust the height for more air circulation or wrist angle preferences. The key differences are design and adjustability.
@@ -127,6 +159,14 @@ Lifewire / Rebecca Isaacs
 
  It’s not the best out there, but so long as it cools the internal laptop core temperatures by about 20 degrees, it’s a worthy investment. Props go to HAVIT for giving it a roller switch for ultimate adjustability and an LED light that will show how high the fans are blowing. The fans could be stronger, but quieter fans over more power is preferable.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)

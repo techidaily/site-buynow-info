@@ -1,7 +1,7 @@
 ---
 title: Samsung Galaxy Tab S3 Assessment – A Durable Purchase for Tech Enthusiasts?
-date: 2024-07-30 21:20:58
-updated: 2024-08-01 10:25:45
+date: 2024-08-03T23:04:12.348Z
+updated: 2024-08-04T23:04:12.348Z
 categories:
   - BestProducts
 description: This Article Describes Samsung Galaxy Tab S3 Assessment – A Durable Purchase for Tech Enthusiasts?
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/hgfVVc_iMa83bvRlfflT3qTmoLA=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Apeman C450 Dash Cam
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Apeman C450 Dashcam](https://www.lifewire.com/thmb/R-SkTPUBgYZCUaD9aixocd8OUy8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_HeroSquare2-c752b8527e31471e9018279dea42a8ca.jpg)
 
 Lifewire / Danny Chadwick
@@ -80,10 +86,16 @@ Lifewire / Danny Chadwick
 
  This car camera stores video on a[MicroSD card](https://www.lifewire.com/move-apps-to-sd-card-on-android-4178982) . There isn’t one included, so you’ll have to buy one. And while Apeman claims that the maximum size is 32GB, we tried out a 64GB card and it worked just fine—we filled it up to capacity and didn’t notice any problems with the device or the footage.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/A63ztrIxThbZlrb_lHJH3YL7778=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_02-6ef4e204d0bd452b9601ec468e5358bf.jpg)
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: You’ll have to figure a lot of stuff out for yourself**
 
  The user manual included with the Apeman C450 isn’t particularly useful, and though its written in English, the language is full of confusing phrases that feel like poor translations. The features are not fully explained and there are key omissions in the instructions that make understanding and using this dashcam much harder.
@@ -128,6 +140,9 @@ Lifewire / Danny Chadwick
 
  One thing to note about this car dashboard camera is that the battery life is quite short. When we tested the Apeman C450, it powered down 28 minutes after we unplugged it. If you want continuous recording, it must be connected to power at all times.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: Affordable even on a budget**
 
  The defects of this dashcam can be forgiven pretty easily considering that it costs less than $50\. If you’re looking for a very inexpensive device, the Apeman C450 is a decent if somewhat flawed solution—it’s definitely not built as solidly and lacks the high resolution of its more expensive competitors, but if you are comfortable working around those shortcomings, this dashcam performs pretty well for the price.
@@ -146,12 +161,22 @@ Lifewire / Danny Chadwick
 
  Despite a poor-quality build and some design quirks, the Apeman C450 does its job as a dashcam. It has a discreet design, captures pretty good-quality video, and has important extra features like collision detection and a surveillance mode. If you can get past some of its foibles, it's definitely worth the price tag.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [DDpai mini3](https://www.lifewire.com/ddpai-mini3-review-4770579)
 * [Rexing V1 DashCam](https://www.lifewire.com/rexing-v1-dashcam-review-4770571)
 * [Anker Roav DashCam C1](https://www.lifewire.com/anker-roav-dashcam-c1-review-4773139)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  C450 Dash Cam

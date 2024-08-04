@@ -1,7 +1,7 @@
 ---
 title: "PetSafe Healthy Pet Automatic Feeder Review: Easy Weight Control"
-date: 2024-08-02 18:12:21
-updated: 2024-08-03 11:50:34
+date: 2024-08-03T23:03:58.725Z
+updated: 2024-08-04T23:03:58.725Z
 categories:
   - BestProducts
 description: "This Article Describes PetSafe Healthy Pet Automatic Feeder Review: Easy Weight Control"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/ecc3916e90aab64f99ff84f9c45d036bcf1e08682
 
 ## Motorola MG7700 Cable Modem and Router
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ![Motorola MG7700](https://www.lifewire.com/thmb/wUfud-dw3x-fQBAILjgQYd_Srx4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-4082541-3-2-5c8fadb846e0fb00014a9735.jpg)
 
 Lifewire / Claire Cohen
@@ -38,6 +41,9 @@ Lifewire / Claire Cohen
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Motorola MG7700 Cable Modem and Router
 
 ![Motorola MG7700](https://www.lifewire.com/thmb/3X3Cjz1mO5USWmPRXT1W5zSdqOE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-4082541-3-2-5c8fadb846e0fb00014a9735.jpg)
@@ -66,12 +72,19 @@ Lifewire / Claire Cohen
 
  We recently reviewed the MG7700 to examine just how well it would perform in an average home environment by evaluating the design, ease of setup, network speeds, and software features.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ## Design: Simple and functional
 
  The Motorola MG7700 is fairly compact at 9.1 x 2.6 x 2.6 inches with a gray finish and a black stand. On the front of the device, you’ll find several indicator lights that tell you if it’s powered up, whether any traffic is flowing through your network, and if people are connected to your wireless network. The light indicators are easy to see and understand — something you don’t typically find in a modem from your cable company.
 
  The MG7700 has a power port on the back, as well as a coaxial port for connecting your service provider’s cable to the device. There are also four[local area network](https://www.lifewire.com/what-is-lan-4684071) (LAN) ports if you want to directly plug your computers and other devices into the modem using an Ethernet cable.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Motorola MG7700](https://www.lifewire.com/thmb/djrbmUe-WrBQ_Tx-xD6258JjBmU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-4-5c8faefcc9e77c0001a926be.jpg)
 
  Lifewire / Claire Cohen
@@ -98,6 +111,9 @@ Lifewire / Claire Cohen
 
  Information about approved third-party equipment can usually be found on your cable provider’s website. If not, it’s best to call and ask before you buy. We were able to set it up on Spectrum without any trouble.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Connectivity: The latest standards
 
  The Motorola MG7700 is a 24x8 DOCSIS 3.0 modem that doubles as a wireless router. It has 24 downstream channels (which are lanes that handle network traffic, so the more, the better) allowing it to potentially hit a 1 Gbps download speed. There are eight upstream channels for a maximum 246 Mbps upload. This is a pretty standard set of connectivity protocols that makes it a lot faster than 16x4 modems, but slower than 32x8 ones.
@@ -112,6 +128,9 @@ Lifewire / Claire Cohen
 
  The “1900” represents the maximum theoretical bandwidth the router is capable of. In this case, the MG7700 could hit 1,900 Mbps, but again, this is only if your cable provider supports it, not to mention other factors like wireless interference due to congested bands and throttling from your provider.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Network Performance: Fast speeds with a caveat
 
  Once we got the modem up and running, it delivered outstanding speeds, reliably maxing out our 100 Mbps Spectrum plan when we were hard-wired via the LAN ports.
@@ -130,6 +149,9 @@ Lifewire / Claire Cohen
 
  Overall, if you live in a large apartment or a modestly-sized home, you won’t be disappointed by the performance of the MG7700.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Software: User-friendly options
 
  The MG7700’s built-in software is customizable, too. Once your router is set up, you can go to a specified IP address (the instructions will tell you which one) in your Web browser to change settings, including the name of the default network, enabling password protection, toggling the channels your router will communicate on, and more. There’s also an Advanced page that allows you to set up a[firewall](https://www.lifewire.com/definition-of-firewall-817568) or enable parental controls. Overall, the settings are well laid out, easy to understand, and simple to change.
@@ -156,6 +178,9 @@ Lifewire / Claire Cohen
 
  The Motorola MG 7700 boasts four gigabit-ready LAN ports, delivered blazing fast 100Mbps speeds over dual-band Wi-Fi in our testing, and has outstanding user controls that are easy for anyone to use. It does best in homes of 2,000 square feet and can handle a dozen devices or more. That said, if you’re someone with a larger home or higher bandwidth requirements for a large number of devices, you may be better served by a tri-band router.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Netgear Nighthawk C7000](https://www.lifewire.com/netgear-nighthawk-c7000-review-4686068)

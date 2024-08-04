@@ -1,7 +1,7 @@
 ---
 title: "Netatmo's Innovative Climate Control Device Reviewed: Ideal for App-Based Home Automation Lovers"
-date: 2024-07-31 17:33:19
-updated: 2024-08-02 10:16:49
+date: 2024-08-03T23:04:01.362Z
+updated: 2024-08-04T23:04:01.362Z
 categories:
   - BestProducts
 description: "This Article Describes Netatmo's Innovative Climate Control Device Reviewed: Ideal for App-Based Home Automation Lovers"
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
 ## AmazonBasics 7 Port USB 3.0
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ![AmazonBasics 7 Port USB 3.0](https://www.lifewire.com/thmb/61zrtwf2XnDfg9oA0igeVIB2E3M=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_HeroSquare-b4652c2651b5474f84409577b3760479.jpg)
 
 Lifewire / Jonno Hill
@@ -63,10 +66,17 @@ Lifewire / Jonno Hill
 
  The AmazonBasics 7 Port USB 3.0 Hub definitely offers a lot of bang for your buck, but we have some quality control qualms that prevent this from being an instant recommendation. If you're on a budget and you need a lot of[USB ports](https://www.lifewire.com/what-is-a-usb-port-818166) , you might still want to consider this option, but let’s dig into the details before you make your purchase.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/wXgyw4YH3MYx3AO1YEPSdvla-IQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_02-d9ec8728693e42e9b7ca7d3108d37ba6.jpg)
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ## **Design: A clean look, with some awkward ports**
 
  Measuring 5.7 x 2.6 x 1.1 inches (HWD), the AmazonBasics 7 Port USB 3.0 Hub is not a particularly petite or compact device, but it does do itself some favors in the design department. The slanted body contains two connections on its left, one for the power and one for the USB-B port. On the back, you’ll find five standard USB 3.0 Type-A ports. The right side contains two fast-charge ports capable of supplying more than the standard power, so long as you’ve connected the hub to an outlet using the power cable. Finally, the top contains a simple blue LED, which lit up as soon as we connected the USB cable to the computer.
@@ -79,6 +89,9 @@ Lifewire / Jonno Hill
 
  There were two quality control mishaps on the particular unit we tested. First, the internal ports were somewhat misaligned with the outer casing, making it difficult to plug in some devices. Second, the labels that should be printed around the ports didn’t make it onto this particular unit, despite all the product page images showing this feature. Not a huge deal, but also not a ringing endorsement for the device’s quality.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/-6zArDEXr2_gqDvtkeqZAbTQKiQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_05-c3e5d946a7e84b6cb1b395cff1103e42.jpg)
 
  Lifewire / Jonno Hill
@@ -95,10 +108,16 @@ Lifewire / Jonno Hill
 
  The hub provides seven USB 3.0 Gen 1 ports, offering a maximum transfer speed of 5Gbps. The two ports on the right side offer the same connectivity, but are capable of supplying more power.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/Ep4bZmgChjDyFofASwezrrPrDYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_04-e00baf7ec07a4762bf437cde18e2b4de.jpg)
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Performance: Just what you’d expect**
 
  The AmazonBasics 7 Port USB 3.0 Hub performed as expected in our tests, providing USB 3.0 Gen 1 speeds. The five ports in the back supply the standard 0.9A of power, whereas the ports on the side, designed for fast charging, can supply up to 1.5A. If you neglect to connect the hub to a power source, the entire device will have to share the 0.9A of power supplied by your computer’s[USB 3.0 port](https://www.lifewire.com/what-is-usb-3-0-2626038) .
@@ -109,6 +128,9 @@ Lifewire / Jonno Hill
 
  At a list price of $33.44, the AmazonBasics 7 Port USB 3.0 Hub isn’t a terrible deal, but given the materials used and the quality control issues, it’s definitely not an amazing deal. Buyers looking for a bit more might consider AUKEY’s 10-port powered hub or Amazon’s own AmazonBasics 10 Ports USB 3.0 Charging Hub Docking Station. Both these hubs offer more connections and dedicated power.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/AnTpc7CmLFfbEILGIFkFiA9Ur2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_03-063f9486bd7045c18c0643276029f85e.jpg)
 
  Lifewire / Jonno Hill

@@ -1,7 +1,7 @@
 ---
 title: A Deep Dive Into ZMI's Mighty Power Pack - Evaluating the Portable 20000 Watt Marvel
-date: 2024-08-01 14:52:38
-updated: 2024-08-03 11:43:22
+date: 2024-08-03T23:03:53.867Z
+updated: 2024-08-04T23:03:53.867Z
 categories:
   - BestProducts
 description: This Article Describes A Deep Dive Into ZMI's Mighty Power Pack - Evaluating the Portable 20000 Watt Marvel
@@ -39,6 +39,9 @@ thumbnail: https://www.lifewire.com/thmb/1Rmbv2Fs0ooDvUVovB4L9UeYVwc=/400x300/fi
 
 ## Anker USB 3.0 SuperSpeed 10-Port USB Data Hub
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Anker USB 3.0 SuperSpeed 10-Port Hub](https://www.lifewire.com/thmb/pBJOSnO1n_b2MqS-1_5tELF2Z3M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Anker_UsbHubs_4LW4142295_HeroSquare-4e0d4d2c9d45472d9dd2c8f06caed680.jpg)
 
  Lifewire / Jonno Hill
@@ -68,6 +71,9 @@ thumbnail: https://www.lifewire.com/thmb/1Rmbv2Fs0ooDvUVovB4L9UeYVwc=/400x300/fi
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Lots of ports in a standard configuration**
 
  At 1.7 x 5.7 x 0.9 inches HWD), the Anker USB 3.0 SuperSpeed 10-Port Hub is just about as lean as one might reasonably expect for a device with this many ports. The design is relatively simple, featuring a long rectangular shape, rounded edges, and a thick plastic construction. The device feels very light, but it’s not flimsy.
@@ -80,10 +86,17 @@ thumbnail: https://www.lifewire.com/thmb/1Rmbv2Fs0ooDvUVovB4L9UeYVwc=/400x300/fi
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ## **Setup Process: Quick and painless**
 
  To set up the Anker USB 3.0 SuperSpeed 10-Port Hub, remove the main hub from its packaging and connect the supplied USB (A-to-B) cable to both the hub and your computer. Next, connect the power source to an outlet. After that, the hub works out of the box. The manual provides a cursory overview of the operation of the device, but you likely won’t need it.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Connectivity: Data and fast charging**
 
  The Anker USB 3.0 SuperSpeed 10-Port Hub comes with a USB (A-to-B) cable to connect to your computer. An AC power adapter is included as well, and comes with a sizable power brick. The hub gives users ten USB 3.0 ports, offering a maximum transfer speed of 5Gbps. The charging port delivers more power than the other 9 making it ideal for charging more power hungry devices like phones and tablets.
@@ -92,6 +105,9 @@ thumbnail: https://www.lifewire.com/thmb/1Rmbv2Fs0ooDvUVovB4L9UeYVwc=/400x300/fi
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Performance: A few shortcomings**
 
  The Anker USB 3.0 SuperSpeed 10-Port Hub performed as promised in our tests, providing the expected 5Gbps speeds. The first nine ports supply the standard 0.9A of power, whereas the final charging port can supply up to 2.0A. If you neglect to connect the hub to a power source, the entire device will have to share the 0.9A of power supplied by your computer’s USB 3.0 port.
@@ -108,6 +124,9 @@ thumbnail: https://www.lifewire.com/thmb/1Rmbv2Fs0ooDvUVovB4L9UeYVwc=/400x300/fi
 
  At a list price of $52.99, the Anker USB 3.0 SuperSpeed 10-Port Hub is a little expensive for what it offers. We would have expected a price of around $10-13 less given the feature set. Anker itself offers cheaper, newer options that stand a good chance at luring shoppers away from this device.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Anker USB 3.0 SuperSpeed 10-Port Hub vs. Anker 10 Port 60W Data Hub with 7 USB 3.0 Ports and 3 PowerIQ Charging Ports**
 
  One of the fiercest competitors to the Anker USB 3.0 SuperSpeed 10-Port Hub is Anker’s own 10 Port 60W Data Hub. This model, 2 years newer, features 7 data ports and 3 PowerIQ dedicated charging ports at 2.1A. The kicker? This model only costs $42.99, forcing shoppers to decide how badly they_really_ need those extra data ports. If you want to charge more than one device at a time at full speed, the newer 10 Port 60W Data Hub definitely has an advantage.
@@ -120,6 +139,9 @@ thumbnail: https://www.lifewire.com/thmb/1Rmbv2Fs0ooDvUVovB4L9UeYVwc=/400x300/fi
 
  The Anker USB 3.0 SuperSpeed 10-Port Hub is a wonderful device that offers expanded USB connectivity and fast charging from one port, but it isn’t priced hyper-competitively. Still, if you want a simple solution to your USB problems, this hub is definitely a good option.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  USB 3.0 SuperSpeed 10-Port USB Data Hub

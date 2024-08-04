@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Backyard Wireless Coverage: The Netgear Orbi RB50Y Assessment"
-date: 2024-07-29 20:22:23
-updated: 2024-08-01 10:18:53
+date: 2024-08-03T23:03:58.169Z
+updated: 2024-08-04T23:03:58.169Z
 categories:
   - BestProducts
 description: "This Article Describes Enhancing Backyard Wireless Coverage: The Netgear Orbi RB50Y Assessment"
@@ -124,6 +124,9 @@ PHOTO: Amazon
 
 **Wireless Spec:** 802.11ac |**Security:** NETGEAR Armor, WPA2, Guest Wi-Fi Secure Access, Circle with Disney |**Standard/Speed:** AC3000 |**Bands:** Tri-band |**MU-MIMO:** Yes |**Beamforming:** Yes |**Wired Ports:** 4
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ![Netgear Orbi](https://www.lifewire.com/thmb/8avh1Ze3JbmbKGNMK8KABSk5mCY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetgearOrbi-899149c3f879469788d6c8f71f0c885b.jpg)
 
 Lifewire / Bill Thomas
@@ -162,6 +165,9 @@ PHOTO: Amazon
 
 **Wireless Spec:** 802.11ax |**Security:** WPA3 |**Standard/Speed:** AX4200 |**Bands:** Tri-band |**MU-MIMO:** Yes |**Beamforming:** Yes |**Wired Ports:** 4
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best Splurge
 
 [Netgear Orbi Wi-Fi 6 System](https://www.amazon.com/dp/B07WNY2WKG/?tag=lifewire-onsite-prod-20&ascsubtag=4139748%7Cn26c898adea614da9809527309478f9e615%7CB07WNY2WKG)
@@ -194,12 +200,18 @@ PHOTO: Amazon
 
 **Wireless Spec:** 802.11ax |**Security:** WPA3 |**Standard/Speed:** AX6000 |**Bands:** Tri-band |**MU-MIMO:** Yes |**Beamforming:** Yes |**Wired Ports:** 4
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Netgear Orbi AX6000](https://www.lifewire.com/thmb/cjLjOjMRWQJm5An87vAXSv1ZALw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetgearOrbiAX6000-01f5a284913b44099978b706c3a3fa79.jpg)
 
 Lifewire / Jeremy Laukkonen
 
 [Orbi Whole Home Tri-Band Mesh Wi-Fi 6 System Review](https://www.lifewire.com/orbi-whole-home-tri-band-mesh-wi-fi-6-system-review-5069596)
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best for Gaming
 
 [Asus ZenWiFi XT8](https://www.amazon.com/dp/B081GH8XRS?tag=lifewire-onsite-prod-20&ascsubtag=4139748%7Cn26c898adea614da9809527309478f9e615%7CB081GH8XRS)
@@ -231,6 +243,9 @@ PHOTO: Amazon
 
 Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best for Smart Homes
 
 [Google Nest Wi-Fi](https://www.amazon.com/dp/B07YMJ57MB?tag=lifewire-onsite-prod-20&ascsubtag=4139748%7Cn26c898adea614da9809527309478f9e615%7CB07YMJ57MB)
@@ -262,6 +277,9 @@ PHOTO: Amazon
 
 **Wireless Spec:** 802.11ac |**Security:** WPA3 |**Standard/Speed:** AC2200 |**Bands:** Tri-band |**MU-MIMO:** Yes |**Beamforming:** Yes |**Wired Ports:** 2
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Google Nest Wi-Fi](https://www.lifewire.com/thmb/O_4HqL-cj7KOoa_JTrVN--P752o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GoogleNestWi-Fi-9704c0e2a822442d89253e49f44d9948.jpg)
 
 Lifewire / Andrew Hayward
@@ -297,12 +315,18 @@ PHOTO: Amazon
 
 **Wireless Spec:** 802.11ac |**Security:** WPA2 |**Standard/Speed:** AC6600 |**Bands:** Tri-band |**MU-MIMO:** Yes |**Beamforming:** Yes |**Wired Ports:** 4
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ![Linksys Velop AC6600](https://www.lifewire.com/thmb/SkmNvOHzz4u2QHpClMEbMhzcBbQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LinksysVelopAC6600-2fd0f211926949cd9e38646f533fb981-6b8bc5f3009346dfaee7ef6b86357f34.jpg)
 
 Lifewire / Andy Zahn
 
 [Linksys Velop Review](https://www.lifewire.com/linksys-velop-review-powerful-mesh-router-5072402)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ## What to Look For in a Mesh Wi-Fi Network
 
  Every wireless router, no matter how many antennas it has or how powerful it is, suffers from the same issue: radio signals weaken when they pass through walls, floors, and other obstructions. Mesh Wi-Fi network systems are designed to solve this problem by placing a number of nodes throughout your home or business, creating a uniformly strong signal with no dead spots.

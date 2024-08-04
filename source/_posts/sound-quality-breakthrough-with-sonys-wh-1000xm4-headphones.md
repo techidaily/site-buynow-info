@@ -1,7 +1,7 @@
 ---
 title: Sound Quality Breakthrough with Sony's WH-1000XM4 Headphones
-date: 2024-07-31 19:53:49
-updated: 2024-08-03 10:48:48
+date: 2024-08-03T23:04:37.919Z
+updated: 2024-08-04T23:04:37.919Z
 categories:
   - BestProducts
 description: This Article Describes Sound Quality Breakthrough with Sony's WH-1000XM4 Headphones
@@ -39,6 +39,9 @@ Lifewire / Andy Zahn
 
 3.9
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Garmin Vivoactive 3 Music
 
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/FeCJ-wziP0Qoo9-pmifuFx9oZ7E=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Garmin-Vivoactive-3-Music-Smart-Watch-1-a182a2ce6d214080bd38bdb1c85e49a1.jpg)
@@ -72,10 +75,16 @@ Lifewire / Andy Zahn
 
  The Vivoactive 3 Music is operated using both the touch screen and a single button on the side. A short press of the button switches between the app currently in use and the watch face, while a long press brings up a circular menu with shortcuts to menus and apps. Most navigation is controlled via the touchscreen.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/M4iaS5RgiaubncJH8F-ZLVQQ8Po=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivoactive-3-Music-Smart-Watch-2-a0cd2c48cc0d423d85a3dc1f7e677160.jpg)
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Comfort: On the small side**
 
  The Vivoactive 3 Music is perfectly comfortable if you have small or medium-sized wrists, but the included band was a little small for my extra-large 9-inch wrists. Personally, I couldn’t stand to wear it all day long due to this sizing issue. In order to fully test the watch, I handed it off to a friend with smaller 7-inch wrists, who reported it was extremely comfortable.
@@ -84,6 +93,9 @@ Lifewire / Andy Zahn
 
  The included band was a little small for my extra-large 9-inch wrists.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Fairly straightforward**
 
  Getting started with the Vivoactive 3 Music is reasonably easy, though it did take me some time after connecting to my phone to get through all the necessary permissions and connections it requires. There were updates to install, and I needed to create an account with Garmin. I also downloaded Spotify and connected the Vivoactive 3 to my wireless earbuds. Note that you need to connect to Wi-Fi to download music via Spotify or another app.
@@ -98,6 +110,9 @@ Lifewire / Andy Zahn
 
 The touchscreen interface is responsive, though a bit laggy.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Battery: Variable duration**
 
  How long the battery in the Vivoactive 3 Music lasts depends entirely on how it’s used. If you only use its smartwatch capabilities occasionally then it’s good for a week at a time. However, when I made use of GPS, music, and other power-intensive features, it would run out in less than a full day of use.
@@ -106,6 +121,9 @@ The touchscreen interface is responsive, though a bit laggy.
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: Proprietary ecosystem**
 
  The Vivoactive 3 Music utilizes Garmin’s proprietary operating system and app store. I was impressed by the wide variety of apps available in the Garmin IQ store. There are numerous downloadable watch faces (I particularly loved one with a Star Trek theme), multiple music apps including Spotify and Amazon Music, maps, tools, and games.
@@ -118,6 +136,9 @@ The touchscreen interface is responsive, though a bit laggy.
 
  Of course, the standout feature of the Vivoactive 3 Music is that it can store and play music, which is all that separates the Vivoactive 3 from the Vivoactive 3 Music. It can store up to 500 songs, and I downloaded several albums via Spotify to listen to while out and about. The watch connects to wireless headphones via Bluetooth, which along with the built-in GPS and Wi-Fi means that in many cases you don’t need to lug your phone along with you to use many of the watch's features.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/dALT4qb1vS9VNEvePqYoZlqXX0s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivoactive-3-Music-Smart-Watch-4-a84ac637f7034353bffd90856070a7d8.jpg)
 
  Lifewire / Andy Zahn
@@ -126,6 +147,9 @@ The touchscreen interface is responsive, though a bit laggy.
 
  At its MSRP of $249 the Garmin Vivoactive 3 Music is acceptably priced for the features it packs in. However, as it can often be found for around fifty dollars less than this, it's a great value if you can snag it at that discount.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Garmin Vivoactive 3 Music vs. Fossil Sport**
 
  For less than half the cost of the Garmin Vivoactive 3 Music, the[Fossil Sport](https://www.lifewire.com/fossil-sport-review-5069585) (view on[Amazon](https://www.amazon.com/dp/B07HBGGCBP?tag=lifewire-onsite-prod-20&ascsubtag=5069587%7Cna0c1f8774f33409ea16d9544de2db3d309%7C) ) offers a lot of similar capabilities. The Fossil Sport also has a more premium look and a scroll wheel, as well as three dedicated buttons for navigation. Along with Google’s slicker feeling[WearOS](https://www.lifewire.com/best-tips-and-tricks-for-wear-os-4583030) , the Fossil Sport is easier to use and has a much brighter screen, making it significantly easier to read in bright daylight.

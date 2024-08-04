@@ -1,7 +1,7 @@
 ---
 title: Ultimate Evaluation of the Google Wireless Nest Doorbell on Batteries
-date: 2024-08-01 18:29:35
-updated: 2024-08-02 11:34:56
+date: 2024-08-03T23:04:23.681Z
+updated: 2024-08-04T23:04:23.681Z
 categories:
   - BestProducts
 description: This Article Describes Ultimate Evaluation of the Google Wireless Nest Doorbell on Batteries
@@ -37,6 +37,9 @@ Lifewire / Andrew Hayward
 
 4.7
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ## Oculus Quest 2 Elite Strap with Battery and Carrying Case
 
 ![Oculus Quest 2 Elite Strap With Battery and Carrying Case](https://www.lifewire.com/thmb/AUbeOfD3DzRDIqQzgZlx11gGrs4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus_Quest_2_Elite_Strap_HeroSquare-44edad5e6e114dc3887c4d81912b0181.jpg)
@@ -66,6 +69,10 @@ Lifewire / Andrew Hayward
 
  Available on its own for $49 or with a battery pack and carrying case for $129, the Elite Strap is a major improvement and worthwhile pickup for anyone who doesn’t love the original fit. I tested the latter configuration with the integrated battery pack and included case.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ## Design: A more supportive strap
 
  While the standard Oculus Quest 2 strap is simply made up of fabric bands—one around the back of your head and the other over the top—the Elite Strap is mostly plastic and significantly more supportive. That’s because it helps offset the weight of the visor itself by using the back of your head to securely keep the entire headset in place, thus minimizing its ability to sag or feel heavy on your face.
@@ -86,6 +93,9 @@ Lifewire / Andrew Hayward
 
  Meanwhile, the included carrying case in this bundle is large enough to fit the entire headset with the Elite Strap, as well as the two Oculus Touch controllers and the charger. The large pill-shaped design is non-traditional for a gadget case, looking like light grey sweatpants and with a wool-like felt texture. The case can be a little awkward to unzip, but it’s functional and roomy enough to hold everything, even if it doesn’t look nearly as cool as what it holds.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ## Setup Process: Snap it on
 
  Oculus built in a clever strap support system with the Quest 2 that lets you securely and seamlessly attach different kinds of straps. When you remove the standard strap, you’ll be left with these plastic “wings” on either side of the visor, and those snap right into the Elite Strap’s plastic bands to firmly attach it to the visor.
@@ -104,10 +114,16 @@ Lifewire / Andrew Hayward
 
  The Oculus Quest 2 Elite Strap fixes that issue for me, and I can’t imagine anyone will find it to be less comfortable than the standard strap. It’s a clever design that pulls inspiration from previous VR headsets to ably support the weight of the visor, while still allowing for subtle adjustments without needing to take the headset off your dome. It feels great in use, and more importantly, it helps take away some of the friction that bad straps can create, letting you sink further into the immersive illusion.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Oculus Quest 2 Elite Strap With Battery and Carrying Case](https://www.lifewire.com/thmb/v5qFVd_vGEfVkRoTgyxHCnpNO7Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus_Quest_2_Elite_Strap_04-6b671f2308db4225b4f355d0abd12f2d.jpg)
 
 Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Battery: Double the uptime
 
  The Oculus Quest 2’s built-in battery lasts only about two hours, and the Elite Strap’s secondary 4,676mAh pack effectively doubles that tally. It adds roughly two more hours of use, meaning you’ll have the freedom to play for much longer sessions and/or charge the headset less often.
@@ -126,12 +142,18 @@ Lifewire / Andrew Hayward
 
  Do you need the whole bundle with the battery pack and case, though? If you typically use the Quest 2 in short sessions and don’t mind plugging it in on a regular basis, then probably not. The battery_can_ be a major benefit, particularly if you find yourself sticking around in VR for longer time spans, but that’s not always the case for users. The Elite Strap, in my view, provides the greatest enhancement within this bundle.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Oculus Quest 2 Elite Strap With Battery and Carrying Case](https://www.lifewire.com/thmb/edSGh2YZZ5OIkwkHbEJnwtUjfGc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus_Quest_2_Elite_Strap_05-e018715e02944614b51af8a2cb98f055.jpg)
 
 Lifewire / Andrew Hayward
 
  The case is nice to have, and given that the original official Oculus Quest case sold for $40 on its own, this bundle doesn’t feel overpriced by comparison. Buying the Oculus Quest 2 headset plus this bundle comes out to nearly the same price as buying the original Quest headset ($399) plus its carrying case back when, but now you get double the battery life along with the myriad enhancements of the core Quest 2 hardware.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## Oculus Quest 2 Elite Strap vs. Orzero Adjustable Headband for Quest 2
 
  There’s a number of third-party straps for the Quest 2 out there, no doubt encouraged by the severe supply shortage of the Elite Strap following its release. Orzero’s Adjustable Headband for Oculus Quest 2 (view at[Amazon](https://www.amazon.com/dp/B08MFH6V6C/?tag=lifewire-onsite-prod-20&ascsubtag=5193587%7Cn10531399cf62445bbb649a7878d1155511%7C) ) is a well-reviewed alternative that’s a bit different in look, thanks to a much larger plastic shell on the back of your head, but it appears to work similarly to the official Elite Strap. It’s $10 cheaper than the official option, so it could be a good substitute or cheaper alternative. There is no version with a built-in battery pack, however.
@@ -148,6 +170,9 @@ Lifewire / Andrew Hayward
 * [Oculus Rift Headset and Controllers](https://www.lifewire.com/oculus-rift-review-4690370)
 * [Oculus Go Standalone VR Headset](https://www.lifewire.com/oculus-go-vr-headset-review-4690298)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Quest 2 Elite Strap with Battery and Carrying Case

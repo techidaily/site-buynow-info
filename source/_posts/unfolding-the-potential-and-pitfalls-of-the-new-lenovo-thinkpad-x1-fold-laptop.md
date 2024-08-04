@@ -1,7 +1,7 @@
 ---
 title: Unfolding the Potential and Pitfalls of the New Lenovo ThinkPad X1 Fold Laptop
-date: 2024-07-31 14:56:16
-updated: 2024-08-01 11:44:42
+date: 2024-08-03T23:04:18.719Z
+updated: 2024-08-04T23:04:18.719Z
 categories:
   - BestProducts
 description: This Article Describes Unfolding the Potential and Pitfalls of the New Lenovo ThinkPad X1 Fold Laptop
@@ -15,6 +15,9 @@ thumbnail: https://www.lifewire.com/thmb/AEe-qDWS5Ow23scMyPrW_CUdINM=/400x300/fi
 
 ## Halo Bolt Portable Charger/Jump Starter
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ![Halo Bolt Portable Charger/Jump Starter](https://www.lifewire.com/thmb/VanJTMWZjo_p7o3jv1uHBa1hAf8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-HeroSquare-889ebc2fc6b54573a26c09cabb34bd5c.jpg)
 
 Lifewire / Andrew Hayward
@@ -77,16 +80,25 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## **Setup Process: Load it up**
 
  You’ll need to charge the brick to total capacity before using it, and the four green battery lights on the right side of the front face indicate how much capacity is currently left. The battery is fully charged when all four are illuminated when pressing any of the power buttons. Otherwise, for the AC and USB ports, the Halo Bolt is a plug-and-play charger.
 
  The whole process for jump-starting a car is detailed in the included instructions. The Halo Bolt has built-in safety features that ensure you have correctly aligned the jumper cables before starting the connected car, boat, lawnmower, or other vehicles.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/mUdXUjWxeupVqNR_y43_eFTC0ic=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-02-69b93dc934684ef5b71a40215f6162f2.jpg)
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ## **Charging Speed and Battery: Not so long-lasting**
 
  The Halo Bolt has 58,830mWh of battery power within, and the official description suggests that it can provide up to several hours of additional usage for a MacBook Pro or[iPad Air](https://www.lifewire.com/apple-ipad-air-2019-review-4688969) . In my testing, the results didn’t quite match those targets.
@@ -105,10 +117,16 @@ Lifewire / Andrew Hayward
 
 Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Price: It’s priced right**
 
  For a jack-of-all-trades power brick that can jump-start your car and charge its battery, serve as a bright flashlight for roadside emergencies, and charge a wide array of portable devices, the $100 price seen on Amazon looks pretty reasonable. However, given that it couldn’t charge my laptop to total capacity and lacks a USB-C port, handier, higher-capacity charging bricks are available specifically for laptop and smartphone charging needs.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Halo Bolt ACDC 58830 vs. ZMI PowerPack 20000**
 
  Here’s a prime example. The[ZMI PowerPack 20000](https://www.lifewire.com/zmi-powerpack-20000-review-5071991) (see on[Amazon](https://www.amazon.com/dp/B072BD98CM?linkCode=ogi&th=1&psc=1&tag=lifewire-onsite-prod-20&ascsubtag=5071993%7Cn35698be70c304b229c7a194255ab2d3620%7C) ) doesn’t have an AC port. However, it’s pocket-friendly, packs a lot of capacity (20,000mAh), and can quickly recharge laptops with its included USB-C port. It also has two USB-A ports and sufficient juice to recharge the same MacBook Pro from empty. Best of all, it only costs $70.

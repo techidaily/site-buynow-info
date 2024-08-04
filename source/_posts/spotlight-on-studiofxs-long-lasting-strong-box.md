@@ -1,7 +1,7 @@
 ---
 title: Spotlight on StudioFX's Long-Lasting, Strong Box
-date: 2024-07-30 14:51:45
-updated: 2024-08-02 12:17:11
+date: 2024-08-03T23:03:53.666Z
+updated: 2024-08-04T23:03:53.666Z
 categories:
   - BestProducts
 description: This Article Describes Spotlight on StudioFX's Long-Lasting, Strong Box
@@ -13,8 +13,14 @@ thumbnail: https://www.lifewire.com/thmb/oWM-tSYp5hdg_4purj7989gLsiM=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ## Pioneer BDR-XD05B Blu-ray Burner
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/criWlDbpC_WTmf9GyQYLoo2NOvM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_HeroSquare-7488fe2dd07248ca99020859f82cefaf.jpg)
 
 Lifewire / Scott Gercken
@@ -67,6 +73,9 @@ Lifewire / Scott Gercken
 
  Check out our buyers guide for more information on what you should look for in an optical drive.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Design: Feels a little flimsy**
 
  The Pioneer BDR-XD05B[Blu-ray Burner](https://www.lifewire.com/best-desktop-blu-ray-drives-832423) is a sleek, small black drive. It’s a tiny 5.12” square by .5” tall with a black cover and a metal bottom. The clamshell case opens to 65 degrees, so it’s easy to slide a disc onto the spindle. The button to open the clamshell is on the front left of the drive, and there’s a blue LED indicator that lights up when the drive is plugged into a power source. The drive comes with an unusually shaped USB cord, with a male micro-B USB 3.0 on one side and two USB A male ends on the other. One is designed to power the drive and one is for data transfer. The back of the drive has both a micro-B USB 3.0 port and a DC power port as a second option for powering it. The Pioneer BDR-XD05B Blu-ray Burner’s look is minimalist, black with just a small gray Blu-ray logo on the top.
@@ -81,6 +90,9 @@ Lifewire / Scott Gercken
 
  Lifewire / Scott Gercken
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Setup Process: Some baffling software issues**
 
  The setup process for the Pioneer BDR-XD05B is both really easy and frustrating. The easy part is that we only needed to plug the USB cord into the right slots to get it running on the Macbook we used to test it. The frustrating part is that the included software only works on Windows computers. A major producer like Pioneer only including PC software is very frustrating.
@@ -89,6 +101,9 @@ Lifewire / Scott Gercken
 
  After 25 minutes of installation, there was a dialog indicating installation was complete. Yet, there were still two instances of the installer program running, and each showed an alert that said it was installing one program or another without any indication of progress.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/xaXRYsi71hFhblhSiQT18pmQ2Mw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_02-5138fb74431a40c1b0cbb76c30bc6350.jpg)
 
  Lifewire / Scott Gercken
@@ -111,6 +126,9 @@ Lifewire / Scott Gercken
 
  We think that the best reason to watch a Blu-ray isn’t the sharp[HD image](https://www.lifewire.com/what-you-need-to-see-hd-1847338) but the depth of sound this format can produce. But you don’t get any of that when you watch a Blu-ray using the Pioneer BDR-XD05B, because you have to watch it on a computer with computer speakers. It didn’t get any better when we connected the computer to the TV via HDMI—the sound remained flat and muddy.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Software: Basic useful software**
 
  Like we wrote above, the included software was a mess to install, with windows popping up all over the place. The included software is called “CyberLink Media Suite 10.” It includes PowerDVD 14, Power2Go 8, and PowerDirector 14 LE. PowerDVD 14 is an app for playing Blu-rays and DVD’s on your[optical drive](https://www.lifewire.com/what-is-an-optical-disc-drive-2618157) . Power2Go 8 is a burning tool, and it has some system recovery tools, too. Powerdirector 14 LE is a movie editing app. All-in-all, this is a pretty useful, basic suite of software without anything that especially stands out. It gets the job done, and that’s what matters.
@@ -121,6 +139,9 @@ Lifewire / Scott Gercken
 
  With an MSRP of $100, The Pioneer BDR-XD05B is one of the least expensive Blu-ray burners on the market.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ## **Competition: Performs well in this price range**
 
 **_MthsTec Slim External Blu-ray Drive_ :** Looks great at about the same price as the Pioneer BDR-XD05B, $119 MSRP, but there’s no website and no good information from the brand. It makes us wonder about customer service and quality. Try as we might, we couldn’t find any documentation about Blu-ray burning capabilities.

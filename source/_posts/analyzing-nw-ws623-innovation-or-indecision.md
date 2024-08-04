@@ -1,7 +1,7 @@
 ---
 title: "Analyzing NW-WS623: Innovation or Indecision?"
-date: 2024-08-01 21:54:44
-updated: 2024-08-03 12:52:39
+date: 2024-08-03T23:04:40.292Z
+updated: 2024-08-04T23:04:40.292Z
 categories:
   - BestProducts
 description: "This Article Describes Analyzing NW-WS623: Innovation or Indecision?"
@@ -21,6 +21,9 @@ Apple TV 4K.
 
 Apple
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Overall Findings
 
  Apple TV 4K
@@ -37,6 +40,9 @@ Apple
 
  Apple TV and Roku provide intuitive user experiences that make it easy for anyone in the house to find something to watch. Both stream up to 4K video to an HD-capable TV through an available[HDMI port](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) .
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Roku Ultra Front and Rear View](https://www.lifewire.com/thmb/UHlFM60iWPJ5kifHZhw6UtqJc2I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/roku-ultra-front-back-xxx-5b0d742343a1030036e72b02.jpg)
 
  Roku Ultra Front and Rear View.
@@ -51,6 +57,9 @@ Roku
 
  Switching inputs with your TV remote to get Apple TV and Roku content is a drag. Both platforms support the HDMI CEC protocol. So, when you start a video, the device sends a signal to a compatible TV or monitor to power on and switch inputs to the correct source. Make sure your display is [set up to handle HDMI-CEC commands](https://www.lifewire.com/hdmi-cec-4158343) .
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Out-Of-The-Box Experience: Smooth Setup
 
  Apple TV 4K
@@ -71,6 +80,11 @@ Roku
 
  In an unscientific timed setup of both units, Apple TV had an episode of_American Horror Story_ up and playing in 15 minutes, while the Roku took 20 minutes to get from the box to broadcast.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ## Price: Apple Charges More
 
  Apple TV 4K
@@ -133,6 +147,9 @@ Roku
 
  Roku connects to a USB thumb drive or networked storage to access your media. This is an inelegant way to manage music, keep track of playlists, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Voice Control: Your Connected Home
 
  Apple TV 4K
@@ -153,6 +170,9 @@ Roku
 
 [View on B&H Photo Video](https://www.bhphotovideo.com/c/product/1731226-REG/apple%5Fmn873ll%5Fa%5Fapple%5Ftv%5F4k%5F3rd.html)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Final Verdict: Apple TV Is Hard to Beat
 
  For its hard-to-beat combination of easy connection, native smartphone apps, polished user interface, and seamless connection between streaming and owned content, the Apple TV wins. And if Apple and Android learn to play better together, the Apple TV could become the box to own.
