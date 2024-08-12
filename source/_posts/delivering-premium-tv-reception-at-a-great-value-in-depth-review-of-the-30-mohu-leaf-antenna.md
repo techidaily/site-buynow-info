@@ -1,0 +1,189 @@
+---
+title: Delivering Premium TV Reception at a Great Value - In-Depth Review of the 30 Mohu Leaf Antenna
+date: 2024-08-11T00:09:02.764Z
+updated: 2024-08-12T00:09:02.764Z
+categories:
+  - BestProducts
+description: This Article Describes Delivering Premium TV Reception at a Great Value - In-Depth Review of the 30 Mohu Leaf Antenna
+excerpt: This Article Describes Delivering Premium TV Reception at a Great Value - In-Depth Review of the 30 Mohu Leaf Antenna
+thumbnail: https://thmb.techidaily.com/48f4aa553b20375d2e1fe666e74fcb8eb031257aa3408ce619e341568a63ddba.jpg
+---
+
+## Delivering Premium TV Reception at a Great Value - In-Depth Review of the 30 Mohu Leaf Antenna
+
+4.2
+
+## Mohu Leaf 30
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/AyUAqIhKcHESYKlEswC1pUtS1Po=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
+
+Lifewire / Jonno Hill
+
+ What We Like
+
+* Nice build quality
+* Simple design
+* Easy setup
+* Good performance
+
+ What We Don't Like
+
+* Limited range
+* Cheaper options exist
+
+ The Mohu Leaf 30 TV Antenna was among the more affordable antennas tested but didn’t offer the best performance for anyone beyond city limits.
+
+[View On Amazon](https://www.amazon.com/Mohu-Television-Paper-thin-Performance-MH-110598/dp/B00HSMK580/?tag=lifewire-onsite-prod-20&ascsubtag=4843108%7Cnc1d14f8f39df4c2dac4b8d8ca33f9ac217%7CB00HSMK580) [View On Walmart $48](https://www.walmart.com/ip/Mohu-Leaf-30-Flat-30-Mile-Indoor-HDTV-Antenna/36126033) [View On Home Depot $41](https://www.homedepot.com/p/Mohu-Leaf-30-HDTV-Indoor-Antenna-MH-110583/205146429?slfpid=3)
+
+4.2
+
+## Mohu Leaf 30
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
+![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
+
+Lifewire / Jonno Hill
+
+[View On Amazon](https://www.amazon.com/Mohu-Television-Paper-thin-Performance-MH-110598/dp/B00HSMK580/?tag=lifewire-onsite-prod-20&ascsubtag=4843108%7Cnc1d14f8f39df4c2dac4b8d8ca33f9ac217%7CB00HSMK580) [View On Walmart $48](https://www.walmart.com/ip/Mohu-Leaf-30-Flat-30-Mile-Indoor-HDTV-Antenna/36126033) [View On Home Depot $41](https://www.homedepot.com/p/Mohu-Leaf-30-HDTV-Indoor-Antenna-MH-110583/205146429?slfpid=3)
+
+ in this article
+
+ Expand
+
+* [Design](https://www.lifewire.com/#toc-design-basic-but-effective)
+* [Setup](https://www.lifewire.com/#toc-setup-dead-simple)
+* [Performance](https://www.lifewire.com/#toc-performance-acceptable-but-not-incredible)
+* [Range](https://www.lifewire.com/#toc-range-fairly-limited)
+* [Price](https://www.lifewire.com/#toc-price-excellent-for-the-performance)
+* [Competition](https://www.lifewire.com/#toc-mohu-leaf-30-tv-antenna-vs-mohu-blade-tv-antenna)
+* [Final Verdict](https://www.lifewire.com/#toc-final-verdict)
+* [Specs](https://www.lifewire.com/#toc-full-spec)
+
+ _We purchased Mohu Leaf 30 TV Antenna so our expert reviewer could thoroughly test and assess it. Keep reading for our full product review._
+
+ The Mohu Leaf 30 TV Antenna is a fairly barebones unpowered antenna that utilizes the same paper-thin rectangular design that can be found on some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) on the market. This design comes with its share of pros (easy setup, not too much clutter) and cons (limited performance, can’t stand on its own).
+
+ Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+## **Design: Basic but effective**
+
+ You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
+
+ The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
+## **Setup: Dead simple**
+
+ Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
+
+## **Performance: Acceptable but not incredible**
+
+ The Mohu Leaf 30 TV Antenna wasn’t the highest performing antenna that I tested, even among similar unpowered antennas. In my channel acquisition test, the Leaf picked up 56 channels on average across all the iterations performed.
+
+ My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
+
+## **Range: Fairly limited**
+
+ The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## **Price: Excellent for the performance**
+
+ The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
+
+ Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
+
+## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
+
+ Mohu also makes the[Mohu Blade](https://www.lifewire.com/mohu-blade-tv-antenna-review-4843106) , a powered antenna with a slightly more unique design for a minor premium of $40\. This antenna managed to reliably acquire an average of 69 channels in my tests, a big leap from the performance of the Mohu Leaf 30 TV Antenna. That having been said, the Blade does require a power source, and installation is slightly more cumbersome than that of the Leaf. If I wasn’t having any trouble getting the channels I watch with the Leaf, I probably wouldn’t upgrade to the Blade personally.
+
+ Final Verdict
+
+**No fuss, good value.**
+ The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Specs
+
+* Product Name  Leaf 30
+* Product Brand  Mohu
+* Price  $32.00
+* Release Date  March 2011
+* Product Dimensions  12.5 x 11.7 x 1.5 in.
+* Color  White
+* Powered  No
+* Range  30 miles
+* Warranty  One year
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-essential-guide-leading-video-editing-tools-androidpc/"><u>[New] In 2024, Essential Guide  Leading Video Editing Tools (Android/PC)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-pixel-perfect-free-mobile-photography-booster/"><u>[Updated] 2024 Approved  Pixel Perfect  Free Mobile Photography Booster</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-google-hangout-optimization-advanced-methods-4-tips/"><u>[Updated] Google Hangout Optimization  Advanced Methods, 4 Tips</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-most-advanced-drone-technology-aligned-with-gopros/"><u>[Updated] Most Advanced Drone Technology Aligned with GoPros</u></a></li>
+<li><a href="https://article-posts.techidaily.com/conquering-consumer-attention-metaverse-marketing-tips-for-2024/"><u>Conquering Consumer Attention  Metaverse Marketing Tips for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/correcting-ui-glitches-in-civilization-v/"><u>Correcting UI Glitches in Civilization V</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-pros-and-cons-of-the-economical-thermopro-tp67-our-comprehensive-review/"><u>Exploring the Pros and Cons of the Economical ThermoPro TP67 - Our Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gaming-on-a-budget-or-for-hardcore-gamers-nintendos-lite-vs-oled-face-off-explained/"><u>Gaming on a Budget or for Hardcore Gamers? Nintendo's Lite Vs. OLED Face-Off Explained</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-find-your-ideal-tablet-a-comparison-of-sizes-and-weights-for-easy-carry/"><u>How to Find Your Ideal Tablet: A Comparison of Sizes & Weights for Easy Carry</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-turn-off-find-my-apple-iphone-xr-when-phone-is-broken-drfone-by-drfone-ios/"><u>How to Turn Off Find My Apple iPhone XR when Phone is Broken? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Additional Tips About Sinnoh Stone For Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-driving-traffic-to-long-form-videos-via-shorts/"><u>In 2024, Driving Traffic to Long-Form Videos via Shorts</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-samsung-galaxy-a14-4g-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Samsung Galaxy A14 4G to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-utilizing-famebit-techniques-for-youtube-sponsorship-success/"><u>In 2024, Utilizing FameBit Techniques for YouTube Sponsorship Success</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-spyro-reignited-trilogy-tiny-hero-huge-worth/"><u>In-Depth Analysis of Spyro Reignited Trilogy: Tiny Hero, Huge Worth</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inspecting-5-essentials-before-a-speaker-purchase/"><u>Inspecting 5 Essentials Before a Speaker Purchase</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/instant-macboost-opt-for-ssd-upgrade-guide/"><u>Instant MacBoost: Opt for SSD Upgrade Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lowest-cost-high-performance-a-complete-examination-of-the-vuebell-video-doorbell-range/"><u>Lowest Cost, High Performance: A Complete Examination of the VueBell Video Doorbell Range</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-ai-insights-all-inclusive-openai-overview/"><u>Mastering AI Insights: All-Inclusive OpenAI Overview</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/motorola-one-5g-ace-analysis-exceptional-network-speeds-and-impressive-power-endurance-review/"><u>Motorola One 5G Ace Analysis: Exceptional Network Speeds & Impressive Power Endurance Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/powercoreplus-26800-portable-charger-evaluation-a-streamlined-tech-companion/"><u>PowerCore+ 26800 Portable Charger Evaluation: A Streamlined Tech Companion</u></a></li>
+<li><a href="https://extra-support.techidaily.com/precision-flight-matching-cameras-to-ideal-gimbal-models-for-2024/"><u>Precision Flight  Matching Cameras to Ideal Gimbal Models for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revamping-the-undead-a-comprehensive-review-of-7-days-to-die-crafting-fun-in-zombie-apocalypse-simulation/"><u>Revamping the Undead: A Comprehensive Review of '7 Days to Die' - Crafting Fun in Zombie Apocalypse Simulation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-the-poweradd-pilot-pro2-charger-all-in-one-solutions-for-electronics-charging-needs/"><u>Review: The POWERADD Pilot Pro2 Charger - All-in-One Solutions for Electronics Charging Needs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/smartphone-face-off-why-the-samsung-galaxy-s21-ultra-leaves-competitors-in-the-dust/"><u>Smartphone Face-Off: Why the Samsung Galaxy S21 Ultra Leaves Competitors in the Dust</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tasty-chaos-unleashed-the-ultimate-overcooked-2-analysis/"><u>Tasty Chaos Unleashed - The Ultimate Overcooked! 2 Analysis</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/techniques-for-softening-volume-in-logic-pro-mixing/"><u>Techniques for Softening Volume in Logic Pro Mixing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-huawei-mediapad-m5-exceptional-viewing-and-listening-pleasure/"><u>The Ultimate Guide to Huawei MediaPad M5: Exceptional Viewing & Listening Pleasure</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-withings-move-where-vintage-elegance-meets-modern-innovation-in-a-smartwatch/"><u>The Ultimate Review of Withings Move – Where Vintage Elegance Meets Modern Innovation in a Smartwatch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-essential-gadgets-and-widgets-for-your-iphone/"><u>Top Essential Gadgets & Widgets for Your iPhone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-essential-iphone-gadgets-and-add-ons-for-enhanced-performance/"><u>Top Essential iPhone Gadgets and Add-Ons for Enhanced Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-mouse-choices-for-your-mac/"><u>Top-Rated Mouse Choices for Your Mac</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/top-tier-mp4-director-for-facebook/"><u>Top-Tier MP4 Director for Facebook</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-asus-rog-rapture-gt-ax11000-top-tier-performance-for-gamers/"><u>Ultimate Guide to Asus ROG Rapture GT-AX11000: Top-Tier Performance for Gamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-capabilities-of-the-netgear-c370e-when-a-mighty-modem-collides-with-an-efficient-router/"><u>Unveiling the Capabilities of the Netgear C370e – When a Mighty Modem Collides with an Efficient Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-champion-of-gamers-an-in-depth-analysis-of-the-alienware-aurora-r1n-as-best-gaming-computer-of-2021/"><u>Unveiling the Champion of Gamers: An In-Depth Analysis of the Alienware Aurora R1n as Best Gaming Computer of 2021</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-clarity-of-communication-with-the-midland-gxt1000vp4-transceiver/"><u>Unveiling the Clarity of Communication with the Midland GXT1000VP4 Transceiver</u></a></li>
+</ul></div>
