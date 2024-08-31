@@ -1,7 +1,7 @@
 ---
 title: Discover How-To Geek's Most Innovative Tech Gifts Costing Under $100 This Holiday 2E
-date: 2024-08-27 19:15:32
-updated: 2024-08-29 10:53:43
+date: 2024-08-30T14:02:50.400Z
+updated: 2024-08-31T14:02:50.400Z
 tags:
   - buying-guides
 categories:
@@ -53,6 +53,9 @@ A cute digital pet that can take pictures, play games, and just generally be ado
 
 [$60 at Amazon](https://www.amazon.com/dp/B08XWNLV1S) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ##  Mario Kart Live: Augmented Reality Kart Racing
 
 ![Mario Kart Live kart on ground](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/mario-kart-live-circuit.jpg) 
@@ -77,6 +80,9 @@ Bring the magic of Mario Kart to life, with the help of a Nintendo Switch.
 
 ![Playstation Classic on light grey background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/playstation-classic.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 Sony
 
  This one's a gift for the older gamer. It's for those who miss the days when game graphics were sharp and pointy. It can also be an excellent gift for younger gamers if they're interested in the retro scene.
@@ -97,6 +103,9 @@ Gaming for the discerning older gamer, or the retro-obsessed.
 
 ![Fitbit Inspire 2s on grey background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/fitbit-inspire-2.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Fitbit
 
  People who are into fitness come in two flavors. There are those who've been doing it for ages and those who are just starting and looking for some guidance. Whichever group your giftee falls under, the [Fitbit Inspire 2](https://www.fitbit.com/global/us/products/trackers/inspire2?sku=418BKBK) is a great choice.
@@ -107,12 +116,18 @@ Fitbit
 
 ![fitbit-2-logo-2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/fitbit-2-logo-2.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 #####  Fitbit Inspire 2
 
 A fitness tracker for the heartrate, activity levels, and footsteps of fitness fanatics of any level. 
 
 [Shop Now](https://www.fitbit.com/global/us/products/trackers/inspire2?sku=418BKBK) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ##  Fujifilm Instant Film Camera: Pictures on the Move
 
 ![instax mini instant camera on pink background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/instax-mini-11.jpg) 
@@ -129,16 +144,25 @@ Instax
 
 ![fujifilm-logo-2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/fujifilm-logo-2.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #####  Fujifilm - instax mini 11 Instant Film Camera
 
 A quirky little camera for the budding photographer. 
 
 [Shop Now](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Ffujifilm-instax-mini-11-instant-film-camera-sky-blue%2F6400595.p%3FskuId%3D6400595) 
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Ember Smart Mug: Keep that Coffee Hot
 
 ![person controlling ember mug temperature](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/ember-mug.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 Ember
 
  Many people love a good cup of coffee, but they also get distracted after making it, and the coffee gets cold. There's not a lot of people out there that enjoy cold coffee.
@@ -161,6 +185,9 @@ A smart mug that keeps hot drinks right at the perfect temperature.
 
 ![An Amazon Echo Show on a table.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/echo-show-5.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Amazon
 
  If the person you're buying for is keen on starting a smart home but hasn't yet made the leap, you can help them out with some Amazon Echo products.
@@ -183,16 +210,25 @@ A smart assistant and smart speaker in one stylish package.
 
 ![41W5ZYJXFUS._SL500_-5](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/41w5zyjxfus-_sl500_-5.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #####  Amazon Echo Show 5
 
 A smart screen for the best tv shows, films, and even the chance to chat to family. 
 
 [See at Amazon](https://www.amazon.com/All-new-Echo-Show-5-2nd-Gen-2021-release/dp/B08KJN3333/) [Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Famazon__echo_show_5_%2F6461323.p%3FskuId%3D6461323) [Target](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fdisneyplus.bn5x.net%2Fc%2F156932%2F564546%2F9358%3FsubId1%3DUUhtgUeUpU208331%26subId2%3Dehtg%26u%3Dhttps%253A%252F%252Fwww.target.com%252Fp%252Famazon%255Fecho%255Fshow%255F5%255F2%252F-%252FA-83346975) 
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Nest Devices: Google's Smart Devices
 
 ![Google Nest Hub on nightstand](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/google-nest-hub.jpg) 
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 Google
 
  There are different smart home ecosystems available, and which items and apps are compatible depends on the hub someone has. If your giftee enjoys Google devices, then you'll want to buy them Nest smart home products.
@@ -233,3 +269,46 @@ See the latest shows, films, and even talk to loved ones with the Nest Hub. It c
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-frontline-firefight-top-7-fps-battles-ranked/"><u>[New] 2024 Approved  Frontline Firefight - Top 7 FPS Battles Ranked</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-direct-download-of-video-to-mp3-from-vimeo-for-2024/"><u>[New] Direct Download of Video to MP3 From Vimeo for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-cutting-edge-free-and-easy-top-11-youtube-title-inventors/"><u>[New] In 2024, Cutting-Edge, Free, and Easy  Top 11 YouTube Title Inventors</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-deciphering-the-latest-instagram-posting-rules/"><u>[New] In 2024, Deciphering the Latest Instagram Posting Rules</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-pioneering-virtual-meetings-mastering-gmail-and-zoom-usage-together/"><u>[New] In 2024, Pioneering Virtual Meetings  Mastering Gmail and Zoom Usage Together</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-the-eternal-methodology-for-instantaneous-tiktok-linking/"><u>[New] In 2024, The Eternal Methodology for Instantaneous TikTok Linking</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-xiaomi-redmi-k70-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Xiaomi Redmi K70 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-dimming-the-spotlight-in-pre-production-pro/"><u>2024 Approved  Dimming the Spotlight  In Pre-Production Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-from-grayscale-to-graded-grandeur-color-artistry/"><u>2024 Approved  From Grayscale to Graded Grandeur  Color Artistry</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/4k-video-experience-with-panasonic-hc-wxf991/"><u>4K Video Experience with Panasonic HC-WXF991</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-insignia-ns-43df710na19-fire-tv-stick-plus-with-alexa-voice-remote-high-definition-streaming-at-a-budget/"><u>Amazon Insignia NS-43DF710NA19 Fire TV Stick Plus with Alexa Voice Remote - High-Definition Streaming at a Budget</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ancs-marshall-revamp-aesthetics-and-harmony/"><u>ANC's Marshall Revamp: Aesthetics & Harmony</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-on-the-samsung-galaxy-fit-perfect-match-for-health-conscious-users/"><u>Comprehensive Guide on the Samsung Galaxy Fit – Perfect Match for Health-Conscious Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dead-simple-lighting-with-tt560-speedlite/"><u>Dead-Simple Lighting with TT560 Speedlite</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-performance-a-breakdown-of-tablets-by-their-silicon-brains/"><u>Decoding Performance: A Breakdown of Tablets by Their Silicon Brains</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-truecaller-an-ultimate-user-review-for-informed-choices/"><u>Decoding TrueCaller: An Ultimate User Review for Informed Choices</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-strategies-to-correct-the-update-failure-error-0x800f0922-on-windows-10-devices/"><u>Effective Strategies to Correct the Update Failure (Error 0X800F0922) on Windows 10 Devices</u></a></li>
+<li><a href="https://driver-download.techidaily.com/enhanced-power-efficiency-achieved-with-resolved-microsoft-battery-driver-issues-acpi-compliance/"><u>Enhanced Power Efficiency Achieved with Resolved Microsoft Battery Driver Issues (ACPI-Compliance)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhancing-in-car-entertainment-with-the-lihan-lhfm1039-bluetooth-fm-transmitter-a-detailed-review/"><u>Enhancing In-Car Entertainment with the LIHAN LHFM1039 Bluetooth FM Transmitter - A Detailed Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exclusive-guide-best-mobile-options-for-seniors-top-picks-for-202-cuisine/"><u>Exclusive Guide: Best Mobile Options for Seniors - Top Picks for 202 Cuisine</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-a-comprehensive-review-of-the-ring-battery-doorbell-proplus/"><u>Expert Insights: A Comprehensive Review of the Ring Battery Doorbell Pro+</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experts-weigh-in-on-the-gaomon-pd1-a-pen-display-analysis/"><u>Experts Weigh in on the Gaomon PD1#: A Pen Display Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-the-kobo-nia-book-e-reader-stacks-up-against-the-kindle-giant/"><u>How the Kobo Nia Book E-Reader Stacks Up Against the Kindle Giant</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Samsung Galaxy S23 Tactical Edition? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-saving-facebook-gifs-on-computer-phone-and-tablet/"><u>In 2024, Saving Facebook GIFs on Computer, Phone & Tablet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-oneplus-9-numerical-disappointments-uncovered/"><u>In-Depth Analysis of OnePlus 9 - Numerical Disappointments Uncovered</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-the-versatile-hp-chromebook-11-perfect-companion-for-school-office-and-entertainment/"><u>In-Depth Evaluation of the Versatile HP Chromebook 11: Perfect Companion for School, Office & Entertainment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-the-world-of-high-tech-a-comprehensive-review-of-the-alienware-aurora-r9-by-dell-where-form-meets-function-in-gaming-computers/"><u>Inside the World of High-Tech: A Comprehensive Review of the Alienware Aurora R9 by Dell, Where Form Meets Function in Gaming Computers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-the-vintage-netgear-c3000-still-a-top-choice-a-detailed-review-on-its-functionality-today/"><u>Is the Vintage Netgear C3000 Still a Top Choice? A Detailed Review on Its Functionality Today</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/macbook-pro-13-saves-the-day-with-procase-a-straightforward-affordable-cover-reviewed/"><u>MacBook Pro 13 Saves the Day with ProCase: A Straightforward, Affordable Cover Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-unknown-and-slaying-beasts-an-analytical-review-of-monster-hunter-world/"><u>Navigating the Unknown and Slaying Beasts! An Analytical Review of Monster Hunter: World</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revamped-marshall-ancs-tasteful-design-and-engaging-music/"><u>Revamped Marshall - ANC's Tasteful Design & Engaging Music</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-quintessential-guide-to-understanding-lgs-new-smartwatch-era-with-wearos-amoeba/"><u>The Quintessential Guide to Understanding LG's New Smartwatch Era with WearOS Amoeba</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-user-review-mastering-microsoft-onenote-through-the-powerful-features-of-onetastic-add-in/"><u>The Ultimate User Review: Mastering Microsoft OneNote Through the Powerful Features of Onetastic Add-In</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-6-iphone-antivirus-software-applications-a-comprehensive-guide/"><u>Top 6 iPhone Antivirus Software Applications: A Comprehensive Guide</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshoot-and-repair-not-found-d3dx939dll-files-easily/"><u>Troubleshoot and Repair 'Not Found' d3dx9_39.dll Files Easily</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-steps-to-resolve-stuttering-issues-in-age-of-empires-iv/"><u>Troubleshooting Steps to Resolve Stuttering Issues in Age of Empires IV</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-visual-potential-a-review-of-powershot-sx70-the-zoomers-dream/"><u>Unlocking Visual Potential: A Review of PowerShot SX70, The Zoomer's Dream</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-lamicall-ss-robust-stand-for-tablets-performance-meets-style/"><u>Unveiling the Lamicall S's Robust Stand for Tablets: Performance Meets Style</u></a></li>
+</ul></div>

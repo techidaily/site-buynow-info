@@ -1,7 +1,7 @@
 ---
 title: "A Player's Perspective: Why Portable Consoles Win for Me in Gaming"
-date: 2024-08-26 16:58:31
-updated: 2024-08-29 12:21:51
+date: 2024-08-30T14:07:51.161Z
+updated: 2024-08-31T14:07:51.161Z
 tags:
   - games
   - tv
@@ -31,6 +31,9 @@ thumbnail: https://thmb.techidaily.com/787952173ce9e83e0ef633a4cedb93e7fb52d657c
 
  I've spent a year with the Steam Deck, and in that time I've slowly been spending less time playing games on my desktop PC. After discovering the delights of local game streaming and acquiring a second handheld PC, an ASUS ROG Ally, my desktop PC doesn't stand a chance. Here’s why.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  I Can Game Wherever I Want, In Any Position
 
  I mostly use my [ROG Ally](https://some-guidance.techidaily.com/2024-approved-streamline-and-shine-the-top-5-video-quality-tools/) and [Steam Deck](https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-vivo-x100-drfone-by-drfone-virtual-android/) in my apartment, and the freedom to start gaming on the couch and then move to bed or sit on the balcony once the sun sets is one of the main reasons why I love handheld gaming so much.
@@ -59,6 +62,9 @@ Marcus Mears III / How-To Geek
 
  Now I can game without headphones, and since I’m gaming on a handheld, the sounds coming out of it are targeted directly towards me, not bothering anyone else around me. Gaming on a handheld is far less distracting for anyone sitting nearby. It makes for a more social experience all around, while still playing video games. It's a win-win situation.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ##  I Don't Want to Sit At a Desk After Work
 
  During my college days, my PC was an entertainment-first machine that I only occasionally used for serious work. I could spend six hours sitting in front of it, writing an essay and then spend six hours more playing early 2010s classics. Or I could just give up sleeping and embark on yet another 12-hour-long _Skyrim_ odyssey.
@@ -71,6 +77,9 @@ Hannah Stryker / How-To Geek
 
  It's much more appealing to pick up a handheld and collapse on the couch or bed. Ten years ago I couldn’t imagine playing shooters and games that require precise aiming on a controller. Now, I have no issue spending hours at a time playing _Horizon Forbidden West_ on my ROG Ally. Since I can [stream games from my desktop PC to my handheld PCs](https://youtube-zero.techidaily.com/ating-the-net-top-tags-for-eye-catching-gamer-content/), I can enjoy playing games without making too many compromises with regard to visual fidelity.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Local Game Streaming Means High Fidelity Gaming
 
  Local game streaming is the best thing ever. To be honest, I’m streaming games instead of running them locally on my Ally or Deck most of the time. The [Sunshine and Moonlight combo](https://youtube-zero.techidaily.com/ating-the-net-top-tags-for-eye-catching-gamer-content/) works perfectly, and my router is fast enough to deliver high-bitrate streams without dropped frames or other network-related hitches.
@@ -83,6 +92,9 @@ Hannah Stryker / How-To Geek
 
  If a game is older or a 2D indie title that doesn’t require much processing power, I’ll play it locally. But as soon as I notice that it needs more than 10W of power on the Ally or tops out the 15W [TDP](https://tech-haven.techidaily.com/boost-your-pcs-speaker-performance-with-a-new-install-of-realtek-hd-audio-manager-in-win-1011/) of my Deck, it’s streaming time.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ##  Steam Deck’s Quick Resume is a Game Changer
 
  I mostly play games when at home on my ROG Ally, but I'm still fond of the Steam Deck. Valve's Quick Resume feature is a godsend for stop-start gameplay. I can put the thing to sleep and return the next day with my game waiting for me where I left it.
@@ -93,6 +105,10 @@ Marcus Mears III / How-To Geek
 
  It’s an awesome feature that I’d love to see on Windows handhelds, too. Sure, [hibernate](https://games-able.techidaily.com/achieving-subscription-synergy-with-xbox-live-gold/) on the ROG Ally is an option, but Quick Resume is so much better, faster, and it works with zero issues.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ##  Some Games Just Feel Better When Played On a Handheld
 
  Some games genuinely feel like they’re made for a handheld device. _Persona 5_, for example, is a perfect handheld game. You can jump into it, spend a couple of school days in Tokyo going to classes and doing your daily chores, and jump out after 15 minutes. And then, in the evening, you can snuggle on the couch and explore a dungeon for hours. I can say the same about most roguelike deck-builders, such as _Slay the Spire, Cobalt Core,_ or my latest digital addiction, _Balatro_.
@@ -107,6 +123,9 @@ Marcus Mears III / How-To Geek
 
 ![Keychron M3 Wireless Mouse next to a keyboard](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/04/52792837856_539e35d682_o.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 Jason Montoya / How-To Geek
 
  I don’t do this often. Mostly on weekends and days off, when I know I won’t use the PC for work-related purposes. I’m slowly but steadily progressing through the _Quake 2 Remaster_, solely playing the game on my desktop during weekends. No matter how much I love it, the thought of firing it up on my desktop PC during weekdays vanishes as soon as I spend a few hours working.
@@ -133,3 +152,53 @@ _Forza Horizon 5’s_ beautiful recreation of Mexico is best experienced when I�
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-mastering-the-art-of-online-meeting-recordings-with-google/"><u>[New] Mastering the Art of Online Meeting Recordings with Google</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-ultimate-desktop-and-mobile-discord-recorders/"><u>[New] Ultimate Desktop & Mobile Discord Recorders</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-vlc-screencasting-live-feed-webcam-integration/"><u>[New] VLC  Screencasting Live Feed – Webcam Integration</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-targeted-thought-leadership-with-profound-fb-video-strategies/"><u>[Updated] 2024 Approved  Targeted Thought Leadership with Profound FB Video Strategies</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-amplify-engagement-broadcasting-from-twitch-to-facebook/"><u>[Updated] In 2024, Amplify Engagement  Broadcasting From Twitch to Facebook</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-novice-path-to-prosperity-making-money-on-periscope/"><u>[Updated] Novice Path to Prosperity  Making Money on Periscope</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-essential-guide-to-a-bespoke-youtube-channel-url/"><u>[Updated] The Essential Guide to a Bespoke YouTube Channel URL</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-top-tips-for-masterful-looped-videos-on-instagram/"><u>[Updated] Top Tips for Masterful Looped Videos on Instagram</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-droning-success-key-elements-in-selecting-ideal-fpv-propellers/"><u>2024 Approved  Droning Success  Key Elements in Selecting Ideal FPV Propellers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-real-time-game-capture-aps4-strategies-in-obs/"><u>2024 Approved  Real-Time Game Capture  APS4 Strategies in OBS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/alexa-enabled-entertainment-redefined-why-amazon-prime-subscribers-should-consider-the-toshiba-55lf711u20-fire-tv-edition/"><u>Alexa-Enabled Entertainment Redefined: Why Amazon Prime Subscribers Should Consider the Toshiba 55LF711U20 Fire TV Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/breaking-down-the-dominance-of-xbox-one-x-in-current-console-marketplace/"><u>Breaking Down the Dominance of Xbox One X in Current Console Marketplace</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/bridging-the-gap-of-intelligence-how-claude-advances-over-gpt-by-four-elements/"><u>Bridging the Gap of Intelligence: How Claude Advances Over GPT by Four Elements</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/complete-breakdown-space-battles-and-immersive-gameplay-in-star-wars-squadrons/"><u>Complete Breakdown: Space Battles & Immersive Gameplay in Star Wars: Squadrons</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-the-chargetech-super-sized-27000mah-battery-pack-your-ultimate-charging-solution/"><u>Comprehensive Guide to the ChargeTech Super-Sized 27,000mAh Battery Pack - Your Ultimate Charging Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-the-robust-stanley-j5c09-model-size-and-strength-unveiled/"><u>Comprehensive Guide to the Robust Stanley J5C09 Model: Size and Strength Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/critical-analysis-of-gimp-as-an-open-source-and-platform-independent-image-editor/"><u>Critical Analysis of GIMP as an Open Source and Platform Independent Image Editor</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discover-the-ultimate-way-learning-languages-on-the-web/"><u>Discover the Ultimate Way: Learning Languages on the Web</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-reviews-of-the-hp-chromebook-11-perfect-companion-for-schoolwork-jobs-and-leisure-time/"><u>Expert Reviews of the HP Chromebook 11: Perfect Companion for Schoolwork, Jobs & Leisure Time</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-durability-and-joy-maisto-rc-rock-crawler-reviewed/"><u>Exploring the Durability and Joy: Maisto RC Rock Crawler Reviewed!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-up-close-with-the-revolutionary-iphone-15-pro-a-hands-on-review/"><u>Get Up Close with the Revolutionary iPhone 15 Pro: A Hands-On Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-the-petsafe-auto-feeder-helps-maintain-your-pets-ideal-weight-a-detailed-examination/"><u>How the PetSafe Auto Feeder Helps Maintain Your Pet's Ideal Weight - A Detailed Examination</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-find-the-fastest-and-most-reliable-cable-modems-in-2cuytear2024/"><u>How to Find the Fastest and Most Reliable Cable Modems in 2Cuytear2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-mastering-the-height-final-cut-pro-x-techniques-for-instagram-video/"><u>In 2024, Mastering the Height  Final Cut Pro X Techniques for Instagram Video</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insta360s-one-x2-waterproof-vr-camera-for-adventurers/"><u>Insta360's One X2 - Waterproof VR Camera for Adventurers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-linkedin-educational-programs-in-2ndy-discover-the-picks/"><u>Leading LinkedIn Educational Programs in 2nDY: Discover the Picks!</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-connectivity-for-companionship-on-facebook/"><u>Leveraging Connectivity for Companionship on Facebook</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lg-gram-153-laptop-the-ultimate-featherweight-powerhouse-of-the-gram-series-2018/"><u>LG Gram 15.3 Laptop - The Ultimate Featherweight Powerhouse of the Gram Series (2018)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-digital-content-with-apples-2019-ipad-air-review-the-definitive-analysis/"><u>Mastering Digital Content with Apple's 2019 iPad Air Review: The Definitive Analysis</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-media-windows-elite-video-playback-choices-for-2024/"><u>Mastering Media  Window's Elite Video Playback Choices for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/netgears-advanced-wi-fi-solution-the-nighthawk-x6s-for-seamless-internet-expansion/"><u>Netgear's Advanced Wi-Fi Solution: The Nighthawk X6S for Seamless Internet Expansion</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-the-crimson-display-dilemma-on-windows-11/"><u>Resolved: The Crimson Display Dilemma on Windows 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/step-by-step-guide-to-adding-ram-in-your-portable-pc/"><u>Step-by-Step Guide to Adding RAM in Your Portable PC</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/streamline-your-pc-build-with-the-best-motherboards-for-beginners/"><u>Streamline Your PC Build with the Best Motherboards for Beginners</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-2024-top-50-energetic-workout-songs/"><u>The 2024 Top 50 Energetic Workout Songs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-creme-de-la-creme-of-internet-learning-resources-for-high-quality-courses/"><u>The Crème De La Crème of Internet Learning Resources for High-Quality Courses</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-lenovo-ideapad-assessment-an-examination-of-a-robust-aesthetic-notebook/"><u>The Lenovo IdeaPad Assessment: An Examination of a Robust, Aesthetic Notebook</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-pros-and-cons-of-the-lg-k51-phone-eye-catching-appearance-vs-slow-performance-review/"><u>The Pros and Cons of the LG K51 Phone - Eye-Catching Appearance vs Slow Performance Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-profiting-from-blog-ads-on-the-buyselladscom-marketplace/"><u>The Ultimate Guide to Profiting From Blog Ads on the BuySellAds.com Marketplace</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-oneplus-9-pros-dazzling-aesthetics-swift-functioning-and-superior-camera-features/"><u>The Ultimate Review: OnePlus 9 Pro's Dazzling Aesthetics, Swift Functioning and Superior Camera Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-samsung-galaxy-tab-s5e-review-unveiling-an-android-tablet-extraordinaire/"><u>The Ultimate Samsung Galaxy Tab S5e Review: Unveiling an Android Tablet Extraordinaire</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-upgrade-manual-for-intel-imac-owners-looking-to-boost-their-systems/"><u>The Ultimate Upgrade Manual for Intel iMac Owners Looking to Boost Their Systems</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-htc-u23-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-mastering-jaycut-a-step-by-step-guide-to-free-online-video-editing/"><u>Updated 2024 Approved Mastering Jaycut A Step-by-Step Guide to Free Online Video Editing</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-stunning-glitch-effect-and-its-creation-guideline-for-premiere-pro/"><u>Updated 2024 Approved Stunning Glitch Effect and Its Creation Guideline for Premiere Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/value-packed-review-of-acers-mighty-triton-300-se-the-ultimate-laptop-for-gamers-on-the-go/"><u>Value-Packed Review of Acer's Mighty Triton 300 SE: The Ultimate Laptop for Gamers on the Go</u></a></li>
+</ul></div>

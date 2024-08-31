@@ -1,0 +1,205 @@
+---
+title: "Yoku's Island Express: When Grand Escapades Arise From Surprising Places"
+date: 2024-08-30T14:16:45.180Z
+updated: 2024-08-31T14:16:45.180Z
+categories:
+  - BestProducts
+description: "This Article Describes Yoku's Island Express: When Grand Escapades Arise From Surprising Places"
+excerpt: "This Article Describes Yoku's Island Express: When Grand Escapades Arise From Surprising Places"
+thumbnail: https://thmb.techidaily.com/721844d81a2674aaafe28cc93fa85dbee744a7d0e151c9e44399471e099cac39.jpg
+---
+
+## They Are Well-Suited for High Viscosity Fluids and Maintain Performance Under Varying Pressures
+
+4.8
+
+## Apple Watch Series 9 GPS + Cellular 45mm
+
+![Apple Watch Series 9 (front).](https://www.lifewire.com/thmb/WFGRUAsDxA0krS7sPX6WGqtdVbQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleWatchSeries9front-649521c98f4d421cad652d5c0d1230a4.jpg)
+
+Apple
+
+ My Favorite Things
+
+* Theater mode keeps the watch from lighting up at inopportune times
+* Apple Pay on your wrist is incredibly convenient
+* Fits securely and comfortably
+
+ Annoyances
+
+* Navigating through the list of apps gets annoying
+* Tedious to type messages (though I rarely feel the need to)
+
+ The Apple Watch 9 is comfortable, stylish, and has incredible battery life.
+
+[View On Amazon $457](https://www.amazon.com/Apple-Cellular-Smartwatch-Midnight-Aluminum/dp/B0CHXFH656?tag=lifewire-onsite-prod-20&ascsubtag=8415760%7Cne2a5ccc09be7443aa21b4e7b104026e418%7CB0CHXFH656) [View On Walmart $439](https://www.walmart.com/ip/Apple-Watch-Series-9-GPS-45mm-Pink-Aluminum-Case-with-Light-Pink-Sport-Band-S-M/5032289284) [View On Best Buy $429](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fapple-watch-series-9-gps-45mm-midnight-aluminum-case-with-midnight-sport-band-m-l-midnight%2F6340284.p%3FskuId%3D6340284)
+
+4.8
+
+## Apple Watch Series 9 GPS + Cellular 45mm
+
+![Apple Watch Series 9 (front).](https://www.lifewire.com/thmb/nPYphnTjSnL2fpeSHarRr-eDzuw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleWatchSeries9front-649521c98f4d421cad652d5c0d1230a4.jpg)
+
+Apple
+
+[View On Amazon $457](https://www.amazon.com/Apple-Cellular-Smartwatch-Midnight-Aluminum/dp/B0CHXFH656?tag=lifewire-onsite-prod-20&ascsubtag=8415760%7Cne2a5ccc09be7443aa21b4e7b104026e418%7CB0CHXFH656) [View On Walmart $439](https://www.walmart.com/ip/Apple-Watch-Series-9-GPS-45mm-Pink-Aluminum-Case-with-Light-Pink-Sport-Band-S-M/5032289284) [View On Best Buy $429](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fapple-watch-series-9-gps-45mm-midnight-aluminum-case-with-midnight-sport-band-m-l-midnight%2F6340284.p%3FskuId%3D6340284)
+
+ in this article
+
+ Expand
+
+* [Pricing and What's New](https://www.lifewire.com/#toc-pricing-and-whats-new)
+* [Theater Mode](https://www.lifewire.com/#toc-theater-mode)
+* [Fitness Tracking](https://www.lifewire.com/#toc-fitness-tracking)
+* [Who Should Buy It?](https://www.lifewire.com/#toc-who-should-buy-it)
+* [Specs](https://www.lifewire.com/#toc-full-spec)
+
+ I've worn the Apple Watch 9 every day since I received it in late September and have benefited from the Apple Watch since my husband bought the Series 7 in 2021, and we started going on daily walks.
+
+ It's nice to have my own. With an excellent battery, cool features, and a comfortable fit, the Apple Watch Series 9 is a great buy.
+
+![Apple Watch Series 9 on a wrist.](https://www.lifewire.com/thmb/-MmQLsH_4EYd8KhLmLkRZehkEQY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleWatch9_wrist-69497d2de4864606b425effeba1dca5c.jpg)
+
+Lifewire/Molly McLaughlin
+
+ I haven't used many smartwatches, but I remember when a smartwatch wouldn't last through the day. Thankfully, that's not the case with the Series 9, which has yet to die on me (aside from when I unknowingly unplugged its charger right before bed).
+
+ It offers conveniences, too, not just "nice to haves," the top one being using Apple Pay at the register. (No fumbling around for my phone or wallet.) And using it to swipe onto the subway feels like a luxury.
+
+[How to Set Up Apple Watch](https://www.lifewire.com/set-up-apple-watch-4589317)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+## Pricing and What's New
+
+ The Apple Watch Series 9 costs $399 for Wi-Fi only, the same as the Series 8 & 7\. To add Cellular, pricing starts at $499\. (I have the Apple Watch Series 9 GPS + Cellular 45mm.)
+
+ The last few models have had the same processor, but the Series 9 gets the S9 chip, which promises 30 percent more speed and all-day battery life.
+
+![Apple Watch Series 9 on a desk next to its charger.](https://www.lifewire.com/thmb/fnvFdlUB4ml_QaA-kIP14u1pQsU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleWatch9_withcharger-11e49fb444df404b834b2127b3ebcab0.jpg)
+
+Lifewire/Molly McLaughlin
+
+ The display has double the brightness of the Series 8 and comes in a new pink color.
+
+ Apple released a new[Double Tap](https://www.lifewire.com/use-double-tap-on-apple-watch-7972025) gesture on the Series 9 and Ultra 2 that controls the primary button in an app without touching your watch. Tap your index finger and thumb twice to snooze alarms, stop timers, answer calls, and more.
+
+ It's a cool feature, though I often forget it's an option.
+
+[How to Use the Double Tap Gesture on Apple Watch](https://www.lifewire.com/use-double-tap-on-apple-watch-7972025)
+
+ Finally, if you lose your iPhone, you can ping it from your watch, showing you which direction to go and emitting haptic feedback when you get close. I haven't yet used this feature, but I will update this review when I do.
+
+[How to Ping Your iPhone From Your Apple Watch](https://www.lifewire.com/ping-iphone-from-apple-watch-7570320)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
+## Theater Mode
+
+ One of my favorite features is Theater Mode, which prevents the screen from lighting up when you glance at it or receive a notification. It's perfect for the movies and theater, of course, but it also came in handy when I was recently on jury duty during the trial and needed to keep distractions to a minimum.
+
+![Apple Watch Theater Mode screen.](https://www.lifewire.com/thmb/q170D6_ERklcCxR3P_p6t13HV5E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AppleWatch9_theatermodeoffon-953887b5d6f547c1b334d7912aa139ac.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
+ It turns on silent mode and makes your Walkie-Talkie status unavailable, but you'll receive haptic notifications.  
+
+[Smart Watches & Wearables](https://www.lifewire.com/theater-mode-on-apple-watch-5115897)
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Fitness Tracking
+
+ I use the watch for fitness tracking and try to "close my rings" daily. After a few bike rides where my average speed was skewed because I forgot to pause or unpause the workout during or after a break, I was pleased to find that you can enable automatic pausing (auto-pause) for biking and running.
+
+ In my experience, the watch was quick to pause when I stopped at traffic lights and resume once I started moving again. (This is also helpful if you forget to end a workout.)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+## Who Should Buy It?
+
+ If you have a Series 6 or older, it's worth moving up to the Series 9 as you're likely dealing with declining performance and a more easily depleted battery. The Series 9 costs the same as the Series 7 and 8, so there's little reason to purchase last year's model.
+
+ You can use your old watch bands and cases on a newer model, which is convenient.
+
+ On the other hand, if you have an Apple Watch Series 7 or later that works well and has a good battery, there's little reason to upgrade. (The Series 4 and newer watches are eligible for watchOS 10 if you have an iPhone XS or more recent.)
+
+ One thing to know is that if you get an Apple Watch, you should have an iPhone too. It doesn't play well with Android smartphones and won't pair over Bluetooth.
+
+[I Tried Both: Apple Watch Series 9 vs Fitbit Charge 6](https://www.lifewire.com/apple-watch-vs-fitbit-8650200)
+
+[Smart Watches & Wearables](https://www.lifewire.com/how-to-use-apple-watch-4584460)
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
+## Specs
+
+* Product Name  Watch Series 9 GPS + Cellular 45mm
+* Product Brand  Apple
+* Case Options  45mm and 41mm aluminum or stainless steel
+* Battery Life  Up to 18 hours (36 in Low Power Mode)
+* Processor  Apple S9
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-discover-10-budget-friendly-cloud-collaboration-platforms/"><u>[New] 2024 Approved  Discover 10 Budget-Friendly Cloud Collaboration Platforms</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-instagram-illuminati-the-top-25-visionaries-you-need-to-see/"><u>[New] Instagram Illuminati  The Top 25 Visionaries You Need to See</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mastering-melodies-with-magix-music-maker-software/"><u>[New] Mastering Melodies with Magix Music Maker Software</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-list-igtv-masterminds-and-maestros-for-2024/"><u>[New] The Ultimate List  IGTV Masterminds & Maestros for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-from-kitchen-to-feeds-the-10-hottest-tiktok-treats/"><u>[Updated] From Kitchen to Feeds  The 10 Hottest TikTok Treats</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-luxury-at-its-finest-with-the-fossil-brands-timepieces/"><u>AFFORDABLE Luxury at Its Finest with the Fossil Brand's Timepieces</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/and-how-we-might-ensure-data-security-measures-that-act-like-a-thorny-bush-protecting-against-intruders-yet-still-allow-safe-passage-for-beneficial-visitors6/"><u>And How We Might Ensure Data Security Measures that Act Like a Thorny Bush Protecting Against Intruders, yet Still Allow Safe Passage for Beneficial Visitors.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-macbook-pro-13-inch-m1-2020-review/"><u>Apple MacBook Pro 13-Inch (M1, 2020) Review</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/best-pick-7-alarm-clock-apps-youll-love/"><u>Best Pick: 7 Alarm Clock Apps You'll Love</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/breakthrough-in-budget-friendly-tech-the-impressive-features-and-functionality-of-the-new-apple-ipad-air-102-8th-generation/"><u>Breakthrough in Budget-Friendly Tech: The Impressive Features and Functionality of the New Apple iPad Air (10.2, 8Th Generation)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-on-the-google-nest-doorbell-with-motion-sensors-and-face-recognition-capabilities/"><u>Comprehensive Guide on the Google Nest Doorbell with Motion Sensors & Face Recognition Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-the-amazon-fire-hd-8-8th-gen-an-entry-level-tablet-that-matches-its-cost/"><u>Comprehensive Guide to The Amazon Fire HD 8 (8Th Gen) - An Entry-Level Tablet That Matches Its Cost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-huion-inspiroy-g10t-art-pen-display-evaluation-exceptional-craftsmanship-and-superior-function/"><u>Comprehensive Huion Inspiroy G10T Art Pen Display Evaluation: Exceptional Craftsmanship & Superior Function</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-mapmyride-app-evaluation/"><u>Comprehensive MapMyRide App Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-apple-airtag-ultimate-choice-for-iphones/"><u>Comprehensive Review of Apple AirTag: Ultimate Choice for iPhones</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1722988636857-connection-recovered-seamless-access-back-to-hearthstone-online-matches/"><u>Connection Recovered: Seamless Access Back to Hearthstone Online Matches.</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/evaluating-vlc-for-screen-recordings-for-2024/"><u>Evaluating VLC for Screen Recordings for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-attractive-lg-stylo-6-features-including-a-convenient-stylus-companion/"><u>Exploring the Attractive LG Stylo 6 Features Including a Convenient Stylus Companion</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-lock-apps-on-itel-a70-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Itel A70 to Protect Your Individual Information</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-comprehensive-report-editwave-suite-revamped/"><u>In 2024, Comprehensive Report  EditWave Suite Revamped</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-new-samsung-galaxy-note2e-ultra-5g-phone/"><u>In-Depth Analysis of the New Samsung Galaxy Note2e ULtra 5G Phone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-radar-protection-with-escort-max-360-an-expert-review-of-cutting-edge-gps-features-and-capabilities/"><u>Innovative Radar Protection with Escort Max 360: An Expert Review of Cutting-Edge GPS Features and Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovo-ideapad-assessment-solid-construction-meets-entry-level-performance/"><u>Lenovo Ideapad Assessment: Solid Construction Meets Entry-Level Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovo-thinkpad-x1-nano-review/"><u>Lenovo ThinkPad X1 Nano Review</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mp3-broadcasting-made-easy-upload-tutorial-for-youtube/"><u>MP3 Broadcasting Made Easy  Upload Tutorial for YouTube</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/overcoming-odds-with-vive-cosmos-review-a-top-notch-vr-experience-amid-intense-competition/"><u>Overcoming Odds with Vive Cosmos Review: A Top-Notch VR Experience Amid Intense Competition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/pre-purchase-speaker-checklist-5-must-dos/"><u>Pre-Purchase Speaker Checklist: 5 Must-Dos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-evaluate-and-refine/"><u>Review, Evaluate, and Refine</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/script-zip-up-creating-srt-from-video-archives-fastly/"><u>Script Zip-Up  Creating SRT From Video Archives Fastly</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/securely-buy-bitraser-disk-erase-pro-professional-hardware-wiping-tool/"><u>Securely Buy BitRaser Disk Erase Pro: Professional Hardware Wiping Tool</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tcl-50s425-50-inch-roku-tv-2019-review-a-4k-tv-big-on-value/"><u>TCL 50S425 50-Inch Roku TV (2019) Review: A 4K TV Big on Value</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-free-software-for-editing-images-on-any-system-a-review-of-gimp/"><u>The Best Free Software for Editing Images on Any System: A Review of GIMP</u></a></li>
+<li><a href="https://android-frp.techidaily.com/the-complete-guide-to-nokia-c12-plus-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Nokia C12 Plus FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-perfect-blend-in-a-laptop-a-review-of-lenovos-ideapad-320-elegant-portable-and-classic-keyboard-design/"><u>The Perfect Blend in a Laptop: A Review of Lenovo’s IdeaPad 320 - Elegant, Portable & Classic Keyboard Design</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-garmin-vivosmart-4-a-deep-dive-into-its-capabilities-including-stress-monitoring-and-energy-management/"><u>Unveiling the Power of Garmin Vivosmart 4: A Deep Dive Into Its Capabilities, Including Stress Monitoring & Energy Management</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-secrets-of-midland-gxt1000vp4-the-ultimate-two-way-radio-reviewed/"><u>Unveiling the Secrets of Midland GXT1000VP4 – The Ultimate Two-Way Radio Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/w15a-photo-display-marvels-and-minor-mishaps/"><u>W15A Photo Display: Marvels & Minor Mishaps</u></a></li>
+</ul></div>
