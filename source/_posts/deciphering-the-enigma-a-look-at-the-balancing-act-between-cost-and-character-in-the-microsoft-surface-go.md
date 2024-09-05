@@ -1,7 +1,7 @@
 ---
 title: "Deciphering the Enigma: A Look at the Balancing Act Between Cost and Character in the Microsoft Surface Go"
-date: 2024-08-03T23:04:39.401Z
-updated: 2024-08-04T23:04:39.401Z
+date: 2024-09-04T01:42:39.042Z
+updated: 2024-09-05T01:42:39.042Z
 categories:
   - BestProducts
 description: "This Article Describes Deciphering the Enigma: A Look at the Balancing Act Between Cost and Character in the Microsoft Surface Go"
@@ -15,9 +15,6 @@ thumbnail: https://thmb.techidaily.com/b3a280654f3cc4ecaa0af8b47827af91d1bc68ec5
 
 ## Nintendo Switch Lite
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/ELScEGCr-PHwUavU-zwNQVSC8z8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Nintendo-Switch-Lite-1-66fc3642c4d448b18f4a0775c059247d.jpg)
 
 Lifewire / Zach Sweat
@@ -40,10 +37,6 @@ Lifewire / Zach Sweat
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Nintendo Switch Lite
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/ral6yRtba1CN2dg2W4Log4OcjAg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Nintendo-Switch-Lite-1-66fc3642c4d448b18f4a0775c059247d.jpg)
@@ -76,9 +69,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## **Design: Cute and compact**
 
  It's hard not to swoon at the sight of the Switch Lite. The handheld console is cute and compact, featuring unique color options, bright white buttons, and joysticks wrapped around a downsized screen. The whole unit is about the size of a beefy phablet. The screen alone is about the size of an iPhone SE.
@@ -105,8 +95,20 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7502vZ1Vh2D4nRux6hEnq4BL3Rk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-5-2fb7aa309cc54dd79c07bd799ef7fe84.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Hit the switch**
 
  If you’ve set up a previous Switch console in the past, the process here is mostly the same, but it’s even easier since there are no Joy-Cons.
@@ -133,6 +135,12 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/kQx9K3tATPBWAMgyJJymqBqYPao=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-3-7349fa7d79f34dbaa50c25cb59aec820.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
 ## **Performance: Decent for mobile gaming, but no FHD**
@@ -169,9 +177,6 @@ Lifewire / Zach Sweat
 
  All said and done, the performance is excellent for single-player experiences on the Switch Lite, with online multiplayer trailing behind but perfectly functional. Local multiplayer is easily one of the biggest strengths of the original Switch and our favorite aspect. However, the methods used to create a more portable console with the Lite also severely hurt its viability.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/KxMaFgooi4rm3qbImmLKatuUtVI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-4-ef84dbbbde3d48ff97515e5c6b9981a4.jpg)
 
  Lifewire / Zach Sweat
@@ -190,15 +195,15 @@ Lifewire / Zach Sweat
 
  The biggest strength of the UI might be that you can use the touchscreen for most functions outside of games. Navigating the screen by tapping elements is even easier than using the controllers, and having an on-screen keyboard means typing out names and info is as easy as texting on your phone.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/eFyBn6jL7cdHOO4q7zc6pALdQzw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-6-42a5bc5ea4e544bdb6d3fbbd074583c2.jpg)
 
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Battery Life: Slightly better, but not the best**
 
@@ -214,20 +219,20 @@ Lifewire / Zach Sweat
 
  Lastly, the battery is internal, so you can't easily pop in a new one when it starts to degrade. While I haven't seen any degradation with mine, it'll happen at some point. When it does, sending it to Nintendo for repair is the only real option.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Inexpensive console gaming in your hands**
 
  It’s no surprise that since Nintendo removed many features from the Switch to create the Lite model, the price has also decreased considerably. The Switch is already at a pretty sweet price of $300, so how does the Lite stack up?
 
  The Switch Lite has an MSRP of $200, which is a pretty good value. It plays all the same games as the original Switch at a significantly lower price and is much more portable. You do lose the ability to dock it; for some people, that feature will be worth the extra $100.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7XA6hgAK2B4hDSlWdmB8VQddrjw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-7-Comparison-44dcf88ec51247a2b0756445a3c7884d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
 ## **Nintendo Switch Lite vs. Nintendo Switch**
@@ -251,7 +256,10 @@ Lifewire / Zach Sweat
  Despite being stripped of some of the Switch’s more unique features and strengths, the Switch Lite is a perfect console for gamers on the go or those who prefer handheld. It features an extensive library of exclusives that are perfect for a highly mobile system like Animal Crossing—and it’s hard to argue with the price.
 
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
@@ -263,6 +271,12 @@ Lifewire / Zach Sweat
 
 [Sony PlayStation 5 Review](https://www.lifewire.com/sony-playstation-5-review-5088394)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Switch Lite
@@ -294,3 +308,50 @@ Lifewire / Zach Sweat
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-simple-paths-to-start-recording-on-hp-computers/"><u>[New] In 2024, Simple Paths to Start Recording on HP Computers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/itans-of-tutorials-top-youtuber-earnings-for-2024/"><u>[New] Titans of Tutorials  Top Youtuber Earnings for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-x-recorder-for-pc-free-recording-software/"><u>[Updated] 2024 Approved  X-Recorder for PC  Free Recording Software</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-split-screen-audio-logging/"><u>[Updated] Split Screen Audio Logging</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-ultimate-steps-for-transforming-your-ppts-into-video-magic/"><u>[Updated] Ultimate Steps for Transforming Your PPTs Into Video Magic</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-unlocking-full-potential-in-zoom-screensharing-for-2024/"><u>[Updated] Unlocking Full Potential in Zoom Screensharing for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boosting-your-blog-traffic-with-buyselladscom-a-comprehensive-guide/"><u>Boosting Your Blog Traffic with BuySellAds.com: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/captivating-photos-in-a-brookstone-frame/"><u>Captivating Photos in a Brookstone Frame</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/capture-every-moment/"><u>Capture Every Moment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/connect-and-share-how-to-enable-multiplayer-gaming-on-xbox-one-with-friends/"><u>Connect and Share: How to Enable Multiplayer Gaming on Xbox One With Friends</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-best-ergonomic-keyboard-coasters-and-gel-pads-available/"><u>Discover the Best Ergonomic Keyboard Coasters and Gel Pads Available</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-charming-blend-of-efficiency-price-point-and-size-with-the-samsung-galaxy-s10e-review/"><u>Discover the Charming Blend of Efficiency, Price Point, and Size with the Samsung Galaxy S10e Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-charm-of-contemporary-lighting-the-taotronics-tt-dl16-revealed/"><u>Discovering the Charm of Contemporary Lighting: The TaoTronics TT-DL16 Revealed</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-to-lava-blaze-2-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Lava Blaze 2 FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/echo-pop-vs-echo-dot-whats-the-difference/"><u>Echo Pop Vs. Echo Dot: What's the Difference?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-on-the-move-precision-with-the-sabrent-mini-cordless-mouse-the-perfect-blend-of-functionality-and-portability/"><u>Experience On-The-Move Precision with the Sabrent Mini Cordless Mouse - The Perfect Blend of Functionality and Portability</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-x-plane-11-global-flight-simulator-stunning-visuals-meet-next-gen-tech/"><u>Expert Insights on X-Plane 11 Global Flight Simulator - Stunning Visuals Meet Next-Gen Tech</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-game-changing-power-of-the-imacs-m1-processor-a-detailed-assessment/"><u>Exploring the Game-Changing Power of the iMac's M1 Processor: A Detailed Assessment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gaming-consoles-unveiled-the-ultimate-5-considerations-before-your-buy-decision/"><u>Gaming Consoles Unveiled: The Ultimate 5 Considerations Before Your Buy Decision</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/getting-your-moneys-worth-with-the-affordable-apple-ipad-air-4-reviewed-here/"><u>Getting Your Money's Worth with the Affordable Apple iPad Air 4 Reviewed Here!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-itel-a60-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Itel A60 Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ideal-iphone-extras-maximize-your-phone-experience/"><u>Ideal iPhone Extras: Maximize Your Phone Experience</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-vivo-y56-5g-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Vivo Y56 5G to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-navigating-virtual-meetings-setting-up-video-calls-via-whatsapp-browser-on-pcs/"><u>In 2024, Navigating Virtual Meetings  Setting up Video Calls via WhatsApp Browser on PCs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-apple-airtag-the-ultimate-tracker-for-iphones/"><u>In-Depth Analysis of Apple AirTag - The Ultimate Tracker for iPhones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-star-wars-squadrons-a-deep-dive-into-its-exhilarating-space-battles/"><u>In-Depth Analysis of Star Wars: Squadrons - A Deep Dive Into Its Exhilarating Space Battles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-google-pixelbook-go-exceptional-chromebook-performance-meets-high-cost/"><u>In-Depth Analysis of the Google Pixelbook Go: Exceptional Chromebook Performance Meets High Cost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-morning-routine-with-heimvisions-sunrise-alarm-clock-a80-a-comprehensive-review/"><u>Innovative Morning Routine with HeimVision's Sunrise Alarm Clock A80: A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-chatgpt-plus-right-for-you-5-compelling-reasons-to-make-the-switch/"><u>Is ChatGPT Plus Right for You? 5 Compelling Reasons to Make the Switch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-ios-17-a-significant-improvement-over-the-previous-version/"><u>Is iOS 17 a Significant Improvement Over the Previous Version?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-cable-modem-with-integrated-wifi-routers/"><u>Leading Cable Modem with Integrated WiFi Routers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/oneplus-8t-analysis-fast-performance-dimmed-by-inconsistent-camera-quality/"><u>OnePlus 8T Analysis: Fast Performance Dimmed by Inconsistent Camera Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/panasonics-multifunctional-camera-the-fz80-analysis/"><u>Panasonic's Multifunctional Camera: The FZ80 Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionizing-smartwatch-experience-the-elevated-capabilities-of-samsung-galaxy-watch-active2-detailed-review/"><u>Revolutionizing Smartwatch Experience: The Elevated Capabilities of Samsung Galaxy Watch Active2 Detailed Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/smart-showdown-evaluating-google-nest-audio-and-apple-homepod/"><u>Smart Showdown: Evaluating Google Nest Audio and Apple HomePod</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-most-advanced-and-efficient-cable-modems-to-upgrade-your-internet-speed/"><u>The Most Advanced and Efficient Cable Modems to Upgrade Your Internet Speed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-fitbit-charge-6-real-world-use-performance-and-comparisons-with-previous-models/"><u>The Ultimate Guide to Fitbit Charge 6: Real-World Use, Performance & Comparisons with Previous Models</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-kindle-oasis-2019-enjoying-books-just-like-on-paper/"><u>The Ultimate Guide to the Kindle Oasis 2019: Enjoying Books Just Like On Paper!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-upsides-and-downsides-of-communicating-with-pidgin-instant-messaging/"><u>The Upsides and Downsides of Communicating with Pidgin Instant Messaging</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-netgear-routers-for-optimal-performance/"><u>Top-Rated Netgear Routers for Optimal Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/twelve-south-compass-pro-review/"><u>Twelve South Compass Pro Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-performance-of-amazon-luna-for-online-gamers/"><u>Unveiling the Performance of Amazon Luna for Online Gamers</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-tecno-pova-5-pro-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Tecno Pova 5 Pro Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+</ul></div>

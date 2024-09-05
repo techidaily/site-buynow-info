@@ -1,7 +1,7 @@
 ---
 title: "The Potential Impact of a New Xbox Handheld Device by Microsoft: A Closer Look at Why the Gaming World Needs It Now"
-date: 2024-08-27 22:33:13
-updated: 2024-08-29 12:37:32
+date: 2024-09-04T01:39:54.003Z
+updated: 2024-09-05T01:39:54.003Z
 tags:
   - games
   - tv
@@ -71,6 +71,12 @@ Tim Brookes / How-To Geek
 
  You might not even have to leave your disc-based games behind either. In 2022 [Microsoft applied for a patent](https://arstechnica.com/gaming/2022/05/how-microsoft-could-bring-disc-based-xbox-games-to-disc-free-xbox-series-s/) that would grant “software ownership validation of optical discs using secondary device.” What if you could just leave a game disc in your Xbox Series X and play said game on a digital-only (potentially portable) console?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  It Could Be a Homebrew Monster
 
  The [Xbox Series X and PlayStation 5 are essentially custom PCs](https://extra-guidance.techidaily.com/new-shade-savvy-mastering-the-art-of-color-adjustment-with-ease/), but there’s one thing Xbox does that PlayStation won’t: Developer Mode. Pay your $20 and get access to a development environment on your Xbox, where you’re free to write and run custom software.
@@ -81,6 +87,12 @@ Tim Brookes / How-To Geek
 
  If such a portable runs vanilla Windows then there would be no need for a Developer Mode at all, since you’d be able to install regular old Windows emulators.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Game Pass on the Go
 
  Game Pass is arguably the best deal in gaming, offering hundreds of titles for $16.99/month (or $9.99/month on PC, with a reduced selection of games). There’s always _something_ to play, and the subscription includes access to online multiplayer and cloud gaming to boot.
@@ -89,11 +101,29 @@ Tim Brookes / How-To Geek
 
 ![Skyrim's Whiterun guard with a bucket on his head.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/skyrim_guard_bucket.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _The Elder Scrolls V: Skyrim_  
 Tim Brookes / How-To Geek
 
  Handhelds like the ROG Ally can access Game Pass, but only Game Pass for PC. It’s also hit and miss in terms of performance, leaving players to their own devices in terms of tweaking settings to get things working smoothly. Microsoft’s position would enable them to work with developers and curate software in a manner that hopefully guarantees a good level of performance.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Combining Native, Remote, and Cloud Play
 
  The Steam Deck can play games natively, over a local network with Steam Remote Play, but cloud gaming relies on a web browser. The PlayStation Portal can play games over the local network or via the internet but has no native gaming capabilities. A portable Xbox could excel at all three.
@@ -102,6 +132,12 @@ Tim Brookes / How-To Geek
 
  The infrastructure is largely there to make this a success. Cloud saves work well, Game Pass is becoming ubiquitous, and Smart Delivery ensures your console runs the “best” version of a game.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Pricing Strategy Matters
 
  Valve’s Steam Deck might not be the most powerful handheld, but its aggressive pricing strategy is arguably what has earned it so many fans. Valve boss [Gabe Newell admitted](https://www.slashgear.com/valve-boss-says-very-aggressive-steam-deck-pricing-was-painful-16682744/) that launching at $399 was “painful” but the strategy seems to have worked, at least in terms of market adoption.
@@ -110,6 +146,12 @@ Tim Brookes / How-To Geek
 
 ![Asus ROG Ally and Steam Deck being held in hands](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/12/2023-12-08-14-23-57.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Bill Logudice / How-To Geek
 
 Asus ROG Ally Z1 Extreme (left) versus Steam Deck 512GB LCD (right)
@@ -138,3 +180,55 @@ Asus ROG Ally Z1 Extreme (left) versus Steam Deck 512GB LCD (right)
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-high-end-cameras-for-stunning-4k-content-top-18/"><u>[New] 2024 Approved  High-End Cameras for Stunning 4K Content (Top 18)</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-screen-protectors-that-enhance-vr-filming/"><u>[New] Screen Protectors That Enhance VR Filming</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-craft-the-perfect-snaps-top-ideas-unveiled/"><u>[Updated] In 2024, Craft the Perfect Snaps  Top Ideas Unveiled</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-time-stretched-pixelation-the-ultimate-guide-to-cam-gear/"><u>[Updated] Time-Stretched Pixelation  The Ultimate Guide to Cam Gear</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-high-quality-cameras-ideal-for-podcasts/"><u>2024 Approved  High-Quality Cameras Ideal for Podcasts</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-techniques-for-fabulous-photo-collage-artistry/"><u>2024 Approved  Techniques for Fabulous Photo Collage Artistry</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-more-streaming-savings-with-the-newly-enhanced-verizon-myhome-internet-offer/"><u>Discover More Streaming Savings with the Newly Enhanced Verizon MyHome Internet Offer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discussing-the-need-for-better-refund-policies-from-major-gaming-brands/"><u>Discussing the Need for Better Refund Policies From Major Gaming Brands</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dual-architecture-innovation-exploring-the-raspberry-pi-pico-2s-unique-risc-approach/"><u>Dual-Architecture Innovation: Exploring the Raspberry Pi Pico 2'S Unique RISC Approach</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhance-your-gaming-experience-replace-your-old-tv-with-a-high-performance-monitor/"><u>Enhance Your Gaming Experience: Replace Your Old TV with a High-Performance Monitor</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhanced-amazon-prime-video-app-launches-with-refined-user-interface/"><u>Enhanced Amazon Prime Video App Launches with Refined User Interface</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/everything-you-want-to-know-about-1440p-and-its-impact-on-your-viewing-experience/"><u>Everything You Want To Know About 1440P and Its Impact on Your Viewing Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exclusive-deal-alert-enjoy-three-months-free-trial-on-apple-tvplus-with-a-limited-time-offer-at-just-599/"><u>Exclusive Deal Alert: Enjoy Three Months Free Trial on Apple TV+ with a Limited-Time Offer at Just $5.99!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-classic-fm-radio-nostalgia-with-siriusxms-unlimited-streaming-service/"><u>Experience Classic FM Radio Nostalgia with SiriusXM's Unlimited Streaming Service</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-next-level-sound-with-wiims-newest-ultra-streaming-boost-revitalize-your-classic-audio-gear/"><u>Experience Next-Level Sound with Wiim's Newest Ultra Streaming Boost: Revitalize Your Classic AUDIO Gear!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-real-savings-are-ad-supported-streaming-subscriptions-economical/"><u>Exploring the Real Savings: Are Ad-Supported Streaming Subscriptions Economical?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-youtubes-full-potential-five-must-have-features-that-could-persuade-me-to-upgrade/"><u>Exploring YouTube's Full Potential: Five Must-Have Features that Could Persuade Me to Upgrade</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-vivo-s17-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-the-ultimate-tea-timer-app-sets-a-new-standard-for-excellence-in-mobile-applications/"><u>How the Ultimate Tea Timer App Sets a New Standard for Excellence in Mobile Applications</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-prevent-youtube-videos-from-automatically-playing-as-desktop-wallpapers-on-apple-tv-and-android-devices/"><u>How to Prevent YouTube Videos From Automatically Playing as Desktop Wallpapers on Apple TV and Android Devices</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-restore-safari-functionality-on-your-iphone-a-top-10-quick-fix-guide/"><u>How to Restore Safari Functionality on Your iPhone – A Top 10 Quick-Fix Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hulus-return-made-easy-thanks-to-disneyplus-partnership-a-personal-triumph/"><u>Hulu's Return Made Easy Thanks to Disney+ Partnership – A Personal Triumph!</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-xiaomi-redmi-a2-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Xiaomi Redmi A2 to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-infinix-gt-10-pro-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Infinix GT 10 Pro Device SIM</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Nokia 105 Classic? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-spotify-on-track-to-discontinue-their-innovative-car-thing-feature/"><u>Is Spotify on Track to Discontinue Their Innovative 'Car Thing' Feature?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-quick-image-transfer-printer-models-of-2024/"><u>Leading Quick Image Transfer Printer Models of 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/major-league-baseball-tv-goes-digital-mlb-network-launches-affordable-monthly-stream/"><u>Major League Baseball TV Goes Digital: MLB Network Launches Affordable Monthly Stream</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-the-art-of-choosing-games-tips-for-an-overloaded-steam-inventory/"><u>Mastering the Art of Choosing Games: Tips for an Overloaded Steam Inventory</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/maximizing-engagement-in-post-facebook-algorithm-world-for-2024/"><u>Maximizing Engagement in Post-Facebook Algorithm World for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigating-the-digital-threatscape-a-look-at-7-upcoming-security-trends/"><u>Navigating the Digital Threatscape: A Look at 7 Upcoming Security Trends</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nfl-sunday-ticket-fans-get-youtube-enhanced-with-new-viewing-options/"><u>NFL Sunday Ticket Fans Get YouTube Enhanced with New Viewing Options</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/post-excitement-analysis-how-the-steam-deck-is-transforming-play-experiences/"><u>Post-Excitement Analysis: How the Steam Deck Is Transforming Play Experiences</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/redbox-files-for-bankruptcy-ending-its-streaming-service-dream/"><u>Redbox Files for Bankruptcy, Ending Its Streaming Service Dream</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/redefining-talks-the-ultimate-list-of-ai-assistants/"><u>Redefining Talks: The Ultimate List of AI Assistants</u></a></li>
+<li><a href="https://driver-install.techidaily.com/rejuvenate-screen-fidelity-update-hp-graphics-for-win10/"><u>Rejuvenate Screen Fidelity: Update HP Graphics for Win10</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revitalize-your-system-how-software-updates-solve-most-issues/"><u>Revitalize Your System: How Software Updates Solve Most Issues</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionizing-gaming-with-a-curved-ultrawide-display/"><u>Revolutionizing Gaming with a Curved Ultrawide Display</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/smart-shopping-why-you-should-avoid-purchasing-pokemon-microsd-card-packs/"><u>Smart Shopping: Why You Should Avoid Purchasing Pokemon MicroSD Card Packs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/spotify-introduces-compact-player-feature-for-streaming-songs-casts-and-clips-on-your-computer/"><u>Spotify Introduces Compact Player Feature for Streaming Songs, Casts, and Clips on Your Computer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/step-by-step-tutorial-enjoying-netflix-content-in-real-time-via-discord-platform/"><u>Step-by-Step Tutorial: Enjoying Netflix Content in Real-Time via Discord Platform</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-crucial-5-steps-for-evaluating-secondhand-dvds-and-blu-ray-movies-before-purchase/"><u>The Crucial 5 Steps for Evaluating Secondhand DVDs and Blu-Ray Movies Before Purchase</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-essential-guide-why-adding-thumbsticks-grips-to-all-your-controllers-enhances-playtime/"><u>The Essential Guide: Why Adding Thumbsticks Grips to All Your Controllers Enhances Playtime</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/transform-your-note-taking-experience-using-leading-ai-tools-best-of-the-best/"><u>Transform Your Note-Taking Experience Using Leading AI Tools - Best of the Best</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722883559045-understanding-error-code-0xc0000185-a-comprehensive-guide/"><u>Understanding Error Code 0xC0000185: A Comprehensive Guide</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlocking-iphone-12-pro-passcode-without-a-computer-drfone-by-drfone-ios/"><u>Unlocking iPhone 12 Pro Passcode without a Computer | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-from-still-to-stunning-how-to-add-the-ken-burns-effect-to-your-videos/"><u>Updated In 2024, From Still to Stunning How to Add the Ken Burns Effect to Your Videos</u></a></li>
+<li><a href="https://network-issues.techidaily.com/win11-dark-display-fix-guide/"><u>Win11 Dark Display, Fix Guide</u></a></li>
+</ul></div>

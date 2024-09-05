@@ -1,7 +1,7 @@
 ---
 title: Can Motorola Edge+ Hold Its Own Against Flagship Rivals? Our Review Says...
-date: 2024-08-30T14:25:35.724Z
-updated: 2024-08-31T14:25:35.724Z
+date: 2024-09-04T01:44:04.513Z
+updated: 2024-09-05T01:44:04.513Z
 categories:
   - BestProducts
 description: This Article Describes Can Motorola Edge+ Hold Its Own Against Flagship Rivals? Our Review Says...
@@ -66,12 +66,27 @@ Lifewire / Jordan Provost
 
  The Asus RT-AC88U, in fact, may be one of the best single-unit wireless routers on the market today, as it offers a respectable range, awesome performance, and a suite of features that make it stand out among the competition. We spent over a week testing it in a home environment, using it with multiple devices for all purposes including browsing, streaming, downloads, and gaming.
 
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Design: Watch the edge
 
  Most gaming accessories in 2018_look_ like gaming products. They have edgy angular designs, red accents and bright LEDs. For the Asus RT-AC88U, the first two are certainly true—this router looks like something straight out of Battlestar Galactica. It has a black, angular design with four antennas jutting out of the sides and the back. These antennae have red highlights, making the router eye-catching if you put it in your living room or next to your PC. This design won’t appeal to everyone, obviously, but if it doesn’t offend your aesthetic, the Asus RT-AC88U is capable of some pretty amazing things.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Setup: Get up and running quickly
 
@@ -79,6 +94,18 @@ Lifewire / Jordan Provost
 
 ![Asus RT-AC88U Gaming Router](https://www.lifewire.com/thmb/tJSyhJYa8-MA9hCZoZxMCn1_GoI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4038590-1_6-3b7dfd6e10f84ca0a965905f4fbceb6c.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Jordan Provost
 
  We connected it to our 250 Mbps Xfinity connection, and within a few minutes, after updating the firmware, we were getting phenomenal speeds with little to no fiddling.
@@ -111,9 +138,6 @@ Lifewire / Jordan Provost
 
  But, this router does more than_just_ cater to gamers. Built-in Time Machine functionality for Macs, simple cloud storage, and Alexa integration make this router appeal to everyone in your home, no matter what kind of tech they’re into. And, IFTTT integration (if this, then that) means that this router is a perfect fit in any smart home, allowing you to set up automated programs with a variety of smart devices.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Performance: High speed, no lag
 
  When you’re opting for a high-performance gaming router like the Asus RT-AC88U, you get exactly what you’re paying for. When it comes to raw speed and latency, this router performs with the best of them. And, that MU-MIMO (Multi-user, multiple input, multiple output) compatibility means that you can have a dozen devices all sucking bandwidth at the same time without bottlenecking each other.
@@ -124,9 +148,6 @@ Lifewire / Jordan Provost
 
  Unfortunately, the Asus RT-AC88U Gaming Router doesn’t have the same range that comparable mesh routers have, and you likely won’t be able to get a strong signal across a large home or office. But, that’s not what this router is designed for, and in our average-sized home we didn’t have any problems with the router’s range. We were able to get reliable speeds in the upstairs bedroom despite the router being placed in the living room downstairs.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## Gaming: Like no other
 
  Right after setting the Asus RT-AC88U up, we wanted to put its gaming capabilities to the test – was it actually better for gaming, or was it just a marketing ploy?
@@ -136,7 +157,16 @@ Lifewire / Jordan Provost
  But what’s more surprising is that this QoS prioritization didn’t get in the way of the streams themselves being smooth. The Asus RT-AC88U isn’t just going to be great for anyone looking to minimize their gaming downtime, it’s going to be great for everyone in the household. You can eliminate arguments over bandwidth entirely — everyone can do whatever they need to do, without inconveniencing other people in the house.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Price: Premium price for a premium experience
 
@@ -146,9 +176,6 @@ Lifewire / Jordan Provost
 
  For smaller households, the features won’t really justify the price — not to mention the design that makes it hard to_not_ notice. These days, devices like the $129 Google Wifi make a lot more sense for the average consumer that doesn’t need heavy-duty networking. But if you do need a heavy duty router like the Asus RT-AC88U, $299 is a small price to pay for the quality of life improvement.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## Asus RT-AC88U vs. Netgear Nighthawk Pro Gaming XR500
 
  The Asus RT-AC88U isn’t the only gaming router out there, in fact, there’s been a deluge of routers focused on gaming over the last few years. And, some premium gaming routers like the Netgear Nighthawk Pro Gaming XR500 give the Asus RT-AC88U a run for its money. But at $297, Netgear’s gaming router is about the same price, and it offers a more user-friendly software solution on top of similar MU-MIMO and QoS functionality. In fact, these two routers are so close together in a performance that picking the one that’s best for you will almost entirely depend on aesthetics.
@@ -162,7 +189,10 @@ Lifewire / Jordan Provost
  Beyond jumping to a wireless mesh system, which brings problems of its own, this router offers some of the best performance you can ask for. It’s a great choice for anyone looking to squeeze out all the potential from their broadband connection.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
@@ -170,6 +200,12 @@ Lifewire / Jordan Provost
 * [Netgear Nighthawk X6 AC3200](https://www.lifewire.com/netgear-nighthawk-x6-ac3200-review-4788257)
 * [Linksys EA9500 Router](https://www.lifewire.com/linksys-ea9500-router-review-4774016)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  RT-AC88U AC3100 Dual Band Wi-Fi Router

@@ -1,7 +1,7 @@
 ---
 title: Unveiling Flaws in Sony's First-Half PS5-Exclusive, Godfall - A Game with Lost Potential
-date: 2024-08-03T23:04:40.640Z
-updated: 2024-08-04T23:04:40.640Z
+date: 2024-09-04T01:41:40.042Z
+updated: 2024-09-05T01:41:40.042Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling Flaws in Sony's First-Half PS5-Exclusive, Godfall - A Game with Lost Potential
@@ -37,14 +37,8 @@ Lifewire / Kelsey Simon
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## Dying Light
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Dying Light](https://www.lifewire.com/thmb/YWkGikwP23JK119N4M7J22dAPJY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
 
 Lifewire / Kelsey Simon
@@ -68,13 +62,16 @@ Lifewire / Kelsey Simon
 
  Dying Light is a first-person action-adventure game set in the midst of a zombie apocalypse. Its headline feature is kinetic parkour traversal through an open-world infested with unique zombies.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Straight into the action**
 
  The first time you launch the game you'll be treated to an artistic video over the background of a news report. It explains the situation in Harran, the city where the game takes place. The game proper starts with a cut scene that shows you on a plane, about to parachute out. There’s no character creation here, although once you get a little further into the game, you’ll be able to pick your clothes.
@@ -97,9 +94,6 @@ Harran is a whole different city at night.
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Gameplay: Parkour and zombies galore**
 
  You won’t have to wait long in the game before you’re introduced to its main unique mechanic: parkour. Other zombie games focus on having slow zombies you can run away from, or dumb zombies you sneak past, but Dying Light takes a completely different approach. Instead, the basic zombies are fast and almost always know where you are―but they can’t climb or jump. This means you can stay safe by leaping between rooftops, running up ramps, balancing across bars, etc. The parkour feature is the biggest thing that makes Dying Light unique in an oversaturated genre, and also part of what makes the game so much fun. It’s entertaining to cross the city running as fast as you can without pausing, challenging yourself to get from point A to point B without ever touching the ground.
@@ -112,15 +106,15 @@ Harran is a whole different city at night.
 
  Harran is a whole different city at night. If you aren’t in a safe zone, you’ll quickly learn that running through the city at night is terrifying, specifically because of a zombie type called volatiles. Volatiles are crazy strong, super-fast, and will chase after you relentlessly until you get out of sight―not an easy thing to do when you’re freaking out. It can be a real rush to try to do a mission at night, so if things aren’t feeling tense enough for you, just wait until the sunsets.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Dying Light](https://www.lifewire.com/thmb/YctEePpYKsIXQ5kU-hQ8w7o9CDo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-4-1edeaf05c6ba435e9b81e68a13831ac6.jpg)
 
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Graphics: Attention to detail**
 
@@ -130,17 +124,36 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Price: Worth the cost, especially with a friend**
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Competition: Other zombie and parkour games**
 
  There are a lot of other zombie survival games out there, but that doesn’t necessarily mean we’d recommend them if you liked Dying Light. You might consider Days Gone, another PlayStation 4 zombie apocalypse game set in an open world, but if the parkour was the main attraction, you might look into the game Mirror’s Edge Catalyst. The game follows a girl in a sci-fi world and features first-person parkour running and fighting. Instead of the rough and gritty world of Dying Light, Catalyst takes place in a sleek futuristic dystopia that's all glossy chrome and burnished glass.
@@ -154,8 +167,10 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Specs
 
@@ -178,3 +193,52 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-bridging-the-gap-connecting-instagram-to-your-facebook-account-for-2024/"><u>[New] Bridging the Gap  Connecting Instagram to Your Facebook Account for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-the-ultimate-guide-to-establishing-a-twitter-presence/"><u>[New] In 2024, The Ultimate Guide to Establishing a Twitter Presence</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-streamline-your-music-movement-between-services/"><u>[New] Streamline Your Music Movement Between Services</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-comprehensive-guide-to-xbox-screen-recording-success/"><u>[Updated] Comprehensive Guide to Xbox Screen Recording Success</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-seamless-sharing-of-oversized-content-from-iphone-to-macos/"><u>2024 Approved  Seamless Sharing of Oversized Content From iPhone to macOS</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-google-pixel-8-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/advanced-sleep-technology-an-authoritative-review-on-the-philips-somneo-line/"><u>Advanced Sleep Technology: An Authoritative Review on the Philips Somneo Line</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-powerhouse-the-ultimate-guide-to-the-hp-omen-obelisk-gaming-desktop/"><u>Affordable Powerhouse: The Ultimate Guide to the HP OMEN Obelisk Gaming Desktop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-fire-hd-10-kids-a-detailed-review-on-advanced-parental-control-capabilities-and-user-experience/"><u>Amazon Fire HD 10 (Kids) - A Detailed Review on Advanced Parental Control Capabilities and User Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-rog-rapture-gt-ax110-router-assessment-highlighting-topnotch-performance-for-gamers/"><u>Asus ROG Rapture GT-AX110# Router Assessment: Highlighting Topnotch Performance for Gamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/benchmarking-brilliance-in-depth-review-of-the-game-changing-2020-apple-mac-mini-m1/"><u>Benchmarking Brilliance: In-Depth Review of the Game-Changing 2020 Apple Mac Mini (M1)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-marvels-inside-the-caixun-4k-smart-tv-review-at-an-unbeatable-price/"><u>Budget Marvels: Inside the Caixun 4K Smart TV Review at an Unbeatable Price!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/canons-creative-advantage-sx420-camera-and-42x-optical-zoom/"><u>Canon's Creative Advantage: SX420 Camera & 42X Optical Zoom</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Oppo Find N3 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-top-e-readers-ipad-versus-kindle-and-nook/"><u>Comparing Top E-Readers: IPad Versus Kindle and Nook</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dell-inspiron-3671-desktop-analysis-the-balanced-compromise-for-your-home-or-office/"><u>Dell Inspiron 3671 Desktop Analysis: The Balanced Compromise for Your Home or Office</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/eardial-hifi-earplug-review/"><u>EarDial HiFi Earplug Review</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enlightenment-streams-foremost-ed-resources-online/"><u>Enlightenment Streams  Foremost Ed Resources Online</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experiencing-enjoyment-a-dive-into-the-wonders-of-pokemon-shining-pearl/"><u>Experiencing Enjoyment: A Dive Into the Wonders of Pokémon Shining Pearl</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-amazon-kindle-paperwhite-7th-gen-a-revolutionary-device-for-book-enthusiasts/"><u>Expert Insights on the Amazon Kindle Paperwhite (7Th Gen) - A Revolutionary Device for Book Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/first-impressions-matter-why-godfall-falls-short-for-the-playstation-5/"><u>First Impressions Matter: Why Godfall Falls Short for the PlayStation 5</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/googles-passwords-security-checklist/"><u>Google's Passwords: Security Checklist</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-guide-for-iphone-6s-lock-screen-drfone-by-drfone-ios/"><u>In 2024, Complete Guide For iPhone 6s Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-samsung-galaxy-f04-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Samsung Galaxy F04</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-xiaomi-redmi-13c-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Xiaomi Redmi 13C</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Poco M6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-unveiling-the-magic-in-minecrafts-campfire-stories-skins/"><u>In-Depth Evaluation: Unveiling the Magic in Minecraft's Campfire Stories Skins</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Oppo A58 4G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-the-ice-with-a-detailed-look-at-nhl-19s-virtual-gameplay/"><u>Mastering the Ice with a Detailed Look at NHL 19'S Virtual Gameplay</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigate-the-best-game-platforms-for-gamers/"><u>Navigate the Best Game Platforms for Gamers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/navigating-next-gen-storage-the-ultimate-five-for-2024/"><u>Navigating Next-Gen Storage  The Ultimate Five for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/orbi-6e-tri-band-mesh-wi-fi-6-router-system-comprehensive-review-and-speed-analysis/"><u>Orbi 6E Tri-Band Mesh Wi-Fi 6 Router System - Comprehensive Review & Speed Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionizing-home-entertainment-a-detailed-look-at-the-sony-xbr49x900f-4k-ultra-hd-led-tv/"><u>Revolutionizing Home Entertainment - A Detailed Look at the Sony XBR49X900F 4K Ultra HD LED TV</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-un65nu8000fxza-is-the-premium-cost-justified/"><u>Samsung UN65NU8000FXZA - Is the Premium Cost Justified?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/striving-for-excellence-in-sound-jabras-steel-buds-review/"><u>Striving for Excellence in Sound - Jabra’s Steel Buds Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/testing-the-anker-roav-dashcam-c1-a-reliable-option-for-surveillance-on-wheels/"><u>Testing the Anker Roav DashCam C1: A Reliable Option for Surveillance on Wheels</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-amazfit-gts-a-fashion-statement-or-a-true-training-partner-an-expert-analysis/"><u>The Amazfit GTS: A Fashion Statement or a True Training Partner? An Expert Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-amazon-fire-hd-10-kids-edition-excellence-in-child-security-measures-reviewed/"><u>The Ultimate Guide to Amazon Fire HD 10 Kids Edition - Excellence in Child Security Measures Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-microsoft-fsx-a-comprehensive-look-at-the-gold-edition/"><u>The Ultimate Guide to Microsoft FSX - A Comprehensive Look at the Gold Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-dji-mavic-2-pro-your-essential-tool-for-aerial-mastery/"><u>The Ultimate Guide to the DJI Mavic 2 ^Pro - Your Essential Tool for Aerial Mastery</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-test-of-strength-a-detailed-review-on-halo-bolts-portable-charger-and-jump-starter/"><u>The Ultimate Test of Strength: A Detailed Review on Halo Bolt's Portable Charger & Jump Starter</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-selection-leading-rechargeable-battery-chargers/"><u>Ultimate Selection: Leading Rechargeable Battery Chargers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/under-100-secure-entryway-discover-the-remobell-video-doorbell-reviewed-here/"><u>Under $100 Secure Entryway: Discover the RemoBell Video Doorbell Reviewed Here</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unwrapping-the-w15a-photo-frame-marvels-and-flaws/"><u>Unwrapping the W15A Photo Frame Marvels & Flaws</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Swagtron Swagboard T1: High Speed Meets High Price Point"
-date: 2024-08-03T23:04:39.074Z
-updated: 2024-08-04T23:04:39.074Z
+date: 2024-09-04T01:43:41.007Z
+updated: 2024-09-05T01:43:41.007Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring the Swagtron Swagboard T1: High Speed Meets High Price Point"
@@ -15,9 +15,6 @@ thumbnail: https://thmb.techidaily.com/bca79052c5cd9d97263eb9f9d9f77145f2fe69685
 
 ## Microsoft Sculpt Ergonomic Keyboard
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/F035WaL3U8Q-n4fK2WBE6844lMo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
 
 Lifewire / Emily Isaacs
@@ -44,14 +41,8 @@ Lifewire / Emily Isaacs
 
 4.4
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Microsoft Sculpt Ergonomic Keyboard
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
 
 Lifewire / Emily Isaacs
@@ -78,12 +69,14 @@ Lifewire / Emily Isaacs
 
  The Sculpt is an ergonomic keyboard with a split design akin to that of a manta ray. The two halves of the keyboard sweep outwards and downwards creating an empty, raised space in the center of its swoop design. Its keys vary in size, with those nearest to the split being slightly wider than those on the outer edges of the keyboard. It’s largely made with plastic and has a bit of a clacky sound as you type. The Sculpt employs a standard layout with a fabric wrist pad at the front for extra comfort. This intuitive, split design combined with the wrist pad help your wrists, hands, and shoulders sit at a neutral, natural angle in order to[alleviate repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) that frequent typists are prone to over time.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Emily Isaacs
 
  One unique feature of the Sculpt we loved was the function switch. Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key. Options include refreshing the active page, navigating to the home page in web, opening up the computer’s settings, a play/pause button, switching between active windows, and increasing or decreasing volume.
@@ -93,7 +86,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Setup Process: Batteries required**
 
@@ -101,13 +97,22 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
  Backlighting—we love it, but the Sculpt doesn’t have it. This is, in large part, thanks to its battery-powered design. It wouldn’t make a great deal of sense for the Sculpt to have backlighting since the two AAA[alkaline batteries](https://www.lifewire.com/best-aa-and-aaa-rechargeable-batteries-4134295) would drain significantly faster, but we sure did miss it. It’s important to note that our love of backlighting is also a matter of personal preference. If it’s important to you, you might want to consider a different model. If you can live without it, the Sculpt still has a lot to offer.
@@ -116,16 +121,31 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
@@ -180,3 +200,39 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/updated-unparalleled-snapchat-experience-top-editing-tools-on-smartphones/"><u>[Updated] Unparalleled Snapchat Experience  Top Editing Tools on Smartphones</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-xiaomi-14-ultra-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Xiaomi 14 Ultra to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ambient-weathers-ws-1002-wifi-thermometer-assessed-excellent-specifications-for-those-willing-to-pay-more/"><u>Ambient Weather's WS-1002 WiFi Thermometer Assessed – Excellent Specifications for Those Willing to Pay More</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-practices-for-checking-and-editing-your-sites-pages-before-publishing-online/"><u>Best Practices for Checking and Editing Your Site's Pages Before Publishing Online</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/canon-sx620-hs-a-blend-of-convenience-and-capability/"><u>Canon SX620 HS: A Blend of Convenience and Capability</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-apple-ipad-air-2019-analysis-the-ultimate-entertainment-tablet/"><u>Comprehensive Apple iPad Air (2019) Analysis - The Ultimate Entertainment Tablet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-leading-game-platforms-dominating-2024/"><u>Discover the Leading Game Platforms Dominating 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-new-faces-of-zombie-survival-7-days-to-die-game-review-on-monster-makeovers-and-endless-sandbox-exploration/"><u>Discover the New Faces of Zombie Survival: '7 Days to Die' Game Review on Monster Makeovers and Endless Sandbox Exploration</u></a></li>
+<li><a href="https://network-issues.techidaily.com/eliminating-switchable-graphics-error-with-intel-and-nvidia-on-win10/"><u>Eliminating Switchable Graphics Error with Intel & Nvidia on Win10</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experiencing-efficiency-delving-into-mods-cutting-edge-sidecar-upgrade-for-ultimate-easy-e-biking/"><u>Experiencing Efficiency: Delving Into Mod's Cutting-Edge Sidecar Upgrade for Ultimate Easy E-Biking</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-revolutionary-smart-photo-editor-by-anthropics-software-evaluation/"><u>Expert Insights on the Revolutionary Smart Photo Editor by Anthropics - Software Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-apple-m4-processor-released-information-exciting-features-and-capabilities/"><u>Explore the Apple M4 Processor: Released Information, Exciting Features & Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-cheapest-cell-network-packages-of-2024-ranked-for-your-wallets-sake/"><u>Explore the Cheapest Cell Network Packages of 2024 - Ranked for Your Wallet's Sake</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fitbit-sense-unveiled-a-revolutionary-step-beyond-the-apple-watch-for-those-seeking-comprehensive-health-insights/"><u>Fitbit Sense Unveiled: A Revolutionary Step Beyond the Apple Watch for Those Seeking Comprehensive Health Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-crystal-clear-channels-for-less-the-amazonbasics-tv-signal-enhancer-unveiled/"><u>Get Crystal Clear Channels for Less - The AmazonBasics TV Signal Enhancer Unveiled</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/harnessing-the-power-of-color-difference-keying-methods-for-2024/"><u>Harnessing the Power of Color Difference Keying Methods for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/how-to-quickly-and-easily-convert-your-swf-animations-to-mov-without-costs/"><u>How to Quickly and Easily Convert Your SWF Animations to MOV Without Costs</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-remove-passcode-from-iphone-xr-complete-guide-by-drfone-ios/"><u>How To Remove Passcode From iPhone XR? Complete Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-pioneers-bdr-xd05b-blu-ray-burning-device-identifying-design-limitations/"><u>In-Depth Analysis of Pioneer's BDR-XD05B Blu-Ray Burning Device: Identifying Design Limitations</u></a></li>
+<li><a href="https://extra-information.techidaily.com/inside-the-videography-realm-xstudio-study/"><u>Inside the Videography Realm  XStudio Study</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/next-gen-console-showdown-unveiling-the-mighty-performance-of-xbox-series-x-at-4k-resolution/"><u>Next-Gen Console Showdown: Unveiling the Mighty Performance of Xbox Series X at 4K Resolution</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcoming-playback-glitches-in-new-world-expert-advice-for-clear-sound-quality/"><u>Overcoming Playback Glitches in New World: Expert Advice for Clear Sound Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/spotlight-on-sea-tech-a-critical-look-at-their-external-blu-ray-writing-device-performance/"><u>Spotlight on Sea Tech: A Critical Look at Their External Blu-Ray Writing Device Performance</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-japanese-script-from-basics-to-proficiency/"><u>The Japanese Script: From Basics to Proficiency</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-real-deal-on-docoolers-12mp-usb-20-camera-exceptional-performance-or-false-promises/"><u>The Real Deal on Docooler's 12MP USB 2.0 Camera: Exceptional Performance or False Promises?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-picks-streaming-tunes-directly-from-youtuberingtones/"><u>Top Picks  Streaming Tunes Directly From YoutubeRingtones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-smartwatches-the-ultimate-list/"><u>Top-Rated Smartwatches : The Ultimate List</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-tips-overcoming-pc-crashes-while-playing-battlefield-5/"><u>Troubleshooting Tips: Overcoming PC Crashes While Playing Battlefield 5</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-review-of-the-spacious-screened-marvel-samsung-galaxy-note-9/"><u>Ultimate Review of the Spacious Screened Marvel: Samsung Galaxy Note 9</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-ultra-speed-connectivity-an-in-depth-look-at-the-netgear-nighthawk-x10-ad7200-router/"><u>Unlocking Ultra-Speed Connectivity: An In-Depth Look at the Netgear Nighthawk X10 (AD7200) Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-capabilities-a-detailed-look-at-netgears-nighthawk-x4-mesh-extender/"><u>Unveiling the Capabilities: A Detailed Look at Netgear's Nighthawk X4 Mesh Extender</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-videopad-review-is-it-the-best-video-editing-software-for-you/"><u>Updated 2024 Approved Videopad Review Is It the Best Video Editing Software for You ?</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: IMac Upgrade Guide for Intel iMacs
-date: 2024-08-03T23:04:39.482Z
-updated: 2024-08-04T23:04:39.482Z
+date: 2024-09-04T01:42:48.180Z
+updated: 2024-09-05T01:42:48.180Z
 categories:
   - BestProducts
 description: This Article Describes IMac Upgrade Guide for Intel iMacs
@@ -10,9 +10,6 @@ thumbnail: https://www.lifewire.com/thmb/IpK0Kt8GJQlgPr2F2qR-DRaJZdM=/400x300/fi
 ---
 
 ## Optimize Performance: Shifting From Windows 8, Upgrade Now
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### What to Know
 
 * Microsoft no longer offers a free upgrade path from Windows 8 to Windows 11.
@@ -21,9 +18,6 @@ thumbnail: https://www.lifewire.com/thmb/IpK0Kt8GJQlgPr2F2qR-DRaJZdM=/400x300/fi
 
  This article explains two ways you can upgrade Windows 8 to Windows 11\. One method lets you keep all your files and run both operating systems simultaneously, and the other method will delete Windows 8 and install Windows 11.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Can You Upgrade Windows 8 to Windows 11?
 
  There was a time when you could update Windows 8 to Windows 11 via[Windows Update](https://www.lifewire.com/what-is-windows-update-2624597) . Unfortunately, this no longer works.
@@ -33,7 +27,10 @@ thumbnail: https://www.lifewire.com/thmb/IpK0Kt8GJQlgPr2F2qR-DRaJZdM=/400x300/fi
  However, as you'll see below, you can still install Windows 11 on your Windows 8 computer. It's just not free, or as easy as it used to be.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Before You Upgrade to Windows 11
 
@@ -44,15 +41,26 @@ thumbnail: https://www.lifewire.com/thmb/IpK0Kt8GJQlgPr2F2qR-DRaJZdM=/400x300/fi
  If you'll be installing a fresh copy of Windows 11 and you want to keep your files, you'll_need_ to[back up your data](https://www.lifewire.com/ways-to-back-up-your-data-2640426) , at least the most important stuff. There will not be an option to keep them during the installation.  
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How to Upgrade Windows 8 to Windows 11
 
  There are two ways to get Windows 11 on your Windows 8 computer:
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Install a Virtual Machine
 
@@ -63,7 +71,10 @@ thumbnail: https://www.lifewire.com/thmb/IpK0Kt8GJQlgPr2F2qR-DRaJZdM=/400x300/fi
 [Create a New Virtual Machine With VMware's Fusion](https://www.lifewire.com/create-new-virtual-machine-vmwares-fusion-2260218)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Install Windows 11 Over Windows 8
 
@@ -89,3 +100,57 @@ thumbnail: https://www.lifewire.com/thmb/IpK0Kt8GJQlgPr2F2qR-DRaJZdM=/400x300/fi
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-flawless-transcription-mastery-with-googles-ai/"><u>[New] Flawless Transcription  Mastery with Google's AI</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-cutting-edge-taggification-top-7-affordable-online-extractors-for-youtube/"><u>[Updated] 2024 Approved  Cutting-Edge Taggification  Top 7 Affordable Online Extractors for YouTube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-brief-but-bold-short-videos-on-fb/"><u>[Updated] Brief but Bold  Short Videos on FB</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-effortless-youtube-income-computations/"><u>[Updated] Effortless YouTube Income Computations</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-ultimate-top-quality-hd-screen-capture-tools/"><u>[Updated] In 2024, Ultimate Top-Quality HD Screen Capture Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-mastering-live-undo-on-twitch-essential-tips-and-strategies/"><u>2024 Approved  Mastering Live Undo on Twitch  Essential Tips and Strategies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-simple-steps-making-your-channels-subscription-button-stand-out/"><u>2024 Approved  Simple Steps  Making Your Channel's Subscription Button Stand Out</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-excellence-a-detailed-look-at-the-hisense-50-hdr-tv-with-4k-resolution/"><u>Affordable Excellence: A Detailed Look at the Hisense 50 HDR TV with 4K Resolution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-kindle-paperwhite-7th-generation-review/"><u>Amazon Kindle Paperwhite (7Th Generation) Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-watch-series-4-analysis-enhanced-excellence-unveiled/"><u>Apple Watch Series 4 Analysis: Enhanced Excellence Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessment-of-discreet-and-dependable-rexing-v1-dashcam-for-value-oriented-users/"><u>Assessment of Discreet and Dependable Rexing V1 Dashcam for Value-Oriented Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-chromebook-flip-c302ca-affordable-and-versatile-laptop-with-impressive-performance/"><u>Asus Chromebook Flip C302CA - Affordable & Versatile Laptop with Impressive Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/buying-guide-for-the-well-priced-65-4k-led-television-sonys-xbr6350-f-model-review/"><u>Buying Guide for the Well-Priced, 65 4K LED Television: Sony's XBR6#350 F Model Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/canadian-fongo-plan-evaluation-comprehensive-analysis-of-the-top-voip-solution/"><u>Canadian Fongo Plan Evaluation: Comprehensive Analysis of the Top VoIP Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comfort-meets-productivity-the-ultimate-cumuluspro-standing-desk-mat-evaluation/"><u>Comfort Meets Productivity: The Ultimate CumulusPRO Standing Desk Mat Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparative-review-alexa-powered-echo-pop-versus-compact-echo-dot/"><u>Comparative Review: Alexa-Powered Echo Pop Versus Compact Echo Dot</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-raspberry-pi-400-the-hybrid-laptop-and-mini-pc/"><u>Comprehensive Analysis of the Raspberry Pi 400 - The Hybrid Laptop & Mini PC</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/determining-applecareplus-merits-a-cost-vs-benefit-analysis/"><u>Determining AppleCare+ Merits: A Cost Vs. Benefit Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-top-smart-audio-devices-dominating/"><u>Discover the Top Smart Audio Devices Dominating</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elite-selection-of-vertical-mice-the-best-picks-to-revolutionize-your-workspace-in/"><u>Elite Selection of Vertical Mice - The Best Picks to Revolutionize Your Workspace In</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhance-your-digital-library-more-space-on-ps3/"><u>Enhance Your Digital Library: More Space on PS3</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exercise/"><u>Exercise</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expertly-selected-top-combo-modems-with-routers-for-the-year-2024/"><u>Expertly Selected Top Combo Modems with Routers for the Year 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fun-and-riveting-overwatch-review-a-high-octane-cooperative-shooter-gaming-adventure/"><u>Fun & Riveting Overwatch Review: A High-Octane, Cooperative Shooter Gaming Adventure</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-itel-p40plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Itel P40+? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hydroelectric-power/"><u>Hydroelectric Power</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-nubia-z50s-pro-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Nubia Z50S Pro Phones? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-imac-with-apples-new-m1-processor-visual-upgrade-and-enhanced-performance/"><u>In-Depth Analysis of iMac with Apple's New M1 Processor: Visual Upgrade & Enhanced Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lamicall-s-tablet-stand-review-designed-with-functionality-in-mind/"><u>Lamicall S Tablet Stand Review: Designed With Functionality In Mind</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-vivo-y36i-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Vivo Y36i FRP Without Computer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovo-thinkpad-x12-convertible-laptop-exceptional-dual-mode-functionality-and-top-notch-typing-experience/"><u>Lenovo ThinkPad X12 Convertible Laptop: Exceptional Dual-Mode Functionality and Top-Notch Typing Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mirari-childrens-alarm-clock-reviewed-a-must-have-device-to-start-your-childs-day-right/"><u>Mirari Children’s Alarm Clock Reviewed – A Must-Have Device to Start Your Child's Day Right!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/most-effective-compact-laptop-charger-brands/"><u>Most Effective Compact Laptop Charger Brands</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-cross-platform-audio-transcription-turning-text-into-mp3-clips/"><u>New 2024 Approved Cross-Platform Audio Transcription Turning Text Into MP3 Clips</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-ways-to-recover-deleted-files-from-xiaomi-redmi-note-12t-pro-by-fonelab-android-recover-data/"><u>Possible ways to recover deleted files from Xiaomi Redmi Note 12T Pro</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/recording-showdown-the-battle-for-the-best-screen-grabber/"><u>Recording Showdown  The Battle for the Best Screen Grabber</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-bouncie-the-user-friendly-budget-conscious-gps-tracking-solution/"><u>Review of Bouncie: The User-Friendly, Budget-Conscious GPS Tracking Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-lenovos-ideapad-130s-balancing-useful-features-against-limited-processing-ability/"><u>Review of Lenovo's IdeaPad 130S: Balancing Useful Features Against Limited Processing Ability</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/space-shooter-and-smiles-exploring-the-entertaining-storyline-and-mechanics-of-the-outer-worlds/"><u>Space, Shooter and Smiles: Exploring the Entertaining Storyline & Mechanics of The Outer Worlds</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/symas-budget-marvel-the-107g-rc-helicopter-unleashed-a-complete-product-evaluation-and-insights/"><u>Syma's Budget Marvel: The 107G RC Helicopter Unleashed – A Complete Product Evaluation and Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-revolutionary-m1-integrated-processor-in-the-new-imac-an-expert-review/"><u>The Revolutionary M1 Integrated Processor in the New iMac: An Expert Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-logitechs-pro-hd-c92-1-webcam-for-crystal-clear-video-quality/"><u>The Ultimate Review of Logitech's Pro HD C92 1 Webcam for Crystal Clear Video Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-uniden-r3-in-focus-solid-craftsmanship-and-extended-range-radar-detection-performance/"><u>The Uniden R3 in Focus: Solid Craftsmanship and Extended Range Radar Detection Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/to-monterey-or-not-on-my-mac/"><u>To Monterey, or Not on My Mac?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-insights-on-the-ring-battery-doorbell-plus-your-ultimate-shopping-guide/"><u>Top Insights on the Ring Battery Doorbell Plus - Your Ultimate Shopping Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-review-of-the-luxury-glion-dolly-electric-scooter-fast-but-costly/"><u>Ultimate Review of the Luxury Glion Dolly Electric Scooter - Fast but Costly</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unmatched-precision-and-design-elevating-gameplay-with-the-elite-series-2-from-xbox-one-an-authoritative-review/"><u>Unmatched Precision and Design: Elevating Gameplay with the Elite Series 2 From Xbox One - An Authoritative Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-eero-pro-router-a-full-house-internet-coverage-guide/"><u>Unveiling the Power of Eero Pro Router - A Full House Internet Coverage Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-the-netgear-orbi-is-your-ideal-choice-for-premium-mesh-routers/"><u>Why the Netgear Orbi Is Your Ideal Choice for Premium Mesh Routers</u></a></li>
+<li><a href="https://techidaily.com/will-samsung-galaxy-a15-5g-play-avchd-mts-files-by-aiseesoft-video-converter-play-mts-on-android/"><u>Will Samsung Galaxy A15 5G play AVCHD mts files?</u></a></li>
+</ul></div>
