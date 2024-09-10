@@ -1,7 +1,7 @@
 ---
 title: "Sci-Fi Action Gaming Experience in 'The Outer Worlds': An Engaging Narrative Adventure"
-date: 2024-08-03T23:04:37.513Z
-updated: 2024-08-04T23:04:37.513Z
+date: 2024-09-09T13:54:59.682Z
+updated: 2024-09-10T13:54:59.682Z
 categories:
   - BestProducts
 description: "This Article Describes Sci-Fi Action Gaming Experience in 'The Outer Worlds': An Engaging Narrative Adventure"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/faf1cb7ed901297d85ab9d9c8300254ef72ce23f3
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Dying Light
 
 ![Dying Light](https://www.lifewire.com/thmb/ExEFo7aByvSphU-Qxeq8zUjf8lk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
@@ -40,16 +37,16 @@ Lifewire / Kelsey Simon
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Dying Light
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Dying Light](https://www.lifewire.com/thmb/YWkGikwP23JK119N4M7J22dAPJY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Lifewire / Kelsey Simon
 
 [View On Amazon](https://www.amazon.com/dp/B00D2ZK1IG/?tag=lifewire-onsite-prod-20&ascsubtag=4778324%7Cn8b17d62e028148938085d16c4455799211%7CB00D2ZK1IG) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/dying-light/10111372.html)
@@ -71,24 +68,30 @@ Lifewire / Kelsey Simon
 
  Dying Light is a first-person action-adventure game set in the midst of a zombie apocalypse. Its headline feature is kinetic parkour traversal through an open-world infested with unique zombies.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Straight into the action**
 
  The first time you launch the game you'll be treated to an artistic video over the background of a news report. It explains the situation in Harran, the city where the game takes place. The game proper starts with a cut scene that shows you on a plane, about to parachute out. There’s no character creation here, although once you get a little further into the game, you’ll be able to pick your clothes.
 
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Plot: A character torn between obligation and friendship**
 
  The initial cutscene starts with you on a plane, preparing to jump. Your name is Kyle Crane, and you’re an undercover operative. You’ll parachute to the earth while your boss explains your mission―to find a stolen file―but the second you hit the ground, things don’t go as planned. You’re attacked and forced to fire your weapon to scatter your attackers. Of course, in zombie-infested Harran, a gunshot is zombie bait. Suddenly they're swarming toward you and things look very dire, until you're rescued by a pair of strangers, a man and a woman. The man dies saving you but you and the woman escape. Her name is Jade, and she’ll play a big role throughout the story as you try to win her and her brother’s trust.
@@ -101,10 +104,19 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Gameplay: Parkour and zombies galore**
 
@@ -118,27 +130,22 @@ Harran is a whole different city at night.
 
  Harran is a whole different city at night. If you aren’t in a safe zone, you’ll quickly learn that running through the city at night is terrifying, specifically because of a zombie type called volatiles. Volatiles are crazy strong, super-fast, and will chase after you relentlessly until you get out of sight―not an easy thing to do when you’re freaking out. It can be a real rush to try to do a mission at night, so if things aren’t feeling tense enough for you, just wait until the sunsets.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Dying Light](https://www.lifewire.com/thmb/YctEePpYKsIXQ5kU-hQ8w7o9CDo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-4-1edeaf05c6ba435e9b81e68a13831ac6.jpg)
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Graphics: Attention to detail**
 
  The graphics of Dying Light compare well to other triple-A titles, though it feels like the developers took more care with the scenery than the characters. Human models look a little plasticky, but the world around you is textured beautifully and rich with small details like posters and graffiti that help make the world around you feel real.
 
  Character animation is also excellent, and the buildings and other objects within the world offer a variety of ways to jump, climb, and crawl. The open urban landscape of Harran allows players to decide how they want to explore, acquire materials, and fight. You’ll be able to come at certain locations from a variety of angles,and it's this sense of freedom and attention to the environments that brings Dying Light together.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
  Lifewire / Kelsey Simon
@@ -147,6 +154,12 @@ Harran is a whole different city at night.
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Competition: Other zombie and parkour games**
 
  There are a lot of other zombie survival games out there, but that doesn’t necessarily mean we’d recommend them if you liked Dying Light. You might consider Days Gone, another PlayStation 4 zombie apocalypse game set in an open world, but if the parkour was the main attraction, you might look into the game Mirror’s Edge Catalyst. The game follows a girl in a sci-fi world and features first-person parkour running and fighting. Instead of the rough and gritty world of Dying Light, Catalyst takes place in a sleek futuristic dystopia that's all glossy chrome and burnished glass.
@@ -159,6 +172,12 @@ Harran is a whole different city at night.
 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Dying Light
@@ -180,3 +199,38 @@ Harran is a whole different city at night.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-zoom-recording-101-a-practical-approach/"><u>[New] In 2024, Zoom Recording 101 A Practical Approach</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-ultimate-guide-to-self-validation-on-social-media/"><u>[Updated] 2024 Approved The Ultimate Guide to Self-Validation on Social Media</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-navigating-the-tech-maze-screen-casting-sessions/"><u>[Updated] Navigating the Tech Maze Screen Casting Sessions</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-sharing-is-caring-but-not-without-copyright-checks-tiktok/"><u>[Updated] Sharing Is Caring - But Not Without Copyright Checks (TikTok)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-ssls-options-quality-vs-cost/"><u>Affordable SSLS Options: Quality vs Cost?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-face-off-analyzing-features-and-performance-of-iphone-15-pro-and-pro-max/"><u>Apple Face-Off: Analyzing Features and Performance of iPhone 15 Pro & Pro Max</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/canons-portable-vintage-designed-camera-powershot-g9x2-a-photographers-dream/"><u>Canon's Portable Vintage-Designed Camera, PowerShot G9X2: A Photographer’s Dream</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/city-construction-fun-with-cities-skylines-the-ultimate-addictive-urban-builder-simulator/"><u>City Construction Fun with Cities: Skylines - The Ultimate Addictive Urban Builder Simulator</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dissecting-the-features-and-flaws-of-google-stadia-for-better-gaming-experience/"><u>Dissecting the Features and Flaws of Google Stadia for Better Gaming Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-of-the-lg-stylo-6-a-perfect-blend-of-style-and-functionality-with-stylus/"><u>Expert Review of the LG Stylo 6: A Perfect Blend of Style & Functionality with Stylus</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-reviews-on-the-google-wireless-nest-doorbell-battery-edition/"><u>Expert Reviews on the Google Wireless Nest Doorbell – Battery Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/find-your-match-choosing-an-ideal-apc-ups-for-enhanced-gaming-performance/"><u>Find Your Match: Choosing an Ideal APC UPS for Enhanced Gaming Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/google-assistant-vs-alexa-determining-the-ideal-choice-for-your-needs/"><u>Google Assistant Vs. Alexa: Determining the Ideal Choice for Your Needs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/immersive-sound-experience-sony-style/"><u>Immersive Sound Experience, Sony Style</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-mastering-multimedia-posts-multiphotograph-and-video-uploads-on-instagram/"><u>In 2024, Mastering Multimedia Posts Multiphotograph & Video Uploads on Instagram</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-assassins-creed-valhalla-a-deep-dive-into-its-spectacular-viking-chronicles-and-historical-quests/"><u>Inside Assassin's Creed: Valhalla - A Deep Dive Into Its Spectacular Viking Chronicles and Historical Quests</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/master-basic-digital-tasks-the-ultimate-guide-to-hp-stream-11/"><u>Master Basic Digital Tasks: The Ultimate Guide to HP Stream 11</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/master-meetings-the-ultimate-list-of-10-free-recorders-for-2024/"><u>Master Meetings The Ultimate List of 10 Free Recorders for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-find-wolf-howling-sound-effect/"><u>New In 2024, Find Wolf Howling Sound Effect</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-how-stanleys-j5c09-stands-out-with-sizeable-potential/"><u>Review: How Stanley's J5C09 Stands Out with Sizeable Potential</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rotiboxs-bluetooth-enabled-earmuff-hat-review-where-coziness-meets-exceptional-acoustic-experience/"><u>Rotibox's Bluetooth-Enabled Earmuff Hat Review - Where Coziness Meets Exceptional Acoustic Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/softbox-innovation-showcase-2024s-best/"><u>Softbox Innovation Showcase - 2024'S Best</u></a></li>
+<li><a href="https://win-forum.techidaily.com/step-by-step-tutorial-deleting-profiles-efficiently-using-revo-for-windows-11-users/"><u>Step-by-Step Tutorial: Deleting Profiles Efficiently Using Revo for Windows 11 Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-for-windows-10-to-11-transition/"><u>The Ultimate Guide for Windows 10 to 11 Transition</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/the-ultimate-guide-to-gamers-screen-recordings-with-win10-for-2024/"><u>The Ultimate Guide to Gamers' Screen Recordings with Win10 for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-review-why-the-new-apple-watch-series-4-sets-a-higher-standard/"><u>Top Review: Why the New Apple Watch Series 4 Sets a Higher Standard</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-samsung-galaxy-fit-critique-a-smart-choice-for-the-fitness-enthusiasts-wrist/"><u>Top Samsung Galaxy Fit Critique – A Smart Choice for the Fitness Enthusiast's Wrist</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-apple-iphone-12-mini-showcasing-power-and-potential-in-compact-design/"><u>Unpacking the Apple iPhone 12 Mini: Showcasing Power and Potential in Compact Design</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/what-is-youtube-tag-and-how-to-find-great-tags-for-your-videos/"><u>What Is YouTube Tag and How to Find Great Tags For Your Videos?</u></a></li>
+</ul></div>

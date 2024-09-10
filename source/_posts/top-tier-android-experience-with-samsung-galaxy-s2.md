@@ -1,7 +1,7 @@
 ---
 title: Top-Tier Android Experience with Samsung Galaxy S2
-date: 2024-09-04T01:50:12.021Z
-updated: 2024-09-05T01:50:12.021Z
+date: 2024-09-09T14:00:11.072Z
+updated: 2024-09-10T14:00:11.072Z
 categories:
   - BestProducts
 description: This Article Describes Top-Tier Android Experience with Samsung Galaxy S2
@@ -13,10 +13,22 @@ thumbnail: https://www.lifewire.com/thmb/PFUQOZAfNhPvg0daDPD_87Fs0tI=/400x300/fi
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Samsung Galaxy Fit
 
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/UbU9fom8autjrPBW79fdJpbGiu8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_04LW4161013-1-760c721cdfb74062a7b7a34dffa00d9e.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Yoona Wagener
 
  What We Like
@@ -37,10 +49,28 @@ thumbnail: https://www.lifewire.com/thmb/PFUQOZAfNhPvg0daDPD_87Fs0tI=/400x300/fi
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Samsung Galaxy Fit
 
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/RBJ_qd0-iPj3u7qSA3GAXNn2byQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_04LW4161013-1-760c721cdfb74062a7b7a34dffa00d9e.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Yoona Wagener
 
 [View On Amazon $120](https://www.amazon.com/dp/B07RB2NWDN/?tag=lifewire-onsite-prod-20&ascsubtag=4766867%7Cnd9ea231691e349f9a36c8fb0b9d3dc9e12%7CB07RB2NWDN) [View On Walmart $104](https://www.walmart.com/ip/SAMSUNG-Galaxy-Fit-Activity-Tracker-Heart-Rate-Black-SM-R370NZKAXAR/657883661)
@@ -72,12 +102,6 @@ thumbnail: https://www.lifewire.com/thmb/PFUQOZAfNhPvg0daDPD_87Fs0tI=/400x300/fi
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Functional and slightly elevated**
 
  The Samsung Galaxy Fit is a fitness-oriented device, and the design reflects this. It’s clean, minimal, and straightforward. Not only is this wearable extremely lightweight at only 0.81 ounces, but it’s also quite slim, which gives it a bracelet-like appearance.
@@ -103,13 +127,25 @@ thumbnail: https://www.lifewire.com/thmb/PFUQOZAfNhPvg0daDPD_87Fs0tI=/400x300/fi
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/E_Ki7o6LChwW9AdtjDKL2L1lHjw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-4-abd906dedc9c440188c23a5aabdfebe0.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Comfort: Almost undetectable**
 
  Like the[Samsung Galaxy Watch Active](https://www.lifewire.com/samsung-galaxy-watch-4174640) , this device also features a tucked-in strap. The difference is that there’s a little pin with a round head instead of the straight pin that most watch buckles have. This detail makes for an extremely close fit that verges on almost too close.
@@ -127,10 +163,10 @@ thumbnail: https://www.lifewire.com/thmb/PFUQOZAfNhPvg0daDPD_87Fs0tI=/400x300/fi
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/SRdpyMKwwNLE2m_Dnn2o9thnpQ8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-3-40a8d98ca4a04e7c9b5b18531df43e6f.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Yoona Wagener
 
@@ -152,18 +188,24 @@ thumbnail: https://www.lifewire.com/thmb/PFUQOZAfNhPvg0daDPD_87Fs0tI=/400x300/fi
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Battery: Good for a full week of use**
 
  Samsung says this watch is good for up to seven to eight days with regular activity and use, and up to eleven days with minimal use. We found that this watch lasted on the initial charge for a full[eight days](https://www.lifewire.com/fitness-trackers-with-the-best-battery-life-4077272) , which lined up with the manufacturer claims. It’s hard to say how the battery life would stack up to multiple workouts in a day—we typically only did one a day over the course of a week, but our experience with the device supports the strong battery life claims.
 
  When we did have to charge the device again, we found that process to be speedy: it took only two hours to recharge in full.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: Dial up your fitness with the Samsung Health app**
 
  Unlike other Samsung smartwatches, the Samsung Galaxy Fit is built on a FreeRTOS (real time operation software) platform. This OS relies heavily on the companion smartphone app and the Samsung Health app for a well-rounded experience.
@@ -178,12 +220,6 @@ thumbnail: https://www.lifewire.com/thmb/PFUQOZAfNhPvg0daDPD_87Fs0tI=/400x300/fi
 
  There are cheaper options out there, too, like the Garmin vívofit 4, which sells for between $60 and $80\. But it lacks a heart rate monitor or the smart capabilities of the Fit, like canned text-messaging responses and the ability to send calls straight to voicemail. For the activity tracking and smart device functionality, the Fit is a fair price and maybe even a bargain for some.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024326/7443" target="_top" id="2024326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Samsung Galaxy Fit vs. Fitbit Inspire HR**
 
  The Fitbit Inspire HR is a close competitor to the Samsung Galaxy Fit. Both are priced at just below $100 and have many of the same wellness and activity tracking features. Both are water resistant up to 50 meters, track active and resting heart rate, feature sport profiles, log sleeping activity, and integrate various types of notifications.
@@ -199,10 +235,10 @@ thumbnail: https://www.lifewire.com/thmb/PFUQOZAfNhPvg0daDPD_87Fs0tI=/400x300/fi
  The Samsung Galaxy Fit is an appealing option for those who want a bit of smartwatch functionality and a heavy emphasis on exercise monitoring—without shelling out too much money. The fit, ironically, may be the largest issue. But if you’re able to find the right size, this may be everything you want in a fitness tracker.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
@@ -211,16 +247,10 @@ thumbnail: https://www.lifewire.com/thmb/PFUQOZAfNhPvg0daDPD_87Fs0tI=/400x300/fi
 * [Apple Watch Series 4](https://www.lifewire.com/apple-watch-series-4-review-4769752)
 
 <!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Specs
 

@@ -1,7 +1,7 @@
 ---
 title: Snap Up Spectacular Deals - Prime Day Specials for All Models of Roku Devices
-date: 2024-09-04T01:45:30.714Z
-updated: 2024-09-05T01:45:30.714Z
+date: 2024-09-09T14:00:15.135Z
+updated: 2024-09-10T14:00:15.135Z
 categories:
   - BestProducts
 description: This Article Describes Snap Up Spectacular Deals - Prime Day Specials for All Models of Roku Devices
@@ -65,10 +65,16 @@ Lifewire / Andy Zahn
  Fossil has a reputation for making cool watches, both of the traditional and smart variety, and Fossil Sport is no exception. The question is, does it work as well as it looks?
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Design: Classy looks, quality controls**
 
@@ -78,12 +84,6 @@ Lifewire / Andy Zahn
 
 ![Fossil Sport Smartwatch](https://www.lifewire.com/thmb/09nYIY5js64r3HdZV05shTtw6aI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fossil-Sport-Smart-Watch-3-596e9d29b0634b1a9abfa429e619733e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andy Zahn
 
  The Fossil Sport is controlled using both a[touchscreen](https://www.lifewire.com/what-is-a-touchscreen-4144770) and three dedicated buttons. The central button features a rotating dial that’s great for scrolling through menus and notifications. The other two can be programmed as shortcuts to access different functions. It’s water-resistant down to 5 ATM, or 164 feet, though it’s not a diving watch.
@@ -91,16 +91,10 @@ Lifewire / Andy Zahn
  The Fossil Sport is one slick looking watch, and it’s impressively customizable.
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Setup process: Streamlined with lots of prompts**
 
@@ -108,13 +102,19 @@ Lifewire / Andy Zahn
 
 ![Fossil Sport Smartwatch](https://www.lifewire.com/thmb/DdOVg5yJzQTRZs3QPo_qPoBT7mA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fossil-Sport-Smart-Watch-4-653a372a18904e089de460ed88380344.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Comfort: Highly adjustable**
 
@@ -126,6 +126,12 @@ Lifewire / Andy Zahn
 
  The 1.2-inch 390 PPI AMOLED display is wonderfully crisp, clear, and bright enough to see even in strong sunlight. It’s so pretty to look at with deep blacks and bright colors that I found myself occasionally glancing at the watch just to enjoy this startlingly nice screen.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Battery: 24-hour power**
 
  I found that I was easily able to get through a day or two without having to recharge the Fossil Sport. Its 24-hour battery claim is accurate under average daily use conditions. Once you do run the battery down, the watch switches into a battery saver mode where only the time is displayed. In this mode, you can expect a week's worth of battery life.
@@ -133,25 +139,13 @@ Lifewire / Andy Zahn
 ![Fossil Sport Smartwatch](https://www.lifewire.com/thmb/a8TojyXavE05a-LRkRQauxY7ChM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fossil-Sport-Smart-Watch-2-cb6ea34d0ed1441c8c0dac4542d0dd1d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: The Highs and Lows of Wear OS**
 
  Fossil Sport utilizes Google’s[WearOS](https://www.lifewire.com/best-tips-and-tricks-for-wear-os-4583030) , which is something of a double-edged sword. On one hand, WearOS supports a range of devices, which means the Fossil Sport isn’t dependent upon a closed ecosystem. On the other hand, I had some issues with the compatibility of WearOS apps on Fossil Sport.
@@ -164,6 +158,12 @@ Lifewire / Andy Zahn
 
  Just because an app runs on WearOS, this doesn’t mean it will run flawlessly on any WearOS device.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: An excellent value**
 
  Since launch, the MSRP of the Vivoactive 3 Music has plummeted from $275 to just $99, making it a genuine bargain. The watch is ridiculously high quality for such a low price.
@@ -178,6 +178,18 @@ Lifewire / Andy Zahn
 
  The value of Fossil Sport is beyond dispute. Between its capable feature set, excellent design, and bargain price point, this smartwatch is a versatile and good looking companion.
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Fossil Sport

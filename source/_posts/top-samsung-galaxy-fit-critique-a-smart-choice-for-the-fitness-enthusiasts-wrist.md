@@ -1,7 +1,7 @@
 ---
 title: Top Samsung Galaxy Fit Critique – A Smart Choice for the Fitness Enthusiast's Wrist
-date: 2024-09-04T01:49:35.518Z
-updated: 2024-09-05T01:49:35.518Z
+date: 2024-09-09T14:00:11.600Z
+updated: 2024-09-10T14:00:11.600Z
 categories:
   - BestProducts
 description: This Article Describes Top Samsung Galaxy Fit Critique – A Smart Choice for the Fitness Enthusiast's Wrist
@@ -63,6 +63,12 @@ Lifewire / Sandra Stafford
 
  With all the buzz about the biggest, best TVs on the market, it can be difficult to find anyone talking about smaller options like the LG 24-inch LH4830.[Smart TVs](https://www.lifewire.com/what-is-a-smart-tv-4140172) at this budget price point don’t offer as many features as larger, more expensive televisions, but all of that functionality is wasted if the TV won’t fit into your space. I tested the LH4830 for weeks in my cramped kitchen to see if a little TV like the LH4830 could still add a lot of value and compared it to other TVs on our list of the best cheap TVs.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Decidedly minimalist**
 
  There is nothing flashy about the LG 24-inch LH4830\. Half-inch bezels on three sides of the screen create a clean, modern shape that stops just short of being boxy. Edge to edge panels aren’t an option at this price point, where a costly design would cut into more meaningful additions, like better resolution or speakers.
@@ -72,24 +78,24 @@ Lifewire / Sandra Stafford
 ![LG 24LH4830 Smart TV](https://www.lifewire.com/thmb/nXJoYyubvcUPiVfJUWhITECGHww=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4061017-LGElectronics24LH4830-PU24-InchSmartLEDTV2016Model-04-47b70d6fa03e4bc6bd4da8edf6085220.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Sandra Stafford
 
 <!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Setup Process: Use your new TV in minutes**
 
@@ -98,10 +104,16 @@ Lifewire / Sandra Stafford
  The default screen of the LH4830 is static unless you have cable, which was probably the biggest source of annoyance in all of the testing. Unless you remember to turn the volume down before turning the TV off, you’ll be greeted by the roar of static when you turn the TV on again. An increasing number of people don’t have cable subscriptions at all, so this is a pretty big oversight.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Interface: LG webOS is clean and modern**
 
@@ -117,34 +129,46 @@ Lifewire / Sandra Stafford
 
  The LH4830 can be calibrated by a technician with two ISF expert modes, and it has several preset modes that will be plenty for most other users. The Cinema mode was ideal when I tested the TV in my kitchen, with a warm color temperature that is easier on the eyes and looks better in the evening. While cooking, I would turn the picture mode to Game and play rounds of Super Smash Bros. Ultimate. The Game mode’s latency reduction and motion handling are great for such a budget TV.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Audio Quality: Underpowered speakers**
 
  The LH4830 has two 5W speakers that do their best to deliver virtual[surround sound](https://www.lifewire.com/720p-1080i-1080p-explained-3276378) . The audio quality is adequate for a TV of this size, but not great. Even with auto volume leveling, soft sounds like whispering are often lost, requiring that the volume be frequently adjusted. Background noise like a dishwasher or air conditioner is going to be enough to drown out the volume of these underpowered speakers. All of that said, I can’t criticize the LH4830 too much. Very few TVs wouldn’t benefit from a dedicated speaker system or soundbar, especially at this price point.
 
 ![LG 24LH4830 Smart TV](https://www.lifewire.com/thmb/BCLpbJ0Nr9vB4BBQjei4aC_jzg8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4061017-LGElectronics24LH4830-PU24-InchSmartLEDTV2016Model-02-17f260630f0749ea8529daf9a13c3c01.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Sandra Stafford
 
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Apps: LG Content Store could use more robust selection**
 
  After setup, the LH4830 goes automatically to the LG Content Store. The LG Content Store does have apps like Netflix and YouTube, but the selection other than those is seriously limited. Other LG televisions do have access to the Hulu app, so we assume that it will be added to this one in a later update, but if Hulu is a must, then this is not the right choice. As a secondary television, the loss of Hulu isn't a big deal. The television is compatible with[Roku and Apple TV](https://www.lifewire.com/best-devices-to-buy-for-streaming-tv-4061016) , though, so you can work around the lack of app support.
 
 ![LG 24LH4830 Smart TV](https://www.lifewire.com/thmb/gUelIOzwsKr5o2f2yWumqzKIomI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4061017-LGElectronics24LH4830-PU24-InchSmartLEDTV2016Model-03-3f829dc8cb05440ea4c8cf67f706694f.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Sandra Stafford
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Competitively priced for its features**
 
  A look at the competition of smart TVs under 24 inches shows that the LH4830 is fairly priced for what it offers. For around $140, it's a well-made smart TV running on a very stable operating system. The wide-angle panel and small size allow it to be effectively used in a great variety of small spaces, and on a screen this size it doesn't make sense to pay for much better quality.
@@ -162,10 +186,10 @@ Lifewire / Sandra Stafford
  The LG 24LH4830 brings a lot of functionality to an undersized part of the TV market. With a wide viewing panel that shows bright, true color no matter where you are in the living room, it’s the perfect choice for TVs that need to fit into small spaces.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Specs
 

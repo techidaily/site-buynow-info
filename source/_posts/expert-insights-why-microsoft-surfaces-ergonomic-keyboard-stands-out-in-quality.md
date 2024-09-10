@@ -1,7 +1,7 @@
 ---
 title: "Expert Insights: Why Microsoft Surface's Ergonomic Keyboard Stands Out in Quality"
-date: 2024-08-03T23:04:38.551Z
-updated: 2024-08-04T23:04:38.551Z
+date: 2024-09-09T13:52:14.300Z
+updated: 2024-09-10T13:52:14.300Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Insights: Why Microsoft Surface's Ergonomic Keyboard Stands Out in Quality"
@@ -41,6 +41,12 @@ thumbnail: https://thmb.techidaily.com/8b607e0e604394629b363ae69329923c5b752c9a4
 
 [Jump to Review](https://www.lifewire.com/#toc-best-for-gaming-kinesis-gaming-freestyle-edge-rgb)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best Overall
 
 [Logitech Ergo K860](https://www.amazon.com/Logitech-Wireless-Ergonomic-Keyboard-Wrist/dp/B07ZWK2TQT/?tag=lifewire-onsite-prod-20&ascsubtag=4147386%7Cn326e10e09a2e4a42be05879465b0c31513%7CB07ZWK2TQT)
@@ -70,6 +76,18 @@ PHOTO: Amazon
 
 **Type:** Membrane | **Connectivity:** Wireless receiver, Bluetooth | **RGB:** None | **Tenkeys:** Yes | **Palm Rest:** Yes | **Dedicated Media Controls:** No
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best Bluetooth
 
 [Logitech K350](https://www.walmart.com/ip/13215113)
@@ -99,7 +117,16 @@ PHOTO: Amazon
 **Type:** Membrane | **Connectivity:** Wireless receiver | **RGB:** None | **Tenkeys:** Yes | **Palm Rest:** Yes | **Dedicated Media Controls:** Yes
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Best for Macs
 
@@ -131,7 +158,16 @@ PHOTO: Amazon
 [Kinesis Freestyle2 Blue (Mac) Review](https://www.lifewire.com/freestyle2-blue-review-4780187)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Best for Gaming
 
@@ -162,28 +198,28 @@ PHOTO: Amazon
 
 [The Best Mice for Macs of 2024](https://www.lifewire.com/best-mice-for-macs-6753004)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## What to Look For in an Ergonomic Keyboard
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### **Usage**
 
  Where will you be using this keyboard? Is it mainly for personal use, or will you take it to the office? Do you need an ergonomic keyboard explicitly made with gamers in mind? While you can use a keyboard for multiple purposes, you may enjoy customizing which one you buy based on how you will use it the most.
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### **Mac vs. PC**
 
  Do you have a Mac or a PC? While it seems like keyboards should be usable with both, that’s not always the case. You need to make sure whatever keyboard you buy is compatible with your system (this is usually a bigger problem for Macs rather than PCs). Additionally, the two operating systems have slightly different keys. While you can often use mapping software to alleviate these issues, you may want to purchase a keyboard specifically designed for your type of machine.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ### **Keyboard size**
 
  Do you need a full-size keyboard, complete with a number pad? If you’re inputting numbers, you probably find the number pad vital. But if you’re used to typing on a laptop, it’s likely you barely use it. Do you need a foldable, portable keyboard? Or do you need something with a small footprint but not necessarily mobile? You can find ergonomic keyboards in all sizes—think about what you’ll need.
@@ -227,3 +263,44 @@ Tell us why!
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-from-idea-to-share-the-process-of-adding-gifs-on-snapchat/"><u>[New] From Idea to Share The Process of Adding Gifs on Snapchat</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-how-to-smoothly-view-youtube-videos-without-borders/"><u>2024 Approved How to Smoothly View YouTube Videos without Borders?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-lenovo-tab-4-examination-pros-and-cons-of-an-economical-android-device/"><u>Affordable Lenovo Tab #4 Examination - Pros and Cons of an Economical Android Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-available-exterior-bd-drive-models-for-optimal-media-viewing/"><u>Best Available Exterior BD Drive Models for Optimal Media Viewing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/beyond-firetv-the-enhanced-viewing-pleasure-of-chromecast-with-google-tv-reviewed/"><u>Beyond FireTV: The Enhanced Viewing Pleasure of Chromecast with Google TV Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-flight-test-a-comprehensive-look-at-the-syma-x5c-rc-quadcopter/"><u>Budget-Friendly Flight Test: A Comprehensive Look at the SYMA X5C RC Quadcopter</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/conquering-terrain-with-the-colossal-galaxy-ford-f-150-rc-a-review-of-an-automotive-marvel/"><u>Conquering Terrain with the Colossal Galaxy Ford F-150 R/C - A Review of an Automotive Marvel</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-top-tier-vr-gaming-with-oculus-quest-2-expert-review-and-pricing-breakdown/"><u>Discover Top-Tier VR Gaming with Oculus Quest 2 - Expert Review and Pricing Breakdown</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/djis-robomaster-s1-explored-an-entertaining-battle-bot-with-programming-fun/"><u>DJI's RoBOmaster S1 Explored: An Entertaining Battle Bot With Programming Fun</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-install-hp-officejet-pro-8620-driver-updates-on-windows/"><u>Download and Install HP OfficeJet Pro 8620 Driver Updates on Windows</u></a></li>
+<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-realme-gt-5-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Realme GT 5 in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/essential-aspects-for-selecting-a-wi-fi-hub/"><u>Essential Aspects for Selecting a Wi-Fi Hub</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-performance-and-efficiency-of-the-enhanced-stanley-j5c0-9-corded-circular-saw/"><u>Evaluating Performance & Efficiency of the Enhanced Stanley J5C0 9 Corded Circular Saw</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-advice-on-procuring-an-exceptional-gaming-machine/"><u>Expert Advice on Procuring an Exceptional Gaming Machine</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-asus-xn441ba-the-big-screen-laptop-that-comes-with-a-set-of-sacrifices/"><u>Expert Insights on Asus Xn441Ba: The Big-Screen Laptop That Comes With a Set of Sacrifices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-value-in-sound-paww-triad-headphones-overview/"><u>Exploring Value in Sound: Paww Triad Headphones Overview</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fitbit-inspire-hr-review-a-fitness-tracker-you-can-wear-247/"><u>Fitbit Inspire HR Review: A Fitness Tracker You Can Wear 24/7</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-system-of-apple-iphone-se-2020-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair System of Apple iPhone SE (2020)? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-samsung-galaxy-m34-5g-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Samsung Galaxy M34 5G</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-stolen-iphone-11-in-different-conditionsin-drfone-by-drfone-ios/"><u>In 2024, How To Unlock Stolen iPhone 11 In Different Conditionsin | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-immediate-access-future-legacy-preserving-your-digital-moments/"><u>In 2024, Immediate Access, Future Legacy Preserving Your Digital Moments</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-samsung-galaxy-s23plus-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Samsung Galaxy S23+ FRP Bypass</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-chatgpt-plus-a-smart-choice-for-your-needs-uncover-5-compelling-reasons-to-join-now/"><u>Is ChatGPT Plus a Smart Choice for Your Needs? Uncover 5 Compelling Reasons to Join Now!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-the-fitbit-charge-3-worth-buying-in-depth-analysis-and-comparison/"><u>Is the Fitbit Charge 3 Worth Buying ? In-Depth Analysis and Comparison</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-how-to-find-free-sites-for-sound-effect-and-add-them-in-final-cut-pro/"><u>New In 2024, How to Find Free Sites for Sound Effect and Add Them in Final Cut Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/professional-drones-showdown-dji-mavic-2-pro-dominates-the-skies/"><u>Professional Drones Showdown: DJI Mavic 2 Pro Dominates the Skies</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/smart-sound-experience-an-in-depth-look-at-the-nest-audio-smart-speaker-for-audiophiles/"><u>Smart Sound Experience: An In-Depth Look at the Nest Audio Smart Speaker for Audiophiles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sony-nw78-walkman-unrivaled-clarity/"><u>Sony NW78 Walkman: Unrivaled Clarity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-mastering-plants-vs-zombies-battle-for-neighborville-a-hilarious-shooter-game-for-all-ages/"><u>The Ultimate Guide to Mastering Plants Vs. Zombies: Battle for Neighborville: A Hilarious Shooter Game for All Ages</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-tablet-showdown-evaluating-features-of-amazon-fire-vs-ipad-to-find-yours/"><u>Top Tablet Showdown: Evaluating Features of Amazon Fire Vs. IPad to Find Yours</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-acer-discounts-on-prime-day-2024-ultimate-guide/"><u>Top-Rated Acer Discounts on Prime Day 2024: Ultimate Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/us-debut-of-nickwatch-coincides-with-exciting-kids-choice-ceremony/"><u>U.S. Debut of NickWatch Coincides with Exciting Kids' Choice Ceremony</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/understanding-the-distinction-between-kindle-e-readers-and-fire-tablets-by-amazon/"><u>Understanding the Distinction Between Kindle E-Readers and Fire Tablets by Amazon</u></a></li>
+<li><a href="https://fox-http.techidaily.com/web-analytics-made-easy-discover-cookiebots-capabilities/"><u>Web Analytics Made Easy - Discover Cookiebot's Capabilities</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Vivo S17? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-the-asus-chromebook-flip-c302ca-is-a-must-have-for-savvy-shoppers-a-thorough-review/"><u>Why the Asus Chromebook Flip C302CA Is a Must-Have for Savvy Shoppers: A Thorough Review</u></a></li>
+</ul></div>

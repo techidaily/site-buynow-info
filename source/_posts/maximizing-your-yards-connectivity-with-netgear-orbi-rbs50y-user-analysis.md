@@ -1,7 +1,7 @@
 ---
 title: Maximizing Your Yard's Connectivity with Netgear Orbi RBS50Y User Analysis
-date: 2024-09-04T01:53:11.964Z
-updated: 2024-09-05T01:53:11.964Z
+date: 2024-09-09T14:00:08.438Z
+updated: 2024-09-10T14:00:08.438Z
 categories:
   - BestProducts
 description: This Article Describes Maximizing Your Yard's Connectivity with Netgear Orbi RBS50Y User Analysis
@@ -9,6 +9,18 @@ excerpt: This Article Describes Maximizing Your Yard's Connectivity with Netgear
 thumbnail: https://www.lifewire.com/thmb/J-pwFt9XA5bZIRReo2Iy21Tg0KA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Netgear-Orbi-RBS50Y-Wifi-Extender-1-ad3cc97783b14d5c879d092b507abdf4.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Maximize Your Device's Lifetime with ChargeTech's Superior 27000mAh Battery Bank Reviewed
 
 3.5
@@ -41,6 +53,12 @@ Lifewire / Gannon Burgett
 
 ![Charge Tech](https://www.lifewire.com/thmb/x-1Iy0CxchTrQYvRNlYOCmLw4BQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_5WebHERO-5c8fffb2c9e77c00010e971c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Lifewire / Gannon Burgett
 
 [View On Amazon](https://www.amazon.com/CHARGETECH-27K-Portable-Power-Bank/dp/B07QCC3T54/?tag=lifewire-onsite-prod-20&ascsubtag=4589409%7Cn71d8181ff2304cb385f47d507bf914f522%7CB07QCC3T54) [View On Chargetech.com](https://chargetech.com/product/portable-power-outlet/)
@@ -63,18 +81,18 @@ Lifewire / Gannon Burgett
 
  To see just how well it works and whether or not it lives up to its hype—and price tag—we put the ChargeTech through the wringer to see just how well it performs.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Design: Sleek and slim**
 
  The ChargeTech 27000mAh battery pack looks as unassuming as you'd expect. It's effectively a beefed-up smartphone battery pack that happens to sneak a full-sized AC outlet into it. The rectangular device features tapered sides, which helps add to its slim profile, as well as a satin matte black finish, which we'll elaborate on more in a minute.
 
 ![Charge Tech](https://www.lifewire.com/thmb/BCvqF82o5dvxOJ6Sb59FZYjknuk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_7Web-5c900332c9e77c0001eb1ca0.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Gannon Burgett
 
  On the top of the ChargeTech 27000mAh is a single power button that serves dual-purpose as the battery life indicator thanks to four LED lights (each of which represents a 25% charge). The various plugins on the device are all located on one edge, save for the input cable, which sits alone on an adjacent side.
@@ -92,10 +110,10 @@ Lifewire / Gannon Burgett
 ![Charge Tech](https://www.lifewire.com/thmb/pMX2VbLRSNxwb3iQ2XKJW_wDvKg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_8Web-5c9003a546e0fb000187a367.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Gannon Burgett
 
@@ -111,12 +129,6 @@ Lifewire / Gannon Burgett
 
 ![Charge Tech](https://www.lifewire.com/thmb/zGJCf-e-sSLH4humuEfNXuJczUk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506_2-_4Web-5c9003f146e0fb0001770117.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Gannon Burgett
 
  The iPhone XS managed six and a half full charges with an average charge time of an hour and a half. The Samsung Galaxy S8 Active charged seven and a half times with an average charge time of an hour and a half as well. ChargeTech doesn't provide guidelines on charge estimates, but the numbers line up with other testing we've done and reviews left on the Amazon product page.
@@ -128,20 +140,26 @@ Lifewire / Gannon Burgett
  Something to keep in mind is charge times will vary greatly depending on how many devices are plugged in, the temperature, and whether or not you're using devices while they're charging.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Price: A little bit up there**
 
  The ChargeTech 27000mAh battery pack retails for $199\. Considering its capacity and included AC plugin, that's a reasonable price. Not to mention it was nice to know we had a full laptop charge on the go, because carrying around the large power adapter isn't exactly convenient.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Competition: Just that little bit extra**
 
@@ -159,24 +177,18 @@ Lifewire / Gannon Burgett
 
  In summary, if capacity is your priority in a charger that also has an integrated AC plugin, the ChargeTech 27,000 will get the job done. But it won't do it fast and it won't impress you along the way. In our testing, it kind of just hummed along, charging at an adequate pace with a standard feature set. The additional power adapter was a pain and something well worth considering if portability is a concern of yours.
 
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [MaxOak 185Wh/50000mAh Battery Pack](https://www.lifewire.com/maxoak-185wh-50000mah-battery-pack-review-4589398)
 * [Anker PowerCore+ 26800 Battery Pack Bundle](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
 * [JETSUN 16750mAh Solar Power Bank](https://www.lifewire.com/jetsun-16750mah-solar-power-bank-review-4690521)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  27000mAh Portable AC Battery Pack

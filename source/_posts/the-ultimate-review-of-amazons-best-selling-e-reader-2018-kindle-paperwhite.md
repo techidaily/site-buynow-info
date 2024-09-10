@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Review of Amazon's Best Selling E-Reader, 2018 Kindle Paperwhite
-date: 2024-09-04T01:48:35.978Z
-updated: 2024-09-05T01:48:35.978Z
+date: 2024-09-09T14:00:12.442Z
+updated: 2024-09-10T14:00:12.442Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Review of Amazon's Best Selling E-Reader, 2018 Kindle Paperwhite
@@ -9,6 +9,12 @@ excerpt: This Article Describes The Ultimate Review of Amazon's Best Selling E-R
 thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-4046778-2-_3Web-5c91458e46e0fb000146ae08.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Exciting Fortnite Chapter Return: An Engaging Review of the Fresh Season's Thrills
 
 4.8
@@ -17,6 +23,12 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/DMGMgrBEv5v68pMF79BSGG86pwg=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fortnite_Battle-Royale_Standard-Mode_HeroSquare-2f7eb4d812104cb290c513cb5db717fd.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Emily Isaacs
 
  What We Like
@@ -70,8 +82,32 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/Z5kydB0kP2A67yJxqmRGCP6KuT8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fortnite_BattleRoyale_StandardMode_04-f788a639837845a9aead0db474cbc72d.jpg)
 
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Emily Isaacs
 
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Plot: None, but it’s better that way**
 
  Fortnite is plot light, a battle royale designed like the Hunger Games in that it drops players onto a map with one singular goal: survive to the end of the match and be the only player, or squad, left standing. Instead of a continuous story mode, players experience dramatic shifts in the game mechanics and the map season-to-season.
@@ -81,25 +117,13 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/u0p3ac203yN2fyC3DvKLcXMqdAY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fornite_BattleRoyale_StandardMode_02-8da4487c33dc4aed81eabc862664a1f8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Emily Isaacs
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Gameplay: Simple for easy pick up and play**
 
  To win the Victory Royale, players compete solo, with a partner, or in squads of three to four people. Games are quick, lasting anywhere from 15-20 minutes once you get the hang of things, although it’s always possible to die earlier. The game starts by placing 100 players on Spawn Island while it queues up the teams. Once ready, everyone on the island is transported onto a Battle Bus which floats over the Fortnite map, allowing players to leap down and begin their quest to the top.
@@ -110,6 +134,12 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
  The storm is an ever-encroaching threat that closes over set intervals and deals damage that increases over time to players trapped within its boundaries, forcing everyone closer together as the safe zone shrinks. The last team standing will claim the Victory Royale for themselves.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Graphics: Good, campy fun**
 
  Fortnite’s graphics are campy, oversaturated, and brightly-colored fun making them a treat to look at. Unlike competitors such as PUBG or Apex Legends, Fortnite’s graphics trade realism for cartoonish, exaggerated features. When combined with the emotes and skins earned throughout the game, these can create some very entertaining in-game visuals.
@@ -118,12 +148,6 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
 ![Fortnite Battle Royale](https://www.lifewire.com/thmb/1EGFvaMlK-nV8KKnng7WcI-X7iI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fortnite_BattleRoyale_StandardMode_03-aff88589c9a04d05a9663f5a75975706.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Emily Isaacs
 
 ## **Building Mechanics: Build, build and build some more**
@@ -134,18 +158,6 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
  For the more casual player, these building controls can be found on the keyboard, but binding the building keys to unused mouse buttons can quickly become an asset on the battlefield where every second counts. A seamless defense can be the difference between victory and defeat.
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Seasons: The down and dirty on the Battle Pass**
 
  The seasonal Battle Pass system offers rewards to players as they gain experience in the game, a change from the previous system Chapter 1 used which relied on leveling up through Battle Stars earned from Weekly Challenges. The shift to experience-based leveling feels much more intuitive. And honestly, it’s fun to watch the experience bar increase during the match, although it’d be better if you could toggle its presence to collapse or display in the HUD.
@@ -161,16 +173,10 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
  Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Modes: Limited-time and alternative game modes for variety**
 
@@ -180,10 +186,22 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
  If you love earning a variety of rewards, are intrigued by building mechanics, or just appreciate a casual game you can pick up and play, Fortnite’s Battle Royale is the clear winner.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Price: Free to play**
 
  The only decision players need to make is whether or not they want to pick up the Battle Pass, which retails for 950 V-Bucks ($9.50). Otherwise,[Fortnite Battle Royale](https://www.lifewire.com/game-play-and-streaming-4781449) is free and available on almost every major platform: PC/Mac, Xbox One, PS4, iOS, Android, and Nintendo Switch. What’s better—cross-platform gameplay is also supported, so you can pick up and play with friends anywhere, anytime.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Apex Legends vs. Fortnite Battle Royale**
 
  Battle royale games have seen a lot of shake-up in the field lately, with the latest challenger arriving in February 2019 thanks to Respawn Entertainment’s[Apex Legends](https://www.ea.com/games/apex-legends) . Apex Legends is a first-person shooter meets battle royale game where 60 players are dropped onto a map competing with squads of three for domination.
@@ -202,12 +220,6 @@ thumbnail: https://www.lifewire.com/thmb/Qc7375YFN6ARypFjyX65tGNH-Hw=/400x300/fi
 
  Fortnite has taken the world by storm, and with over 250 million players worldwide, it’s easy to see why it’s so beloved. If you’re a fan of campy fun, vibrant graphics, third-person shooters, or battle royale games, Fortnite’s Battle Royale is well worth a look—and best of all, it is free to play. Combined with Epic Games’ continuous ability to reinvent Fortnite season after season, Fortnite Battle Royale a sure-fire winner in our books.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Fortnite Battle Royale

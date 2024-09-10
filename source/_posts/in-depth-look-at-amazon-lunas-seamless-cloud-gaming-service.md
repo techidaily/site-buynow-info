@@ -1,7 +1,7 @@
 ---
 title: In-Depth Look at Amazon Luna's Seamless Cloud Gaming Service
-date: 2024-08-03T23:04:35.114Z
-updated: 2024-08-04T23:04:35.114Z
+date: 2024-09-09T13:59:02.416Z
+updated: 2024-09-10T13:59:02.416Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Look at Amazon Luna's Seamless Cloud Gaming Service
@@ -9,18 +9,24 @@ excerpt: This Article Describes In-Depth Look at Amazon Luna's Seamless Cloud Ga
 thumbnail: https://www.lifewire.com/thmb/K0-teq5AEQuKHnCWKsstIdL9ouc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_Hero_Square-cced3e5a3d3e4d24af1b85a59c76932d.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## In-Depth Look at the AmazonBasics 7-Port USB Hub - Boost Your Device's Functionality
 
 3.2
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## AmazonBasics 7 Port USB 3.0
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![AmazonBasics 7 Port USB 3.0](https://www.lifewire.com/thmb/61zrtwf2XnDfg9oA0igeVIB2E3M=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_HeroSquare-b4652c2651b5474f84409577b3760479.jpg)
 
 Lifewire / Jonno Hill
@@ -42,6 +48,18 @@ Lifewire / Jonno Hill
 
 3.2
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## AmazonBasics 7 Port USB 3.0
 
 ![AmazonBasics 7 Port USB 3.0](https://www.lifewire.com/thmb/lDufXTneOT2NDnXEOTNXauWZKtU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_HeroSquare-b4652c2651b5474f84409577b3760479.jpg)
@@ -69,11 +87,14 @@ Lifewire / Jonno Hill
 
  The AmazonBasics 7 Port USB 3.0 Hub definitely offers a lot of bang for your buck, but we have some quality control qualms that prevent this from being an instant recommendation. If you're on a budget and you need a lot of[USB ports](https://www.lifewire.com/what-is-a-usb-port-818166) , you might still want to consider this option, but let’s dig into the details before you make your purchase.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/wXgyw4YH3MYx3AO1YEPSdvla-IQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_02-d9ec8728693e42e9b7ca7d3108d37ba6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Jonno Hill
 
 ## **Design: A clean look, with some awkward ports**
@@ -88,9 +109,6 @@ Lifewire / Jonno Hill
 
  There were two quality control mishaps on the particular unit we tested. First, the internal ports were somewhat misaligned with the outer casing, making it difficult to plug in some devices. Second, the labels that should be printed around the ports didn’t make it onto this particular unit, despite all the product page images showing this feature. Not a huge deal, but also not a ringing endorsement for the device’s quality.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/-6zArDEXr2_gqDvtkeqZAbTQKiQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_05-c3e5d946a7e84b6cb1b395cff1103e42.jpg)
 
  Lifewire / Jonno Hill
@@ -101,6 +119,12 @@ Lifewire / Jonno Hill
 
  The AmazonBasics 7 Port USB 3.0 Hub is an otherwise capable device that is unfortunately marred by quality control issues and cheap construction.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Connectivity: A sufficient number of options**
 
  The AmazonBasics 7 Port USB 3.0 Hub comes with a three-foot USB (A-to\_B) cable to connect to your computer. This should be sufficient for most users, and worked well in our setup. An AC power adapter is included as well, and it comes with a fairly substantial power brick.
@@ -111,28 +135,31 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Just what you’d expect**
 
  The AmazonBasics 7 Port USB 3.0 Hub performed as expected in our tests, providing USB 3.0 Gen 1 speeds. The five ports in the back supply the standard 0.9A of power, whereas the ports on the side, designed for fast charging, can supply up to 1.5A. If you neglect to connect the hub to a power source, the entire device will have to share the 0.9A of power supplied by your computer’s[USB 3.0 port](https://www.lifewire.com/what-is-usb-3-0-2626038) .
 
  The five ports in the back supply the standard 0.9A of power, whereas the ports on the side, designed for fast charging, can supply up to 1.5A.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: You get what you pay for**
 
  At a list price of $33.44, the AmazonBasics 7 Port USB 3.0 Hub isn’t a terrible deal, but given the materials used and the quality control issues, it’s definitely not an amazing deal. Buyers looking for a bit more might consider AUKEY’s 10-port powered hub or Amazon’s own AmazonBasics 10 Ports USB 3.0 Charging Hub Docking Station. Both these hubs offer more connections and dedicated power.
 
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/AnTpc7CmLFfbEILGIFkFiA9Ur2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_03-063f9486bd7045c18c0643276029f85e.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **AmazonBasics 7 Port USB 3.0 Hub vs. Aukey USB Hub 3.0**
 
@@ -146,6 +173,12 @@ Lifewire / Jonno Hill
 
  The AmazonBasics 7 Port USB 3.0 Hub is an otherwise capable device that is unfortunately marred by quality control issues and cheap construction. That said, if you don’t care as much about design and construction quality, it might still be a good affordable option.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  7 Port USB 3.0
@@ -175,3 +208,44 @@ Lifewire / Jonno Hill
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-androids-video-recording-techniques-explored/"><u>[New] 2024 Approved Android's Video Recording Techniques Explored</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-detailed-analysis-vlc-for-video-capture/"><u>[New] 2024 Approved Detailed Analysis VLC for Video Capture</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-transform-your-channels-look-for-free/"><u>[New] 2024 Approved Transform Your Channel's Look for Free</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unlimited-free-image-refinement-onlinemobile/"><u>[New] Unlimited Free Image Refinement Online/Mobile</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-11-superior-sound-recording-tools-of-the-year/"><u>[Updated] 2024 Approved 11 Superior Sound Recording Tools of the Year</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-accessing-trendsetting-background-images-for-tiktok-for-2024/"><u>[Updated] Accessing Trendsetting Background Images for TikTok for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-peak-performance-pfv-settings-for-easy-movement/"><u>[Updated] Peak Performance PFV Settings for Easy Movement</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-oppo-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Oppo</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/alexa-or-google-assistant-which-smart-voice-ai-suits-you-best/"><u>Alexa or Google Assistant: Which Smart Voice AI Suits You Best?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/beat-overheating-in-depth-analysis-of-havits-5-fan-laptop-cooling-pad-for-enhanced-gaming-sessions/"><u>Beat Overheating: In-Depth Analysis of HAVIT's 5 Fan Laptop Cooling Pad for Enhanced Gaming Sessions</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-samsung-galaxy-a15-5g-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Samsung Galaxy A15 5G</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-google-voice-a-telecommunication-review/"><u>Comprehensive Analysis: Google Voice - A Telecommunication Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-imo-messenger-app-analysis-pros-and-cons/"><u>Comprehensive Imo Messenger App Analysis: Pros and Cons</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-sumind-bt70b-car-bluetooth-fm-transmitter/"><u>Comprehensive Review of the Sumind BT70B Car Bluetooth FM Transmitter</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/expert-tips-and-tricks-for-using-stellar-standard-edition-8-for-windows-detailed-guide/"><u>Expert Tips & Tricks for Using Stellar Standard Edition 8 for Windows - Detailed Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/g7x-ii-smaller-in-size-bigger-in-ambition/"><u>G7X II: Smaller in Size, Bigger in Ambition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/havit-5-adjustable-fans-the-ultimate-solution-to-overheating-in-your-gaming-laptop/"><u>HAVIT 5 Adjustable Fans – The Ultimate Solution to Overheating in Your Gaming Laptop</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-infinix-smart-8-hd-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Infinix Smart 8 HD Phone that is Locked?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/immersive-audio-excellence-for-your-home-entertainment-system/"><u>Immersive Audio Excellence for Your Home Entertainment System</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-a-compreited-chronological-catalog-of-your-image-collection/"><u>In 2024, A Compreited Chronological Catalog of Your Image Collection</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-lightroom-lut-guide-discovering-the-best-10-tools-for-color-grading/"><u>In 2024, Lightroom LUT Guide Discovering the Best 10 Tools for Color Grading</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/inside-the-updates-movavi-editors-new-release-2024/"><u>Inside the Updates Movavi Editor’s New Release, 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/linkedin-plus-features-a-cost-vs-benefit-breakdown/"><u>LinkedIn Plus Features - A Cost Vs. Benefit Breakdown</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-pros-and-cons-of-the-google-pixel-5-the-perfect-mix-for-tech-savvy-users/"><u>Navigating the Pros and Cons of the Google Pixel 5 - The Perfect Mix for Tech Savvy Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nest-audio-smart-speaker-review-a-haven-for-melody-lovers-and-beat-seekers/"><u>Nest Audio Smart Speaker Review: A Haven for Melody Lovers and Beat Seekers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ring-battery-doorbell-plus-review/"><u>Ring Battery Doorbell Plus Review</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/streamlining-soundtracks-a-comprehensive-tutorial-on-how-to-blend-and-unite-spotify-playlists/"><u>Streamlining Soundtracks: A Comprehensive Tutorial on How to Blend and Unite Spotify Playlists</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-game-changing-imac-m1-review-stunning-aesthetics-paired-with-unprecedented-processing-ability/"><u>The Game-Changing iMac M1 Review: Stunning Aesthetics Paired with Unprecedented Processing Ability</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-most-advanced-iphone-ever-a-deep-dive-into-the-iphone-12-features/"><u>The Most Advanced iPhone Ever: A Deep Dive Into the iPhone 12 Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-list-worlds-best-computer-brands-for-a-revolutionary-2024/"><u>The Ultimate List: World's Best Computer Brands for a Revolutionary 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-apple-iphone-12-pro-max-does-bigger-equal-better-performance/"><u>The Ultimate Verdict on Apple iPhone 12 Pro Max: Does Bigger Equal Better Performance?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-critiques-and-praises-a-breakdown-of-recent-viber-out-testimonials/"><u>Top Critiques & Praises: A Breakdown of Recent Viber Out Testimonials</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-pick-for-apple-devotees-a-comprehensive-review-of-freestyle2-blue-on-mac-systems/"><u>Top Pick for Apple Devotees: A Comprehensive Review of Freestyle2 Blue on Mac Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-review-of-portable-performance-the-pioneer-bdr-xs06-blu-ray-burners-capabilities-and-advantages-explored/"><u>Top Review of Portable Performance: The Pioneer BDR-XS06 Blu-Ray Burner's Capabilities & Advantages Explored</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-value-cameras-s-shooting/"><u>Top Value Cameras 'S Shooting</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-comparison-can-alexa-outperform-google-assistant-in-your-home/"><u>Ultimate Comparison: Can Alexa Outperform Google Assistant in Your Home?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-strength-of-the-beatit-bt-d11-charger-an-in-depth-analysis/"><u>Unpacking the Strength of the Beatit BT-D11 Charger - An In-Depth Analysis!</u></a></li>
+</ul></div>

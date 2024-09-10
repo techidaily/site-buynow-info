@@ -1,7 +1,7 @@
 ---
 title: Exclusive Prime Day Savings on the Latest Roku Devices
-date: 2024-09-04T01:53:10.617Z
-updated: 2024-09-05T01:53:10.617Z
+date: 2024-09-09T14:00:08.457Z
+updated: 2024-09-10T14:00:08.457Z
 categories:
   - BestProducts
 description: This Article Describes Exclusive Prime Day Savings on the Latest Roku Devices
@@ -13,10 +13,28 @@ thumbnail: https://www.lifewire.com/thmb/LvLoQ9-K0KJwUj-Ozbt9jQn-RNk=/400x300/fi
 
 4.6
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Philips HF3650/60 Sleep and Wake-Up Light Therapy Lamp Review
 
 ![Philips Somneo HF3650/60 Sleep and Wake-Up Light Therapy Lamp](https://www.lifewire.com/thmb/hjYZyfPIrdy-Dj1MthRfQh8ZbZs=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-4137028-1-3-5c8fee16c9e77c0001ff0b33.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Lifewire / Jordan Provost
 
  What We Like
@@ -37,10 +55,22 @@ Lifewire / Jordan Provost
 
 4.6
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Philips HF3650/60 Sleep and Wake-Up Light Therapy Lamp Review
 
 ![Philips Somneo HF3650/60 Sleep and Wake-Up Light Therapy Lamp](https://www.lifewire.com/thmb/c9nvEoRMRBjYcwbVPMqxcJWpqBg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-4137028-1-3-5c8fee16c9e77c0001ff0b33.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Lifewire / Jordan Provost
 
 [View On Amazon](https://www.amazon.com/dp/B075S53HD9/?tag=lifewire-onsite-prod-20&ascsubtag=4589395%7Cn1f0a866f6147413ba03c22019cdaa97609%7CB075S53HD9) [View On Walmart](https://www.walmart.com/ip/544380672) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6165966.p)
@@ -68,10 +98,10 @@ Lifewire / Jordan Provost
  Lifewire / Jordan Provost
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Design and Setup: Very user-friendly, if oddly shaped**
 
@@ -90,16 +120,16 @@ Lifewire / Jordan Provost
  See Just How Well These Light Therapy Alarm Clocks Glow
 
 <!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Setup Process: Easy to build, but not so easy to configure**
 
@@ -110,10 +140,10 @@ Lifewire / Jordan Provost
  The Philips Somneo is a top-tier product in the light therapy alarm clock market.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Features: Great for falling asleep**
 
@@ -121,12 +151,6 @@ Lifewire / Jordan Provost
 
  This feature also comes into play during breathing exercises, as it brightens as you breathe in and fades as you breathe out. If you want the light to stay on, you can use it in lamp mode to let it double as a night light or a bedside lamp. There are 25 brightness levels, but we noticed that while the Somneo is a great nightlight, the high brightness wasn’t quite good enough to be a lamp. You can read from it, but it’s just not an optimal bedside light.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Waking up: It’s a breeze**
 
  As we discovered the next morning, the same gradual light changes are available for the morning alarm. The light didn’t pop on, but gradually brightened. The Somneo ended up waking us up naturally a few minutes before the audio alarm sounded. It offers seven different audio options for the alarm itself, ranging from birdsong to soft gongs, but not your own phone’s tunes.
@@ -134,10 +158,10 @@ Lifewire / Jordan Provost
 ![Philips Somneo HF3650/60 Sleep and Wake-Up Light Therapy Lamp](https://www.lifewire.com/thmb/-Y5_OBcQ3E4zZLKBd4JYJ2fDj04=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4137028-1-5-5c8fee6ac9e77c0001eb1c8d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Lifewire / Jordan Provost
 
@@ -145,14 +169,14 @@ Lifewire / Jordan Provost
 
 ![Philips Somneo HF3650/60 Sleep and Wake-Up Light Therapy Lamp](https://www.lifewire.com/thmb/VnTu8-OX_dmaMQft3divUMJaMm0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4137028-1-4-5c8fee5b46e0fb000172f0a4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jordan Provost
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Radio: An extra convenience**
 
  Because the audio is superb, we thoroughly tested the radio feature. The user can preset five radio stations, and can easily control swapping between them. We couldn’t flip back and forth between the options, but rather cycled through the other stations before coming back to the original. There is a volume section under the FM radio where you can easily increase or decrease it, though it was confusing to find at first. Once you become familiarized with it, though, it’s simple to maneuver.

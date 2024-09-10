@@ -1,7 +1,7 @@
 ---
 title: "Breaking Down Watch Dogs: Legion - An Assessment of Its Unique New World Perspective"
-date: 2024-08-03T23:04:38.088Z
-updated: 2024-08-04T23:04:38.088Z
+date: 2024-09-09T13:52:51.765Z
+updated: 2024-09-10T13:52:51.765Z
 categories:
   - BestProducts
 description: "This Article Describes Breaking Down Watch Dogs: Legion - An Assessment of Its Unique New World Perspective"
@@ -13,13 +13,28 @@ thumbnail: https://thmb.techidaily.com/6d193ed35f1214a7fd553c445c38b6b7633741c0b
 
 2.7
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## inXile Entertainment Torment: Tides of Numenera
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/HYgHMUDMFh7JI98Hj0JMbI2wcpw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Lifewire / Kelsey Simon
 
  What We Like
@@ -41,9 +56,6 @@ Lifewire / Kelsey Simon
 
 ## inXile Entertainment Torment: Tides of Numenera
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
 
 Lifewire / Kelsey Simon
@@ -65,7 +77,10 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Story: Heavy-handed writing to the exclusion of all else**
 
@@ -81,13 +96,16 @@ Lifewire / Kelsey Simon
 
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Gameplay: Dialogue prompts and effort**
 
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
 
  Lifewire / Kelsey Simon
@@ -104,6 +122,12 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -115,7 +139,10 @@ Lifewire / Kelsey Simon
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Price: Only worth it if you’re keen on the story**
 
@@ -125,6 +152,12 @@ Lifewire / Kelsey Simon
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Competition: Other story focused RPGs**
 
  There are quite a few other games available that are story-focused RPGs besides Tides of Numenera. Wasteland 2 (view on[Amazon](https://www.amazon.com/Wasteland-2-Directors-Cut-PlayStation-4/dp/B013CQHQFU/?tag=lifewire-onsite-prod-20&ascsubtag=5077302%7Cnac6eb02defc3413da4da5d4ed0dc77ea21%7C) ) is a very similar game, as it is made by the same developers, but where Numenera falls flat with its heavy-handed storytelling, Wasteland 2 stands apart with a fun, tactical combat system.
@@ -137,9 +170,6 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Torment: Tides of Numenera
@@ -163,3 +193,46 @@ Lifewire / Kelsey Simon
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-discovering-logitechs-top-tier-4k-video-camera/"><u>2024 Approved Discovering Logitech's Top-Tier 4K Video Camera</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-twitters-viral-top-10-all-about-tiktoks/"><u>2024 Approved Twitter's Viral Top 10 All About TikToks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ambient-weather-ws-10002-wifi-review-exceptional-precision-and-quality-with-a-noticeable-price-tag/"><u>Ambient Weather WS-10002 WiFi Review: Exceptional Precision and Quality with a Noticeable Price Tag</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/aphaca-bt69-bluetooth-car-radio-review-an-unmatched-compact-transmitter-for-seamless-music-streaming/"><u>Aphaca BT69 Bluetooth Car Radio Review: An Unmatched Compact Transmitter for Seamless Music Streaming</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bestvaluechromebook-unpacking-the-features-of-the-asus-chromebook-flip-c3ca/"><u>BestValueChromeBook: Unpacking the Features of the Asus Chromebook Flip C3#CA</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/buyers-guide-to-the-superior-netgear-orbi-a-detailed-review-of-the-market-leader-in-mesh-routers/"><u>Buyers' Guide to the Superior Netgear Orbi: A Detailed Review of the Market Leader in Mesh Routers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-lenovo-thinkpad-x12-exceptional-hybrid-laptop-with-superior-keyboard-quality/"><u>Comprehensive Analysis of the Lenovo ThinkPad X12: Exceptional Hybrid Laptop with Superior Keyboard Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/days-gone-biker-adventure-in-a-post-apocalyptic-zombie-scenario-reviewed/"><u>Days Gone: Biker Adventure in a Post-Apocalyptic Zombie Scenario Reviewed</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/efficient-methods-for-sharing-powerful-ppt-in-google-meet-sessions/"><u>Efficient Methods for Sharing Powerful PPT in Google Meet Sessions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-skagen-falster-3-stylish-and-advanced-technology-in-one-smartwatch/"><u>Expert Analysis of the Skagen Falster 3 - Stylish and Advanced Technology in One Smartwatch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/factors-to-weigh-with-your-next-videography-gear/"><u>Factors to Weigh with Your Next Videography Gear</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/getting-to-know-the-advanced-technology-in-ampassels-portable-andes-1500-power-generator/"><u>Getting to Know the Advanced Technology in Ampassel's Portable Andes 1500 Power Generator</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-on-itel-p55-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Itel P55 Devices</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-samsung-galaxy-a15-4g-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Samsung Galaxy A15 4G FRP In 3 Different Ways</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-sync-contacts-from-apple-iphone-12-pro-to-ipad-easily-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Sync Contacts from Apple iPhone 12 Pro to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-breaking-down-whatsapps-voice-call-features/"><u>In 2024, Breaking Down WhatsApp's Voice Call Features</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-historical-knowledge-at-your-fingertips-best-yt-history-channels/"><u>In 2024, Historical Knowledge at Your Fingertips Best YT History Channels</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-pro-tools-for-netflix-capture-a-mac-guide-of-six-strategies/"><u>In 2024, Pro Tools for Netflix Capture A Mac Guide of Six Strategies</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-asus-rog-rapture-gt-ax11000-top-tier-performance-for-gamers/"><u>In-Depth Look at Asus ROG Rapture GT-AX11000: Top-Tier Performance for Gamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovo-ideapad-130s-assessment-restricted-performance-yet-impressive-functionality/"><u>Lenovo IdeaPad 130S Assessment: Restricted Performance, Yet Impressive Functionality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-modern-reading-a-thorough-review-of-the-2018-amazon-kindle-paperwhite/"><u>Mastering Modern Reading: A Thorough Review of the 2018 Amazon Kindle Paperwhite</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-technology-a-critical-look-at-the-unbeatable-microsoft-surface-laptop/"><u>Mastering Technology: A Critical Look at the Unbeatable Microsoft Surface Laptop</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/maximize-your-impact-broadcast-on-facebook-live-today/"><u>Maximize Your Impact Broadcast on Facebook Live Today</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mobvoi-ticwatch-pro-3-in-depth-guide-on-how-the-dual-screens-enhance-long-lasting-battery-performance/"><u>Mobvoi TicWatch Pro 3: In-Depth Guide on How the Dual Screens Enhance Long-Lasting Battery Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigate-through-2024s-ultimate-selection-of-storm-tracker-tools/"><u>Navigate Through 2024'S Ultimate Selection of Storm Tracker Tools</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-grand-quests-a-riveting-review-of-yokus-island-express-adventures/"><u>Navigating Grand Quests: A Riveting Review of Yoku's Island Express Adventures</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-amplifi-hd-mesh-networking-solutions-eliminate-your-homes-wi-fi-coverage-gaps/"><u>Review of Amplifi HD Mesh Networking Solutions: Eliminate Your Home's Wi-Fi Coverage Gaps</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-htc-u23-pro-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock HTC U23 Pro Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-look-at-lenovo-thinkpad-x1-nano-a-revolutionary-addition-to-the-lightweight-laptops-category/"><u>The Definitive Look at Lenovo ThinkPad X1 Nano – A Revolutionary Addition to the Lightweight Laptops Category</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-review-on-samsungs-55-inch-ru7300-the-ultimate-guide-to-its-4k-brilliance-and-smart-capabilities/"><u>Top Review on Samsung's 55-Inch RU7300 - The Ultimate Guide to Its 4K Brilliance and Smart Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-tier-android-experience-with-samsung-galaxy-s2/"><u>Top-Tier Android Experience with Samsung Galaxy S2</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unleash-indoor-entertainment-with-the-low-cost-syma-s111g-rc-helicopter-insights-and-reviews/"><u>Unleash Indoor Entertainment with the Low-Cost Syma S111G RC Helicopter - Insights & Reviews</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-savings-a-complete-assessment-of-the-cost-effective-vuebell-doorbell/"><u>Unlocking Savings: A Complete Assessment of the Cost-Effective VueBell Doorbell</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-insights-a-critical-review-of-tp-links-av1300-wireless-range-extender-does-it-deliver/"><u>Unveiling Insights: A Critical Review of TP-Link's AV1300 Wireless Range Extender - Does It Deliver?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-latest-in-technology-and-design-comprehvew-of-the-apple-imac-with-retina-display/"><u>Unveiling the Latest in Technology and Design: Comprehvew of The Apple iMac with Retina Display</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-powerful-performance-of-netgears-nighthawk-x6-mesh-wi-fi-booster-our-detailed-insight/"><u>Unveiling the Powerful Performance of Netgear's Nighthawk X6 Mesh Wi-Fi Booster - Our Detailed Insight</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-best-chat-apps-for-video-conversations-the-top-virtual-community-platforms/"><u>Updated 2024 Approved Best Chat Apps for Video Conversations The Top Virtual Community Platforms</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-meizu-21-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/xiaomi-mi-smart-band-4-review-review-my-favorite-budget-fitness-tracker/"><u>Xiaomi Mi Smart Band 4 Review Review: My Favorite Budget Fitness Tracker</u></a></li>
+</ul></div>

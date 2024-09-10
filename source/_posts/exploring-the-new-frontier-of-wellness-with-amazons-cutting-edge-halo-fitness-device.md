@@ -1,7 +1,7 @@
 ---
 title: Exploring the New Frontier of Wellness with Amazon's Cutting-Edge Halo Fitness Device
-date: 2024-09-04T01:48:17.486Z
-updated: 2024-09-05T01:48:17.486Z
+date: 2024-09-09T14:00:12.722Z
+updated: 2024-09-10T14:00:12.722Z
 categories:
   - BestProducts
 description: This Article Describes Exploring the New Frontier of Wellness with Amazon's Cutting-Edge Halo Fitness Device
@@ -9,6 +9,12 @@ excerpt: This Article Describes Exploring the New Frontier of Wellness with Amaz
 thumbnail: https://www.lifewire.com/thmb/XIwk9ifEQ8fjoY1Z9BS4rgkBmwU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_HeroSquare-2e5c3941b8fe49afbd7464f382164976.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Experience Cutting-Edge Chic with the Latest Michael Kors Access Gen 5E MKGO Collection Reviewed
 
 4.2
@@ -41,6 +47,12 @@ Lifewire / Yoona Wagener
 
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/4iXRVsuxT7GiqqU4k4vdl39TFNg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_HeroSquare-6cc84a98de3e43e1a252acfbcc81fbb3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Lifewire / Yoona Wagener
 
 [View On Best Buy $201](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6450037.p) [View On Macy's](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.macys.com%2Fshop%2Fproduct%2Fmichael-kors-access-gen-5e-mkgo-black-rubber-smartwatch-43mm%3FID%3D11867918%26pla%255Fcountry%3DUS%26CAGPSPN%3Dpla) [View On Michaelkors.com](https://www.michaelkors.com/michael-kors-access-gen-5e-mkgo-pink-tone-and-logo-rubber-smartwatch/%5F/R-US%5FMKT5116)
@@ -65,12 +77,6 @@ Lifewire / Yoona Wagener
 
  This latest iteration of the Access bundles first-rate perks like accepting or rejecting calls via Bluetooth calling, Google Pay, sleep and exercise logging, as well as several battery modes. While it lacks serious fitness tracking chops, the Access Gen 5E flourishes with luxe styling and everyday conveniences.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Design: Luxe sensibility front and center
 
  If you’re interested in a feature-rich smartwatch that doubles as a statement fashion accessory, you won’t be disappointed by the Access Gen 5E. The 43-millimeter case sports an eye-catching pave pattern around the perimeter and sturdy aluminum construction. A substantial and responsive multipurpose button with the MK logo etched into it serves as a thoughtful accent. All of these details give this watch an elevated look from the very first glance.
@@ -82,10 +88,10 @@ Lifewire / Yoona Wagener
  New Wear OS users will appreciate the guided instructions that appear after pairing the watch to walk you through the various menus and swiping navigations. Even without this guidance, most menus are intuitive to use. My favorite menu was the quick-access menu that appears with a swipe-down motion. It contains a handy collection of shortcuts for basics like adjusting battery mode settings. It’s also home to the Theater Mode option, which turns the display off with a tap—especially convenient for dimming the screen at bedtime.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Comfort: Best outside of exercise
 
@@ -115,6 +121,12 @@ Lifewire / Yoona Wagener
 
  Without onboard GPS, the only way to measure distance is to use a tethered GPS connection with a smartphone. Acquiring a signal was generally fast, but unfortunately, the watch’s summary was more than a little off. Compared with a Garmin, the Access Gen 5E overshot by 1 mile, and the pace registered at about 90 seconds faster. However, for walking workouts, step count differed only slightly compared with a Garmin smartwatch and the iOS Health app.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Software: Friendliest to Android users
 
  As a[Wear OS](https://www.lifewire.com/best-tips-and-tricks-for-wear-os-4583030) device, it should be no surprise that the Access Gen 5E offers the most well-rounded experience to Android users. If that’s you, you’ll enjoy more seamless integration between your favorite[Google Play](https://www.lifewire.com/what-is-google-play-1616720) apps, whether for fitness or listening to music. And if you have more than one Wear OS device, you can pair both freely with the companion app. With an iPhone, I could pair only one device with the app, and Google Play connectivity was less than ideal.
@@ -129,21 +141,33 @@ Lifewire / Yoona Wagener
 
  Regardless of your operating system, you’ll need a Google account to get this watch paired and activated and to take advantage of contactless pay through Google Pay. And if you’re married to Google Fit for health insights, you’ll need that app too.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Battery: Potential for multi-day longevity
 
  The manufacturer suggests that this smartwatch battery should last up to 24 hours, depending on usage, and provides several battery modes to work with to help make the most of the battery. Daily mode lived up to its name and lasted about a whole day, while the multi-day Extended mode, which turns off most smart features, lasted only about a day and a half for me.
 
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/BT4hOR8gRPGpDwIsxjK35ikzSeg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_02-503172a94cbc444389f491de49cf2646.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Lifewire / Yoona Wagener
 
  Regardless of the mode you choose, the watch will automatically enter a time-only mode once the battery hits 9 percent. This thoughtful touch allows this device to function as a straightforward watch as well. When you charge up, the handy magnetic USB charging cable is easy to attach to the device and provides quick charging: just a little over an hour, maximum.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Price: Luxury style at a friendlier entry point
 
@@ -155,12 +179,6 @@ Lifewire / Yoona Wagener
 
  When comparing this device to other fashion smartwatches, it’s challenging to find a competitor outside of the Michael Kors/Fossil sphere that differs in any notable way. If you’re looking for something comparably priced with more of a fitness bent, the Samsung Galaxy Watch Active2 is worth a look.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Michael Kors Access Gen 5E vs. Samsung Galaxy Watch Active2
 
  While it’s less glamorous than the Samsung Galaxy Watch Active2 (which also retails for around $250), the Active2 still offers some style with various silicone band colors and a sleek aluminum case. The display lacks a pave design but has the benefit of a touch bezel and a narrower and slightly thinner build that weighs just 26 grams—that’s about twice as light as the Access Gen 5E.
@@ -178,10 +196,10 @@ Lifewire / Yoona Wagener
  The Michael Kors Access Gen 5E MKGO is an upscale smartwatch with luxury looks and a slightly sporty sensibility. Its Wear OS and Fossil Gen 5E foundation provide a solid foundation for everyday ease with features like Bluetooth calling, Google Assistant, and battery modes. And while it offers some fitness tracking, this wearable dazzles primarily as a lifestyle accessory.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
@@ -190,10 +208,10 @@ Lifewire / Yoona Wagener
 * [Mobvoi TicWatch Pro 4G LTE](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Specs
 

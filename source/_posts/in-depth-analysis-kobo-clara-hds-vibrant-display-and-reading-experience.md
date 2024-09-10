@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis: Kobo Clara HD's Vibrant Display and Reading Experience"
-date: 2024-08-03T23:04:36.943Z
-updated: 2024-08-04T23:04:36.943Z
+date: 2024-09-09T13:55:37.559Z
+updated: 2024-09-10T13:55:37.559Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis: Kobo Clara HD's Vibrant Display and Reading Experience"
@@ -13,11 +13,14 @@ thumbnail: https://thmb.techidaily.com/76cb87841297f436650576e356aab992c1ddd1148
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Watch Dogs: Legion
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Watch Dogs: Legion](https://www.lifewire.com/thmb/U5ORlS3mu37z0H9kyUjZmri_r7c=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Watch-Dogs-Legion-PC-1-4cb0288b78324a52bf9ccce096ab5218.jpg)
 
  Lifewire / Erika Rawes
@@ -40,10 +43,34 @@ thumbnail: https://thmb.techidaily.com/76cb87841297f436650576e356aab992c1ddd1148
 
 4.2
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Watch Dogs: Legion
 
 ![Watch Dogs: Legion](https://www.lifewire.com/thmb/Qr_SiCRONOchw7xBWly6nRwi4qM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Watch-Dogs-Legion-PC-1-4cb0288b78324a52bf9ccce096ab5218.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 [View On Amazon $53](https://www.amazon.com/Watch-Dogs-Legion-Standard-Digital/dp/B07SR1FMMC/?tag=lifewire-onsite-prod-20&ascsubtag=5085469%7Cn3b401040a24e4adbb87768f638d99c1a06%7CB07SR1FMMC) [View On Walmart $9](https://www.walmart.com/ip/Watch-Dogs-Legion-PlayStation-4-PlayStation-5/210835769?slfpid=3) [View On Best Buy $15](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fwatch-dogs-legion-standard-edition-playstation-4-playstation-5%2F6350606.p%3FskuId%3D6350606)
@@ -62,26 +89,38 @@ thumbnail: https://thmb.techidaily.com/76cb87841297f436650576e356aab992c1ddd1148
 
  Watch Dogs: Legion is the latest installment in Ubisoft’s[Watch Dogs](https://www.liveabout.com/watch-dogs-2-cheats-codes-and-walkthroughs-4773695) series, and you can literally play as any character you encounter in the open world. Although Watch Dogs: Legion released without online gameplay (it became available in December 2020), you can play the campaign mode on PC or[console](https://www.lifewire.com/best-gaming-consoles-4154610) right now. Is this game worth the time and monetary investment? I played Watch Dogs: Legion for 30 hours to find out, evaluating its story, gameplay, graphics, to see how it compares to other titles.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setting and Plot: Fun, but predictable**
 
  Watch Dogs: Legion is set in a near-future version of London. The game accurately depicts landmarks, as well as the overall vibe of the city, but it’s a fictional version of London with a heavy tech theme. You have a few different enemies — a group consisting of private military, state operatives, and organized crime, as well as a hacker group called Zero Day. Zero Day pulls off a major terrorist operation in London. This causes the government to give power to a military group (Albion), and that group promptly implements a martial law type system of oppression.
 
  You’re part of a group called DedSec, and you and your associates were framed for the terrorist act, although Zero Day were the real culprits. You now need to rebuild the organization, work to take down the multiple groups, and give London back to the people “V for Vendetta”-style.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Watch Dogs: Legion car chase](https://www.lifewire.com/thmb/w01z_qW1xkiYdMVSg0obsvGJ2NU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-3-042727c8603245bfbcde2e3b67ab7ed8.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
  In the opening mission, you play as an agent infiltrating Parliament. You set traps, fight a few guys in hand-to-hand combat, and shoot some bad guys with the goal of preventing the building from being blown to smithereens. The early tutorial type missions help get you acquainted with the game and its systems. The game takes you through the downfall of DedSec, walks you through the beginning of setting up the rebuilding of DedSec, and you select your very first recruit to your legion. There’s a pretty good selection of starting characters, and I selected a Board Game Designer who has the ability to summon a personal drone.
 
  The story is a tale of a resistance group fighting against an oppressive government group. The story kept me interested, although the plot bordered on predictable. The game has quite a few protagonists, which added interest, but also caused the characters to lack depth. Of all the characters, I thought Bagley was the most fun— with humor and sarcastic comments that made me chuckle. I also liked the spider drone’s missions, and I jumped around saying “wee” as I played the spider missions.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Watch Dogs: Legion spider drone](https://www.lifewire.com/thmb/UOpYTu-WYh_4Z_Icu9ZD7aLW78Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-4-a1beafe90fe7494b84b19f97e292c2ab.jpg)
 
  Lifewire / Erika Rawes
@@ -92,18 +131,12 @@ thumbnail: https://thmb.techidaily.com/76cb87841297f436650576e356aab992c1ddd1148
 
  Watch Dogs: Legion looks incredible, with great draw distances, and an incredibly detailed world.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Gameplay: Cool character engine, redundant missions**
 
  Watch Dogs: Legion is an open world action-adventure game. I played on PC, and I used an[Xbox controller](https://www.lifewire.com/games-console-reviews-4102640) . The controls were tight, intuitive, and consistently responsive. It felt natural to run through the world, climb, and drive. I was especially impressed with the vehicles, as you can feel the difference when you’re driving a sports car versus when you’re driving a bus.
 
  Fighting is simple yet satisfying, with a dodge and counter system that feels realistic, and interesting finishing moves. Shooting feels pretty ok too— the aiming works well, and the duck and cover system feels natural. Cut scenes are very well done. They don’t feel arbitrarily thrown in, and they’re well integrated in the game engine. The main storyline takes around 20 hours, but it’ll take much longer if you play all the side missions.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Watch Dogs: Legion character creation](https://www.lifewire.com/thmb/fT7PRS6tGlloKdqVFXl8H-TPrVY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-2-ed238e68324c450997c310f225ff57a6.jpg)
 
  Lifewire / Erika Rawes
@@ -119,7 +152,10 @@ thumbnail: https://thmb.techidaily.com/76cb87841297f436650576e356aab992c1ddd1148
  Most missions wound up feeling pretty redundant, especially after playing for a while. I’d approach a building, hack cameras and set traps, send in the spider drones for some easy knockouts, then go in and complete the area. There were some fun missions along the main story which offered some variety, but most missions are best completed with stealth, which can slow down the game sometimes.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Graphics: Top notch**
 
@@ -148,7 +184,10 @@ thumbnail: https://thmb.techidaily.com/76cb87841297f436650576e356aab992c1ddd1148
  Watch Dogs: Legion feels like a missed opportunity, with a “play as anyone” feature that’s cool, but not cool enough to compensate for the lack of novelty. The addition of online play may offer more replayability, but as of launch, there isn’t enough to keep us coming back.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Specs
 
@@ -172,3 +211,45 @@ thumbnail: https://thmb.techidaily.com/76cb87841297f436650576e356aab992c1ddd1148
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-elevate-your-youtube-content-seo-methods-revealed/"><u>[New] 2024 Approved Elevate Your YouTube Content SEO Methods Revealed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/hannel-expansion-at-wallet-friendly-costs/"><u>[New] Channel Expansion at Wallet-Friendly Costs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-from-spoken-words-to-written-text-ppt-innovation-guide-for-2024/"><u>[New] From Spoken Words to Written Text PPT Innovation Guide for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-giggle-garage-gratuitous-tools-to-tickle-your-brain/"><u>[New] Giggle Garage Gratuitous Tools to Tickle Your Brain</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-stability-essentials-for-online-videography/"><u>[New] Stability Essentials for Online Videography</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-best-metaverse-tech-the-ultimate-goggles-and-hmds-list/"><u>[Updated] 2024 Approved Best Metaverse Tech The Ultimate Goggles and HMDs List</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-expert-strategies-for-swift-and-smooth-media-navigation/"><u>[Updated] In 2024, Expert Strategies for Swift and Smooth Media Navigation</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-journey-into-av1-the-newcomers-guidebook/"><u>[Updated] Journey Into AV1 The Newcomer's Guidebook</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-essential-free-templates-for-mastering-after-effects/"><u>2024 Approved Essential FREE Templates for Mastering After Effects</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-path-to-longer-instagram-vids-a-comprehensible-approach/"><u>2024 Approved The Path to Longer Instagram Vids A Comprehensible Approach</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-ultimate-roundup-unleashing-the-best-5-online-title-makers/"><u>2024 Approved The Ultimate Roundup Unleashing the Best 5 Online Title Makers</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-lava-blaze-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/antop-at-127-tv-antenna-review/"><u>Antop AT-127 TV Antenna Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/breakdown-of-the-iphone-xs-max-exceptional-tech-meets-highest-price-bracket/"><u>Breakdown of the iPhone XS Max: Exceptional Tech Meets Highest Price Bracket</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-pioneer-blu-ray-player-bdr-xd05b-highlighting-structural-limitations/"><u>Comprehensive Evaluation of the Pioneer Blu-Ray Player BDR-XD05B: Highlighting Structural Limitations</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-google-wifi-evaluation-the-perfect-all-inclusive-wireless-mesh-network-solution/"><u>Comprehensive Google WIFI Evaluation: The Perfect All-Inclusive Wireless Mesh Network Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-pixelbook-go-by-google-exceptional-performance-meets-high-pricing/"><u>Comprehensive Review of the Pixelbook Go by Google: Exceptional Performance Meets High Pricing</u></a></li>
+<li><a href="https://win-forum.techidaily.com/discover-the-most-popular-networks-online-facebook-plus-twitter-plus-instagram-plus-youtube/"><u>Discover the Most Popular Networks Online: Facebook + Twitter + Instagram + YouTube</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/efficient-wdf-implementation-lowering-high-cpu-consumption-in-windows-systems/"><u>Efficient WDF Implementation - Lowering High CPU Consumption in Windows Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-top-rated-halo-jump-starter-the-ultimate-portable-charger-review/"><u>Expert Analysis: Top Rated Halo Jump Starter - The Ultimate Portable Charger Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-the-all-rounder-samsung-galaxy-tab-s4-for-android-enthusiasts/"><u>Expert Review: The All-Rounder Samsung Galaxy Tab S4 for Android Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/family-friendly-amazon-fire-hd-10-tablet-detailed-product-analysis/"><u>Family-Friendly Amazon Fire HD 10 Tablet - Detailed Product Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/imperator-rome-gaming-guide-mastering-an-empire-through-conflict-or-collapse/"><u>Imperator: Rome Gaming Guide - Mastering An Empire Through Conflict Or Collapse</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-evaluating-screen-recording-software-obs-vs-bandicam/"><u>In 2024, Evaluating Screen Recording Software OBS vs Bandicam</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inadequate-performance-by-tp-links-av1300-wireless-powerline-extender-a-comprehensive-review/"><u>Inadequate Performance by TP-Link's AV1300 Wireless Powerline Extender - A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-a-new-iphone-worth-the-plunge/"><u>Is a New iPhone Worth the Plunge?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/macbook-face-off-detailing-how-air-stands-against-its-pro-counterpart/"><u>MacBook Face-Off: Detailing How Air Stands Against Its Pro Counterpart</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/making-the-most-of-your-multi-image-story-sessions-on-insta/"><u>Making the Most of Your Multi-Image Story Sessions on Insta</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-install-lumafusion-on-your-mac-or-find-a-suitable-replacement/"><u>New In 2024, Install Lumafusion on Your Mac or Find a Suitable Replacement</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/night-owls-rejoice-unveiling-the-features-and-benefits-of-barnes-and-nobles-nook-glowlight-3-e-reader/"><u>Night Owls Rejoice: Unveiling the Features and Benefits of Barnes & Noble's Nook GlowLight 3 E-Reader</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rotibox-wireless-beanie-hat-evaluated-exceptional-comfort-meets-satisfactory-sound-quality/"><u>Rotibox Wireless Beanie Hat Evaluated: Exceptional Comfort Meets Satisfactory Sound Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/score-the-ultimate-prime-day-specials-on-apple-products/"><u>Score the Ultimate Prime Day Specials on Apple Products</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sharing-stories/"><u>Sharing Stories</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/simplify-your-pets-diet-routine-using-arfs-innovative-auto-pet-feeder/"><u>Simplify Your Pet's Diet Routine Using Arf’s Innovative Auto Pet Feeder</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sonys-lx310bt-a-sleek-compact-player/"><u>Sony's LX310BT - A Sleek, Compact Player</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-financial-verdict-on-buying-apple-tv/"><u>The Financial Verdict on Buying Apple TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-positive-ripple-effect-of-social-media-on-society/"><u>The Positive Ripple Effect of Social Media on Society</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tp-link-av2000-wifi-extender-assessment-high-performance-yet-lacks-aesthetic-appeal/"><u>TP-Link AV2000 WiFi Extender Assessment: High Performance Yet Lacks Aesthetic Appeal</u></a></li>
+</ul></div>

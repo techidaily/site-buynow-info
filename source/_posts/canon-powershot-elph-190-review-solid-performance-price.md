@@ -1,7 +1,7 @@
 ---
 title: "Canon PowerShot ELPH 190 Review: Solid Performance, Price"
-date: 2024-08-03T23:04:37.708Z
-updated: 2024-08-04T23:04:37.708Z
+date: 2024-09-09T13:53:39.005Z
+updated: 2024-09-10T13:53:39.005Z
 categories:
   - BestProducts
 description: "This Article Describes Canon PowerShot ELPH 190 Review: Solid Performance, Price"
@@ -9,16 +9,18 @@ excerpt: "This Article Describes Canon PowerShot ELPH 190 Review: Solid Performa
 thumbnail: https://thmb.techidaily.com/d65abb8416376df0de26bd98013124b5d718bb272b657e526e62baf007bb9ef2.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Beyond the Lens Range - Canon PowerShot SX70 HS Superzoom Reviewed
 
 4.3
 
 ## Canon PowerShot SX70
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/NltNTWtb6Y6gHFCHDQXlLsrWKTI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
 
 Lifewire / Andy Zahn
@@ -43,13 +45,22 @@ Lifewire / Andy Zahn
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Canon PowerShot SX70
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Lifewire / Andy Zahn
 
 [View On Walmart $562](https://www.walmart.com/ip/Canon-PowerShot-SX70-HS-20-3MP-65x-Optical-Zoom-Digital-Point-Shoot-Camera/773178799?slfpid=3) [View On Adorama.com $699](https://www.adorama.com/icasx70.html) [View On B&H Photo Video $599](https://www.bhphotovideo.com/c/product/1435399-REG/canon%5F3071c001%5Fpowershot%5Fsx70%5Fhs%5Fdigital.html)
@@ -94,9 +105,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
@@ -107,6 +115,12 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Display and Viewfinder: Saturated and clear**
 
  The three-inch, 920,000-dot screen on the SX70 HS looks amazing—perhaps_too_ amazing, as your photos will look better on it than on your phone or computer. The screen is fully articulating and solidly built. Our one complaint would be how easily it picks up smudges, and how difficult those smudges are to remove. An advantage of the articulating screen is that it can be turned face-in to avoid dirt and damage and to save on battery life.
@@ -115,9 +129,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Autofocus: Blazing fast**
 
  We were shocked by how fast and consistent the autofocus is in the SX70 HS, even in low-light situations. It rarely fails to lock on to your intended subject, and focus tracking works flawlessly.
@@ -127,7 +138,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Photo Quality: Great colors, average resolution**
 
@@ -160,7 +174,16 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Video Quality: A mixed bag**
 
@@ -176,6 +199,12 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -187,7 +216,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Price: Big brand, big price tag**
 
@@ -211,15 +243,24 @@ Lifewire / Andy Zahn
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
 
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Panasonic Lumix DC-FZ80](https://www.lifewire.com/panasonic-lumix-dc-fz80-review-4691071)
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  PowerShot SX70
@@ -253,3 +294,40 @@ Lifewire / Andy Zahn
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-aptly-convert-speech-to-text-with-googles-innovative-tech/"><u>[New] 2024 Approved Aptly Convert Speech to Text with Google's Innovative Tech</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-from-tube-to-chat-sharing-video-content-from-youtube-and-twitter-directly-for-2024/"><u>[New] From Tube to Chat Sharing Video Content From YouTube & Twitter Directly for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-maximizing-media-flexibility-in-vlc-through-mp4-conversions/"><u>2024 Approved Maximizing Media Flexibility in VLC Through MP4 Conversions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-portable-gaming-computers-power-in-a-pocket-sized-package/"><u>Best Portable Gaming Computers: Power in a Pocket-Sized Package</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/compact-and-convenient-canons-sx740-hs-review-insights/"><u>Compact & Convenient: Canon's SX740 HS Review Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/detailed-review-nikon-sb-700-lighting-tech/"><u>Detailed Review: Nikon SB-700 Lighting Tech</u></a></li>
+<li><a href="https://win-able.techidaily.com/1722986440178-diy-fix-for-scan-mishaps-top-techniques-that-work-every-time/"><u>DIY FIX for Scan Mishaps – Top Techniques That Work Every Time!</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-the-capabilities-of-openais-shapley-explainer-a-comprehensive-guide/"><u>Exploring the Capabilities of OpenAI's Shapley Explainer: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-ergonomics-of-ergodriven-a-comprehensive-review-of-an-ultimate-anti-fatigue-mat-for-standing-desks/"><u>Exploring the Ergonomics of Ergodriven: A Comprehensive Review of an Ultimate Anti-Fatigue Mat for Standing Desks</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/head-to-head-battle-features-and-differences-between-google-nest-audio-and-nest-mini/"><u>Head-to-Head Battle: Features and Differences Between Google Nest Audio and Nest Mini</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/huion-kamvas-gt-191-drawing-tablet-review-a-big-beautiful-pen-display/"><u>Huion Kamvas GT-191 Drawing Tablet Review: A Big, Beautiful Pen Display</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-htc-u23-pro-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your HTC U23 Pro Data? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-unlocking-igtvs-potential-5-ways-to-surge-follower-count/"><u>In 2024, Unlocking IGTV's Potential 5 Ways to Surge Follower Count</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-mlb-the-show-19-beautiful-graphics-meet-roleplaying-twists/"><u>In-Depth Look at MLB The Show 19: Beautiful Graphics Meet Roleplaying Twists</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-ankers-powerful-30-usb-hub-a-game-changer-in-speed-and-strength/"><u>In-Depth Review of Anker's Powerful 3.0 USB Hub – A Game-Changer in Speed and Strength</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-viber-out-calling-services-for-international-communication/"><u>In-Depth Review of Viber Out Calling Services for International Communication</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/leveraging-color-grading-using-luts-in-ae-for-2024/"><u>Leveraging Color Grading Using LUTs in AE for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximize-local-exposure-for-free-dive-into-oodles-classified-advertising-realm/"><u>Maximize Local Exposure for Free - Dive Into Oodle's Classified Advertising Realm</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-through-network-an-expert-review-of-the-linksys-wrt1900acs-routers-performance-and-capabilities/"><u>Navigating Through Network: An Expert Review of the Linksys WRT1900ACS Routers' Performance and Capabilities</u></a></li>
+<li><a href="https://video-capture.techidaily.com/perfect-every-moment-top-3-techniques-to-record-lol-games-for-2024/"><u>Perfect Every Moment Top 3 Techniques to Record LOL Games for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/regular-maintenance-is-essential-to-prevent-wear-and-ensure-efficient-operation/"><u>Regular Maintenance Is Essential to Prevent Wear and Ensure Efficient Operation.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-small-form-factor-powerhouse-sandisk-clip-jam-mp3/"><u>The Small-Form Factor Powerhouse - SanDisk Clip Jam MP3</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-enhancing-signal-strength-testing-the-netgear-ex3700-ac750-range-extender/"><u>The Ultimate Guide to Enhancing Signal Strength: Testing the Netgear Ex3700 AC750 Range Extender</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-apple-tv-4k-gen-3-features-and-performance/"><u>The Ultimate Guide to the Apple TV 4K (Gen 3) Features and Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-incredible-features-of-the-asus-chromebook-flip-c302ca-a-must-read-review/"><u>The Ultimate Guide to the Incredible Features of the Asus Chromebook Flip C302CA: A Must-Read Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-portable-kensun-air-compressor-solid-construction-and-user-friendly-design/"><u>The Ultimate Review of Portable Kensun Air Compressor – Solid Construction & User-Friendly Design</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-at-127-by-antop-revolutionize-your-viewing-with-this-chic-and-cost-free-tv-antenna/"><u>Top Rated AT-127 by Antop: Revolutionize Your Viewing with This Chic and Cost-Free TV Antenna</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-grand-escapades-of-yokus-island-express-an-in-depth-critique/"><u>Unboxing Grand Escapades of 'Yoku's Island Express': An In-Depth Critique</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-lightning-fast-netgear-nighthawk-rax120-the-fastest-routers-on-the-market-reviewed/"><u>Unboxing the Lightning-Fast Netgear Nighthawk RAX120: The Fastest Routers on the Market Reviewed!</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/uncover-solutions-for-missing-comments-on-your-youtube-videos/"><u>Uncover Solutions for Missing Comments on Your YouTube Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/widecam-genius-prototype-f100-test-results-analyzing-pixelation-and-audio-issues/"><u>WideCam Genius Prototype F100 Test Results: Analyzing Pixelation & Audio Issues</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/your-all-in-one-wellness-partner-unveiling-the-samsung-galaxy-fit2-portability-meets-fitness-tracking/"><u>Your All-in-One Wellness Partner - Unveiling the Samsung Galaxy Fit2: Portability Meets Fitness Tracking</u></a></li>
+</ul></div>
