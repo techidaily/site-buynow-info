@@ -1,0 +1,178 @@
+---
+title: "Discover Efficient and Convenient Technology: The HP Stream 11 Experience"
+date: 2024-09-12T20:27:27.885Z
+updated: 2024-09-15T19:55:28.095Z
+categories:
+  - BestProducts
+description: "This Article Describes Discover Efficient and Convenient Technology: The HP Stream 11 Experience"
+excerpt: "This Article Describes Discover Efficient and Convenient Technology: The HP Stream 11 Experience"
+thumbnail: https://thmb.techidaily.com/23bcbbd5e45bcabcdfd0dcf9f0d56055fdfa4178e94d0dd13999edb6b6a4b8b2.jpg
+---
+
+## Experience Superior Communication with the User-Friendly ClearStream Eclipse Antenna - Top Reviewed
+
+4.4
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## Clearstream ECLIPSE
+
+![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/C1hoQetKMx7bAHqwsQ9gt0Fz_S0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
+
+Lifewire / Jonno Hill
+
+ What We Like
+
+* Simple design
+* Great performance
+* Less clutter
+
+ What We Don't Like
+
+* Can’t stand on its own
+* Limited range
+
+ The ClearStream Eclipse is a simple, easy-to-use indoor antenna that outperforms some of the competition for less money.
+
+[View On Amazon $35](https://www.amazon.com/dp/B01HQ4BRIG/?tag=lifewire-onsite-prod-20&ascsubtag=4843098%7Cnd0143d72158b4d609e6ef9a213c7445e18%7CB01HQ4BRIG) [View On Walmart $33](https://www.walmart.com/ip/Antennas-Direct-ECL-Clear-Stream-Eclipse-Sure-Grip-Indoor-HDTV-Antenna/146091443?slfpid=3)
+
+4.4
+
+## Clearstream ECLIPSE
+
+![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/0gXsFyigpZzsnNAEj3tIrKImB8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
+
+Lifewire / Jonno Hill
+
+[View On Amazon $35](https://www.amazon.com/dp/B01HQ4BRIG/?tag=lifewire-onsite-prod-20&ascsubtag=4843098%7Cnd0143d72158b4d609e6ef9a213c7445e18%7CB01HQ4BRIG) [View On Walmart $33](https://www.walmart.com/ip/Antennas-Direct-ECL-Clear-Stream-Eclipse-Sure-Grip-Indoor-HDTV-Antenna/146091443?slfpid=3)
+
+ in this article
+
+ Expand
+
+* [Design](https://www.lifewire.com/#toc-design-inoffensive-but-unexceptional)
+* [Setup](https://www.lifewire.com/#toc-setup-simple-and-easy)
+* [Performance](https://www.lifewire.com/#toc-performance-above-average)
+* [Range](https://www.lifewire.com/#toc-range-fair-to-middling)
+* [Price](https://www.lifewire.com/#toc-price-not-bad-for-the-performance)
+* [Competition](https://www.lifewire.com/#toc-clearstream-eclipse-antenna-vs-winegard-fl5500a-flatwave-antenna)
+* [Final Verdict](https://www.lifewire.com/#toc-final-verdict)
+* [Specs](https://www.lifewire.com/#toc-full-spec)
+
+ _We purchased the ClearStream Eclipse so our expert reviewer could thoroughly test and assess it. Keep reading for our full product review._
+
+ The ClearStream Eclipse is a very simple HDTV antenna suitable for use indoors and mostly in metropolitan areas. There are a dizzying amount of options to choose from in this[best TV antenna](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) space, but this antenna caught my attention by managing to acquire more channels in our signal test despite not requiring an external power source.
+
+![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/AbdriPZwiRfd8iHxT9N5E6Ae2hk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_03-d434cf7b4c5f4f73b08c8c220fd0d43e.jpg)
+
+ Lifewire / Jonno Hill
+
+## **Design: Inoffensive but unexceptional**
+
+ The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
+
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## **Setup: Simple and easy**
+
+ The ClearStream Eclipse Antenna has the simplest setup of all the HDTV antennas I’ve tested. There is no mounting hardware, no power adapter, and nothing else to worry about. The antenna comes with a strip of adhesive that can be used to affix it directly to a wall or other preferred surface.
+
+ The ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones.
+
+ Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
+
+## **Performance: Above average**
+
+ I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
+
+## **Range: Fair to middling**
+
+ Antenna’s Direct rates the ClearStream Eclipse Antenna for up to 35 miles of range, although I’ve seen reports of people getting good results from further, or having trouble from much closer. My apartment is well within the supported range, so my sentiments reflect its use in city settings more than suburbs or exurbs.
+
+![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+ Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## **Price: Not bad for the performance**
+
+ The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
+
+## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
+
+ If my testing is any indication of broader performance, there is really no reason to get the Winegard FL5500A FlatWave Antenna instead of the ClearStream Eclipse. The Eclipse is over $10 cheaper ($40 vs $52), and managed to support 8 more channels on average. To add insult to injury, the Winegard FL5500A FlatWave Antenna is amplified using a USB power adapter, which adds a bit of clutter and complication to the overall setup.
+
+ Final Verdict
+
+**The best unpowered indoor antenna.**
+
+ The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
+
+## Specs
+
+* Product Name  ECLIPSE
+* Product Brand  Clearstream
+* Price  $40.00
+* Release Date  June 2016
+* Weight  4 oz.
+* Color  Black
+* Powered  No
+* Range  35 miles
+* Warranty  Lifetime parts
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/3dr-a-compreran-users-journey-through-tech-aloneness-for-2024/"><u>'3DR' A Compreran User's Journey Through Tech Aloneness for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-mastering-youtube-videos-your-comprehensive-tutorial/"><u>[New] 2024 Approved Mastering YouTube Videos Your Comprehensive Tutorial</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-peak-performance-win-tunes-for-2024/"><u>[New] Peak Performance WIN Tunes for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-iphone-2024-voice-memo-capturer/"><u>[Updated] IPhone 2024 Voice Memo Capturer</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-transforming-your-living-space-into-a-podcast-studio/"><u>[Updated] Transforming Your Living Space Into a Podcast Studio</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-finest-17-laptop-models-dominating-2024s-tech-scene/"><u>Discover the Finest 17 Laptop Models Dominating 2024'S Tech Scene</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-features-of-moto-g-stylus-highly-effective-performance-and-fair-battery-lifespan-reviewed/"><u>Discovering the Features of Moto G Stylus: Highly Effective Performance & Fair Battery Lifespan Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-ensure-crystal-clear-quality-with-your-ps4-cam-positioning/"><u>How to Ensure Crystal Clear Quality with Your PS4 Cam Positioning</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/simplify-your-macs-photo-edits-with-our-ultimate-guide-to-using-preview-software/"><u>Simplify Your Mac's Photo Edits with Our Ultimate Guide to Using Preview Software</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-alcatel-joy-tab-2-lte-a-cost-effective-tablet-reviewed/"><u>The Ultimate Guide to the Alcatel Joy Tab 2 LTE - A Cost-Effective Tablet Reviewed</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-lava-blaze-curve-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Lava Blaze Curve 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/ultimate-guide-resolving-pubg-mobiles-lag-and-unresponsiveness-on-desktop/"><u>Ultimate Guide: Resolving PUBG Mobile's Lag and Unresponsiveness on Desktop</u></a></li>
+</ul></div>
+

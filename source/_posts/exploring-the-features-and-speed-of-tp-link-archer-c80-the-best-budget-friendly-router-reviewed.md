@@ -1,7 +1,7 @@
 ---
 title: Exploring the Features and Speed of TP-Link Archer C80 - The Best Budget-Friendly Router Reviewed
-date: 2024-08-03T23:04:28.841Z
-updated: 2024-08-04T23:04:28.841Z
+date: 2024-09-09T17:31:17.926Z
+updated: 2024-09-15T17:14:30.957Z
 categories:
   - BestProducts
 description: This Article Describes Exploring the Features and Speed of TP-Link Archer C80 - The Best Budget-Friendly Router Reviewed
@@ -37,9 +37,6 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Amazon Echo Dot (4th Gen)
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/wkHXB7KTws9HfL-i1yYYsWIMm5w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Amazon-Echo-Dot-4th-Generation-1-fc73a047312d4d588ffcbeae7bdd3368.jpg)
@@ -66,23 +63,8 @@ Lifewire / Erika Rawes
 
  Amazon’s[Echo](https://www.lifewire.com/what-is-the-amazon-echo-4147189) Dot has become a go-to option for those looking for a compact and affordable smart speaker. The brand has now released a 4th generation of its[Echo Dot](https://www.lifewire.com/amazon-dot-4149509) , and the new version has a totally different look than its predecessors. What else is new and different about the Echo Dot (4th Gen)? How does the new Dot perform? I tested the Echo Dot (4th Gen) to find out.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: A completely new look**
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/TtbQpfhvpeKgt-Aso1WoKQ6m2VI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-2-89fbd54fb6a14efba195a0094b8d7b6f.jpg)
 
  Lifewire / Erika Rawes
@@ -93,9 +75,6 @@ Lifewire / Erika Rawes
 
  The new Dot measures 3.94 inches in diameter and 3.54 inches tall. The light ring sits on the bottom and the four main button controls sit on top of the speaker. The raised buttons make the Echo Dot look kind of like a small bowling ball from certain angles, but it’s nice to have the microphone off button right on top of the device for easy access.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/HELf_jWdoxnVe1w7XOL9sC7GoO8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-4-f100069b4b7d40dc8661b1614e150934.jpg)
 
  Lifewire / Erika Rawes
@@ -108,13 +87,16 @@ Lifewire / Erika Rawes
 
 [Setting up the Echo Dot](https://www.lifewire.com/set-up-amazon-echo-4153561) is simple, especially if you already have the Alexa app downloaded. In the Alexa app, you just go to the devices menu, select on the “+” to add a device, and follow the prompts to add the Echo Dot 4th Gen speaker. The process only takes a moment.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/dVUkRuy5SxFHmCHXxSseZY5tjhw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-3-320d298cdb18405d9d326c272464ef0d.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Sound Quality: A front-firing speaker**
 
@@ -126,16 +108,34 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Voice recognition is so important in smart speakers because they need to be able to hear your voice commands even when there’s background noise. The Echo Dot (4th Gen) has four far-field microphones for voice detection like its predecessor. It does a good job of detecting commands from across the room, even in the presence of household noises like a running dishwasher or light conversation. However, if you have a room full of people loudly talking, you might need to raise your voice slightly to get the mics to hear your commands.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/UFZM9HpoakK6sRg-7Vm2W8uLIQ8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-6-with-Clock-86c91da96d4043369f0a4e97b22c4209.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Features: The same Alexa**
 
  The Echo Dot (4th Gen) is powered by[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) . The Alexa voice assistant on the new Echo Dot is the same Alexa that you get on the Echo Dot (3rd Gen). You’ll be able to control your smart devices, listen to music, hear the news, set routines, shop, manage your schedule, and do all of the same things you could do before.[Alexa is always learning new skills](https://www.lifewire.com/alexa-skills-4126799) though. Amazon announced new Alexa features (coming soon) like Care Hub, which is a free feature that lets you check in on loved ones.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Echo Dot (4th Gen) With Clock: A Design Game Changer**
 
@@ -153,23 +153,14 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  I like the Echo Dot (4th Gen) with Clock better than the regular Echo Dot (4th Gen), as the regular version feels like it’s missing something.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ## **Price: $60 with clock, $50 without**
 
  The Echo Dot (4th Gen) retails for $50, and for $10 more, you can pick up the “with clock” version. The clock is very much worth it simply because the device looks so much better with it (aside from the obvious added functionality), and for first-time buyers, the default model is definitely worth $50\. It looks great, sounds good, and provides an affordable way to access Alexa and control your smart home.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/fdW9QpFUSBjNMTYTGdjFggaOH9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-5-Comparison-6841e2f32a734282b509976489bd0383.jpg)
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ## **Amazon Echo Dot (4th Gen) vs. Apple HomePod Mini**
 
  Apple announced the release of its[HomePod](https://www.lifewire.com/apple-homepod-4146975) Mini speaker, and it’s available for sale in November. The Siri-powered HomePod Mini is 3.3 inches tall, and it has a somewhat similar spherical shape to the Echo Dot. The HomePod Mini has a three-mic array, compared to the Dot’s four-mic array. However, the HomePod Mini has Apple’s S5 chip, and it’s in a higher price category at $99.
@@ -203,11 +194,25 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-harnessing-the-power-of-animated-graphics/"><u>[New] Harnessing the Power of Animated Graphics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-virtual-reality-grips-the-ultimate-selection/"><u>[Updated] In 2024, Virtual Reality Grips The Ultimate Selection</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-tune-into-unparalleled-music-video-watching-best-android-vids-for-you/"><u>[Updated] Tune Into Unparalleled Music Video Watching Best Android Vids for You</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-boost-your-youtube-facebook-integration-with-hd-streams/"><u>2024 Approved Boost Your YouTube-Facebook Integration with HD Streams</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-yuva-2-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Yuva 2</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-the-remarkable-advancements-in-amazons-gen-4-echo-show/"><u>In-Depth Analysis: The Remarkable Advancements in Amazon's Gen 4 Echo Show</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovo-ideapad-laptop-review-a-basic-laptop-with-a-nice-build/"><u>Lenovo Ideapad Laptop Review: A Basic Laptop With a Nice Build</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/microsoft-surface-studio/"><u>Microsoft Surface Studio 지정된 평가 - 비용이 고장났을까요?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/ranking-the-finest-five-screen-snipers-in-windows-for-2024/"><u>Ranking the Finest Five Screen Snipers in Windows for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/resolve-iphone-issues-with-chatgpt-discover-these-9-effective-fixes/"><u>Resolve iPhone Issues with ChatGPT: Discover These 9 Effective Fixes</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solutions-for-usb-installer-issues-handling-access-is-blocked-notifications/"><u>Solutions for USB Installer Issues: Handling Access Is Blocked Notifications</u></a></li>
+</ul></div>
+

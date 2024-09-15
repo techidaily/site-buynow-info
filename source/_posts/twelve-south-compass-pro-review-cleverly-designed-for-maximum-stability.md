@@ -1,7 +1,7 @@
 ---
 title: "Twelve South Compass Pro Review: Cleverly Designed For Maximum Stability"
-date: 2024-08-03T23:04:34.843Z
-updated: 2024-08-04T23:04:34.843Z
+date: 2024-09-13T17:45:11.978Z
+updated: 2024-09-15T17:47:04.767Z
 categories:
   - BestProducts
 description: "This Article Describes Twelve South Compass Pro Review: Cleverly Designed For Maximum Stability"
@@ -38,10 +38,6 @@ Lifewire / Andy Zahn
 
 ## TP-Link Deco P9 Hybrid Mesh WiFi System
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![TP-Link Deco](https://www.lifewire.com/thmb/WZYnF7YQLQF-DCDfMJj9b7oam0s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_TP-Link-Deco-P9-Mesh-Wifi-1-23cc25aa00f3430b83ff0340b920773a.jpg)
 
 Lifewire / Andy Zahn
@@ -65,18 +61,12 @@ Lifewire / Andy Zahn
 
  If you live in a large home and have suffered from the limitations of your simple, single point router, then the TP-Link Deco might just be the ideal solution to your Wi-Fi dead zone woes. This router is designed not only to broadcast a network over a wide area but also through thick walls using the existing wiring in your house.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Simple and tasteful**
 
  Each of the TP-Link Deco P9 units is identical—a white tower with an artfully ventilated top and a black strip running down the back to a pair of ethernet ports. The power cables connect to a port recessed into the underside of the units, and the cables are then routed through a slot in the back. A single[ethernet](https://www.lifewire.com/what-is-ethernet-3426740) cable is included to connect your modem to the first Deco P9 unit.
 
  It’s not perfect though; the solid plastic walls of the router nodes trap heat, so the system gets quite hot. I had my three units running for a few weeks, and though it was never actually dangerous, it was worrying, and a device that overheats may experience a decreased lifespan.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![TP-Link Deco](https://www.lifewire.com/thmb/hQrZfiOB9gvTAZ0DCbazOfIA5Mo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link-Deco-P9-Mesh-Wifi-3-8aced2245e2243509bc5a32a6dca49cc.jpg)
 
  Lifewire / Andy Zahn
@@ -89,16 +79,10 @@ Lifewire / Andy Zahn
 
  The only hiccup occurred when I set up the third and final unit. For some reason this caused the second unit to disconnect. Fortunately, the troubleshooting menu built into the app helped me to quickly solve the issue. Overall, this was one of the most painless network setup processes I have ever encountered.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![TP-Link Deco](https://www.lifewire.com/thmb/nzwt5K19xY4baIDcJC9aglOpo9k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link-Deco-P9-Mesh-Wifi-2-a1c339e4cb31445982c06a96f7b9e290.jpg)
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Connectivity: Consistent coverage**
 
  The TP-Link Deco provided an impressive range even with only a single P9 unit installed. With all 3 units installed in the attic, main floor and basement of my 4,000 square foot home I was able to enjoy complete coverage. Furthermore, I was able to connect to the network throughout my yard up to about 50 feet beyond the walls. This excellent range is due in part to the Deco 9’s ability to use the existing electrical wiring in your house to transmit signals.
@@ -110,8 +94,18 @@ Lifewire / Andy Zahn
  I found the network to be quite reliable, except for on a few occasions where my internet connection would cut out for a minute or two. This was very infrequent, and not a major issue, but it was rather annoying when this bug did occur. It uses a dynamic combination of 5Ghz and 2.4Ghz networks to create a single seamless Wi-Fi connection that automatically determines the fastest and most efficient connection for your device.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Software: Easy to use app**
 
  The TP-Link Deco app is streamlined and easy to use. Its home screen provides you with a list of currently connected devices, and it tracks your history of previously connected devices. It also tells how much data is uploading and downloading in real time, and gives you the option of giving an individual device priority.
@@ -122,13 +116,17 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Good value for mesh Wi-Fi**
 
  With an MSRP of $229, the Deco P9 provides a robust three-node[mesh Wi-Fi network](https://www.lifewire.com/what-is-a-mesh-network-4842178) at a very reasonable price point. Though it’s pricier than your average ISP-provided router, if you have a large, multi-story home it’s certainly worth the extra expense. For buildings with very thick walls, the powerline signal transmission capability of the Deco P9 adds a whole extra level of value to the system.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **TP-Link Deco P9 vs. Razer Portal**
 
  The TP-Link Deco P9 is great for large homes in neighbors without too many competing for Wi-Fi networks. However, the Razer Portal is a better choice if you’re looking for top performance in an area with a lot of interference from your neighbor's routers. It’s also significantly cheaper and can be used on its own or expanded into a mesh network with additional units. It’s worth noting, though, that the Deco P9 has a much slimmer profile than the Razer Portal, and is easier to place on a table or shelf.
@@ -138,6 +136,19 @@ Lifewire / Andy Zahn
  **The TP-Link Deco P9 powerful mesh network router that’s incredibly easy to use.**
 
  The TP-Link Deco P9 might be the least troublesome router to set up and control that I have ever used. On top of that, this mesh network is large and powerful enough to provide strong and consistent internet throughout even the largest homes.
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -153,14 +164,11 @@ Lifewire / Andy Zahn
 * Range  6000 sq ft
 * Software  Deco App, compatible with Amazon Alexa and IFTTT
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -168,3 +176,18 @@ Lifewire / Andy Zahn
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-the-beginners-blueprint-achieving-superior-image-clarity-in-videos/"><u>[New] 2024 Approved The Beginner’s Blueprint Achieving Superior Image Clarity in Videos</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-screen-recording-through-built-in-features-of-huaweis-mate-and-p-devices-p20-p10-for-2024/"><u>[New] Screen Recording Through Built-In Features of Huawei's Mate and P Devices (P20, P10) for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-ultimate-relaxation-top-10-mobile-idle-games/"><u>[New] Ultimate Relaxation Top 10 Mobile Idle Games</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unleash-a-flood-of-supporters-attain-a-million-ish-on-ig-each-month/"><u>[Updated] 2024 Approved Unleash a Flood of Supporters Attain a Million-Ish on IG Each Month</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/essential-tactics-from-visual-to-audio-media/"><u>Essential Tactics From Visual to Audio Media</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-exploring-remote-desktop-capabilities-within-zoom-on-win11/"><u>In 2024, Exploring Remote Desktop Capabilities Within Zoom on Win11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-ratchet-and-clank-evaluation-timeless-adventure-revitalized/"><u>In-Depth Ratchet & Clank Evaluation: Timeless Adventure Revitalized</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/manfrotto-befree-3-way-adjustment-system-high-mobility/"><u>Manfrotto Befree 3-Way Adjustment System: High Mobility</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-madden-nfl-1e9-impressive-varieties-but-age-related-red-flags/"><u>Reviewing Madden NFL 1E9: Impressive Varieties But Age-Related Red Flags</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/streaming-enthusiasts-dream-exclusive-roku-express-insights-reveal-rich-media-libraries-at-unbeatable-prices/"><u>Streaming Enthusiast's Dream: Exclusive Roku Express Insights Reveal Rich Media Libraries at Unbeatable Prices</u></a></li>
+</ul></div>
+

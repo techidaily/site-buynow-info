@@ -1,7 +1,7 @@
 ---
 title: "Analyzing the Retro Icon: A Comprehensive Review of Super Mario on Nintendo's Pioneering Device, Game & Watch"
-date: 2024-08-03T23:04:29.102Z
-updated: 2024-08-04T23:04:29.102Z
+date: 2024-09-10T19:46:51.701Z
+updated: 2024-09-15T20:59:11.283Z
 categories:
   - BestProducts
 description: "This Article Describes Analyzing the Retro Icon: A Comprehensive Review of Super Mario on Nintendo's Pioneering Device, Game & Watch"
@@ -15,9 +15,6 @@ thumbnail: https://thmb.techidaily.com/fed92e9eb9a0a5e6e21c5bc280db28f15e68b1978
 
 ## AmazonBasics Ultra-Thin Antenna
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/rS-RQyeAxU8gdzYheTg1qi5PFEY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
 
 Lifewire / Erika Rawes
@@ -42,9 +39,6 @@ Lifewire / Erika Rawes
 
 ## AmazonBasics Ultra-Thin Antenna
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
 
 Lifewire / Erika Rawes
@@ -84,20 +78,21 @@ Lifewire / Erika Rawes
 
  Next, you change your TV to the correct input (usually TV, antenna, or Coax). Then, go to your TV’s menus and start the auto-programming process, which[scans for available channels](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) . The process takes a few minutes, and sometimes your TV won’t start to locate channels until about halfway through the auto-programming process.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels (in a rural area)**
 
  So many things[affect an antenna’s performance](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) —location, household electronics, tree cover, tower location, and more. The antenna displays channels of high quality. However, sometimes the channels would take a few seconds to load, and other times, I’d see a pixelated effect when I first changed the channel that would clear up after a few seconds. Once the picture was fully loaded, it was in clear high definition. The antenna is capable of displaying a clear HD picture, so I couldn’t tell the difference between the antenna’s picture and the picture from streaming services like Hulu or Netflix.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
  Lifewire / Erika Rawes
@@ -110,29 +105,21 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
  The Antop AT-127 (see[online](https://www.lowes.com/pd/ANTOP-Omni-Directional-Indoor-HD-UHF-VHF-TV-Antenna/1000503257?) ) is a 40-mile range antenna that sells for around $35\. It’s one of the better-looking antennas I’ve seen, as it’s reversible with faux light wood and dark wood sides. Unlike the AmazonBasics antenna, the Antop comes with a stand, and it has an easy-push connector for faster setup. These features go some ways towards justifying the Antop's higher price tag.
@@ -142,6 +129,13 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -159,14 +153,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 * Ports  Coax
 * Cable length  10-foot Coax Cable
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -174,3 +165,18 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-transform-your-tiktok-footage-with-enlarged-characters/"><u>[New] In 2024, Transform Your TikTok Footage with Enlarged Characters</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-best-practices-in-selecting-screen-recording-tools-for-windows-10/"><u>[Updated] Best Practices in Selecting Screen Recording Tools for Windows 10</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-demystifying-data-first-steps-in-facebook-insights-for-2024/"><u>[Updated] Demystifying Data First Steps in Facebook Insights for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/boosting-your-gameplay-speeding-up-league-of-legends-installations-and-patches/"><u>Boosting Your Gameplay: Speeding Up League of Legends Installations and Patches</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-apple-iphone-se-2020-affordable-yet-powerful/"><u>Comprehensive Analysis of the Apple iPhone SE (2020): Affordable Yet Powerful</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-unboxing-the-samsung-gear-s3-frontier-a-versatile-and-well-equipped-smartwatch/"><u>Comprehensive Analysis: Unboxing the Samsung Gear S3 Frontier - A Versatile and Well-Equipped Smartwatch</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>Does find my friends work on Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-apple-iphone-se-2022-online-without-jailbreak-by-drfone-ios/"><u>In 2024, How to Unlock SIM Card on Apple iPhone SE (2022) online without jailbreak</u></a></li>
+<li><a href="https://windows11.techidaily.com/the-financial-engine-behind-windows-11/"><u>The Financial Engine Behind Windows 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/urban-mastery-at-your-fingertips-a-thorough-review-of-cities-skylines/"><u>Urban Mastery at Your Fingertips - A Thorough Review of Cities: Skylines</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "The Authoritative Take on the Blade E-Flite mCXn RTF Helicopter: Is It Worth Your Investment?"
-date: 2024-08-03T23:04:34.339Z
-updated: 2024-08-04T23:04:34.339Z
+date: 2024-09-08T20:22:51.117Z
+updated: 2024-09-15T16:27:17.310Z
 categories:
   - BestProducts
 description: "This Article Describes The Authoritative Take on the Blade E-Flite mCXn RTF Helicopter: Is It Worth Your Investment?"
@@ -13,14 +13,8 @@ thumbnail: https://thmb.techidaily.com/5565177be356d6fd1f6d2b58dc2046c46dae91381
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ## TopMate C302 Laptop Cooling Pad
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/aiCouzmBGM4njr9Ovpa0MfLae4E=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
 
 Lifewire / Andrew Hayward
@@ -43,14 +37,8 @@ Lifewire / Andrew Hayward
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## TopMate C302 Laptop Cooling Pad
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
 
 Lifewire / Andrew Hayward
@@ -97,12 +85,29 @@ Lifewire / Andrew Hayward
 
  The C302 is a purely plug-and-play accessory with no flashy perks or settings to deal with, nor any need for software on your computer. Simply place it under your laptop, adjust the feet and holding nubs as desired, and plug the USB port into your computer to power on the pad. The fans will then activate and run at the only available speed, and you can unplug it when you’re done or don’t need it anymore.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Performance: It makes a difference
 
@@ -124,17 +129,18 @@ Lifewire / Andrew Hayward
 
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Price: It’s very affordable
 
  At $30, this is one of the most affordable laptop cooling pads on the market right now. While results varied across multiple tests and games/apps, the C302 was pretty well in line with some of the pricier options I tested. It feels a little flimsy and doesn’t have any premium features, but the C302 is a very good entry-level option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -167,14 +173,11 @@ Lifewire / Andrew Hayward
 * Ports  USB-A
 * Waterproof  N/A
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -182,3 +185,20 @@ Lifewire / Andrew Hayward
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-thriving-despite-cyberbullying-and-scathing-feedback/"><u>[New] Thriving Despite Cyberbullying and Scathing Feedback</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-ultimate-photography-journey-with-vsco-editing-tool/"><u>[Updated] Ultimate Photography Journey with VSCO Editing Tool</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/2024-approved-mastering-twitter-uploading-videos-compliance/"><u>2024 Approved Mastering Twitter Uploading Videos Compliance</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-tecno-spark-go-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/compact-powerhouse-of-tracking-discover-the-ease-of-using-the-samsung-galaxy-fit2/"><u>Compact Powerhouse of Tracking: Discover the Ease of Using the Samsung Galaxy Fit2</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-ultimate-singing-experience-with-our-pick-s-best-karaoke-machines/"><u>Discover the Ultimate Singing Experience with Our Pick 'S Best Karaoke Machines!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/feeling-left-out-could-your-ipad-be-stuck-in-yesterdays-world/"><u>Feeling Left Out: Could Your iPad Be Stuck in Yesterday's World?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-id-on-your-apple-iphone-7-plus-without-security-questions-by-drfone-ios/"><u>How to Unlock Apple ID On your Apple iPhone 7 Plus without Security Questions?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-battle-of-smart-speakers-echo-dot-against-homepod-mini/"><u>The Ultimate Battle of Smart Speakers: Echo Dot Against HomePod Mini</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-razer-blade-pro-17-high-performance-on-the-go/"><u>The Ultimate Guide to the Razer Blade Pro 17: High-Performance on the Go</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-home-maintenance-innovation-a-detailed-review-of-the-dreame-bot-l10-pros-mopping-vacuuming-and-lidar-capabilities/"><u>Unlocking Home Maintenance Innovation: A Detailed Review of the Dreame Bot L10 Pro's Mopping, Vacuuming, and LiDAR Capabilities</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-apple-iphone-x-here-is-the-answer-drfone-by-drfone-virtual-ios/"><u>Wondering the Best Alternative to Hola On Apple iPhone X? Here Is the Answer | Dr.fone</u></a></li>
+</ul></div>
+

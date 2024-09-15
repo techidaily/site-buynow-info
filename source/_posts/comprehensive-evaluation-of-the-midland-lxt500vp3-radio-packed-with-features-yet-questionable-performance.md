@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Evaluation of the Midland LXT500VP3 Radio - Packed With Features, Yet Questionable Performance
-date: 2024-08-03T23:04:32.735Z
-updated: 2024-08-04T23:04:32.735Z
+date: 2024-09-09T18:49:49.319Z
+updated: 2024-09-15T20:00:28.174Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Evaluation of the Midland LXT500VP3 Radio - Packed With Features, Yet Questionable Performance
@@ -15,9 +15,6 @@ thumbnail: https://www.lifewire.com/thmb/liJwE98Sv8EgOXIWVzrkFGGXxEo=/400x300/fi
 
 ## ClearStream 2V Indoor/Outdoor HDTV Antenna
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ClearStream 2V HDTV Antenna](https://www.lifewire.com/thmb/rpogaEx5qG81ylcoefvlfcIwyIw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_HeroSquare-b07d5067648049ecb987e39b62796406.jpg)
 
 Lifewire / Jonno Hill
@@ -40,14 +37,8 @@ Lifewire / Jonno Hill
 
 4.3
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ClearStream 2V Indoor/Outdoor HDTV Antenna
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![ClearStream 2V HDTV Antenna](https://www.lifewire.com/thmb/q2B57F3c717qLOPlnokMF7al1pA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_HeroSquare-b07d5067648049ecb987e39b62796406.jpg)
 
 Lifewire / Jonno Hill
@@ -73,9 +64,6 @@ Lifewire / Jonno Hill
 
  If you live far enough from your local TV signal source that other indoor antennas have failed you, the ClearStream 2V Indoor/Outdoor HDTV Antenna might actually provide some help. Buyers should probably make sure that they can’t get away with a smaller, cheaper, simpler solution first, but if or when that fails, this antenna definitely gets the job done.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/vY1j7QoS0FLwOKNhPlSfR3XMlmo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_02-e97897fe03b74f5faa2eefad3b3b7208.jpg)
 
  Lifewire / Jonno Hill
@@ -88,9 +76,6 @@ Lifewire / Jonno Hill
 
  As you’ll see later though, this is because the ClearStream 2V Indoor/Outdoor HDTV Antenna doesn’t really care about looks. Everything is 100% about function. There are, however, a few little elements from a design perspective that help make the ClearStream a somewhat thoughtful device nonetheless. Once assembled, all the parts fit together nicely like a lego set.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup: Buckle up**
 
  Setup of the ClearStream 2V Indoor/Outdoor HDTV Antenna has by far the most complicated setup of the antennas that I tested in our roundup. The instructions that come included have illustrations that show how everything fits together, but it isn’t outlined in the simplest manner possible.
@@ -107,16 +92,27 @@ Lifewire / Jonno Hill
 
  In my channel acquisition test, the ClearStream managed 76 channels consistently, far and away the best result from any of the devices I tested. The worst antenna I tested picked up just 47 channels, and the second best, 69\. Needless to say, all the wires, cages, and bulbous plastic spheres are clearly doing something here, because this was the best result I saw.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Range: Extensive**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna is rated for up to 60 miles. These ratings are generally based on relatively unobstructed paths between the signal and your device. There is a lot less than 60 miles between me and my local TV broadcast source, but if the other results are any indication, the ClearStream has a fighting chance at living up to these claims.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/NoQoQy3-EFUpi1z9oMTpD2JGWHQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_04-70f5a48ac9a347d286c71240b85cbc1c.jpg)
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Performance doesn’t come cheap**
 
@@ -133,6 +129,13 @@ Lifewire / Jonno Hill
 **Great performance for those that need it.**
  The ClearStream 2V Indoor/Outdoor HDTV Antenna isn’t the cheapest or best-looking antenna on the market, but it gets the job done better than any of the other antennas we tested. Buyers who know they need an antenna with better range and performance will find this to be a noticeable bump from cheaper indoor antennas.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  2V Indoor/Outdoor HDTV Antenna
@@ -144,14 +147,11 @@ Lifewire / Jonno Hill
 * Range  60 miles
 * Warranty  Lifetime parts
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -159,3 +159,20 @@ Lifewire / Jonno Hill
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-best-practices-for-streamlining-webinars-on-windowsapple-os/"><u>[New] In 2024, Best Practices for Streamlining Webinars on Windows/Apple OS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-effortless-offline-viewing-how-to-save-youtube-videos-for-iphoneipad/"><u>[New] In 2024, Effortless Offline Viewing How to Save YouTube Videos for iPhone/iPad</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-top-10-strategies-for-youtube-to-mpeg-conversion/"><u>[New] Top 10 Strategies for YouTube-to-MPEG Conversion</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-mastering-ram-management-in-minecraft/"><u>[Updated] In 2024, Mastering RAM Management in Minecraft</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-making-marks-trendsetting-on-social-media-platforms/"><u>[Updated] Making Marks Trendsetting on Social Media Platforms</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-navigating-digital-discussions-with-ease-essential-advice-for-successful-zoom-meetings/"><u>2024 Approved Navigating Digital Discussions with Ease Essential Advice for Successful Zoom Meetings</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-on-your-fingertips-how-to-get-the-cutting-edge-ios-application/"><u>ChatGPT on Your Fingertips - How to Get the Cutting-Edge iOS Application</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-romer-led-rechargeable-lantern-assessment-illuminating-your-outdoors-experience/"><u>Comprehensive Romer LED Rechargeable Lantern Assessment - Illuminating Your Outdoors Experience</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-xiaomi-14-ultrawithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Xiaomi 14 Ultrawith/without a PC</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-from-your-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock From your iPhone 11 Pro Max</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-urban-armor-gears-protective-case-for-macbook-pro-durable-and-functional-design/"><u>Review of Urban Armor Gear's Protective Case for MacBook Pro: Durable and Functional Design</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-future-of-productivity-unveiled-in-depth-analysis-of-the-lenovo-thinkpad-x1-titaniums-triumph-as-a-2-in-1-contender/"><u>The Future of Productivity Unveiled: In-Depth Analysis of the Lenovo ThinkPad X1 Titanium's Triumph as a 2-in-1 Contender</u></a></li>
+</ul></div>
+

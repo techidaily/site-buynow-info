@@ -1,7 +1,7 @@
 ---
 title: The Amazing Portability of Amazon Basics' Tablet Holder - A Comprehensive Review
-date: 2024-09-09T14:19:01.681Z
-updated: 2024-09-10T14:19:01.681Z
+date: 2024-09-09T20:37:25.138Z
+updated: 2024-09-15T19:31:58.592Z
 categories:
   - BestProducts
 description: This Article Describes The Amazing Portability of Amazon Basics' Tablet Holder - A Comprehensive Review
@@ -9,22 +9,10 @@ excerpt: This Article Describes The Amazing Portability of Amazon Basics' Tablet
 thumbnail: https://www.lifewire.com/thmb/oNFGkuW0J6VK0tz7W8Dt87o1F7s=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Basics_Adjustable_Tablet_Stand_HeroSquare-66fbac5b62f44717809caa583b6b7266.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Cutting the Cord: A Comprehensive Review of the Amazon Basics Flat Antenna for Free TV Enthusiasts
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/rS-RQyeAxU8gdzYheTg1qi5PFEY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
@@ -49,22 +37,10 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Erika Rawes
 
 [View On Amazon](https://www.amazon.com/dp/B075ZQXB26/?tag=lifewire-onsite-prod-20&ascsubtag=4845569%7Cn4bcb8b1996c24cd3b14f62e195599b0615%7CB075ZQXB26)
@@ -104,6 +80,19 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Performance: Almost two dozen channels (in a rural area)**
@@ -112,20 +101,15 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Range: 35 miles**
 
  The AmazonBasics antenna has a 35-mile range, which isn’t very far considering 50 plus miles is becoming more common. It is omnidirectional, however, so you don’t need to point it in a specific direction. It supports UHF/VHF, so I was able to get a decent selection of channels.
@@ -142,12 +126,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
  The Antop AT-127 (see[online](https://www.lowes.com/pd/ANTOP-Omni-Directional-Indoor-HD-UHF-VHF-TV-Antenna/1000503257?) ) is a 40-mile range antenna that sells for around $35\. It’s one of the better-looking antennas I’ve seen, as it’s reversible with faux light wood and dark wood sides. Unlike the AmazonBasics antenna, the Antop comes with a stand, and it has an easy-push connector for faster setup. These features go some ways towards justifying the Antop's higher price tag.
@@ -157,6 +135,13 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -174,14 +159,11 @@ Lifewire / Erika Rawes
 * Ports  Coax
 * Cable length  10-foot Coax Cable
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -192,43 +174,17 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-beam-brighter-adopting-the-playful-cartoon-lens-on-snapchat/"><u>[New] 2024 Approved Beam Brighter Adopting the Playful Cartoon Lens on Snapchat</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-screensnap-win10-top-quality-recorder/"><u>[New] ScreenSnap Win10 - Top Quality Recorder</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-expert-tips-implement-borders-on-instagram-media/"><u>[Updated] Expert Tips Implement Borders on Instagram Media</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-unlocking-your-instagrams-virtual-meet-up-potential/"><u>[Updated] Unlocking Your Instagram's Virtual Meet-Up Potential</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-soundpeats-headphones-with-exceptional-noise-cancellation-and-long-lasting-battery-life-in-depth-review/"><u>Affordable Soundpeats Headphones with Exceptional Noise Cancellation & Long-Lasting Battery Life - In-Depth Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/beginner-friendly-gaming-meets-health-discover-how-nintendo-systems-can-boost-your-workout-routine/"><u>Beginner-Friendly Gaming Meets Health: Discover How Nintendo Systems Can Boost Your Workout Routine</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/choosing-the-right-frame-rate-comparing-30fps-vs-60fps-video-quality-on-smartphones/"><u>Choosing the Right Frame Rate: Comparing 30Fps vs 60Fps Video Quality on Smartphones</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/classical-harmony-at-your-fingertips-discover-how-your-library-access-transforms-you-into-netflixs-premier-music-enthusiast/"><u>Classical Harmony at Your Fingertips: Discover How Your Library Access Transforms You Into Netflix's Premier Music Enthusiast</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/deceptive-deals-alert-how-fire-tv-can-convince-you-to-shell-out-cash-for-allegedly-gratis-programs/"><u>Deceptive Deals Alert: How Fire TV Can Convince You to Shell Out Cash for Allegedly Gratis Programs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/efficiently-manage-xbox-series-xs-storage-top-tips-for-optimal-gaming-experience/"><u>Efficiently Manage Xbox Series X|S Storage - Top Tips for Optimal Gaming Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elevate-your-listening-pleasure-with-explosive-features-in-our-revolutionary-spotify-client-hack/"><u>Elevate Your Listening Pleasure with Explosive Features in Our Revolutionary Spotify Client Hack!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/enhance-mobile-shots-creatively-discover-the-power-of-contrast-and-analysis-for-stunning-results/"><u>Enhance Mobile Shots Creatively: Discover the Power of Contrast & Analysis for Stunning Results!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/escape-the-shovelware-pitfall-smart-strategies-for-discovering-quality-titles-on-the-switch-store/"><u>Escape the Shovelware Pitfall: Smart Strategies for Discovering Quality Titles on the Switch Store</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evolving-streaming-service-how-netflix-is-phasing-out-its-entry-level-plan/"><u>Evolving Streaming Service: How Netflix Is Phasing Out Its Entry-Level Plan</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/fps-matters-in-mobile-filmmaking-is-30-or-60-fps-ideal-for-phone-videos/"><u>FPS Matters in Mobile Filmmaking: Is 30 or 60 FPS Ideal for Phone Videos?</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/free-avi-to-mp4-conversion-tools-for-pc-and-mac-top-picks/"><u>Free AVI to MP4 Conversion Tools for PC and Mac: Top Picks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/from-novices-to-enthusiasts-a-guide-to-making-everyone-love-video-games/"><u>From Novices to Enthusiasts: A Guide to Making Everyone Love Video Games</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/guide-saving-your-favorite-twitch-streams-by-downloading-past-broadcasts/"><u>Guide: Saving Your Favorite Twitch Streams by Downloading Past Broadcasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-does-amazon-music-prime-compare-with-amazon-music-unlimited-understanding-key-distinctions/"><u>How Does Amazon Music Prime Compare with Amazon Music Unlimited: Understanding Key Distinctions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-i-mastered-crafting-an-intricate-3d-printed-plane-and-what-others-are-doing-too/"><u>How I Mastered Crafting an Intricate 3D Printed Plane - And What Others Are Doing Too!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-to-adjust-video-playback-velocity-in-your-plex-media-player/"><u>How to Adjust Video Playback Velocity in Your Plex Media Player</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-nokia-c22-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Nokia C22 | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-iphone-14-plus-without-face-id-by-drfone-ios-unlock-ios-unlock/"><u>How to Unlock iPhone 14 Plus without Face ID</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/hulu-disneyplus-and-espnplus-announce-price-jumps-for-subscribers-in-latest-update/"><u>Hulu, Disney+, and ESPN+ Announce Price Jumps for Subscribers in Latest Update</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-itel-a60s-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Itel A60s Device SIM</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-phone-number-from-your-apple-id-on-your-apple-iphone-6s-by-drfone-ios/"><u>In 2024, How To Remove Phone Number From Your Apple ID on Your Apple iPhone 6s?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/introducing-googles-innovative-smart-home-device-a-streaming-box-and-hub-combined/"><u>Introducing Google's Innovative Smart Home Device: A Streaming Box and Hub Combined</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-paying-more-for-amazons-prime-reading-beneficial-compared-to-free-kindle-unlimited/"><u>Is Paying More for Amazon's Prime Reading Beneficial Compared to Free Kindle Unlimited?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-the-pre-release-game-worth-your-money-essential-tips-on-assessing-early-access-titles/"><u>Is the Pre-Release Game Worth Your Money? Essential Tips on Assessing Early Access Titles</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leveraging-chatgpt-as-an-alternative-dm-tool-in-tabletop-gaming-a-practical-guide/"><u>Leveraging ChatGPT as an Alternative DM Tool in Tabletop Gaming - A Practical Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximize-your-gaming-experience-capturing-endless-screenshots-and-recording-epic-moments/"><u>Maximize Your Gaming Experience: Capturing Endless Screenshots & Recording Epic Moments</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/password-sharing-restrictions-on-disneyplus-set-to-launch-this-june/"><u>Password Sharing Restrictions on Disney+ Set to Launch This June</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/pozzolanic-materials-like-silica-fume-or-fly-ash-densify-the-concrete-matrix-enhancing-strength-and-impermeability/"><u>Pozzolanic Materials Like Silica Fume or Fly Ash Densify the Concrete Matrix, Enhancing Strength and Impermeability.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/preparing-for-the-games-expected-rise-in-peacock-subscription-fees-pre-olympics/"><u>Preparing for the Games: Expected Rise in Peacock Subscription Fees Pre-Olympics</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/protecting-your-smartphone-during-an-eclipse-tips-and-techniques/"><u>Protecting Your Smartphone During an Eclipse: Tips & Techniques</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/revolutionize-your-unboxings-proven-tactics-to-impress-on-instagram-for-2024/"><u>Revolutionize Your Unboxings Proven Tactics to Impress on Instagram for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/spring-arrival-tivo-smart-tvs-set-to-hit-american-markets/"><u>Spring Arrival: TiVO Smart TVs Set to Hit American Markets</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/stealth-gaming-effective-ways-to-keep-your-steam-activity-private/"><u>Stealth Gaming: Effective Ways to Keep Your Steam Activity Private</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-return-of-nostalgia-nomad-redefines-modern-travel-with-classic-passport-wallets/"><u>The Return of Nostalgia: Nomad Redefines Modern Travel with Classic Passport Wallets</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-jumpstart-to-joyous-animation-a-guide-in-movie-maker-world/"><u>[New] Jumpstart to Joyous Animation A Guide in Movie Maker World</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-sonic-artistry-and-video-prowess-in-sonys-xperia-xz/"><u>[Updated] Sonic Artistry and Video Prowess in Sony's Xperia XZ</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-eliminate-youtube-short-headaches-with-these-tips/"><u>2024 Approved Eliminate YouTube Short Headaches with These Tips</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-tactics-for-handling-youtubes-copyright-strikes-effectively/"><u>2024 Approved Tactics for Handling YouTube's Copyright Strikes Effectively</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apples-ipad-pro-versus-microsofts-surface-pro-how-do-they-stack-up/"><u>Apple's iPad Pro versus Microsoft's Surface Pro - How Do They Stack Up?</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comprehensive-apple-ipad-mini-5-analysis-unveiling-the-compact-dynamo/"><u>Comprehensive Apple iPad Mini 5 Analysis: Unveiling the Compact Dynamo</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-samsung-galaxy-tab-s4-analysis-your-ultimate-guide-to-a-top-tier-android-tablet/"><u>Comprehensive Samsung Galaxy Tab S4 Analysis - Your Ultimate Guide to a Top-Tier Android Tablet</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-nokia-xr21-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Nokia XR21? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-usb-wi-fi-dongles-for-seamless-internet-connectivity/"><u>Leading USB Wi-Fi Dongles for Seamless Internet Connectivity</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolving-code-vein-game-lag-effective-solutions-and-tips/"><u>Resolving Code Vein Game Lag: Effective Solutions & Tips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rev-up-your-playtime-in-depth-look-at-holy-stones-cartoon-rc-race-car-for-the-whole-family/"><u>Rev Up Your Playtime: In-Depth Look at Holy Stone's Cartoon RC Race Car for the Whole Family</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unexpected-joy-in-off-world-construction-how-mars-urban-missteps-became-a-vortex-of-vibrance/"><u>Unexpected Joy in Off-World Construction: How Mars' Urban Missteps Became a Vortex of Vibrance</u></a></li>
 </ul></div>
+

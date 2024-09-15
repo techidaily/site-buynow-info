@@ -1,7 +1,7 @@
 ---
 title: "Value for Money with OnePlus Nord N100: Detailed Review and Insights"
-date: 2024-08-03T23:04:33.535Z
-updated: 2024-08-04T23:04:33.535Z
+date: 2024-09-12T16:54:23.122Z
+updated: 2024-09-15T16:18:58.972Z
 categories:
   - BestProducts
 description: "This Article Describes Value for Money with OnePlus Nord N100: Detailed Review and Insights"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/5962b87511edddba346cb57d7aca143b8c59fba6d
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## LG Gram 17
 
 ![LG Gram 17](https://www.lifewire.com/thmb/0zpnOrKLwqRRUpo-KPu36eRNdjQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_LG-Gram-17-Inch-Thin-Laptop-1-26891b187a0c4260bbbe391a08f0e413.jpg)
@@ -42,10 +39,6 @@ Lifewire / Jonno Hill
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ## LG Gram 17
 
 ![LG Gram 17](https://www.lifewire.com/thmb/Brkak7eYiULoHYDHouNlQuk3toQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_LG-Gram-17-Inch-Thin-Laptop-1-26891b187a0c4260bbbe391a08f0e413.jpg)
@@ -79,9 +72,6 @@ Lifewire / Jonno Hill
 
  LG further supports this laptop with a better than average suite of specs, including an 8th gen i7-8565 processor, 512GB SSD, and 16GB of RAM. This laptop unsurprisingly omits a discrete graphics card in its slender 0.7-inch thick frame, so don’t plan on doing any gaming or similarly heavy graphics work, but it should otherwise stand up to just about any task.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![LG Gram 17](https://www.lifewire.com/thmb/bPwgN393oESXdTRdBMHH9_o-50k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-17-Inch-Thin-Laptop-4-65036fddfdad4e9c904b1e4388426085.jpg)
 
  Lifewire / Jonno Hill
@@ -98,9 +88,6 @@ Lifewire / Jonno Hill
 
  Finally, the fingerprint sensor, located directly on the power button on the top right corner of the keyboard, performed fairly well in our tests. This placement, although precarious in theory, didn’t cause any mishaps during our testing. This placement is actually somewhat advantageous—if you turn on the laptop using a finger registered to the fingerprint sensor, it wakes straight into Windows seamlessly without even hitting the login prompt.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![LG Gram 17](https://www.lifewire.com/thmb/NZFtzU5S2IX_YcC_7X7i2oB0j1o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-17-Inch-Thin-Laptop-2-d528eacd17e849099026bd1df6142200.jpg)
 
  Lifewire / Jonno Hill
@@ -112,6 +99,13 @@ Lifewire / Jonno Hill
  Once you’ve completed setup, you’ll be introduced to the LG Update Center, designed to handle both Windows updates and updates to LG’s software on the laptop. Thankfully, this software is very discreet and hands-off, not overstepping its intended purpose. LG is very light on 3rd party software bundled with the laptop, containing only a handful of bespoke applications which we will cover in greater detail in the Software section. Suffice it to say, there is a lot less bloatware than we normally find on laptops.
 
 ![LG Gram 17](https://www.lifewire.com/thmb/mt69Vhar3JM30uFdBWA58_wPdYg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-17-Inch-Thin-Laptop-5-f2352e95cadc4e2b99d738b0238fb7bf.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
@@ -133,46 +127,58 @@ Lifewire / Jonno Hill
 
  We did nonetheless test the LG Gram 17 in some less demanding games, such as Slay the Spire, a roguelike card game with relatively undemanding graphics. We were able to play the game, but definitely noted some lag that made gameplay a little less pleasant.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![LG Gram 17](https://www.lifewire.com/thmb/4DSmBdI2ZVvCXO9PXT1iEnSCRxM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-17-Inch-Thin-Laptop-6-5381cd4656aa4307ba017acf8ce77c4b.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Productivity** :**The Gram’s sweet spot**
 
  Having 16GB of Memory and a 512GB SSD makes the Gram a great choice for productivity purposes. We had no problem working with many browser windows open at the same time and switching back and forth between different applications. Shoppers looking to find a laptop with ample screen real estate and the specs necessary to deliver good performance now and into the future will be pleased with what the LG Gram 17 offers.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Audio** :**Sorry, what was that?**
 
  The[speakers](https://www.lifewire.com/all-about-speakers-4125129) on The LG Gram 17 are an afterthought at best, offering meek sounding audio originating from ill-placed speaker grills on the bottom. To make matters worse, these speakers are easily covered and muffled when it sits on your lap. Even when the stars aligned and we happened to leave the speakers unobstructed, we weren’t impressed by the sound offered. In short, get ready to use headphones or external speakers, and don’t plan on having any movie viewing parties with it either.
 
  Keep in mind though that while watching most standard 16:9 content, you aren’t taking advantage of all 17 inches of the display, and will see black bars on the top and bottom.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Network** :**Everything you’d expect**
 
  Wi-Fi on the LG Gram 17 gave us no trouble, offering a strong signal and speeds in any of the public and private environments we tested in. LG uses the Intel Wireless AC 9560 Wi-Fi adapter, the fastest of such chips currently on offer from Intel. This Wi-Fi adapter has a theoretical max speed of 1.73Gbps and offers a 2x2 antenna configuration, though you’re unlikely to ever hit such a high download speed.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Camera** :**Bare minimum**
 
  The 720p webcam on the LG Gram 17 is nothing to write home about, and probably won’t be the platform you use for taking your next headshot or dating profile picture. The camera has a tendency to blow out the background in an attempt to keep the subject in focus, and there is a plainly visible amount of noise in the image even in generous daylight conditions. Nonetheless, it will serve fine for teleconferencing purposes.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![LG Gram 17](https://www.lifewire.com/thmb/Q5UD3HDcQsoXbP-_uvKqYsR9J6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram-17-Inch-Thin-Laptop-3-de338d995c0544ee8052e30def24ad5f.jpg)
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery** :**Beyond plentiful**
 
@@ -197,8 +203,12 @@ Lifewire / Jonno Hill
  At an MSRP of $1,700, the LG Gram 17 is not particularly affordable, and even less so when compared to similar options in the market. For this price, we would normally expect to get a discrete graphics card and the expanded possibilities that come with it. The premium you are paying for in this case isn’t sheer price-to-performance but portability and form factor. On these fronts, the LG Gram 17 definitely shines.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **LG Gram 17 vs. ASUS VivoBook Pro 17**
 
  These two laptops share very little in common other than both having 17-inch displays and the same Intel processor. The VivoBook has a lower resolution (1920 x 1080 versus 2560 x 1600) display, larger bezels, chunkier body, smaller battery, and weighs over 50 percent more (4.6 versus 2.95 pounds). The VivoBook, on the other hand, has an Nvidia GTX 1050 graphics card and costs far less ($1,099 vs $1,699).
@@ -232,14 +242,11 @@ Lifewire / Jonno Hill
 * Warranty  1 Year Limited
 * Platform  Window 10 Home
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -247,3 +254,23 @@ Lifewire / Jonno Hill
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/updated-10-innovative-screencasting-solutions-for-modern-teachers-for-2024/"><u>[Updated] 10 Innovative Screencasting Solutions for Modern Teachers for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-vimeo-profile-picture-constraints-for-2024/"><u>[Updated] Vimeo Profile Picture Constraints for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-guides-on-creating-cost-free-youtube-beginnings-and-conclusions/"><u>2024 Approved Guides on Creating Cost-Free YouTube Beginnings & Conclusions</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-high-quality-fb-vids-on-demand/"><u>2024 Approved High-Quality FB Vids on Demand</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-shape-shifting-pics-with-top-editors-help/"><u>2024 Approved Shape-Shifting Pics with Top Editors' Help</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessment-guide-deciding-if-an-ipad-is-right-for-you/"><u>Assessment Guide: Deciding if an iPad Is Right for You</u></a></li>
+<li><a href="https://games-able.techidaily.com/decoding-dxvk-and-its-benefits-for-wingaming-enthusiasts/"><u>Decoding DXVK and Its Benefits for WinGaming Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-handheld-realm-with-nintendos-cost-effective-switch-lite-model/"><u>Exploring the Handheld Realm with Nintendo's Cost-Effective Switch Lite Model</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-does-the-philips-hf3505-stand-up-to-traditional-alarm-clocks-an-insightful-product-analysis/"><u>How Does the Philips HF3505 Stand Up to Traditional Alarm Clocks? An Insightful Product Analysis</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-honor-magic-5-pro-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Honor Magic 5 Pro Quickly? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-toshiba-55lf711u20-the-ultimate-television-for-prime-video-lovers/"><u>In-Depth Look at the Toshiba 55LF711U20 - The Ultimate Television for Prime Video Lovers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/key-factors-to-assess-when-purchasing-an-off-contract-mobile-device/"><u>Key Factors to Assess When Purchasing an Off-Contract Mobile Device</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/quick-start-converting-transport-stream-ts-to-mp4-using-ffmpeg-for-beginners/"><u>Quick Start: Converting Transport Stream (TS) to MP4 Using FFmpeg for Beginners</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-power-in-the-portable-42x-optical-zoom-meets-sx420/"><u>The Power in the Portable: 42X Optical Zoom Meets SX420</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/windows-woes-no-more-achieve-perfect-harmony-between-your-device-driver-and-os-for-a-smooth-gaming-experience/"><u>Windows Woes No More - Achieve Perfect Harmony Between Your Device Driver and OS for a Smooth Gaming Experience</u></a></li>
+</ul></div>
+

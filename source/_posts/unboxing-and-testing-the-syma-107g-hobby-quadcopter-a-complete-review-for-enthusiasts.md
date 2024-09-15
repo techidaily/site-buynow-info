@@ -1,7 +1,7 @@
 ---
 title: "Unboxing and Testing the Syma 107G Hobby Quadcopter: A Complete Review for Enthusiasts"
-date: 2024-08-03T23:04:31.732Z
-updated: 2024-08-04T23:04:31.732Z
+date: 2024-09-08T19:58:59.173Z
+updated: 2024-09-15T18:35:04.059Z
 categories:
   - BestProducts
 description: "This Article Describes Unboxing and Testing the Syma 107G Hobby Quadcopter: A Complete Review for Enthusiasts"
@@ -13,14 +13,8 @@ thumbnail: https://thmb.techidaily.com/c2838348b746990136e05e229d4b40bfea769dde8
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## AmazonBasics Ultra-Thin Antenna
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/rS-RQyeAxU8gdzYheTg1qi5PFEY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
 
 Lifewire / Erika Rawes
@@ -68,10 +62,6 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -80,9 +70,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## **Setup: Relatively easy**
 
  Setting up the antenna is pretty straightforward. You start by plugging one end of the coaxial cable into the antenna, and then the other end to the coaxial/antenna-in connector to your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) .
@@ -91,24 +78,31 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  Next, you change your TV to the correct input (usually TV, antenna, or Coax). Then, go to your TV’s menus and start the auto-programming process, which[scans for available channels](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) . The process takes a few minutes, and sometimes your TV won’t start to locate channels until about halfway through the auto-programming process.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels (in a rural area)**
 
  So many things[affect an antenna’s performance](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) —location, household electronics, tree cover, tower location, and more. The antenna displays channels of high quality. However, sometimes the channels would take a few seconds to load, and other times, I’d see a pixelated effect when I first changed the channel that would clear up after a few seconds. Once the picture was fully loaded, it was in clear high definition. The antenna is capable of displaying a clear HD picture, so I couldn’t tell the difference between the antenna’s picture and the picture from streaming services like Hulu or Netflix.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: 35 miles**
 
@@ -124,12 +118,15 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
  The Antop AT-127 (see[online](https://www.lowes.com/pd/ANTOP-Omni-Directional-Indoor-HD-UHF-VHF-TV-Antenna/1000503257?) ) is a 40-mile range antenna that sells for around $35\. It’s one of the better-looking antennas I’ve seen, as it’s reversible with faux light wood and dark wood sides. Unlike the AmazonBasics antenna, the Antop comes with a stand, and it has an easy-push connector for faster setup. These features go some ways towards justifying the Antop's higher price tag.
@@ -156,14 +153,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 * Ports  Coax
 * Cable length  10-foot Coax Cable
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -171,3 +165,24 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-methods-for-subtle-audio-softening-with-lumafusion/"><u>[Updated] 2024 Approved Methods for Subtle Audio Softening with Lumafusion</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-twitterize-your-tiktok-posts/"><u>[Updated] In 2024, Twitterize Your TikTok Posts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unraveling-vloggers-terrors-and-techniques-to-triumph/"><u>[Updated] Unraveling Vloggers' Terrors and Techniques to Triumph</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/consistent-nutrition-with-the-petsafe-six-course-automatic-food-dispenser/"><u>Consistent Nutrition with the PetSafe Six-Course Automatic Food Dispenser</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-perfection-with-apples-latest-innovation-series-4-unleashed/"><u>Experience Perfection with Apple's Latest Innovation: Series 4 Unleashed</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-make-the-most-of-your-apple-iphone-xs-max-lock-screen-with-notifications-drfone-by-drfone-ios/"><u>In 2024, How to Make the Most of Your Apple iPhone XS Max Lock Screen with Notifications? | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-methods-to-transfer-from-apple-iphone-14-to-android-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Methods to Transfer from Apple iPhone 14 to Android | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-youtube-to-igtv-migration-step-by-step-guide/"><u>In 2024, YouTube-to-IGTV Migration Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-ankers-super-bright-tactical-lamp-the-go-to-gear-for-rugged-expeditions/"><u>In-Depth Review of Anker's Super Bright Tactical Lamp - The Go-To Gear for Rugged Expeditions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-choices-in-mobile-tech-is-iphone-or-android-more-compatible-with-your-lifestyle/"><u>Navigating Choices in Mobile Tech: Is iPhone or Android More Compatible With Your Lifestyle?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/optimal-positioning-guide-setting-up-your-ps4-webcam/"><u>Optimal Positioning Guide: Setting Up Your PS4 Webcam</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/reset-itunes-backup-password-of-iphone-12-prevention-and-solution-by-drfone-ios/"><u>Reset iTunes Backup Password Of iPhone 12 Prevention & Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/slaac-vulnerabilities/"><u>SLAAC Vulnerabilities</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/ultimate-guide-troubleshooting-a-non-responsive-mouse-on-your-computer/"><u>Ultimate Guide: Troubleshooting a Non-Responsive Mouse on Your Computer</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/understanding-mpeg-4-and-mp4-unveiling-their-differences-similarities-and-interconnections-for-seo-professionals/"><u>Understanding MPEG-4 and MP4: Unveiling Their Differences, Similarities, and Interconnections for SEO Professionals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-convenience-the-ultimate-review-on-eufys-video-doorbell-t8200-without-subscriptions/"><u>Unlocking Convenience: The Ultimate Review on Eufy's Video Doorbell (T8200) without Subscriptions</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "Unboxing the Fresh Acer R11 Chrombook: Design & Features Analyzed"
-date: 2024-08-03T23:04:34.428Z
-updated: 2024-08-04T23:04:34.428Z
+date: 2024-09-11T21:36:39.860Z
+updated: 2024-09-15T20:43:27.964Z
 categories:
   - BestProducts
 description: "This Article Describes Unboxing the Fresh Acer R11 Chrombook: Design & Features Analyzed"
@@ -65,34 +65,27 @@ Lifewire / Rebecca Isaacs
 
  Everyone loves zombies, but there are so many zombie shooters, it can be hard to tell them apart. But when we played 7 Days to Die, we jumped for joy and grabbed our digital cricket bats, fully prepared to go full Shaun of the Dead on hordes of the undead. A game loosely based around a nuclear fallout that ends with the fall of civilization and the spawning of undead, hungry friends sounds like a good time. Racking up over 500 hours on the game, we’ve tested it across four major alpha updates, taking note of gameplay, plot, ease of use, and price. Read on to find out our thoughts.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![7 Days to Die](https://www.lifewire.com/thmb/MW5wYA5ujBjG5LdXn-w9bTJd5WQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-2-a59091cd21c04d99a42270199349fc2a.jpg)
 
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## **Setup Process: Easy thanks to Steam**
 
  7 Days to Die for PC can be located on Steam, making it easy to set up. It takes a little while to download, but once it boots up, you’re in. You’ll press the “New Game” button and you’ll need to create a new character, which is easy if you choose one of the preset characters from the list. If you’d like to make a unique character, it’s easy with a creation system similar to Skyrim. Everything, down to the very arch on the eyebrows, is customizable.
 
  One of the nicest aspects about 7 Days is that when you boot up a game, and even after, you have a plethora of options to customize gameplay. Do you want Scavenger (easiest setting) or do you want to play on the hardest settings in which the game actually tells you, “You’re one bad mother!”? Do you want the 24-hour cycle to span 30 minutes or two hours of real time? Do you want zombies to sprint at night? How many zombies do you want in your day 7 horde? These are all great options for creating unique and challenging gameplay.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![7 Days to Die](https://www.lifewire.com/thmb/Eq0YCIdbj82yj3lOCWEdZS7jX6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-4-341174c3997543728bd2b024c6e2a309.jpg)
 
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Plot: Open world horror sandbox**
 
  When you first begin gameplay, it takes about 20 seconds for it to boot up, and then you’re gasping, holding your bare hands out before you, drinking in the landscape of one of five biomes: snow, forest, desert, wasteland, and burnt.
@@ -105,10 +98,14 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  The other, titular part of the plot: every seven days, a zombie horde descends upon you. They know your location. They will find you and claw their way to you, and you have to fend yourself and your base from them. As the 7 days pass, they get harder to defeat. Our understanding is that the end goal of 7 Days is to add a story, but right now they’re focused on honing in general gameplay. We hope that the story will be optional since as a survival horror sandbox, it works very well.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![7 Days to Die](https://www.lifewire.com/thmb/U2XChOqkiQvFhP69V0cQ5mYcYME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-3-d19d9b4d19734cffb022d6e0db90382e.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -135,8 +132,18 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Graphics: Outdated, but detailed on optimal**
 
  For a game that was released in 2013 originally, the graphics could be a little better, even if you play on optimal settings. Back in the day, we played on lower settings rather than splurge on a fancy graphics card. If you play on the lower settings, it’s cringeworthy, though not as cringeworthy as the Witcher 3’s lowest settings.
@@ -151,9 +158,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Last time we checked, the company that owned all console rights, Telltale, went bust, and The Fun Pimps (the developer) were in legal limbo trying to reacquire their own rights. There’s a good chance that there will not be an update in the console versions of the game anytime soon as this issue makes its way through the courts. Therefore, we strongly recommend that you purchase the PC version if you decide this is a game you might like to try.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ## **Price: Average for an alpha game**
 
  At around $25, 7 Days isn’t the most expensive zombie game on the market. However, it is the most expensive alpha zombie game out there. Because you can purchase it on[Steam](https://www.lifewire.com/what-is-steam-4177380) or Humble Bumble, we recommend waiting for a Steam sale and getting it for a discount, especially since it’s still in progress. This way, if you decide you don’t like it in the future, you aren’t out the full price.
@@ -171,8 +175,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  Despite flaws in graphics, there’s a lot to love about 7 Days to Die. The challenging skill tree system and dangerous intelligent zombies add an element that’s not typically found in zombie shooters. If you want a game to commit to for hours on end, building bases and exploring dungeon-like homes while slaying zombie cheerleaders, then 7 Days to Die could be a fun way to ease some stress after a long day of work.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * The Last of Us Remastered
@@ -191,14 +199,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Graphics  1 GB Dedicated Memory
 * Game Updates  Alpha 17.4 out; Alpha 18 Announced
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -206,3 +211,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/updated-full-screen-feature-on-facebook-what-you-need-to-know/"><u>[Updated] Full-Screen Feature on Facebook What You Need to Know</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-boost-your-game-strategy-experience-the-best-free-voice-transformer-today/"><u>[Updated] In 2024, Boost Your Game Strategy Experience the Best Free Voice Transformer Today</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-top-8-youtube-rankers-for-content-optimization-revealed/"><u>2024 Approved Top 8 YouTube Rankers for Content Optimization Revealed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-conscious-pets-top-reviews-on-smart-cameras/"><u>Budget-Conscious Pets: Top Reviews on Smart Cameras</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-a-must-see-list-of-youtubes-top-makeup-talent-for-2024/"><u>Curating a Must-See List of YouTube's Top Makeup Talent for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-poco-c65-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Poco C65 Phone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-usb-wi-fi-dongles-for-seamless-internet-connectivity/"><u>Leading USB Wi-Fi Dongles for Seamless Internet Connectivity</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/maximizing-business-potential-8-innovative-uses-of-chatgpt/"><u>Maximizing Business Potential: 8 Innovative Uses of ChatGPT</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rev-up-your-playtime-in-depth-look-at-holy-stones-cartoon-rc-race-car-for-the-whole-family/"><u>Rev Up Your Playtime: In-Depth Look at Holy Stone's Cartoon RC Race Car for the Whole Family</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-intricate-tale-of-nixplays-photo-frames-highlights-and-hindrances/"><u>The Intricate Tale of Nixplay's Photo Frames: Highlights and Hindrances</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-rated-heat-conductive-pastes-a-buyers-guide/"><u>Top-Rated Heat Conductive Pastes : A Buyer's Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unexpected-joy-in-off-world-construction-how-mars-urban-missteps-became-a-vortex-of-vibrance/"><u>Unexpected Joy in Off-World Construction: How Mars' Urban Missteps Became a Vortex of Vibrance</u></a></li>
+</ul></div>
+

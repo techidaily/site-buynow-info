@@ -1,7 +1,7 @@
 ---
 title: Is the Samsung Galaxy A71 5G Your Best Bet? Comparing Flagship Features with This Value Powerhouse
-date: 2024-08-03T23:04:31.572Z
-updated: 2024-08-04T23:04:31.572Z
+date: 2024-09-08T16:52:31.152Z
+updated: 2024-09-15T18:52:22.572Z
 categories:
   - BestProducts
 description: This Article Describes Is the Samsung Galaxy A71 5G Your Best Bet? Comparing Flagship Features with This Value Powerhouse
@@ -13,14 +13,8 @@ thumbnail: https://www.lifewire.com/thmb/bC894O_rwGNJtXRbNMWzoAtnLFw=/400x300/fi
 
 3.8
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ## Withings Withings Move Hybrid Smartwatch
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ![Withings Move](https://www.lifewire.com/thmb/lRf4MewZgHR7jJoirox43xON-Ds=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4161013-1-a308b649704344f6b5fd15dc900e5742.jpg)
 
 Lifewire / Yoona Wagener
@@ -45,14 +39,8 @@ Lifewire / Yoona Wagener
 
 3.8
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Withings Withings Move Hybrid Smartwatch
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ![Withings Move](https://www.lifewire.com/thmb/0q_63hnHYzqQ5_H2Q2RzjXF5Nls=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4161013-1-a308b649704344f6b5fd15dc900e5742.jpg)
 
 Lifewire / Yoona Wagener
@@ -102,9 +90,6 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process** :**As easy as 1-2-3**
 
  Given such a simple and clean design, it’s natural to expect the setup process to be the same. We found that to be the case.
@@ -115,9 +100,6 @@ Lifewire / Yoona Wagener
 
  First, we paired the Withings Move with our phone via Bluetooth, which was instantaneous. Next, we provided profile information for better activity metrics, downloaded an update, made sure the watch dials were working and the time was set correctly, and we were good to go.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Comfort: Light as a feather, even while sleeping**
 
  Some watches can feel heavy by the end of the day, but we didn’t encounter that weighed-down feeling with the Withings Move. The watch is really lightweight and the band is soft, flexible, and slim, which made sleeping with it a non-issue. It was also easy to achieve a good fit—especially for smaller wrists—thanks to the plentiful notches and the tab to keep the band in place.
@@ -130,9 +112,6 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Performance: Limited activity tracking**
 
  While hybrid smartwatches like the Withings Move offer ease of use and versatility with your wardrobe and daily wear, they’re limited when it comes to tracking performance. Some activities are automatically recorded: walking, running, hiking, and swimming. With outdoor exercising, you can also track distance and elevation with the connected GPS feature.
@@ -147,9 +126,6 @@ Lifewire / Yoona Wagener
 
  We also tested the water-resistance while washing dishes and in the shower. The Withings Move is water-resistant up to 50 meters, which, according to the manufacturer, makes it acceptable for lap swimming, splashing, and dishwashing. Even though we didn’t put it to the depth test, it held up to submersion in soapy water and never missed a beat.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Withings Move](https://www.lifewire.com/thmb/vaUmI1isQP98tmL8uIZSghmAWGs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-6-259d8034cfb64485be60f9c5754fec79.jpg)
 
  Lifewire / Yoona Wagener
@@ -158,12 +134,23 @@ Lifewire / Yoona Wagener
 
  The Withings Move is reported to have a battery life of up to 18 months, and we really enjoyed that aspect over the week we tested it. Unlike typical smartwatches, we didn’t have to worry about draining the battery and recharging. The internal battery is a typical replaceable watch battery, and the user guide offers directions for removal and replacement when the time comes.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ![Withings Move](https://www.lifewire.com/thmb/02bkMrpkzqBOue1ffhHNfQqaIuk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-4-df866fafd70a44c592e0e06e0ea53ae7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: An emphasis on general wellness**
 
@@ -177,11 +164,31 @@ Lifewire / Yoona Wagener
 
  There are also a number of other supplemental programs you can sign up for through the Health Connect app in order to up your general wellness. Most of these programs, which are free to join, require a specific type of Withings device, but others, like a meditation and pregnancy tracking program, don’t need any additional equipment.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: A bargain for the value**
 
  The Withings Move retails for $69.95, which is an attractive and affordable price for a hybrid smartwatch—most competitors tend to be well above $100\. While these other models, like the Fossil Harper and Fossil Q Commuter, typically come with more functionality like music storage or streaming, notifications, or taking a picture from your phone, there’s also a bigger price associated with those features.
 
  Those looking for a dressier and more substantial watch may find these Fossil models to be better alternatives. Other devices that are comparable in price, like the Fitbit Inspire Fitness Tracker, lack the analog watch qualities and look like designated activity trackers. The Withings Move splits the difference at a modest price.
+
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Withings Move vs. Misfit Phase**
 
@@ -215,11 +222,26 @@ Lifewire / Yoona Wagener
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-direct-conversion-convert-and-upload-mp3-songs-on-youtube-for-2024/"><u>[New] Direct Conversion Convert & Upload MP3 Songs on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-legitimate-techniques-for-video-popularity-surge/"><u>[New] In 2024, Legitimate Techniques for Video Popularity Surge</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-the-ultimate-vsco-photo-workflow-analysis/"><u>[New] In 2024, The Ultimate VSCO Photo Workflow Analysis</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-tutorial-for-adding-gifs-and-emojis-in-instagram-stories-for-2024/"><u>[New] The Ultimate Tutorial for Adding GIFs & Emojis in Instagram Stories for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-compelling-combinations-a-guide-to-creating-your-own-youtube-playlists-for-2024/"><u>Crafting Compelling Combinations A Guide to Creating Your Own YouTube Playlists for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-why-the-linksys-wrt3200acm-is-hailed-as-an-exceptional-open-source-solution/"><u>Discover Why the Linksys WRT3200ACM Is Hailed as an Exceptional Open Source Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/google-pixel-3-assessment-redefining-the-ideal-android-smartphone-journey/"><u>Google Pixel 3 Assessment: Redefining the Ideal Android Smartphone Journey</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-7-best-free-online-youtube-tag-extractors/"><u>In 2024, 7 Best Free Online YouTube Tag Extractors</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-make-a-heartwarming-slideshow-with-pictures-and-songs/"><u>New 2024 Approved Make a Heartwarming Slideshow with Pictures and Songs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/performance-assessment-unveiling-the-powerhouse-that-is-the-asus-zephyrus-g14/"><u>Performance Assessment: Unveiling the Powerhouse That Is the Asus Zephyrus G14</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-netgear-nighthawk-x10-ad7200-router-experience-lightning-fast-internet/"><u>Ultimate Guide to Netgear Nighthawk X10 (AD7200) Router - Experience Lightning-Fast Internet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unbeatable-prime-day-offers-exclusive-apple-bargains/"><u>Unbeatable Prime Day Offers: Exclusive Apple Bargains!</u></a></li>
+</ul></div>
+

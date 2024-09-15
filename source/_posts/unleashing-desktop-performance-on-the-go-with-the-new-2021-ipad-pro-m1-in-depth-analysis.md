@@ -1,7 +1,7 @@
 ---
 title: Unleashing Desktop Performance on the Go with the New 2021 iPad Pro (M1) - In-Depth Analysis
-date: 2024-09-09T14:20:29.690Z
-updated: 2024-09-10T14:20:29.690Z
+date: 2024-09-14T17:55:00.708Z
+updated: 2024-09-15T19:28:30.660Z
 categories:
   - BestProducts
 description: This Article Describes Unleashing Desktop Performance on the Go with the New 2021 iPad Pro (M1) - In-Depth Analysis
@@ -9,12 +9,6 @@ excerpt: This Article Describes Unleashing Desktop Performance on the Go with th
 thumbnail: https://www.lifewire.com/thmb/2lNau3ww959u7f1uaFY9zz3p_Pk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iPadProM12021_hero1-d31fb53ba8a540939f9680ec8453c18d.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Unleashing Power and Savings with the HP OMEN Obelisk Desktop Reviewed
 
 4
@@ -43,22 +37,10 @@ Lifewire / Jonno Hill
 
 4
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## HP Omen Obelisk
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/ltgwwtDrSkLcZMSVU6VX1rKcbaA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_HP-OMEN-Obelisk-Gaming-Desktop-Computer-1-56ba747009334162a328f46d8b4743af.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jonno Hill
 
 [View On Amazon $950](https://www.amazon.com/dp/B07SW895CZ?tag=lifewire-onsite-prod-20&ascsubtag=5072832%7Cnbfa2130ffdd54ba8b950c4ad0f0be8b007%7CB07SW895CZ) [View On Microsoft](https://www.microsoft.com/en-us/p/hp-omen-obelisk-gaming-desktop/8rqn7sf9phfz?activetab=pivot%3aoverviewtab)
@@ -113,6 +95,19 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance** :**Great components for gaming and productivity**
 
  The HP OMEN Obelisk that I tested featured a 9th Gen Intel Core i9 9900K, 32GB of RAM, a 1TB SSD, and the Nvidia GTX GeForce 2080 Super graphics card. This is a potent combination of components in a gaming PC, and I was appropriately impressed by the results.
@@ -121,12 +116,6 @@ Lifewire / Jonno Hill
 
  The Omen comes equipped with a 1TB[NVMe SSD](https://www.lifewire.com/what-is-m2-833453) and 32GB of DDR4 2666 memory. This is definitely more RAM than games alone will call for, but it’s merely an adequate amount of RAM for some creative professionals working with more demanding software like Adobe After Effects. Keep in mind though, even those that don’t normally need a lot of RAM can still benefit from having more. Among other things, it gives you the luxury of keeping all of your browser tabs and background applications running without having to start juggling applications on and off, which can be helpful from a productivity standpoint.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Gaming** :**Great for the most demanding titles**
 
  Gaming performance is great on the HP OMEN Obelisk thanks to the Nvidia GTX GeForce 2080 Super and Intel i9-9900K combo. I tested a number of games on my 3440x1440 monitor to get a sense of performance. To put this in perspective, this resolution is roughly 60 percent of the pixels of a 4K monitor.
@@ -141,20 +130,15 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Network** :**Great speeds, but software that doesn’t do much**
 
  The HP Omen Obelisk has gigabit LAN and a Wi-Fi 5 (2x2) networking, the latter supporting a maximum speed of 866 Mbps. Everything functioned smoothly from a networking standpoint during my tests.
@@ -179,26 +163,15 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/J3cZUfrEy-ALtFpRbDRhw7FZI8M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-4-f78d504d7bd348eca19b7e65b4d10289.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **HP OMEN Obelisk vs Corsair One Pro**
 
  If you want something even smaller, and even more monolithic, the[Corsair One Pro](https://www.lifewire.com/corsair-one-pro-review-5072820) (see on[Corsair](https://www.corsair.com/us/en/Categories/Products/Systems/CORSAIR-ONE/CORSAIR-ONE-PRO-i180-Compact-Workstation-Grade-PC/p/CS-9040001-NA) ) manages to pack a high-end gaming rig in a minuscule 12-liter case, making even the HP OMEN seem large by comparison. It has a very solid construction and manages to fit water cooling for both the CPU and GPU inside its small frame.
@@ -230,14 +203,11 @@ Lifewire / Jonno Hill
 * Network  Wi-Fi 5 (2x2), Gigabit Ethernet, Bluetooth 4.2
 * Warranty  1 year limited
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -248,44 +218,15 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-ultimate-vision-tech-top-5-for-slow-motion/"><u>[New] 2024 Approved Ultimate Vision Tech Top 5 for Slow Motion</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-your-virtual-future-awaits-essential-vr-devices-10/"><u>[New] 2024 Approved Your Virtual Future Awaits Essential VR Devices (10)</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-expertly-curated-list-of-top-9-virtual-mic-recorder-systems-23-for-2024/"><u>[New] Expertly Curated List of Top 9 Virtual Mic Recorder Systems ('23) for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-mastering-memes-top-ten-template-showcase/"><u>[Updated] Mastering Memes Top Ten Template Showcase</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-streaming-to-start-reversing-order-on-your-youtube-watch-list/"><u>2024 Approved Streaming to Start Reversing Order on Your YouTube Watch List</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/antop-at-127-tv-antenna-review/"><u>Antop AT-127 TV Antenna Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-bang-for-your-buck-in-laptops-the-comprehvew-of-the-acer-aspire-e15/"><u>Best Bang for Your Buck in Laptops: The Comprehvew of the Acer Aspire E15</u></a></li>
-<li><a href="https://extra-information.techidaily.com/best-of-the-best-high-res-gaming-displays-for-2024/"><u>Best of the Best High-Res Gaming Displays for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/breakdown-of-the-iphone-xs-max-exceptional-tech-meets-highest-price-bracket/"><u>Breakdown of the iPhone XS Max: Exceptional Tech Meets Highest Price Bracket</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-pioneer-blu-ray-player-bdr-xd05b-highlighting-structural-limitations/"><u>Comprehensive Evaluation of the Pioneer Blu-Ray Player BDR-XD05B: Highlighting Structural Limitations</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-google-wifi-evaluation-the-perfect-all-inclusive-wireless-mesh-network-solution/"><u>Comprehensive Google WIFI Evaluation: The Perfect All-Inclusive Wireless Mesh Network Solution</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-pixelbook-go-by-google-exceptional-performance-meets-high-pricing/"><u>Comprehensive Review of the Pixelbook Go by Google: Exceptional Performance Meets High Pricing</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/essential-fixes-to-get-your-spotify-working-again-on-android-auto/"><u>Essential Fixes to Get Your Spotify Working Again on Android Auto</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-top-rated-halo-jump-starter-the-ultimate-portable-charger-review/"><u>Expert Analysis: Top Rated Halo Jump Starter - The Ultimate Portable Charger Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-the-all-rounder-samsung-galaxy-tab-s4-for-android-enthusiasts/"><u>Expert Review: The All-Rounder Samsung Galaxy Tab S4 for Android Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-features-and-performance-of-the-new-apple-watch-series-9/"><u>Exploring the Features and Performance of the New Apple Watch Series 9</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/family-friendly-amazon-fire-hd-10-tablet-detailed-product-analysis/"><u>Family-Friendly Amazon Fire HD 10 Tablet - Detailed Product Analysis</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/from-earth-to-mars-the-hilarious-saga-of-building-cities-amongst-martian-storms/"><u>From Earth to Mars: The Hilarious Saga of Building Cities Amongst Martian Storms</u></a></li>
-<li><a href="https://os-tips.techidaily.com/how-to-restore-and-fix-broken-android-phones-expert-techniques-for-data-preservation/"><u>How to Restore and Fix Broken Android Phones: Expert Techniques for Data Preservation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/imperator-rome-gaming-guide-mastering-an-empire-through-conflict-or-collapse/"><u>Imperator: Rome Gaming Guide - Mastering An Empire Through Conflict Or Collapse</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-ibuypower-tailored-gamer-rig-exceptional-performance-at-competitive-prices/"><u>In-Depth Analysis of the IBUYPOWER Tailored Gamer Rig: Exceptional Performance at Competitive Prices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-features-and-performance-of-the-samsung-qn55q6f-smart-tv-in-4k-hdr-clarity/"><u>In-Depth Look at the Features and Performance of the Samsung QN55Q6F Smart TV in 4K HDR Clarity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/inadequate-performance-by-tp-links-av1300-wireless-powerline-extender-a-comprehensive-review/"><u>Inadequate Performance by TP-Link's AV1300 Wireless Powerline Extender - A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-a-new-iphone-worth-the-plunge/"><u>Is a New iPhone Worth the Plunge?</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/lullabies-on-a-screen-analysis-of-story-tapes-for-sleep-for-2024/"><u>Lullabies on a Screen Analysis of Story Tapes for Sleep for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/macbook-face-off-detailing-how-air-stands-against-its-pro-counterpart/"><u>MacBook Face-Off: Detailing How Air Stands Against Its Pro Counterpart</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/microsoft-surface-laptop-4-analysis-outstanding-performance-and-innovation/"><u>Microsoft Surface Laptop 4 Analysis: Outstanding Performance & Innovation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/motorola-one-reviewed-an-attractive-budget-friendly-option-against-the-iphone-price-tag/"><u>Motorola One Reviewed: An Attractive, Budget-Friendly Option Against the iPhone Price Tag</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/night-owls-rejoice-unveiling-the-features-and-benefits-of-barnes-and-nobles-nook-glowlight-3-e-reader/"><u>Night Owls Rejoice: Unveiling the Features and Benefits of Barnes & Noble's Nook GlowLight 3 E-Reader</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/pioneering-visual-stunts-from-the-ground-up-for-2024/"><u>Pioneering Visual Stunts From the Ground Up for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/rotibox-wireless-beanie-hat-evaluated-exceptional-comfort-meets-satisfactory-sound-quality/"><u>Rotibox Wireless Beanie Hat Evaluated: Exceptional Comfort Meets Satisfactory Sound Quality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/score-the-ultimate-prime-day-specials-on-apple-products/"><u>Score the Ultimate Prime Day Specials on Apple Products</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sharing-stories/"><u>Sharing Stories</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/simplify-your-pets-diet-routine-using-arfs-innovative-auto-pet-feeder/"><u>Simplify Your Pet's Diet Routine Using Arf’s Innovative Auto Pet Feeder</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sonys-lx310bt-a-sleek-compact-player/"><u>Sony's LX310BT - A Sleek, Compact Player</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-financial-verdict-on-buying-apple-tv/"><u>The Financial Verdict on Buying Apple TV</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ideal-iphone-selection-for-enhanced-mobile-gaming-performance/"><u>The Ideal iPhone Selection for Enhanced Mobile Gaming Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-wireless-routers-with-extended-range/"><u>Top Rated Wireless Routers with Extended Range</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tp-link-av2000-wifi-extender-assessment-high-performance-yet-lacks-aesthetic-appeal/"><u>TP-Link AV2000 WiFi Extender Assessment: High Performance Yet Lacks Aesthetic Appeal</u></a></li>
-<li><a href="https://win-blog.techidaily.com/unlock-the-secret-to-launching-games-effortlessly-verify-your-save-files-today/"><u>Unlock the Secret to Launching Games Effortlessly – Verify Your Save Files Today!</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-techniques-for-enhanced-minecraft-zooms/"><u>[New] Expert Techniques for Enhanced Minecraft Zooms</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-enigmatic-engagements-in-top-escape-venues/"><u>[New] In 2024, Enigmatic Engagements in Top Escape Venues</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ighten-up-your-timeline-youtube-video-trimming-techniques-for-2024/"><u>[New] Tighten Up Your Timeline YouTube Video Trimming Techniques for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-navigating-nearby-areas-for-an-immersive-roblox-experience-for-2024/"><u>[Updated] Navigating Nearby Areas for an Immersive Roblox Experience for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-mass-movement-mastery-the-drone-top-list/"><u>2024 Approved Mass Movement Mastery The Drone Top List</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experts-rate-netatmo-the-ideal-weather-station-for-smartphone-users/"><u>Experts Rate Netatmo: The Ideal Weather Station for Smartphone Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-the-apple-ipad-air-2019-your-ideal-companion-for-multimedia-mastery/"><u>In-Depth Analysis: The Apple iPad Air (2019) - Your Ideal Companion for Multimedia Mastery</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lg-k92-analysis-is-the-5g-upgrade-enough-to-recommend/"><u>LG K92 Analysis: Is the 5G Upgrade Enough to Recommend?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/travel-top-tripod-the-best-in-stability-and-portability/"><u>Travel Top Tripod: The Best in Stability and Portability</u></a></li>
+<li><a href="https://windows11.techidaily.com/unveiling-the-power-of-openais-whisper-on-your-windows-pc/"><u>Unveiling the Power of OpenAI's Whisper on Your Windows PC</u></a></li>
 </ul></div>
+

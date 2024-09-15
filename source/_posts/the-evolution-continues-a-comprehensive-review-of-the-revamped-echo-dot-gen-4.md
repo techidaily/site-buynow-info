@@ -1,7 +1,7 @@
 ---
 title: "The Evolution Continues: A Comprehensive Review of the Revamped Echo Dot (Gen 4)"
-date: 2024-08-03T23:04:32.525Z
-updated: 2024-08-04T23:04:32.525Z
+date: 2024-09-14T19:44:07.716Z
+updated: 2024-09-15T16:59:58.140Z
 categories:
   - BestProducts
 description: "This Article Describes The Evolution Continues: A Comprehensive Review of the Revamped Echo Dot (Gen 4)"
@@ -39,9 +39,6 @@ Lifewire / Anduy Zahn
 
 4.7
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Fitbit Charge 4 Fitness Tracker
 
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/3KZYnLSyn9OGGXZdp02JH2_4wB8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Fitbit-Charge-4-Fitness-Tracker-1-c163fbceed1748a6bd3de7883ab66a4d.jpg)
@@ -67,9 +64,6 @@ Lifewire / Anduy Zahn
 
  Before testing out the Fitbit Charge 4, I had long been a skeptic of wearable exercise technology. However, after a few weeks with this awesome little device, I’m now a firm believer in its merits as both a means towards achieving a healthier lifestyle and as a minimalist smartwatch. It has succeeded in putting me on the path towards meaningful weight loss where countless diets and New Years' resolutions have failed.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Minimalist masterpiece**
 
  The Fitbit Charge 4 is sleek and stylish with a futuristic flare. The patterned strap is attractive and catches the light in interesting ways. The square screen is practical, but may not appeal to folks who prefer round watches. It feels pretty durable, and it's waterproof down to 50 meters. After a number of rigorous outdoor adventures, it's come through unscathed. The Charge 4 comes with a charging station and both small and large wristbands. It’s easy to swap the wrist bands out, and Fitbit sells a variety of alternative styles.
@@ -78,21 +72,35 @@ Lifewire / Anduy Zahn
 
  A quick press of the button on the side of the watch takes you back to the clock face or turns it on if it fails to show up automatically when you move your wrist (which does happen, albeit infrequently). Hold the button down and you get access to do not disturb, sleep mode, and other functions, as well as[Fitbit Pay](https://www.lifewire.com/how-to-use-fitbit-pay-4582307) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/hXje3GJQ1qjDfhBph7Q2s-LKCTE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-4-Fitness-Tracker-4-5fb3fda3d53d4120bfb7c3e1b418abab.jpg)
 
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup process: Streamlined and straightforward**
 
  My[Samsung Galaxy Note 9](https://www.lifewire.com/samsung-galaxy-note-9-review-4683995) immediately noticed that the Charge 4 was nearby when I powered the smartwatch up, and a tap of the screen of my phone took me to the download page for the app. Once installed, the app guided me through the setup process. You’ve got to enter a bunch of information about yourself, including name, birth date, weight, and gender. Next, the app shows a helpful animation of how to attach the charger. I like the smiley face the device gives you when it starts charging; it’s a small touch, but it gives the Charge 4 a little jolt of personality.
 
  After this, it was time to actually pair the Charge 4 to my phone, and after an annoying Squaretrade “Fitbit protection plan” ad, I needed to install an update. While that was downloading I was given a list of first-time user guides. This was useful, with plenty of information about how to use the device, though I would have preferred a printed manual. After the device is up to date, a further set of animated guides showed me the various controls and gestures used to navigate the Charge 4\. Finally, the app had a few product care tips and another annoying ad (this time for a Fitbit Premium account) and was ready to go.
+
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Comfort: A good fit**
 
@@ -112,26 +120,24 @@ Lifewire / Anduy Zahn
 
  I didn’t find personalized exercise reminders, the workout intensity map, or exercise tracking to be particularly helpful, but that's very much a matter of personal preference. In terms of navigation and functionality, the Charge 4 functions very well without much in the way of lag, and the interface is easy to navigate. The only problem comes when you get below 20% battery. A power-saving mode kicks in at that point and the functionality of the watch drops significantly. You’ll want to charge it before it gets to this point.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/UlCfm0YzhPSZMR3WWRs3oeCWPsA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-4-Fitness-Tracker-2-6afa07ba83e74effb1bd3521b2b43391-3287de2174dc42359f46f06e6576d80b.jpg)
 
 Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: Intuitive but ad infested**
 
  Both the interface of the watch and the companion app for[IOS](https://www.lifewire.com/what-is-ios-1994355) and[Android](https://www.lifewire.com/what-is-google-android-1616887) function nearly flawlessly. Menus are easy to navigate, and data is both in-depth while also being easy to access and analyze. Though the hardware itself is a marvel of design and miniaturization, the software is where the magic happens. The Charge 4 essentially turns weight loss and healthy living into a game, and for me, this is an addictive and rewarding game indeed.
 
  One thing to consider is that some features such as sleep score details and custom challenges are locked behind a steep paywall that will run you $10 a month or $80 per year. It’s pretty easy to set up a subscription like this, never use it, and forget to cancel it until years later when you’ve spent a hefty chunk of change on the service. Annoyingly, the ad for this premium service is permanently affixed to the toolbar in the app.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/wFO4EEqsgPPy2Dq-eUgUTZ1q70A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-4-Fitness-Tracker-3-38e2a0e1ea5a46ee85939b8dec6d6a48.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -140,6 +146,13 @@ Lifewire / Andy Zahn
  The Charge 4 lasts about six days on a charge under typical use, which is better than most advanced smartwatches. It charges quickly and most of the time isn’t something you have to worry about.
 
  However, I did run into a few issues worth mentioning. First of all, when the battery drops below 20% the Charge 4 seems to go into a power-saving mode that limits functionality. Secondly, using features like exercise tracking that use the GPS will drain the battery much more quickly. When I embarked with a full charge on a two-day backpacking trip and set the Charge 4 to record the hike as an exercise it only lasted me through roughly 75% of the two days of trekking.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Good value**
 
@@ -155,9 +168,6 @@ Lifewire / Andy Zahn
 
  I was frankly shocked by how much I have come to like the Fitbit Charge 4\. It’s as functional as it’s good looking, and provides both reasonably accurate fitness tracking and well integrated basic smartwatch functionality. Despite a few minor flaws such as a subscription paywall for some features and battery hogging GPS I can heartily recommend the Charge 4.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Charge 4 Fitness Tracker
@@ -176,11 +186,26 @@ Lifewire / Andy Zahn
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-reddit-experts-briefly-meet-at-snapchat/"><u>[New] In 2024, Reddit Experts Briefly Meet at Snapchat</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-leading-three-cameras-for-ultra-detailed-videography-for-2024/"><u>[New] Leading Three Cameras for Ultra-Detailed Videography for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-imagelogger-screen-logger-xtreme-for-2024/"><u>[Updated] ImageLogger Screen Logger Xtreme for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-waveforms-and-windows-mac-sound-recording-for-2024/"><u>[Updated] Waveforms and Windows Mac Sound Recording for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-comprehensive-fb-messenger-recordings-explained/"><u>2024 Approved Comprehensive FB Messenger Recordings Explained</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/6-proven-ways-to-unlock-motorola-razr-40-ultra-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Motorola Razr 40 Ultra Phone When You Forget the Password</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-leading-macos-sierra-choices-for-file-conversion/"><u>In 2024, Leading MacOS Sierra Choices for File Conversion</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/interactive-guide-install-and-setup-your-blink-outdoor-4-camera/"><u>Interactive Guide: Install & Setup Your Blink Outdoor 4 Camera</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stay-current-with-every-new-iphone-release/"><u>Stay Current with Every New iPhone Release</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/swagboard-t1-by-swagtron-a-review-on-its-quick-movements-and-premium-pricing/"><u>Swagboard T1 by Swagtron: A Review on Its Quick Movements and Premium Pricing</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-huawei-p20-pro-phenomenon-a-dual-win-for-photography-enthusiasts-and-smartphone-lovers/"><u>The Huawei P20 Pro Phenomenon: A Dual Win for Photography Enthusiasts and Smartphone Lovers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-asus-rog-gt-c5300-review-ultimate-wireless-perfection-for-hardcore-gamers-and-gadget-geeks/"><u>Unveiling The Asus ROG GT-C5300 Review: Ultimate Wireless Perfection for Hardcore Gamers & Gadget Geeks</u></a></li>
+</ul></div>
+

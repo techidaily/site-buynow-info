@@ -1,7 +1,7 @@
 ---
 title: "Torment: Tides of Numenera Review: A Sci-Fi RPG Focused on Worldbuilding"
-date: 2024-08-03T23:04:30.759Z
-updated: 2024-08-04T23:04:30.759Z
+date: 2024-09-11T16:16:27.193Z
+updated: 2024-09-15T19:37:32.380Z
 categories:
   - BestProducts
 description: "This Article Describes Torment: Tides of Numenera Review: A Sci-Fi RPG Focused on Worldbuilding"
@@ -13,14 +13,8 @@ thumbnail: https://thmb.techidaily.com/b15acb0e615e51b4bca2cf04ecdca80b947c55215
 
 4
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ## 7 Days to Die
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![7 Days to Die](https://www.lifewire.com/thmb/VJoNxFQndEBfEN4NQeMVjVAovNk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4164252-1-e8b8c3eb31dd46e8a63e8e40a5a9d04b.jpg)
 
 Lifewire / Rebecca Isaacs
@@ -45,9 +39,6 @@ Lifewire / Rebecca Isaacs
 
 4
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ## 7 Days to Die
 
 ![7 Days to Die](https://www.lifewire.com/thmb/mKaiRcg5xaWaOPRj0Ph1dRjUbSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4164252-1-e8b8c3eb31dd46e8a63e8e40a5a9d04b.jpg)
@@ -74,9 +65,6 @@ Lifewire / Rebecca Isaacs
 
  Everyone loves zombies, but there are so many zombie shooters, it can be hard to tell them apart. But when we played 7 Days to Die, we jumped for joy and grabbed our digital cricket bats, fully prepared to go full Shaun of the Dead on hordes of the undead. A game loosely based around a nuclear fallout that ends with the fall of civilization and the spawning of undead, hungry friends sounds like a good time. Racking up over 500 hours on the game, we’ve tested it across four major alpha updates, taking note of gameplay, plot, ease of use, and price. Read on to find out our thoughts.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![7 Days to Die](https://www.lifewire.com/thmb/MW5wYA5ujBjG5LdXn-w9bTJd5WQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-2-a59091cd21c04d99a42270199349fc2a.jpg)
 
  Lifewire / Rebecca Isaacs
@@ -87,16 +75,17 @@ Lifewire / Rebecca Isaacs
 
  One of the nicest aspects about 7 Days is that when you boot up a game, and even after, you have a plethora of options to customize gameplay. Do you want Scavenger (easiest setting) or do you want to play on the hardest settings in which the game actually tells you, “You’re one bad mother!”? Do you want the 24-hour cycle to span 30 minutes or two hours of real time? Do you want zombies to sprint at night? How many zombies do you want in your day 7 horde? These are all great options for creating unique and challenging gameplay.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![7 Days to Die](https://www.lifewire.com/thmb/Eq0YCIdbj82yj3lOCWEdZS7jX6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-4-341174c3997543728bd2b024c6e2a309.jpg)
 
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Plot: Open world horror sandbox**
 
  When you first begin gameplay, it takes about 20 seconds for it to boot up, and then you’re gasping, holding your bare hands out before you, drinking in the landscape of one of five biomes: snow, forest, desert, wasteland, and burnt.
@@ -149,12 +138,16 @@ Lifewire / Rebecca Isaacs
 
  Last time we checked, the company that owned all console rights, Telltale, went bust, and The Fun Pimps (the developer) were in legal limbo trying to reacquire their own rights. There’s a good chance that there will not be an update in the console versions of the game anytime soon as this issue makes its way through the courts. Therefore, we strongly recommend that you purchase the PC version if you decide this is a game you might like to try.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: Average for an alpha game**
 
  At around $25, 7 Days isn’t the most expensive zombie game on the market. However, it is the most expensive alpha zombie game out there. Because you can purchase it on[Steam](https://www.lifewire.com/what-is-steam-4177380) or Humble Bumble, we recommend waiting for a Steam sale and getting it for a discount, especially since it’s still in progress. This way, if you decide you don’t like it in the future, you aren’t out the full price.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Other sandbox shooters**
 
@@ -168,6 +161,13 @@ Lifewire / Rebecca Isaacs
 
  Despite flaws in graphics, there’s a lot to love about 7 Days to Die. The challenging skill tree system and dangerous intelligent zombies add an element that’s not typically found in zombie shooters. If you want a game to commit to for hours on end, building bases and exploring dungeon-like homes while slaying zombie cheerleaders, then 7 Days to Die could be a fun way to ease some stress after a long day of work.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * The Last of Us Remastered
@@ -175,8 +175,12 @@ Lifewire / Rebecca Isaacs
 * [Dying Light](https://www.lifewire.com/dying-light-review-4778324)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  7 Days to Die
@@ -189,14 +193,11 @@ Lifewire / Rebecca Isaacs
 * Graphics  1 GB Dedicated Memory
 * Game Updates  Alpha 17.4 out; Alpha 18 Announced
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -204,3 +205,18 @@ Lifewire / Rebecca Isaacs
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/updated-easy-steps-to-deactivate-igtv-for-2024/"><u>[Updated] Easy Steps to Deactivate IGTV for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-digital-learning-session-replays/"><u>2024 Approved Digital Learning Session Replays</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/blh4100-by-blade-rc-helicopter-test-flight-perfect-fit-for-open-skies-and-fun-in-the-sun/"><u>BLH4100 by Blade RC Helicopter Test Flight: Perfect Fit for Open Skies and Fun in the Sun</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/c-vs-d-key-differences-in-windows-disk-drives/"><u>C vs D: Key Differences in Windows Disk Drives</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/drone-racing-things-you-need-to-know-and-top-5-best-fpv-racing-drones-for-2024/"><u>Drone Racing Things You Need to Know and Top 5 Best FPV Racing Drones for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-dell-xps-13-2-in-1-ultrabook-exceptional-efficiency-and-power/"><u>Expert Analysis of the Dell XPS 13 2-in-1 Ultrabook: Exceptional Efficiency and Power</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-the-problem-when-your-mouse-cursor-goes-missing-on-windows-10/"><u>Fixing the Problem: When Your Mouse Cursor Goes Missing on Windows 10?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-why-the-samsung-galaxy-tab-s7plus-reigns-as-a-premier-android-device/"><u>In-Depth Review: Why the Samsung Galaxy Tab S7+ Reigns as a Premier Android Device</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unmatched-ai-tools-elevating-cyber-search-capabilities/"><u>Unmatched AI Tools Elevating Cyber Search Capabilities</u></a></li>
+</ul></div>
+

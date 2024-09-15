@@ -1,7 +1,7 @@
 ---
 title: "Xbox One X Unleashed: Why This Beast Is King of the Modern Gaming World"
-date: 2024-08-03T23:04:33.076Z
-updated: 2024-08-04T23:04:33.076Z
+date: 2024-09-10T17:20:23.556Z
+updated: 2024-09-15T17:14:16.230Z
 categories:
   - BestProducts
 description: "This Article Describes Xbox One X Unleashed: Why This Beast Is King of the Modern Gaming World"
@@ -15,9 +15,6 @@ thumbnail: https://thmb.techidaily.com/a26306e3d205a36c4a6b9d44bd1cf9f948f504e38
 
 ## Microsoft Xbox One Elite Series 2 Controller
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/425lsqo6i1_7Vzb3ebrBxtVPgfM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
 
 Lifewire / Zach Sweat
@@ -40,9 +37,6 @@ Lifewire / Zach Sweat
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/JA4MI_SE7Alxl0MLR7rMoIVzKgI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
@@ -102,10 +96,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## **Comfort: Hefty, but darn comfy**
 
  The original Elite was perhaps the most comfortable controller I’ve ever used, so with the Series 2, I had high hopes in this department. Thanks to some clever but subtle changes by the Microsoft team, this controller is even better.
@@ -118,16 +108,17 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  The only real issue some users may see as a downside of this controller is that it’s quite a hefty device. The controller weighs 348 grams with all attachments, so it might take some getting used to compared to the 210 gram S controller. I personally love the bulk, as it feels premium, but it might not be for everyone.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/cS5fpyPSlqvyETs-nGxTtAB3vXU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-4-070b6c59b206457ba1068704bbe7bca9.jpg)
 
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process and Software: Bluetooth, at long last**
 
  One of our biggest gripes with the original Elite controller was that it lacked Bluetooth functionality despite its premium price tag. Seeing how the much cheaper ONE S variant included this, it was even more frustrating. Thankfully, Microsoft listened to our collective rants and added Bluetooth to the Series 2, which drastically improves the number of devices it can be used with.
@@ -150,9 +141,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ## **Performance/Durability: Enhanced performance and durability**
 
  To test the performance of the new Elite Series 2 controller, I put this device through several hours of gaming on both PC and Xbox One platforms running a number of games and layouts. The results were promising, so let’s take a closer look.
@@ -176,8 +164,12 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Like buying a brand new console**
 
  Right now, the Elite Series 2 controller retails at an MSRP of $249.99, about $100 more than its predecessor. This price tag makes it not only the most expensive first-party controller around, but also nearly the cost of a brand new Xbox One S console (or three brand new titles). That can be a tough sell for your average gamer.
@@ -186,12 +178,16 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  The argument could be made that considering you get a Bluetooth controller capable of working on XB1 and PC, a charging dock and a nice little case to keep it all together, the cost isn’t awful. But if you want all of those things for less, you can grab an S controller, dock and case for far, far less.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/6VfCJGOyjLkAkE_mjiHr7rz8Gyw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-6-0c1d7a2ae4e8443ea5b69f559e52bd12.jpg)
 
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
 
@@ -224,14 +220,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * Warranty  90-day warranty
 * Compatibility  All Xbox One Consoles, Windows 10 PCs, Bluetooth devices
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -239,3 +232,24 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-new-best-facebook-story-savers-for-free-extensiononlinemobile-apps/"><u>[Updated] In 2024, NEW Best Facebook Story Savers for FREE [Extension/Online/Mobile Apps]</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-premier-index-of-digital-imagery-collections/"><u>2024 Approved Premier Index of Digital Imagery Collections</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cliffhanger-endings/"><u>Cliffhanger Endings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-budget-friendly-secret-to-superior-sound-amazon-basics/"><u>Discover the Budget-Friendly Secret to Superior Sound: Amazon Basics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elite-choice-the-superior-bodycams-of-this-year/"><u>Elite Choice: The Superior Bodycams of This Year</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pump-it-up-the-20-most-energizing-workout-playlists/"><u>In 2024, Pump It Up The 20 Most Energizing Workout Playlists</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-the-apple-ipad-air-2019-your-ideal-companion-for-multimedia-mastery/"><u>In-Depth Analysis: The Apple iPad Air (2019) - Your Ideal Companion for Multimedia Mastery</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/locked-out-of-iphone-8-plus-5-ways-to-get-into-a-locked-iphone-8-plus-drfone-by-drfone-ios/"><u>Locked Out of iPhone 8 Plus? 5 Ways to get into a Locked iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/macx-dvd-profesional-pack-for-windows-ultimate-dvd-burning-and-video-editing-suite-compatible-with-win11/"><u>MacX DVD-Profesional Pack for Windows - Ultimate DVD Burning & Video Editing Suite Compatible with Win11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/necessary-factors-when-shopping-for-a-dash-cam/"><u>Necessary Factors When Shopping for a Dash Cam</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/pixelprobe-criticism-engine-for-2024/"><u>PixelProbe Criticism Engine for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/quick-fixes-for-when-your-steelseries-arctis-7s-microphone-stops-working/"><u>Quick Fixes for When Your SteelSeries Arctis 7'S Microphone Stops Working</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionary-2020-apple-mac-mini-m1-chip-how-apple-outshines-the-rival-computers/"><u>Revolutionary 2020 Apple Mac Mini (M1 Chip): How Apple Outshines the Rival Computers</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-samsung-galaxy-s24-ultra-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Samsung Galaxy S24 Ultra Device</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/top-7-phone-number-locators-to-track-apple-iphone-15-pro-location-drfone-by-drfone-virtual-ios/"><u>Top 7 Phone Number Locators To Track Apple iPhone 15 Pro Location | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/travel-top-tripod-the-best-in-stability-and-portability/"><u>Travel Top Tripod: The Best in Stability and Portability</u></a></li>
+</ul></div>
+

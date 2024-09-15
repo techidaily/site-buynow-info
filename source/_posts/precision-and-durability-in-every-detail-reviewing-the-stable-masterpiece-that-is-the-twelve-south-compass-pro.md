@@ -1,7 +1,7 @@
 ---
 title: "Precision and Durability in Every Detail: Reviewing the Stable Masterpiece That Is the Twelve South Compass Pro"
-date: 2024-08-03T23:04:30.237Z
-updated: 2024-08-04T23:04:30.237Z
+date: 2024-09-10T20:46:54.748Z
+updated: 2024-09-15T20:26:23.488Z
 categories:
   - BestProducts
 description: "This Article Describes Precision and Durability in Every Detail: Reviewing the Stable Masterpiece That Is the Twelve South Compass Pro"
@@ -13,19 +13,8 @@ thumbnail: https://thmb.techidaily.com/5318040ca5179c2e633a424df07002ffecf49f8c5
 
 4.9
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Apple iPad Pro 11-Inch (2018)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/XAxnGc_g0AZSliRVCCVfXsB5Wug=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_HeroSquare-b5f2405776244188aa59f67503531baf.jpg)
 
 Lifewire / Jordan Provost
@@ -92,17 +81,17 @@ Lifewire / Jordan Provost
 
  Perhaps one of the most striking decisions Apple has made here is the inclusion of a USB-C port, which replaces the Lightning port at the bottom of the device. This opens up a world of possibilities for most creative types, from easily connecting the iPad to a monitor, or even uploading photos you want to edit directly from your DSLR camera.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ![Ipad Pro 11-Inch](https://www.lifewire.com/thmb/TpucPEgB2OHgSplLwk2Q6sbI6Yo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_5-a6f20cf2b7b84caf8a6290fcb5e9fb5f.jpg)
 
  Lifewire / Jordan Provost
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Accessories: Useful for productivity**
 
  The two main attachments everyone should consider when purchasing an iPad Pro are the Apple Pencil and the Smart Keyboard Folio. The Apple Pencil is a powerful tool for artists and note takers, and the revised model includes a double-tap feature so you can quickly switch between brush styles and utilize functions usually locked off to the more PC-focused professional drawing tablets. Previous Apple Pencil users will be glad to know that it charges with a magnetic pad on the side of the device, and not awkwardly through the port at the bottom like previous models.
@@ -115,6 +104,13 @@ Lifewire / Jordan Provost
 
  Top 3 Tablets On the Market
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Fast and easy**
 
  Setting up the 11-inch iPad Pro is quick and painless, and strikingly similar to many of Apple’s other products. Once unboxed, we took the iPad out of its case and held down on the power button which led to the setup screen.
@@ -125,9 +121,6 @@ Lifewire / Jordan Provost
 
  Lifewire / Jordan Provost
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Display: Rich colors and smooth motion**
 
  Apple is well known for its gorgeous screens, and the iPad Pro absolutely delivers. The display is what Apple is calling ‘Liquid Retina’, an upgraded version of the technology that drives the screen on the iPhone XR. Wonderfully rich color reproduction, crisp text can be found across all of Apple’s proprietary apps and third-party optimized software. Reading articles and watching video content on streaming services is wonderful, and it even fares well amidst glare from sunlight. It’s still an LCD screen though, so OLED tablets will still have better-looking blacks and richer, more saturated colors. Fortunately for Apple, there aren’t many of those in the market.
@@ -146,17 +139,10 @@ Lifewire / Jordan Provost
 
  In our GFX Metal tests, the iPad really ran away from its competitors too. It scored 3407 frames in the Car Chase benchmark, almost double that of the Nvidia Shield, and nearly triple that of the previous iPad, running at an incredible 57 FPS (frames per second) compared to the previous iPads 23 FPS. It’s a massive, almost overkill leap considering the lack of AAA experiences available for the device, but it’s nice to have all that power in your hands.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/KXfYew06x6vujxu5asiFMPptK_k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_1-a6ce9e62649048d7a20596066576c2c5.jpg)
 
  Lifewire / Jordan Provost
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## **Productivity: Not a laptop replacement just yet**
 
  The 2018 iPad Pro is an absolute force of nature as far as productivity is concerned. With the brilliant viewing angles, and options to attach both a nimble Apple Pencil and a Smart Keyboard to the device with relative ease, this tablet will suit the needs of many modern creatives and workers looking for an all-in-one device.
@@ -169,6 +155,13 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
  Outside of that, you can’t connect some external drives, Thunderbolt devices or use a mouse. Split View is also certainly a compromise to professionals used to using more than three programs at once.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Audio: Thunderous sound**
 
  One of the major upgrades to the Pro is the stereo effect audio playback with four powerful speakers, two on either side of the device. The iPad Pro has truly stunning audio, and if you crank it up it could easily act as a party speaker. There is absolutely no need for anything external when watching video content. Amazingly, the fidelity of the audio never seems to suffer, even at full volume. Apple ditching the headphone jack poses an interesting problem in that you’re going to need a pair of Bluetooth headphones or buy an adapter to receive audio on the go.
@@ -179,16 +172,10 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
  We received 72Mbps download speed and 6Mbps upload on our 100Mbps plan, a very respectable result. Downloading apps was quick and painless, and thanks to the incredible processor, there was very limited buffering time when booting up YouTube videos, Twitch streams and streaming video content on Netflix.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![IPad- Pro 11 Inch](https://www.lifewire.com/thmb/D-1-WC_wIDqzRZLb8mDOgpjal6c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_3-e425a67865fc461fb805e648294dadf8.jpg)
 
  Lifewire / Jordan Provost
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Camera: A decent backup**
 
  One of the only design compromises is the small camera bump on the back of the tablet that makes it wobble a negligible amount whilst flat outside of a case. It's still unwieldy to use, and whilst it’s a wonder why a tablet like this even needs a camera at all, Apple has actually given the tablet a camera worthy of the price tag.
@@ -199,6 +186,13 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
  Take a peek at some of the[best camera apps](https://www.lifewire.com/best-iphone-camera-apps-4176231) you can download.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Battery: All-day usage**
 
  This is an all-day device, and should last you roughly around 10 hours of regular use, as per our testing. We spent almost a full working day pushing it using Split View to draft articles, with some Procreate drawing and Netflix streaming in between, and the iPad Pro clocked out at around 9 hours. However, we found some apps like Google Docs drain the battery more than most, so it varies depending on your workflow. Much like the Apple Watch, if you’re not a power user this tablet could last you a number of days before needing a fresh charge.
@@ -208,8 +202,12 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
  Lifewire / Jordan Provost
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Software: The best yet**
 
  This is interesting because iOS 12 is by far and away the best version of the operating system yet, but there are still some blatant compromises that eat away at the possibility of the iPad Pro being a laptop replacement. You can't just unzip files. And moving photos or documents between programs, even cloud-storage services like Google Drive and Dropbox, is a nightmare. In most cases, it’s actually doable if you find the right app, but it’s always far too much busy work when its a very simple five-second solution on any laptop. This wasted time adds up, and iOS 12 starts to get in the way of the iPad Pro’s potential.
@@ -218,9 +216,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
  iOS 12 is by far and away the best version of the operating system yet, but there are still some blatant compromises that eat away at the possibility of the iPad Pro being a laptop replacement.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Well worth the money if you can justify it**
 
  As far as tablets go, one of the main reasons many people are put off by the iPad Pro is the existence of far cheaper options. Our review model (11-inch, 64GB) retails for $799, and you may well be inclined to upgrade both the size and the capacity to suit your needs. This doesn’t factor in some of the more essential accessories with jaw-dropping prices like the Apple Pencil, Smart Keyboard, and the Bluetooth headphones necessary to navigate the lack of a headphone jack. That can lead to a very expensive purchase, and with Apple products, it can be hard to tell whether they are worth it case by case.
@@ -239,9 +234,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
  With utterly seamless navigation and playback, fantastic speakers and world-class accessories and performance, this is a beautifully designed piece of hardware. Unfortunately, whilst the power is there, it is held back by its own operating system, forcing you into busywork or compromising missteps. It cannot replace your laptop just yet, but it may well make it redundant based on your use case.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Apple iPad 10.2-inch (7th Generation)](https://www.lifewire.com/apple-ipad-10-2-inch-7th-generation-review-4772313)
@@ -261,14 +253,11 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 * RAM  4 GB
 * Camera  12 MP
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -276,3 +265,23 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-boosting-your-channels-viewer-loyalty-essential-tactics-unveiled/"><u>[New] 2024 Approved Boosting Your Channels' Viewer Loyalty Essential Tactics Unveiled</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-journey-through-data-storage-saving-fb-chats-as-video-files/"><u>[New] Journey Through Data Storage Saving FB Chats as Video Files</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-understanding-the-impact-of-nikon-d500s-4k-output/"><u>[New] Understanding the Impact of Nikon D500's 4K Output</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/audacity-sound-device-malfunction-here-are-5-reliable-fixes/"><u>Audacity Sound Device Malfunction? Here Are 5 Reliable Fixes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-syma-x5c-remote-controlled-quadcopter-cost-effective-for-starters/"><u>Comprehensive Analysis of the SYMA X5C Remote Controlled Quadcopter - Cost-Effective for Starters</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/echo-pop-vs-echo-dot-showdown-unveiling-their-differences/"><u>Echo Pop vs Echo Dot Showdown: Unveiling Their Differences</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-enhanced-home-security-dive-into-blinks-4-sensor-floodlight-camera-setup/"><u>Experience Enhanced Home Security: Dive Into Blink's 4-Sensor Floodlight Camera Setup</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/fast-lanes-migrating-iphone-media-to-a-desktop/"><u>Fast Lanes Migrating iPhone Media to a Desktop</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-poco-x5-pro-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Poco X5 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-testing-of-the-orbi-whole-home-mesh-network-with-wi-fi-6-technology-for-optimal-performance/"><u>In-Depth Testing of the Orbi Whole Home Mesh Network with Wi-Fi 6 Technology for Optimal Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-weather-alert-apps-for-severe-storms/"><u>Leading Weather Alert Apps for Severe Storms</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-income-through-effective-blog-ads-on-buyselladscom-platform/"><u>Maximizing Income Through Effective Blog Ads on BuySellAds.com Platform</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-omoton-t1-pro-stand-combining-cost-efficiency-with-strong-performance/"><u>Reviewing the Omoton T1 Pro-Stand: Combining Cost Efficiency with Strong Performance</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/update-your-system-intuitive-setup-for-the-latest-intel-iris-540-graphics-drivers/"><u>Update Your System: Intuitive Setup for the Latest Intel Iris 540 Graphics Drivers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/wellness-on-a-plate-tech-enabled-cooking-mastery/"><u>Wellness on a Plate: Tech-Enabled Cooking Mastery</u></a></li>
+</ul></div>
+

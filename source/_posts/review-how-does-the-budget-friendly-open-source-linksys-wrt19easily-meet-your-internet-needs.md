@@ -1,7 +1,7 @@
 ---
 title: "Review: How Does the Budget-Friendly, Open Source Linksys WRT19easily Meet Your Internet Needs?"
-date: 2024-08-03T23:04:32.947Z
-updated: 2024-08-04T23:04:32.947Z
+date: 2024-09-10T20:49:31.903Z
+updated: 2024-09-15T21:10:12.897Z
 categories:
   - BestProducts
 description: "This Article Describes Review: How Does the Budget-Friendly, Open Source Linksys WRT19easily Meet Your Internet Needs?"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/c889a547e421f550d3854604da4881f54e6123831
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1byone Amplified Digital HDTV Antenna
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/pWXHOnFpWCs9EltKF9bRUP_y5aU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
@@ -40,9 +37,6 @@ Lifewire / Jonno Hill
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ## 1byone Amplified Digital HDTV Antenna
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/y6y0rP_H9I7oHwldUMIq-18GrFw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
@@ -70,9 +64,6 @@ Lifewire / Jonno Hill
 
  If you are living inside of a large metropolitan area, you likely don’t need the best possible antenna to pick up the channels being broadcast to you over the air. Furthermore, I didn’t see that big of a difference in performance as price increased. Unless you step it all the way up to a much larger, much more expensive solution, the difference in performance is probably not worth it, which is why the 1byone is an easy recommendation. Let’s see how it performed.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/FEdsHVNn7IxwxXsSkRT0jxmmRuQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_02-d797d473ec154becbab8a3023cff8b53.jpg)
 
  Lifewire / Jonno Hill
@@ -83,6 +74,19 @@ Lifewire / Jonno Hill
 
  Being a powered antenna, the 1byone uses an external amplifier to boost the signal. This box contains a coaxial input attached via the included 16.5ft cable, and has a power input, which can be supplied by the TV itself if it can support USB power. Otherwise, 1byone includes a USB power adapter.
 
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup: Fairly intuitive**
 
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas. Simply attach the 16.5ft coaxial cable to the external amplifier, connect the power to a USB power source, and then attach the coaxial cable from the amplifier to your TV.
@@ -90,23 +94,30 @@ Lifewire / Jonno Hill
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas.
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: Good enough for most**
 
  The 1byone Digital Amplified Indoor HD TV Antenna didn’t have the best performance of the antennas we’ve tested, falling somewhere in the middle of the pack. In my channel acquisition test, I averaged 59 channels across all the tests performed. This compares to the worst performing antenna at just 47, and the best at 76.
 
  This should be more than suitable for most people living within a city in relatively close proximity to the source of the TV signal. As for those living further, your mileage may vary.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ## **Range: Middle of the road**
 
  1byone makes no specific promises about the range of their antenna, although they do cite users having positive experiences from as far as 48 miles away in their customer testimonials. Given how many factors impact the effective range, I think it is somewhat wise not to make any promises. Nonetheless, this is clearly a device that will be best suited for people living in or near major metropolitan areas.
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/6y-ITpY8n7xf8BteMqdJjYm-paU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_05-178a02351af040cc89c86169b88a6de2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
@@ -126,9 +137,6 @@ Lifewire / Jonno Hill
 
  The 1byone Digital Amplified Indoor Antenna offers the best value out of all the indoor antennas that we tested. If you can get the performance you need from the 1byone, it’s the antenna to buy. I wouldn’t consider other options unless you’ve already ruled out this one.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Amplified Digital HDTV Antenna
@@ -142,14 +150,11 @@ Lifewire / Jonno Hill
 * Indoor/Outdoor  Indoor
 * Warranty  One year limited
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -157,3 +162,22 @@ Lifewire / Jonno Hill
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-elevate-your-social-media-presence-insta-videography/"><u>[New] In 2024, Elevate Your Social Media Presence Insta-Videography</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-seamless-iphone-photo-and-video-transfers-guide/"><u>[New] In 2024, Seamless iPhone Photo & Video Transfers Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-jump-to-youtube-affiliate-ranking-with-a-swift-10000-views/"><u>[Updated] In 2024, Jump to YouTube Affiliate Ranking with a Swift 10,000 Views</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-minimca-manorettes-simple-and-sleek-homes-in-mc-world/"><u>[Updated] MiniMCA Manorettes Simple & Sleek Homes in MC World</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cost-effective-case-for-macbook-pro-13-users-a-review-of-the-practical-and-budget-friendly-procase-choice/"><u>Cost-Effective Case for MacBook Pro 13 Users: A Review of the Practical and Budget-Friendly ProCase Choice</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dbpower-600a-high-performance-battery-booster-with-18000mah-capacity-comprehensive-review/"><u>DBPower 600A High-Performance Battery Booster with 18,000mAh Capacity: Comprehensive Review</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-google-pixel-8-pro-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Google Pixel 8 Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-lenovo-ideapad-320-where-style-meets-functionality-with-lenovos-iconic-keyboard/"><u>Expert Insights on the Lenovo Ideapad 320 - Where Style Meets Functionality with Lenovo's Iconic Keyboard</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-unleashing-media-prime-video-players-on-windows-mobile/"><u>In 2024, Unleashing Media Prime Video Players on Windows Mobile</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-aeeusy-portable-generator-test-why-its-the-preferred-choice-for-pure-sine-wave-energy-in-medicine/"><u>In-Depth AEEUSY Portable Generator Test - Why It's the Preferred Choice for Pure Sine Wave Energy in Medicine</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-look-how-samsung-galaxy-watch-blends-style-with-technology/"><u>Inside Look: How Samsung Galaxy Watch Blends Style with Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/life-q30-hearing-device-insight-ankers-economical-approach-to-anc-technology/"><u>Life Q30 Hearing Device Insight - Anker's Economical Approach to ANC Technology</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/navigating-facebooks-memory-lane-with-ease/"><u>Navigating Facebook's Memory Lane with Ease</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/tweet-to-facebook-a-step-by-step-guide-for-2024/"><u>Tweet to Facebook A Step-by-Step Guide for 2024</u></a></li>
+</ul></div>
+

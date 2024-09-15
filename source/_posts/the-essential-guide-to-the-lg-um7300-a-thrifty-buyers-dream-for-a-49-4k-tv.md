@@ -1,7 +1,7 @@
 ---
 title: "The Essential Guide to the LG UM7300: A Thrifty Buyer's Dream for a 49 4K TV"
-date: 2024-08-03T23:04:31.703Z
-updated: 2024-08-04T23:04:31.703Z
+date: 2024-09-13T18:40:59.835Z
+updated: 2024-09-15T21:37:37.786Z
 categories:
   - BestProducts
 description: "This Article Describes The Essential Guide to the LG UM7300: A Thrifty Buyer's Dream for a 49 4K TV"
@@ -39,10 +39,6 @@ Andrew Hayward / Lifewire
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Meta Quest 2
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/KO4q8p9NOXatDIXmzsBBpQgN5eA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_horiz_Oculus-Quest-2-VR-Headset-1-bf9c326da16b47f6b2bdcc6ba1e7068e.jpg)
@@ -72,10 +68,6 @@ Andrew Hayward / Lifewire
 
  It was one of last year’s greatest new gadgets, and now Oculus has returned with a sequel. The Oculus Quest 2 is smaller and lighter, yet more powerful and with a much better screen—yet it costs $100 less than the original. How did that happen? Well, it’s not all great news, thanks to a couple of cost-cutting measures that you’ll feel and potentially see, but the end result is ultimately a better and more affordable device that serves as an ideal gateway into VR.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Design and Comfort: Compromises were made
 
  The Oculus Quest 2 sticks to the familiar modern VR playbook as a module that you strap onto your face to immerse yourself within its digital worlds but features some different material and construction choices than the original. Unfortunately, the design choices largely are not upgrades compared to the original headset
@@ -90,9 +82,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Oculus now sells a $49 Elite Strap attachment that’s more akin to the original Quest strap, and while the Quest 2 straps are usable, I’ll probably make the upgrade and buy the better strap.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ![Oculus Rift 2](https://www.lifewire.com/thmb/JkgQv_Sk0ofSL0Sp-jKmqe84xak=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-2-a7792535288542dba45c8bc32f882be2.jpg)
 
  Andrew Hayward / Lifewire
@@ -103,9 +92,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  The Quest 2’s wireless, motion-sensing Oculus Touch controllers are identical in function to the original, but are a little heavier and have a larger surface with space to rest your thumb when not in use. That’s handy. Each has an analog stick and two face buttons, along with a trigger button and a grip button. Oculus also swapped out the magnetically-attached battery doors from the first Quest controllers—which would sometimes slide open when I used the original—for ones that simply click into place. That’s a win for function over form.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Oculus Quest 2 ](https://www.lifewire.com/thmb/1aG6kdNHMuvnim8p8_i1RwH9QG8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-3-eec6cabc11db4ed9be5254aa2bc46ec1.jpg)
 
  Andrew Hayward / Lifewire
@@ -117,6 +103,13 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  That might sound like a lot of griping, but it’s only because some of the key physical design changes on the Quest 2 feel like compromises or downgrades. But for most people, they won’t be significant impediments. And if you’re coming to the new headset without ever using the original Quest, then you should be fine—the new straps are usable, but they aren’t as effective or effortlessly adjustable as before. Luckily, the Quest 2 makes significant strides elsewhere.
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/gwWuuSfTzWNDoS45b-iG9qG32-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-4-27f169e7e71b4372a38e13332b7b1364.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Andrew Hayward / Lifewire
 
@@ -146,13 +139,17 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  I felt the Quest 2’s enhancements more prominently in some games over others. Laser sword-swinging music game Beat Saber, for example, ran well on the first headset and isn’t that different here—just smoother and clearer-looking. But with the online battle royale shooter Population: One, the cleaner-looking textures and more fluid performance helped mitigate some of the light motion sickness I felt playing on the first Quest.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Sound Quality: Works fine without headphones
 
  Plugging in headphones delivers a more closed-off, immersive experience, but the Oculus Quest 2’s built-in speaker does a solid job of delivering audio and music. It does sound a tiny bit louder and fuller than the original Quest’s speaker, but not significantly so. Still, if you want to play without being fully shut-off from your surroundings, it works just fine.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Battery: You’ll get a couple hours
 
  Like the original headset, the Oculus Quest 2 is rated for 2-3 hours of usage on a full charge. For such a compact, standalone headset, I think that’s reasonable. You get a couple hours to play, and then you can take a breather and do other things while it charges.
@@ -164,8 +161,12 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  Andrew Hayward / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Software: Use the headset or connect to PC
 
  The headset’s own interface hasn’t changed much from the first Quest, taking place in a 3D home-like environment with floating menus that you can access via the motion controllers. It’s a pretty easy way to choose between your currently installed games and apps, install anything else in your library, purchase and download new content, and access video content including apps like Netflix, YouTube, and SlingTV.
@@ -182,9 +183,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  The $299 edition of the headset comes with 64GB of internal storage and the $399 version nets you 256GB, with some of each tally taken up by system software and resources. Luckily, the games and apps themselves aren’t huge, typically weighing in between 1-4GB apiece, sometimes less, and they’re pretty quick to download again if you want to revisit something. The 64GB edition should provide enough space for most players, as you could probably comfortably have a dozen or more games installed, along with streaming media apps, but anyone who wants to have a robust VR library on hand at all times without waiting might consider spending the extra cash.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Games: A good, growing selection
 
  Although those aforementioned games and some others are still only found on PC (or maybe PlayStation VR on the PlayStation 4 or 5), the Oculus Quest platform has amassed a very nice selection of native games that you can download and play right on the headset.There is no difference in compatibility between the headsets: all Quest games play on Quest 2 and vice versa, just with performance differences.
@@ -200,16 +198,22 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  Andrew Hayward / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Price: It’s an amazing value
 
  The Oculus Quest was already impressively priced at $399, so launching the more powerful Oculus Quest 2 at $299 is pretty phenomenal. Granted, the design compromises are a little frustrating, and I would’ve rather paid more for a better strap and more precise IPD settings like on the original—but those are the tweaks made to try and broaden the market for the Quest and VR as a whole. Still, even with those design annoyances, the Quest 2 is an incredible value for a portable, fully self-contained VR game console.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![Oculus Quest 2](https://www.lifewire.com/thmb/TDsFPvRGkhZaFzIaNnKRk1_xO4s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-8-Comparison-1b0c51b029da41389167e103a4c4843a.jpg)
 
  Andrew Hayward / Lifewire
@@ -229,18 +233,18 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
  The significant performance upgrade and surprising price drop outweigh some of the annoying design shifts with the Oculus Quest 2, making it the must-have VR headset for just about everyone. Not only does it play a great library of on-headset games, but it can also connect to a powerful PC to play even more games on top of that. Add to that the ease of use, quality gameplay, and immersive visuals, and the Oculus Quest 2 is another brilliant VR game console.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Oculus Rift S](https://www.lifewire.com/oculus-rift-s-review-4764112)
 * [Oculus Go Standalone VR Headset](https://www.lifewire.com/oculus-go-vr-headset-review-4690298)
 * [Valve Index](https://www.lifewire.com/valve-index-review-4775604)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Quest 2
@@ -263,11 +267,27 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-archive-of-authentic-activities/"><u>[New] 2024 Approved Archive of Authentic Activities</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-boundless-video-recorder-app/"><u>[New] In 2024, Boundless Video Recorder App</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-youtube-shorts-description-everything-you-need-to-know/"><u>[New] YouTube Shorts Description Everything You Need to Know</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-enlightenment-streams-foremost-ed-resources-online/"><u>[Updated] In 2024, Enlightenment Streams Foremost Ed Resources Online</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/entry-level-excellence-in-depth-review-of-the-new-amazon-fire-hd-eight-gen/"><u>Entry-Level Excellence: In-Depth Review of the New Amazon Fire HD Eight Gen.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/firsthand-review-samsung-galaxy-budsplus-experience/"><u>Firsthand Review: Samsung Galaxy Buds+ Experience</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fix-windows-update-error-8007000e-fast-a-step-by-step-guide/"><u>Fix Windows Update Error 8007000E Fast: A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-the-tascam-cd-200bt-professional-sound-bluetooth-pairing-made-easy/"><u>Inside the Tascam CD-200BT: Professional Sound, Bluetooth Pairing Made Easy</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastery-over-mobile-batteries-in-depth-review-of-the-zmi-powerpack-20000-unit/"><u>Mastery Over Mobile Batteries: In-Depth Review of the ZMI PowerPack 20,000 Unit</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/official-update-from-amd-ryzen-amoeba5000xt-series-on-track-for-timely-release-date-this-month/"><u>Official Update From AMD: Ryzen Amoeba5000XT Series on Track for Timely Release Date This Month</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ready-to-carry-the-ultimate-review-of-the-amazon-basics-folding-tablet-stand/"><u>Ready to Carry: The Ultimate Review of the Amazon Basics Folding Tablet Stand</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/successfully-pairing-microsoft-wireless-dock-on-a-windows-10-system-solutions-and-tips/"><u>Successfully Pairing Microsoft Wireless Dock on a Windows 10 System: Solutions and Tips</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/44gk55ug6zmq5a6aisdmsjfou73jgavlj4lliqdjgafjgy3jgovjgqtjg5njg7pjg4jjgajjgihjgifjgifjga7jgzjgohjga7lrozlhajjgqzjgqtjg4njgpljgztntlnku4s/"><u>お盆限定! 気軽に参加できるイベントと、〇〇のための完全ガイドをご紹介</u></a></li>
+</ul></div>
+

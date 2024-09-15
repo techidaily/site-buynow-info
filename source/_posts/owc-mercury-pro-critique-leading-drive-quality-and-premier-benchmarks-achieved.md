@@ -1,7 +1,7 @@
 ---
 title: "OWC Mercury Pro Critique: Leading Drive Quality and Premier Benchmarks Achieved"
-date: 2024-08-03T23:04:34.279Z
-updated: 2024-08-04T23:04:34.279Z
+date: 2024-09-09T17:16:41.999Z
+updated: 2024-09-15T21:24:08.963Z
 categories:
   - BestProducts
 description: "This Article Describes OWC Mercury Pro Critique: Leading Drive Quality and Premier Benchmarks Achieved"
@@ -15,9 +15,6 @@ thumbnail: https://thmb.techidaily.com/919573cc608b6cdec882b8be060a2b2c2cf20857c
 
 ## Nokia 7.1
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Nokia 7.1](https://www.lifewire.com/thmb/DoLSBgFTktsPC2bXGr524KRCkMs=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_hero-14043634662d46998584bb21b3d7becd.jpg)
 
 Lifewire / Jordan Provost
@@ -43,9 +40,6 @@ Lifewire / Jordan Provost
 
 ## Nokia 7.1
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ![Nokia 7.1](https://www.lifewire.com/thmb/FPdNqEjtI6f1tbMbciesCKN2pRQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_hero-14043634662d46998584bb21b3d7becd.jpg)
 
 Lifewire / Jordan Provost
@@ -80,9 +74,6 @@ Lifewire / Jordan Provost
 
 [Phone Reviews & Top Picks](https://www.lifewire.com/best-android-smartphones-577403)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## **Design: A mid-range phone with high-end sensibilities**
 
  The Nokia 7.1 is a mid-range handset that could pass for a higher-end device if you squint. It features the same general design—a glass front and back separated by an aluminum body—that we’ve seen so many times before, but it has a few design tweaks that help it stand out. The matte aluminum body features chamfered edges that add a bit of visual flair, especially when they catch the light.
@@ -95,16 +86,10 @@ Lifewire / Jordan Provost
 
  When you turn the screen on, the first thing you notice is a chunky notch at the top. This notch is the reason that the phone is able to boast a 5.8-inch display, but it seems like a strange choice when paired with the thick “chin” at the bottom of the screen. This use of space definitely looks mid-range.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Nokia 7.1](https://www.lifewire.com/thmb/NRHkz82CaIGpj9N3UQuqHzPSBas=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_4-2c6261afee9644848e68fbf1e73c3009.jpg)
 
  Lifewire / Jordan Provost
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ## **Setup Process: Requires updates out of the box**
 
  Setting up the Nokia 7.1 is a breeze if you have a Google account ready to go. Since it uses stock Android and is part of the Android One program, there aren’t any extra hoops to jump through. The only hiccup we experienced was the flood of required updates right out of the box—make sure you allow some extra time to download and install everything.
@@ -112,6 +97,19 @@ Lifewire / Jordan Provost
 ![Nokia 7.1](https://www.lifewire.com/thmb/LkCNBmkQjVwHH-SoT7i4QFOrSsk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_1-83b2f49a5f2c4443b2b7f30b502fd094.jpg)
 
  Lifewire / Jordan Provost
+
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Great for a mid-range handset**
 
@@ -137,24 +135,25 @@ Lifewire / Jordan Provost
 
  Despite these connectivity problems, we were still able to stream YouTube videos and music from Google Play over the data connection.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Display Quality: HDR quality with a chunky notch**
 
  The Nokia 7.1 has a 5.84-inch screen with a resolution of 2160 x 1090, laid out as a tall, narrow display with an aspect ratio of 19:9\. It has a chunky notch at the top for the front-facing camera and pleasantly rounded edges. The viewing angles are excellent, and the screen is bright enough to see in direct sunlight.
 
  The display makes use of Nokia’s PureDisplay technology, which means it conforms to the HDR10 industry standard. In practical terms, that means you get an HDR-quality display on a[mid-range phone](https://www.lifewire.com/best-smartphones-4043781) , which is pretty fantastic. It’s also capable of converting standard dynamic range content to HDR, which just makes everything look nicer.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Nokia 7.1](https://www.lifewire.com/thmb/Z-CxaDLaus-Tzpvo30-F2j8i94o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_6-9eeeb5e2962c47e29b8a5335d69cc004.jpg)
 
  Lifewire / Jordan Provost
 
  The only problem with the Nokia 7.1’s display is that the color temperature is extremely cool. If you hold it next to any similar phone, you’ll notice a somewhat bluish tinge. The phone does include a “night mode” feature that tints the display in increasingly strong shades of amber after the sun goes down, which can help with eye strain at night. But if you’re sensitive to blue light, you may have trouble with this display.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## **Sound Quality: Loud, no distortion, but a lack of bass response**
 
  At the bottom of the Nokia 7.1’s aluminum body, you’ll find the microphone, a USB-C port, and two small rectangular cutouts. That’s where the sound comes from, and despite there being two cutouts, it’s all provided by a single driver.
@@ -171,9 +170,6 @@ Lifewire / Jordan Provost
 
  One issue to keep in mind is that when you take a picture with the Nokia 7.1 and view it on the handset, you’re looking at an HDR-enhanced display that upscales regular photos and video with an HDR look.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Nokia 7.1](https://www.lifewire.com/thmb/VI32Dr6kjQKlJti1W9Egtq7kb10=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_2-b7780c375da34f349ba0c037120ee3ff.jpg)
 
  Lifewire / Jordan Provost
@@ -182,10 +178,14 @@ Lifewire / Jordan Provost
 
 Lifewire
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Nokia 7.1 cat photo](https://www.lifewire.com/thmb/hepqa5K_YkbwuC1_7lRbkLgxJVc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/cat-photo7-e1f061ad95324519a4cd85a39faeb1a7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire
 
@@ -195,9 +195,6 @@ Lifewire
 
  The hardware just isn’t there to challenge the best phone cameras found in flagship devices from the likes of Samsung, Apple, or Google, but the Nokia 7.1 doesn’t come with a flagship price tag either.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Battery: Enough to last through the work day**
 
  In our testing, we found the battery life to be somewhat lacking. We subjected the Nokia 7.1 to PCMark’s Work 2.0 battery test, which is designed to simulate constant web browsing and other tasks, and the battery petered out after about seven hours.
@@ -205,6 +202,13 @@ Lifewire
  In regular use, we found that the battery was able to stand up to a full day of phone calls, emails, and some light web browsing, video streaming, and playing music.
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/cD8xK_vs2o2eQxdv-D11RS_1jhE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_5-e19cf3cd1c1f41f69279dbbcf965caf3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
@@ -224,9 +228,6 @@ Lifewire
 
  The Nokia 7.1 is a mid-range handset in terms of price, but it packs a lot of features that you’d expect from a much more expensive phone. It retails for $349 which, in the world of ever-expanding handset price tags, almost borders on the budget category. For what you get in terms of style, specifications, and features, that’s a pretty good deal.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ## **Competition: Stacks up well against the competition**
 
  The Nokia 7.1 has specs and performance that are more or less in line with flagship phones from the recent past and stacks up very favorably against contemporary mid-range phones. For example, the Motorola One retails at $399 and has a lower resolution display, a less competent camera, and an older, slower processor.
@@ -250,8 +251,12 @@ Lifewire
 * [Motorola Moto G6](https://www.lifewire.com/motorola-moto-g6-review-4689366)
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  7.1
@@ -278,11 +283,27 @@ Lifewire
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-the-ultimate-tool-list-beyond-sharex/"><u>[New] 2024 Approved The Ultimate Tool List Beyond ShareX</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-a-guide-to-formulating-successful-product-sponsorships-in-youtubespace/"><u>[New] A Guide to Formulating Successful Product Sponsorships in YouTubespace</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-navigating-fade-inout-processes-in-audacity/"><u>[New] Navigating Fade-In/Out Processes in Audacity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/choosing-between-amazons-fire-and-samsungs-tablet-the-ultimate-comparison/"><u>Choosing Between Amazon's Fire and Samsung's Tablet - The Ultimate Comparison</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-your-mobile-game-library-the-8-finest-titles-on-google-play-pass/"><u>Elevate Your Mobile Game Library: The 8 Finest Titles on Google Play Pass</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-resurrected-world-in-depth-review-of-7-days-to-die/"><u>Exploring the Resurrected World: In-Depth Review of '7 Days to Die'</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-regain-superuser-status-in-windows-terminal/"><u>How to Regain Superuser Status in Windows Terminal</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Poco M6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/leveraging-chatgpts-intelligence-to-devise-effective-and-nutritious-meal-plans/"><u>Leveraging ChatGPT's Intelligence to Devise Effective and Nutritious Meal Plans</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-robotics-at-home-discover-how-makeblocks-mbot-kit-empowers-young-innovators/"><u>Mastering Robotics at Home? Discover How Makeblock's mBot Kit Empowers Young Innovators</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-essential-checklist-for-choosing-a-lightweight-compact-tablet/"><u>The Essential Checklist for Choosing a Lightweight, Compact Tablet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-tp-links-deco-p9-for-effortless-mesh-wi-fi-setup/"><u>The Ultimate Review of TP-Link's Deco P9 for Effortless Mesh Wi-Fi Setup</u></a></li>
+<li><a href="https://driver-download.techidaily.com/windows-11-optimized-installation-guide-for-nvidia-geforce-210-updated-drivers/"><u>Windows 11 Optimized - Installation Guide for NVIDIA GeForce 210 Updated Drivers</u></a></li>
+</ul></div>
+

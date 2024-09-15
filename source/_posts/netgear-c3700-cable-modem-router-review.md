@@ -1,7 +1,7 @@
 ---
 title: Netgear C3700 Cable Modem Router Review
-date: 2024-08-03T23:04:31.629Z
-updated: 2024-08-04T23:04:31.629Z
+date: 2024-09-10T19:34:39.736Z
+updated: 2024-09-15T18:24:28.535Z
 categories:
   - BestProducts
 description: This Article Describes Netgear C3700 Cable Modem Router Review
@@ -15,9 +15,6 @@ thumbnail: https://www.lifewire.com/thmb/gviNJgKKnr3PxooAF6y3zR6wYS8=/400x300/fi
 
 ## Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/kFg5xi-56ujXYZRJ5JqhJueaSnw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_HeroSquare-61fda9713bb44c89bf3c2f1f74386bee.jpg)
 
 Lifewire / Erika Rawes
@@ -44,9 +41,6 @@ Lifewire / Erika Rawes
 
 ## Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/_gP-SgRbIGXPYdlmqqhNJSxhmSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_HeroSquare-61fda9713bb44c89bf3c2f1f74386bee.jpg)
 
 Lifewire / Erika Rawes
@@ -75,9 +69,6 @@ Lifewire / Erika Rawes
 
  The[Netgear](https://www.lifewire.com/best-netgear-routers-4159862) Nighthawk RAX120 is supposed to provide lightning-fast speeds while serving as one of the[best long-range wireless routers](https://www.lifewire.com/best-long-range-routers-4122554) currently on the market. Fully loaded with[Wi-Fi 6 technology](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , smart home connectivity, and a slew of other features, the AX12 should be an ideal router for small businesses, very large homes, or for homes with multiple devices. I tested the Netgear Nighthawk RAX120 to see how well it performs in the real world.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Batman’s router**
 
  The Netgear Nighthawk RAX120 has a futuristic design—angular, with clean lines. It looks like a cross between a spaceship and the Batmobile. It’s matte black and rectangular, but instead of the multiple antennas you’d typically see protruding from the top of a Nighthawk router, it has two wing-like extensions that come from each side.
@@ -94,9 +85,6 @@ Lifewire / Erika Rawes
 
  The app guides you through creating separate 2.4 and 5GHz networks, but you can also take advantage of a feature called smart connect, which combines your networks and designates your devices based on optimal performance. You can create a guest network, as well as manage and monitor your devices individually. The initial setup process took me about ten minutes in total.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Connectivity: Superfast speeds**
 
  The RAX120 is a workhorse. It's classified as a[dual-band router](https://www.lifewire.com/dual-band-wireless-networking-explained-818279) , but there's also a[tri-band](https://www.lifewire.com/best-long-range-routers-4122554) version available (the RAX200). The RAX120 supports 802.11ax, which is also known as Wi-Fi 6\. Although Wi-Fi 6 is still relatively new, the addition of Wi-Fi 6 future-proofs the RAX120 to a certain degree. It allows for faster speeds, better battery life on your Wi-Fi 6 compatible and IoT devices, and less congestion on your network.
@@ -105,16 +93,17 @@ Lifewire / Erika Rawes
 
  The RAX120 has four Gigabit Ethernet ports on the back (two of which can be combined to support a larger file transfer rate of 2 GB) and a multigig Ethernet port that supports speeds up to 5 gigs. I was impressed overall with the location and specifications of the ports, but I would have liked to see more Ethernet ports on a router this expensive.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/y2V4Ncx3Z1ul8B-4lsc_IeiyCRQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_04-9e452ddedd2b4a46893fddd147c06d4f.jpg)
 
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Network performance: Stellar**
 
  The Nighthawk RAX120 indicates top speeds of 1,200 Mbps on the 2.4Ghz band and 4,800 Mbps on the 5Ghz band. My Internet speed maxes out at 500 Mbps. I have about 50 connected devices, more than half of which are smart home devices like smart light switches, smart appliances, security cameras, and smart speakers and displays. The RAX120 had no problem managing my numerous smart devices, nor did I experience any lag or connectivity issues on streaming and gaming devices. I simultaneously ran a gaming computer, two playstations, and two FireTVs without the connection missing a beat.
@@ -128,8 +117,12 @@ Lifewire / Erika Rawes
  The RAX120 is backward compatible with 802.11a/b/g/n/ac as well, so it’ll work with virtually all of your devices, Wi-Fi 6 or not.
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Key Features: Quality hardware, lacks antivirus**
 
  Under the hood, the Nighthawk RAX120 has a 64-bit[Quad-core](https://www.lifewire.com/multiple-core-processors-832453) 2.2GHz processor. The quality hardware helps ensure stable and reliable performance. The router has two USB 3.0 storage ports on the back for connecting an external hard drive.
@@ -148,6 +141,13 @@ Lifewire / Erika Rawes
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/MPwp1LtMC7Ua30t8VnJy7bjuqn4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_02-94fbae95ca5d4851a1cf40b197da4161.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Price: Expensive**
@@ -155,8 +155,12 @@ Lifewire / Erika Rawes
  The Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router will cost you a pretty penny—it sells for $400, which is $100 lower than its original retail price of $500\. But it’s still on the higher end of the price spectrum, especially considering it doesn’t include any sort of mesh points, and you only get the router, power supply, and an Ethernet cable.
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Netgear Nighthawk RAX120 vs. TP-Link Archer AX6000**
 
  More and more Wi-Fi 6 routers continue to hit the market, including the TP-Link Archer AX6000 (view on[Amazon](https://www.amazon.com/TP-Link-AX6000-8-Stream-Smart-Router/dp/B07L56SN8Mhttps:/www.amazon.com/TP-Link-AX6000-8-Stream-Smart-Router/dp/B07L56SN8Mhttps:/www.amazon.com/TP-Link-AX6000-8-Stream-Smart-Router/dp/B07L56SN8M/?tag=lifewire-onsite-prod-20&ascsubtag=4942498%7Cn31dea18fa28a4d9a88e5e3a62470a49720%7C) ). Like the Nighthawk RAX120, the Archer AX6000 has a quad-core processor, but the Nighthawk’s processor is 2.2 GHz, while the TP-Link Archer’s CPU is only 1.8 GHz. The Nighthawk features the WPA3 security protocol, while the Archer AX6000 does not yet have WPA3\. The Nighthawk RAX120 doesn’t outshine the Archer in every area though. The TP-Link Archer AX6000 has eight[LAN](https://www.lifewire.com/what-is-lan-4684071) ports, includes antivirus protection, has better integration with smart home platforms, and it costs $100 less.
@@ -190,14 +194,11 @@ Lifewire / Erika Rawes
 * Processor  AX optimized powerful 64-bit Quad-core 2.2GHz processor
 * Range  3,500 square feet
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -205,3 +206,22 @@ Lifewire / Erika Rawes
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-frolic-in-fun-the-best-comedy-centric-concepts-for-shorter-videos/"><u>[New] 2024 Approved Frolic in Fun The Best Comedy-Centric Concepts for Shorter Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-economics-of-youtube-ad-revenues-per-1000-views/"><u>[New] 2024 Approved The Economics of YouTube Ad Revenues per 1000 Views</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-step-by-step-approach-to-best-youtube-thumbnails-for-2024/"><u>[New] A Step-by-Step Approach to Best YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-unlock-audio-content-in-vimeo-using-mp3-technology/"><u>[New] In 2024, Unlock Audio Content in Vimeo Using MP3 Technology</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-sci-fis-new-frontiers-a-compilation-of-incredible-metaverse-movie-experiences/"><u>[New] Sci-Fi's New Frontiers A Compilation of Incredible Metaverse Movie Experiences</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-delving-into-magix-photo-editors-features/"><u>2024 Approved Delving Into MAGIX Photo Editor's Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazfit-helio-ring-find-out-how-much-when-it-drops-and-whats-inside/"><u>Amazfit Helio Ring - Find Out How Much, When It Drops, and What's Inside!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-basics-sleek-tablet-support-reviewed-the-ultimate-travel-companion/"><u>Amazon Basics' Sleek Tablet Support Reviewed: The Ultimate Travel Companion!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/demons-souls-revisited-enhanced-visuals-and-the-quintessential-gaming-experience/"><u>Demons' Souls Revisited: Enhanced Visuals and the Quintessential Gaming Experience</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/expert-picks-top-sbcs-with-rp2040-chipset-set-to-release/"><u>Expert Picks: Top SBCs with RP2040 Chipset Set to Release</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-amplify-earnings-monetize-youtube-on-the-go-with-effective-techniques/"><u>In 2024, Amplify Earnings Monetize YouTube on the Go with Effective Techniques</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/master-your-art-with-the-giant-canvas-of-the-htiu-kamvas-gt-191-drawing-tablet-in-depth-analysis/"><u>Master Your Art with the Giant Canvas of the HTIU Kamvas GT-191 Drawing Tablet - In-Depth Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revved-up-for-another-round-dive-into-our-in-depth-fortnite-battle-royale-season-reveal/"><u>Revved Up for Another Round: Dive Into Our In-Depth Fortnite Battle Royale Season Reveal</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/the-ultimate-webcam-users-guide-for-quality-recordings/"><u>The Ultimate WebCam User's Guide for Quality Recordings</u></a></li>
+</ul></div>
+

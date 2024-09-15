@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Review of the Mavix M9: The Pinnacle of Gamer's Seating Comfort"
-date: 2024-08-03T23:04:31.017Z
-updated: 2024-08-04T23:04:31.017Z
+date: 2024-09-10T16:41:01.976Z
+updated: 2024-09-15T18:40:32.067Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Review of the Mavix M9: The Pinnacle of Gamer's Seating Comfort"
@@ -15,9 +15,6 @@ thumbnail: https://thmb.techidaily.com/c19a308589c95b1ddee27c6a5a356d350b91c656d
 
 ## Microsoft Xbox Series S
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Xbox Series S](https://www.lifewire.com/thmb/AIM68phvq5X0vRf1yv3G8I9S2ic=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -46,9 +43,6 @@ Lifewire / Jeremy Laukkonen
 
 ## Microsoft Xbox Series S
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Xbox Series S](https://www.lifewire.com/thmb/wlG_GrSmQPVex-VRt3ap4hsTP-s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -76,16 +70,10 @@ Lifewire / Jeremy Laukkonen
 
  This console is remarkably compact and has a surprisingly low price point. Gamers looking for a[4K UHD in HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) experience will need to pay a premium for the Series X, but the Xbox Series S offers an enticing alternative if you’re looking to save some money or haven’t yet made the jump to 4K.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Sleek and compact**
 
  The Xbox Series S is small, and it's almost impossible to oversell that point. I had seen pictures and videos of the console and the spec sheet, but I was still surprised at how compact this thing was when I unboxed it. It's smaller than the Xbox One S, and Microsoft bills it as "our smallest Xbox ever." That's especially noteworthy since Microsoft and Sony went exceptionally big with their flagship consoles, the Series X and PlayStation 5.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Xbox Series S](https://www.lifewire.com/thmb/3-mUIkkRYilM5F2tvCYMPXtW1Ew=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1-04d996bcdfbb489d84e8945e4c475713.JPG)
 
  Lifewire / Jeremy Laukkonen
@@ -93,6 +81,13 @@ Lifewire / Jeremy Laukkonen
  The overall form factor of the Series S is similar to the Xbox One S, but the Series S lacks an optical drive and includes a massive circular vent on one side. This striking design choice has drawn comparisons to a speaker and a washing machine. It also bears a passing resemblance to Microsoft’s[adaptive controller](https://www.lifewire.com/what-is-the-xbox-adaptive-controller-4707753) , which is boxy, white, and features two large black circular pads. This aesthetic might not be for everyone, but I like how it stands next to my television.
 
  Aside from the bold vent grill, the Series S doesn’t break any new ground regarding design choices. It has sturdy rubber feet on two sides, so you can lay it flat or stand it up on end, as has become more or less standard with home consoles. It feels pretty sturdy in both positions.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Easier than ever before**
 
@@ -103,6 +98,13 @@ Lifewire / Jeremy Laukkonen
  I highly recommend setting up the Xbox Series S with the help of the Xbox app. It massively streamlines the process, makes it easier to connect to Wi-Fi since you don’t need to type out your password with the Xbox’s on-screen keyboard, and even pre-loads the Series S with settings from your old Xbox One if you had one.
 
  I ended up wiping the console back to factory settings a few times while I put it through its paces, so I also tried the traditional setup method after circling back. It’s similar to setting up an Xbox One; not that difficult or time-consuming, but the app option is better.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Rock solid 1440p gaming**
 
@@ -126,9 +128,6 @@ Lifewire / Jeremy Laukkonen
 
  Load times were negligible in each game I played, which I expected from a super-fast NVME SSD storage system. Some games had more noticeable load times than others, but not enough to disrupt gameplay.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Games: Microsoft still has an exclusivity problem**
 
  You won't have any shortage of games to play on the Xbox Series S, especially if you're a[Game Pass](https://www.lifewire.com/xbox-game-pass-4178809) subscriber. I predicted that the Series S would be the ultimate Game Pass machine at release, and that prediction has borne fruit in my home, at least.
@@ -145,9 +144,6 @@ Lifewire / Jeremy Laukkonen
 
  Microsoft's $7.5B purchase of Bethesda's parent company, Zenimax, brought some hope of additional exclusives appearing in Microsoft's arsenal. (Bethesda is the publisher of Fallout, DOOM, Dishonored, Skyrim, Wolfenstein, The Elder Scrolls, and more.) However, the situation is murky as the company has yet to clarify which (if any) Bethesda titles will be exclusive to Xbox.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Storage: Disappointingly shallow, so bring your USB drive**
 
  The biggest problem with the Xbox Series S is the lack of storage. Unlike the Series X, which packs in a 1TB drive, the Series S only offers 512GB of space. That's an extremely shallow pool to swim in when dealing with an all-digital console, as you have to download every game you play.
@@ -162,14 +158,18 @@ Lifewire / Jeremy Laukkonen
 
  So if you go with an external USB drive, you'll only be able to play Xbox One, Xbox 360, and original Xbox games stored on it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ## **Internet Connectivity: Fast when wired, but Wi-Fi is a mixed bag**
 
  With all those massive games and the fact that the Series S is a digital-only console, you will spend a lot of time downloading. The Series S has built-in Wi-Fi and an Ethernet port, so you have options, but a wired connection is the way to go here.
 
 ![Xbox Series S](https://www.lifewire.com/thmb/_GSxQvNgtJMhoyNl62qlg671Qvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2-25991056c5c2486695923f7c1b61c7b5.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -179,11 +179,31 @@ Lifewire / Jeremy Laukkonen
 
  The bottom line is that the Series S provided fairly unimpressive download speeds over Wi-Fi but tore it up when connected via Ethernet. You’ll want to connect this all-digital console via Ethernet to a fast internet connection.
 
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software and User Interface: Familiar and cozy**
 
  Microsoft isn’t looking to rock the boat with the Xbox Series X|S in terms of the user interface. If you’ve used an Xbox One, you’ll find the Xbox Series X|S user interface strangely familiar. The dashboard looks almost the same, and the guide functions as expected. There are a few upgrades and changes here and there, but this is nothing like the massive change between the Xbox 360 dashboard and the Xbox One dashboard.
 
  An overhaul of the dashboard is currently in the works, and we expect it to arrive in 2023.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Controller: Iteration more than innovation**
 
@@ -213,9 +233,6 @@ Lifewire / Jeremy Laukkonen
 
  One expense you may need to budget is a high-speed USB 3.1 drive. The console is perfectly usable without an external drive, but expect to uninstall games regularly to make more space if you limit yourself to the onboard storage.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Xbox Series S vs. PS5 Digital**
 
  This comparison is a bit of an unfair fight because Microsoft and Sony took entirely different approaches when designing their lower-priced console options. Microsoft cut back on hardware to offer an incredibly low price point, while Sony removed the optical drive. The result is that the PS5 Digital blows the Xbox Series S out of the water in terms of graphics and performance, but they aren’t even in the same time zone in terms of price.
@@ -240,9 +257,6 @@ Lifewire / Jeremy Laukkonen
 
 [Nintendo Switch Lite Review](https://www.lifewire.com/nintendo-switch-lite-review-4788015)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Xbox Series S
@@ -266,11 +280,29 @@ Lifewire / Jeremy Laukkonen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-speedy-view-of-vimeo-videos/"><u>[New] In 2024, Speedy View of Vimeo Videos</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-comprehending-variants-in-windows-movie-maker-software/"><u>[Updated] In 2024, Comprehending Variants in Windows Movie Maker Software</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/artisanarray-pro-online-creation-powerhouse-for-2024/"><u>ArtisanArray Pro Online Creation Powerhouse for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/behind-the-scenes-foddian-game-origins/"><u>Behind-the-Scenes: Foddian Game Origins</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/brookstones-frames-photography-at-its-peak/"><u>Brookstone's Frames - Photography at Its Peak</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-google-nest-hello-camera-features-including-face-identification-and-parcel-alerts/"><u>Comprehensive Analysis of the Google Nest Hello Camera: Features Including Face Identification & Parcel Alerts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/excellence-in-sound-leading-cd-players-and-changers-of-24/"><u>Excellence in Sound: Leading CD Players & Changers of '24</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-the-cutting-edge-technology-within-samsungs-note2nultra-5g-device/"><u>Expert Review: The Cutting-Edge Technology Within Samsung's Note2nUltra 5G Device</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Samsung Galaxy A23 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-youtube-audience-analysis-the-art-of-finding-your-market/"><u>In 2024, Youtube Audience Analysis The Art of Finding Your Market</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-premier-insights-into-cutting-edge-music-video-production/"><u>New 2024 Approved Premier Insights Into Cutting-Edge Music Video Production</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sky-secrets-unraveled-an-aminy-review/"><u>Sky Secrets Unraveled: An Aminy Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sony-playstation-5-review/"><u>Sony PlayStation 5 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-30-fastest-portable-car-chargers-under-50-find-your-ideal-anker-option-here/"><u>Top 30 Fastest Portable Car Chargers Under $50 – Find Your Ideal Anker Option Here!</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/trailblazing-the-mobile-app-landscape-for-2024/"><u>Trailblazing the Mobile App Landscape for 2024</u></a></li>
+</ul></div>
+

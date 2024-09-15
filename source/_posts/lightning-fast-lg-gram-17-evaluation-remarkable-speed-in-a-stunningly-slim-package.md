@@ -1,7 +1,7 @@
 ---
 title: "Lightning-Fast LG Gram 17 Evaluation: Remarkable Speed in a Stunningly Slim Package"
-date: 2024-08-03T23:04:29.777Z
-updated: 2024-08-04T23:04:29.777Z
+date: 2024-09-08T21:38:05.003Z
+updated: 2024-09-15T20:34:40.413Z
 categories:
   - BestProducts
 description: "This Article Describes Lightning-Fast LG Gram 17 Evaluation: Remarkable Speed in a Stunningly Slim Package"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/ba76116c91cec15f733719364aa6184afdfb3d250
 
 3.6
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/bJGZVvLPIuXJptw8uPYtObxbpMQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
@@ -42,15 +39,8 @@ thumbnail: https://thmb.techidaily.com/ba76116c91cec15f733719364aa6184afdfb3d250
 
 3.6
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/EEEMCdq2FsBPMcT8nPUgndDIw4A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
 
  Lifewire / Zach Sweat
@@ -95,9 +85,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  On the front of the screen, the bezels are a little thicker than some of the 4K TVs we’ve reviewed, but they’re pretty thin and shouldn’t distract. There’s your standard anti-glare coating found on the screen here too.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Stick to the on-screen instructions**
 
  Setting up pretty much any modern-day smart TV is an easy process, so just stick to the on-screen instructions and you’ll be golden. Go ahead and unpack it all, tear off that plastic film, plug in the power cable, and turn on the device.
@@ -110,18 +97,12 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  With the initial process done, you will likely need to run a quick update check. This should automatically pop up, but check under the settings tab if it doesn’t. An update to the firmware should improve things considerably, especially if you need to upgrade to the latest version of Android TV. Updating takes a bit of time to do, so maybe go watch some TV while…oh right. Well, whatever you do during this process, just remember not to unplug the power while it’s running through updates.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Image Quality: Impressive 4K for IPS with some shortcomings**
 
  This section is perhaps the most important for a TV, and while the XBR65X850F performs pretty well in some aspects here, it also has a few weak points.
 
  Starting off with some of this unit’s strengths, this particular series uses an IPS panel for the screen, which means you’re going to get vibrant colors, a nice backlight for viewing in bright rooms, and excellent viewing angles. This all adds up to a superb experience if you’ve got a big living room that’s brightly lit by windows, where viewers might not be able to sit completely centered.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/r5reh9LkA7QvieX1JzBg5J8qNjY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-5-00a73edbf91c48c6aa2718ab211f2e5d.jpg)
 
  Lifewire / Zach Sweat
@@ -138,13 +119,46 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Audio Quality: Loud, but distorted**
 
  Built-in speakers are never going to be great, but they’re nice to have if you’re lacking an[external sound system](https://www.lifewire.com/connect-tv-to-external-audio-system-1846816) like a soundbar. While we’d recommend getting an external setup for the best experience, let’s take a quick look at what the XBR65X850F has to offer with the included setup.
 
  Right off the bat, this TV can get quite loud and you shouldn’t run into any volume issues. That being said, the overall experience is mediocre at best. The louder you turn it up, the more distortion is added. These speakers should suffice in quiet environments if you’re primarily looking for nice clear dialogue with treble and mid, but the bass is not so good.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: A bit sluggish but good enough**
 
@@ -160,9 +174,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  One last thing, your phone can also be used as a remote if you so choose. All you need to do is download the app and connect it to the TV. This works with both Android and iOS devices (thanks Google). While it’s not a good as the regular remote, it works fine enough if you’re too lazy to get up and find the standard remote.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Not bad for the size, but not the cheapest**
 
  The X850F series come in a range of sizes, from 65 to 85 inches, so the prices can vary considerably depending on which one you go with. Any TV in this size range is going to cost a good bit of coin, no matter the manufacturer, but Sony isn’t too bad here.
@@ -190,8 +201,18 @@ DbSchema database designer for all databases, schema design in the team, schema 
  The X850F series is far from perfect, but the Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV and its family are more than capable of providing a pleasurable viewing experience for most people. Despite this, there are probably better options out there that can be had for even less.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
@@ -206,14 +227,11 @@ DbSchema database designer for all databases, schema design in the team, schema 
 * Speakers  2 full range, 2ch
 * Connectivity Options  4 HDMI
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -221,3 +239,17 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-unleashing-creativity-a-gif-sharing-blueprint-on-snapchat/"><u>[New] In 2024, Unleashing Creativity A Gif Sharing Blueprint on Snapchat</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-in-the-smart-home-arena-comparing-alexa-to-google-assistant/"><u>Best in the Smart Home Arena: Comparing Alexa to Google Assistant</u></a></li>
+<li><a href="https://solve-news.techidaily.com/enhancing-digital-compliance-the-role-of-cookiebot-technology/"><u>Enhancing Digital Compliance: The Role of Cookiebot Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-seamless-ride-of-mods-newest-compact-and-portable-escooter/"><u>Exploring the Seamless Ride of Mod's Newest Compact and Portable eScooter</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/head-to-head-comparison-apple-watch-series-9-against-fitbit-charge-6/"><u>Head-to-Head Comparison: Apple Watch Series 9 Against Fitbit Charge 6</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-15-to-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 15 To Android devices? | Dr.fone</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/in-2024-digital-resonance-a-comprehensive-tutorial-for-echo-addition-in-windows-and-web-audio-applications/"><u>In 2024, Digital Resonance A Comprehensive Tutorial for Echo Addition in Windows and Web Audio Applications</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/newcomers-pathway-maximizing-money-on-periscope-platform/"><u>Newcomer's Pathway Maximizing Money on Periscope Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-data-in-the-silent-spaces-beyond-fb/"><u>Your Data in the Silent Spaces Beyond FB</u></a></li>
+</ul></div>
+

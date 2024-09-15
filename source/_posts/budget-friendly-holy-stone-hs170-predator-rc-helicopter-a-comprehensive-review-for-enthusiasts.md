@@ -1,7 +1,7 @@
 ---
 title: "Budget-Friendly Holy Stone HS170 Predator RC Helicopter: A Comprehensive Review for Enthusiasts"
-date: 2024-08-03T23:04:33.123Z
-updated: 2024-08-04T23:04:33.123Z
+date: 2024-09-11T16:46:55.385Z
+updated: 2024-09-15T17:46:04.576Z
 categories:
   - BestProducts
 description: "This Article Describes Budget-Friendly Holy Stone HS170 Predator RC Helicopter: A Comprehensive Review for Enthusiasts"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/852437a8f4dc8f33eb3a839d8b7d9a1e3df217c9c
 
 3.8
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
@@ -40,9 +37,6 @@ Lifewire / Todd Braylor
 
 3.8
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
@@ -68,9 +62,6 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -87,10 +78,6 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ## **Range: Impressive detection**
 
  The Passport S55 features Enhanced Radar Protection that delivers long-distance range for laser and radar bands, including K and Ka bands, widely used microwave frequencies for police radar guns. It reliably delivers on its promise of long-distance sensitivity. While testing the S55 in Highway mode I received Ka-band alerts over a mile and a half out from where I approached a highway patrol parked on the median of the interstate. This range was on par with much more expensive models.
@@ -98,8 +85,12 @@ DbSchema database designer for all databases, schema design in the team, schema 
  It reliably delivers on its promise of long-distance sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: Not exactly enhanced**
 
  The S55 has different modes designed to adjust to specific frequency bands and sensitivity levels for city or highway driving. You can quickly customize the settings by using the included quick reference guide. You can also turn off specific frequency bands if they tend to give a lot of false alerts.
@@ -109,8 +100,12 @@ DbSchema database designer for all databases, schema design in the team, schema 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
@@ -149,11 +144,26 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ropel-your-vlogs-forward-top-seo-tech-unveiled-for-2024/"><u>[New] Propel Your Vlogs Forward – Top SEO Tech Unveiled for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/assessing-if-top-tier-ai-prompts-merit-their-price/"><u>Assessing If Top-Tier AI Prompts Merit Their Price</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/battle-of-tech-giants-contrasting-features-between-ipad-pro-and-macbook-pro/"><u>Battle of Tech Giants: Contrasting Features Between iPad Pro and MacBook Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-kindle-review-a-look-at-the-amazing-features-of-the-amazon-kindle-from-2019/"><u>Budget-Friendly Kindle Review: A Look at the Amazing Features of the Amazon Kindle From 2019</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-repair-libexec32dll-not-found-error-quickly/"><u>How To Repair 'libexec32.dll Not Found' Error Quickly</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-barnes-and-nobles-nook-glowlight-plus-maximizing-reading-experience-with-a-large-screen/"><u>In-Depth Look at Barnes & Noble's Nook GlowLight Plus: Maximizing Reading Experience with a Large Screen</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/navigating-google-meets-virtual-whiteboards-across-appleandroid-and-laptops/"><u>Navigating Google Meet's Virtual Whiteboards Across Apple/Android & Laptops</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/sharpen-your-content-for-unlimited-youtube-exposure-for-2024/"><u>Sharpen Your Content for Unlimited YouTube Exposure for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/snapshot-success-the-photographers-tale-for-2024/"><u>Snapshot Success The Photographer's Tale for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-oneplus-open-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from OnePlus Open to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/troubleshoot-lack-of-sound-and-non-dts-compatibility-on-mx-video-player/"><u>Troubleshoot Lack of Sound & Non-DTS Compatibility on MX Video Player</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-chargetechs-27000mah-power-bank-top-reviews-and-features/"><u>Ultimate Guide to ChargeTech's 27000mAh Power Bank: Top Reviews & Features</u></a></li>
+</ul></div>
+

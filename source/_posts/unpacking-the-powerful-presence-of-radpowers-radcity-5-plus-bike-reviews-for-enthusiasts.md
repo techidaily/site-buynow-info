@@ -1,7 +1,7 @@
 ---
 title: Unpacking the Powerful Presence of RadPower's RadCity 5 Plus – Bike Reviews for Enthusiasts
-date: 2024-08-03T23:04:31.760Z
-updated: 2024-08-04T23:04:31.760Z
+date: 2024-09-13T16:33:41.562Z
+updated: 2024-09-15T19:00:49.287Z
 categories:
   - BestProducts
 description: This Article Describes Unpacking the Powerful Presence of RadPower's RadCity 5 Plus – Bike Reviews for Enthusiasts
@@ -15,9 +15,6 @@ thumbnail: https://www.lifewire.com/thmb/3GT9jyFC3xryigBM-jaeRgctLK0=/400x300/fi
 
 ## Assassin's Creed Valhalla (PC)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ![AC Vallhalla](https://www.lifewire.com/thmb/uNOEoXtNzm8yuWudHDVzDNDutY8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Assassins-Creed-Valhalla-1-b7cabc5b5656439bbb47518048f57aa5.jpg)
 
  Lifewire / Andy Zahn
@@ -41,9 +38,6 @@ thumbnail: https://www.lifewire.com/thmb/3GT9jyFC3xryigBM-jaeRgctLK0=/400x300/fi
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Assassin's Creed Valhalla (PC)
 
 ![AC Vallhalla](https://www.lifewire.com/thmb/1uTfLpDv2WlYuf-Ekg6qBUTQqP4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Assassins-Creed-Valhalla-1-b7cabc5b5656439bbb47518048f57aa5.jpg)
@@ -72,9 +66,6 @@ thumbnail: https://www.lifewire.com/thmb/3GT9jyFC3xryigBM-jaeRgctLK0=/400x300/fi
 
  I played the game on PC for several days, but it’s also available on all other major platforms including the upcoming[Xbox Series X](https://www.lifewire.com/price-release-date-specs-xbox-series-x-5077092) , Xbox One, upcoming[PlayStation 5](https://www.lifewire.com/playstation-5-4778089) , and PlayStation 4\.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Story: A lot going on, and none of it to be spoiled**
 
  There’s a lot to say here, but not much that can be said without spoilers. Given how engaging I found the plot, it would be a shame to spoil it in any way. Suffice it to say that, though it begins as a typical revenge story, it soon becomes more complex and interesting. You play as Eivor, a male or female warrior who raids England during the reign of Alfred the Great.
@@ -137,10 +128,20 @@ thumbnail: https://www.lifewire.com/thmb/3GT9jyFC3xryigBM-jaeRgctLK0=/400x300/fi
 
  Orlog is an interesting dice game that I would honestly like to own in real life, and the drinking minigame is a highly enjoyable reflex-based challenge. A nice touch is that the results of imbibing huge amounts of mead persist for a period of time after the minigame is complete. After all, are you really a Viking warrior if you’re not completely drunk all the time?
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ![AC tattoos](https://www.lifewire.com/thmb/trRirIDsjFej03o-_HDCFsnnrzs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-6-5449cde060b441a499a5189fda9a7a0a.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -151,8 +152,12 @@ thumbnail: https://www.lifewire.com/thmb/3GT9jyFC3xryigBM-jaeRgctLK0=/400x300/fi
  I was particularly struck by the amber rays of the setting sun that slanted through the rigging of my longboat as I returned from a mountain climbing excursion.
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Graphics: Epic good looks**
 
  Valhalla is an absolutely gorgeous game. Everything from the detailed character models to the vibrant open world is beautiful to look upon. Changing weather alters the mood of landscapes, and can create breathtaking moments. I was particularly struck by the amber rays of the setting sun that slanted through the rigging of my longboat as I returned from a mountain climbing excursion.
@@ -164,8 +169,12 @@ thumbnail: https://www.lifewire.com/thmb/3GT9jyFC3xryigBM-jaeRgctLK0=/400x300/fi
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process and Performance: A rough start**
 
  Assassin’s Creed: Valhalla is typical of modern AAA titles in that it requires a big download and a considerable amount of storage space to house on your PC or console. With the day one update to consider, you’re looking at around 50GB.
@@ -174,9 +183,6 @@ thumbnail: https://www.lifewire.com/thmb/3GT9jyFC3xryigBM-jaeRgctLK0=/400x300/fi
 
  When I first jumped into the game after the intro cutscene, I was greeted with the most horrendous graphics glitching I’ve ever experienced. Thinking this was because I had foolishly maxed the settings I restarted after tweaking down graphics, but upon restart, the glitches were appearing in the menu itself. I exited the game and the glitches persisted for about 10 seconds after Valhalla had closed. The built-in benchmarking tool in the game refused to run entirely. In the end, I decided not to push my luck with the laptop.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![AC ruins](https://www.lifewire.com/thmb/R1pb8_CqlpJqAmK9Ka9-pgyOyJk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-3-ea07cee8afaa4cc89c4e2bb286b894a0.jpg)
 
  Lifewire / Andy Zahn
@@ -185,24 +191,34 @@ thumbnail: https://www.lifewire.com/thmb/3GT9jyFC3xryigBM-jaeRgctLK0=/400x300/fi
 
  Of course, if you’re playing on[console](https://www.lifewire.com/best-gaming-consoles-4154610) you don’t have to worry about performance issues since the game is better optimized. It’s currently available for Xbox One and PlayStation 4, and will be available for the Xbox Series X and PlayStation 5 at launch. You can also get it on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) .
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Typical AAA**
 
  The base game will set you back the typical $60, while the gold edition bundles in the season pass and costs a full $100\. That will include the planned expansions which will add Ireland and France to the map. Expensive though $100 is, it does promise a potentially huge amount of content. The game also has microtransactions, which is a bit of a bummer, though these weren’t integrated into the game at the time of writing.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ![AC horse](https://www.lifewire.com/thmb/teY5MG-6xAT5sxNurIFy_iYPPvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-2-58ab82ef1f624e01b1c1c6dab8bca06b.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Assassin’s Creed: Valhalla vs. Watch Dogs: Legion**
 
  It’s interesting that Ubisoft decided to launch two third-person action games set in England within a span of a few weeks. Where Valhalla is set in the Middle Ages,[Watch Dogs: Legion](https://www.lifewire.com/watch-dogs-legion-review-a-new-setting-for-the-series-5085469) is set in a near-future sci-fi dystopia, though in both games you are battling against tyrannical rulers in England. Choose Watch Dogs if you want sci-fi focused on hackers and non-violent solutions, and Valhalla if you love bloody medieval fighting and exploration.
@@ -221,14 +237,11 @@ thumbnail: https://www.lifewire.com/thmb/3GT9jyFC3xryigBM-jaeRgctLK0=/400x300/fi
 * Platforms  PC, Xbox Series X, Xbox One, PlayStation 5, PlayStation 4, Stadia
 * Rating  M
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -236,3 +249,15 @@ thumbnail: https://www.lifewire.com/thmb/3GT9jyFC3xryigBM-jaeRgctLK0=/400x300/fi
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-instagrams-newest-filters-how-to-use-them-for-impact-for-2024/"><u>[New] Instagram's Newest Filters How to Use Them for Impact for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-is-sns-hdr-pro-the-gold-standard-for-hdr-editors/"><u>[Updated] In 2024, Is SNS HDR Pro the Gold Standard for HDR Editors?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-mastering-narratives-the-science-and-art-of-crafting-memorable-fb-stories/"><u>2024 Approved Mastering Narratives The Science and Art of Crafting Memorable FB Stories</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/chatgpt-accounts-a-cybercriminals-playground/"><u>ChatGPT Accounts: A Cybercriminal's Playground?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insignia-ns-4ns-df710nacd-exploring-the-affordable-fire-tv-edition-with-alexa-and-ultra-hd-capabilities/"><u>Insignia NS-4nS-Df710NACd: Exploring the Affordable Fire TV Edition with Alexa and Ultra HD Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-bargain-for-quality-4k-action-capture-akaso-ek7000/"><u>The Best Bargain for Quality 4K Action Capture - AKASO EK7000</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unraveling-the-mobvoi-ticwatch-pro-3-superior-gps-capabilities-meet-enhanced-dual-display-longevity-in-our-test-drive/"><u>Unraveling the Mobvoi TicWatch Pro 3: Superior GPS Capabilities Meet Enhanced Dual Display Longevity in Our Test Drive</u></a></li>
+</ul></div>
+

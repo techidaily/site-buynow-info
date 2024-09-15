@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Holy Stone Remote Control Cars - Perfect for Kids and Families
-date: 2024-08-03T23:04:34.388Z
-updated: 2024-08-04T23:04:34.388Z
+date: 2024-09-12T21:12:15.664Z
+updated: 2024-09-15T18:38:27.777Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Guide to Holy Stone Remote Control Cars - Perfect for Kids and Families
@@ -13,9 +13,6 @@ thumbnail: https://www.lifewire.com/thmb/1Xa3CUtwyCwjaGnJzoGrAJh238k=/400x300/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ## TopMate C302 Laptop Cooling Pad
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/aiCouzmBGM4njr9Ovpa0MfLae4E=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
@@ -42,9 +39,6 @@ Lifewire / Andrew Hayward
 
 ## TopMate C302 Laptop Cooling Pad
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
 
 Lifewire / Andrew Hayward
@@ -87,20 +81,21 @@ Lifewire / Andrew Hayward
 
  The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Setup Process: Plug and play
 
  The C302 is a purely plug-and-play accessory with no flashy perks or settings to deal with, nor any need for software on your computer. Simply place it under your laptop, adjust the feet and holding nubs as desired, and plug the USB port into your computer to power on the pad. The fans will then activate and run at the only available speed, and you can unplug it when you’re done or don’t need it anymore.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Performance: It makes a difference
 
  I tested the C302 using the[Razer Blade 15 (2019) gaming laptop](https://www.lifewire.com/razer-blade-15-review-4845229) , which is equipped with an Intel Core i7-9750H processor and 16GB RAM, as well as a NVIDIA GeForce GTX 1660 Ti GPU (6GB).
@@ -113,10 +108,6 @@ Lifewire / Andrew Hayward
 
  In Dirt 5’s built-in benchmark test, the Razer Blade 15 hit 184 degrees internally and 117° externally, and those figures dropped to 175 degrees internally and 100 degrees externally with the cooling pad. There was no significant performance difference in the Dirt 5 benchmark when using the cooling pad: The average FPS mark was within one frame with or without the pad in use.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Xs71AyeThjZwy-vZJ9LfxIhuXJc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_04-eadbaf270b874af9bb8843b95efe8ca7.jpg)
 
 Lifewire / Andrew Hayward
@@ -126,15 +117,16 @@ Lifewire / Andrew Hayward
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Price: It’s very affordable
 
  At $30, this is one of the most affordable laptop cooling pads on the market right now. While results varied across multiple tests and games/apps, the C302 was pretty well in line with some of the pricier options I tested. It feels a little flimsy and doesn’t have any premium features, but the C302 is a very good entry-level option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
 
 Lifewire / Andrew Hayward
@@ -155,6 +147,13 @@ Lifewire / Andrew Hayward
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 * [North Face Pivoter Backpack](https://www.lifewire.com/north-face-pivoter-backpack-review-4690198)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  C302 Laptop Cooling Pad
@@ -168,14 +167,11 @@ Lifewire / Andrew Hayward
 * Ports  USB-A
 * Waterproof  N/A
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -183,3 +179,23 @@ Lifewire / Andrew Hayward
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-innovation-in-action-youtube-split-screen-techniques/"><u>[Updated] Innovation in Action YouTube Split-Screen Techniques</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-best-compact-cameras-for-1000-or-less-4k/"><u>2024 Approved Best Compact Cameras for $1000 or Less (4K)</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/a-closer-look-at-the-world-of-digital-video-recorders-features-benefits-and-usage/"><u>A Closer Look at the World of Digital Video Recorders: Features, Benefits, and Usage</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-hd-reception-with-amazonbasics-flat-tv-antenna-your-guide-to-cutting-costs-on-broadcast-television/"><u>Affordable HD Reception with AmazonBasics' Flat TV Antenna - Your Guide to Cutting Costs on Broadcast Television!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/beyond-increased-power-delving-into-the-features-and-gameplay-of-sony-ps5/"><u>Beyond Increased Power: Delving Into the Features and Gameplay of Sony PS5</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-leading-television-streaming-applications/"><u>Discover the Leading Television Streaming Applications</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-enhanced-features-of-ring-video-doorbell-proplus/"><u>Expert Insights on the Enhanced Features of Ring Video Doorbell Pro+</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-secure-your-accounts-with-2fa-gmail-outlook-and-more/"><u>How to Secure Your Accounts With 2FA: Gmail, Outlook, and More</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-best-slow-motion-cameras-ranked/"><u>In 2024, Best Slow-Motion Cameras Ranked</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-tecno-pova-6-pro-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Tecno Pova 6 Pro 5G Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ion-tailgater-plus-speaker-review-endless-hours-of-enhanced-bass-boosted-soundscape-at-a-glance/"><u>ION Tailgater Plus Speaker Review: Endless Hours of Enhanced Bass-Boosted Soundscape at a Glance</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-top-rated-chroma-key-apps-for-mobile-free-downloads-for-android-and-ios/"><u>New 2024 Approved Top-Rated Chroma Key Apps for Mobile Free Downloads for Android & iOS</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-pros-guide-to-best-ever-360-degree-cams-2023/"><u>The Pro’s Guide to Best-Ever 360-Degree Cams, 2023</u></a></li>
+<li><a href="https://video-capture.techidaily.com/top-10-tips-for-remotely-recording-your-podcasts/"><u>Top 10 Tips for Remotely Recording Your Podcasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/would-you-benefit-from-chatgpt-plus-discover-the-five-key-perks-that-make-it-worthwhile/"><u>Would You Benefit From ChatGPT Plus? Discover the Five Key Perks That Make It Worthwhile.</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "BDR-XS06 Blu-Ray Burner Unveiled: A Comprehensive Guide to Its Mobility & Efficiency"
-date: 2024-08-03T23:04:29.565Z
-updated: 2024-08-04T23:04:29.565Z
+date: 2024-09-13T16:33:21.023Z
+updated: 2024-09-15T16:33:05.706Z
 categories:
   - BestProducts
 description: "This Article Describes BDR-XS06 Blu-Ray Burner Unveiled: A Comprehensive Guide to Its Mobility & Efficiency"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/71f9ba458987ad5a7e10d53ccc27db4550bc2d9a8
 
 2.7
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/HYgHMUDMFh7JI98Hj0JMbI2wcpw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
@@ -65,9 +62,6 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
 
  Lifewire / Kelsey Simon
@@ -79,16 +73,24 @@ Lifewire / Kelsey Simon
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Gameplay: Dialogue prompts and effort**
 
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -110,12 +112,16 @@ Lifewire / Kelsey Simon
 
  The one positive is the originality in the world the developers have created. The setting feels unique―a mix of strange alien tech within a fantasy city. A wide range of characters will fill the game, and they respond and react in creative ways. It’s also a fun experience to run around and talk to these various characters and explore the game’s world and the lore of Numenera.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123466/16836" target="_top" id="2123466">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123466" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123466/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Only worth it if you’re keen on the story**
 
@@ -137,9 +143,6 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Torment: Tides of Numenera
@@ -148,14 +151,11 @@ Lifewire / Kelsey Simon
 * ESRB Rating  M for Mature
 * Available Platforms  PC, MaxOS,Xbox One, PlayStation 4
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -163,3 +163,21 @@ Lifewire / Kelsey Simon
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-smooth-sailing-for-iphone-video-content-creators/"><u>[New] Smooth Sailing for iPhone Video Content Creators</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-premium-slideshow-tools-for-iphone-series-9-13-xr-ios13/"><u>[Updated] 2024 Approved Premium Slideshow Tools For iPhone Series 9-13 (XR-iOS13)</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-speedy-pc-file-examination-guide/"><u>[Updated] Speedy PC File Examination Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-your-smartphone-as-an-artists-canvas-producing-quality-youtube-video-content/"><u>2024 Approved Your Smartphone as an Artist’s Canvas Producing Quality YouTube Video Content</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/an-empirical-analysis-of-imperator-rome-building-a-dynasty-on-the-edge-of-war/"><u>An Empirical Analysis of Imperator: Rome – Building A Dynasty On The Edge Of War</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/disable-mouse-scroll-speed-boosting-techniques-on-your-apple-computer/"><u>Disable Mouse Scroll Speed Boosting Techniques on Your Apple Computer</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-implement-chatgpt-widget-for-android-devices-a-step-by-step-guide/"><u>How To Implement ChatGPT Widget For Android Devices - A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/macbook-showdown-the-air-versus-the-pro-debate/"><u>MacBook Showdown: The Air Versus the Pro Debate</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-the-ultimate-list-of-free-avi-video-rotation-tools-windows-mac-mobile-online/"><u>New The Ultimate List of Free AVI Video Rotation Tools Windows, MAC, Mobile, Online</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solution-steps-correcting-the-idt-software-package-unable-to-support-detected-hardware-issue/"><u>Solution Steps: Correcting the IDT Software Package Unable to Support Detected Hardware Issue</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sony-49-4k-ultra-hd-smart-led-tv-xbr49x900f-comprehensive-product-assessment/"><u>Sony 49 4K Ultra HD Smart LED TV XBR49X900F - Comprehensive Product Assessment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stay-on-top-of-your-exercise-game-with-the-music-enabled-garmin-vivoactive-3/"><u>Stay on Top of Your Exercise Game with the Music-Enabled Garmin Vivoactive 3</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-tips-on-optimal-placement-of-your-ps4-webcam/"><u>Top Tips on Optimal Placement of Your PS4 Webcam</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: Ultimate List of Compact Gaming Computers in the Market
-date: 2024-08-03T23:04:30.351Z
-updated: 2024-08-04T23:04:30.351Z
+date: 2024-09-14T17:43:52.740Z
+updated: 2024-09-15T18:14:48.085Z
 categories:
   - BestProducts
 description: This Article Describes Ultimate List of Compact Gaming Computers in the Market
@@ -13,14 +13,8 @@ thumbnail: https://www.lifewire.com/thmb/NWa72n3bWHCjodzKPT4L6wk_ofA=/540x405/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Microsoft Xbox Series S
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Xbox Series S](https://www.lifewire.com/thmb/AIM68phvq5X0vRf1yv3G8I9S2ic=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -47,9 +41,6 @@ Lifewire / Jeremy Laukkonen
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Microsoft Xbox Series S
 
 ![Xbox Series S](https://www.lifewire.com/thmb/wlG_GrSmQPVex-VRt3ap4hsTP-s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
@@ -83,9 +74,6 @@ Lifewire / Jeremy Laukkonen
 
  The Xbox Series S is small, and it's almost impossible to oversell that point. I had seen pictures and videos of the console and the spec sheet, but I was still surprised at how compact this thing was when I unboxed it. It's smaller than the Xbox One S, and Microsoft bills it as "our smallest Xbox ever." That's especially noteworthy since Microsoft and Sony went exceptionally big with their flagship consoles, the Series X and PlayStation 5.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Xbox Series S](https://www.lifewire.com/thmb/3-mUIkkRYilM5F2tvCYMPXtW1Ew=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1-04d996bcdfbb489d84e8945e4c475713.JPG)
 
  Lifewire / Jeremy Laukkonen
@@ -93,6 +81,13 @@ Lifewire / Jeremy Laukkonen
  The overall form factor of the Series S is similar to the Xbox One S, but the Series S lacks an optical drive and includes a massive circular vent on one side. This striking design choice has drawn comparisons to a speaker and a washing machine. It also bears a passing resemblance to Microsoft’s[adaptive controller](https://www.lifewire.com/what-is-the-xbox-adaptive-controller-4707753) , which is boxy, white, and features two large black circular pads. This aesthetic might not be for everyone, but I like how it stands next to my television.
 
  Aside from the bold vent grill, the Series S doesn’t break any new ground regarding design choices. It has sturdy rubber feet on two sides, so you can lay it flat or stand it up on end, as has become more or less standard with home consoles. It feels pretty sturdy in both positions.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Easier than ever before**
 
@@ -160,10 +155,14 @@ Lifewire / Jeremy Laukkonen
 
  With all those massive games and the fact that the Series S is a digital-only console, you will spend a lot of time downloading. The Series S has built-in Wi-Fi and an Ethernet port, so you have options, but a wired connection is the way to go here.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![Xbox Series S](https://www.lifewire.com/thmb/_GSxQvNgtJMhoyNl62qlg671Qvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2-25991056c5c2486695923f7c1b61c7b5.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -173,14 +172,18 @@ Lifewire / Jeremy Laukkonen
 
  The bottom line is that the Series S provided fairly unimpressive download speeds over Wi-Fi but tore it up when connected via Ethernet. You’ll want to connect this all-digital console via Ethernet to a fast internet connection.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software and User Interface: Familiar and cozy**
 
  Microsoft isn’t looking to rock the boat with the Xbox Series X|S in terms of the user interface. If you’ve used an Xbox One, you’ll find the Xbox Series X|S user interface strangely familiar. The dashboard looks almost the same, and the guide functions as expected. There are a few upgrades and changes here and there, but this is nothing like the massive change between the Xbox 360 dashboard and the Xbox One dashboard.
 
  An overhaul of the dashboard is currently in the works, and we expect it to arrive in 2023.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Controller: Iteration more than innovation**
 
@@ -196,12 +199,23 @@ Lifewire / Jeremy Laukkonen
 
  Aside from that, the only other item of note is that the Xbox Series X|S controller includes a fairly aggressive texture on the grips that feels quite nice when held.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Xbox Series S](https://www.lifewire.com/thmb/MZdEnnFWPzhGzv_P5GO8byAY5qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3-dd9458b294e74205acad2ff6fee33913.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Jaw-droppingly low**
 
@@ -227,9 +241,6 @@ Lifewire / Jeremy Laukkonen
 
  The Xbox Series S might be a bit of a step back from the Xbox One X in performance, but the fact is that it’s a next-gen console that plays next-gen games with some impressive hardware and an unreal price tag. Gamers in search of the best graphics possible will want to look at the Xbox Series X instead, but gamers who haven’t yet made the 4K plunge, parents in need of an affordable console for their kids, or anyone looking to save money will all find something to like here.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 [Xbox Series X Review](https://www.lifewire.com/microsoft-xbox-series-x-review-one-power-packed-4k-console-5088039)
@@ -240,9 +251,6 @@ Lifewire / Jeremy Laukkonen
 
 [Nintendo Switch Lite Review](https://www.lifewire.com/nintendo-switch-lite-review-4788015)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Xbox Series S
@@ -266,11 +274,26 @@ Lifewire / Jeremy Laukkonen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-ground-rules-of-e-storytelling-techniques/"><u>[Updated] In 2024, Ground Rules of E-Storytelling Techniques</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-mastering-the-installation-of-movie-maker-6-for-2024/"><u>[Updated] Mastering the Installation of Movie Maker 6 for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-the-ultimate-guide-to-xbox-live-streaming/"><u>2024 Approved The Ultimate Guide to Xbox Live Streaming</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decision-guide-for-selecting-videography-devices/"><u>Decision Guide for Selecting Videography Devices</u></a></li>
+<li><a href="https://extra-information.techidaily.com/eyelaughs-funny-image-generator/"><u>EyeLaughs Funny Image Generator</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/find-local-treasures-for-free-dive-into-oodles-classified-section/"><u>Find Local Treasures for Free: Dive Into Oodle's Classified Section!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/high-end-8-cam-modifiers-for-crystal-clear-feeds/"><u>High-End 8 Cam Modifiers for Crystal Clear Feeds</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-tecno-camon-30-pro-5g-by-fonelab-android-recover-data/"><u>How to recover lost data from Tecno Camon 30 Pro 5G?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/profi-aufnahmetipps-top-programme-zur-herstellung-von-screenshots-auf-dem-macos/"><u>Profi-Aufnahmetipps: Top-Programme Zur Herstellung Von Screenshots Auf Dem macOS</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/splitcam-assessment-best-video-recorder-ranking/"><u>SplitCam Assessment Best Video Recorder Ranking?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-guide-to-youtube-editing-in-imovie-software/"><u>The Ultimate Guide to YouTube Editing in iMovie Software</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-apple-iphone-se-2020-an-ideal-option-for-the-practical-consumer/"><u>Unboxing the Apple iPhone SE (2020) - An Ideal Option for the Practical Consumer</u></a></li>
+</ul></div>
+

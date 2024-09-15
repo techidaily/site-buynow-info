@@ -1,7 +1,7 @@
 ---
 title: "Speed Test of the TP-Link Archer C80: Best Value for Budget-Friendly WiFi Routers"
-date: 2024-08-03T23:04:32.503Z
-updated: 2024-08-04T23:04:32.503Z
+date: 2024-09-12T16:02:14.594Z
+updated: 2024-09-15T16:53:16.352Z
 categories:
   - BestProducts
 description: "This Article Describes Speed Test of the TP-Link Archer C80: Best Value for Budget-Friendly WiFi Routers"
@@ -13,23 +13,8 @@ thumbnail: https://thmb.techidaily.com/3df80ed0f3ba1234db4e3fe9b6b618140f5c8ecbd
 
 4.5
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Logitech C615 HD Laptop Webcam
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/jgH6j34_PXXE9fO2vS4Nr4d3pSM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_HERO_3LW4065141_3_Final_Square-204b4e949e864f148cd513b3511eac69.jpg)
 
 Lifewire / James Huenink
@@ -79,9 +64,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design:** **Flexible, foldable design**
 
  The Logitech C615 is a compact webcam. The whole device folds up into a very small package, just 2.5” wide, 1.25” tall, and 1.5” wide, so you can tuck it into a pocket. When you open it up, the flexible design is simple to position. Unfolded, the webcam has three pieces: the base, neck, and[camera](https://www.lifewire.com/best-digital-cameras-under-100-3897833) . The base is the heaviest part, which means that the camera stays upright even if you don’t perfectly balance everything. The top is made out of a soft, rubbery plastic, and the bottom has a rubbery dot that keeps the base from sliding around. The dot comes off the base to reveal a tripod post, so this camera is compatible with a standard tripod. The only problem is that the dot comes off completely when the tripod post is exposed. If you're prone to losing things, this may be an issue.
@@ -92,16 +74,10 @@ Lifewire / James Huenink
 
  The camera section is made of black plastic with a cropped silver plastic circle around the lens. To the left of the lens there’s an indicator light to show when the camera is on, and the microphone sits to the right of the lens. The 360 swivel not only makes the Logitech C615 easy to position, it also makes it possible to fold the camera lens in on itself to protect it on the go.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/jgQ_lVlvzgmXFPpBg5nEd6pgV_c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_12_Final_Horiz-e97c48d3af6842eb88775a9d703ce2b6.jpg)
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Camera Quality: Quality camera with some autofocus troubles**
 
  The camera takes 1080p video and has a 2 MP sensor. We tested the webcam’s photo capabilities by taking a picture of some packaging. Color was well represented, but the autofocus was just a bit off. The image was just a bit blurry, and we couldn’t read the smaller words at all. This wasn’t a problem close up, but it made a bigger difference when people were far away.
@@ -114,20 +90,28 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/Bko9Uk1HIIMt9aNgtBf9ATCy0AA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_14_Final_Horiz-4f1b9fe91b8c4229b17dbbe6afb81b8c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / James Huenink
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: Decent sound quality for a small mic**
 
  We used both[Photobooth](https://www.lifewire.com/how-to-turn-on-camera-on-mac-4175436) and[Skype](https://www.lifewire.com/how-to-make-hd-skype-calls-3426508) to test the performance of the C615\. It was very easy to position the camera exactly the way we wanted it, though the USB cable occasionally gave us problems. We’d swivel the camera and then the pull of the USB cable would turn the whole base so the camera pointed back at the same spot where it started.
 
  When we used Skype to make calls everything worked great. The HD camera made the video look great, and video and sound were in sync. Close up, the sound was clear but with a thin, distorted tone. From 10 feet away, we heard only a small amount of echo in the call. We also tried using the camera mic with video game noise in the background. The camera clearly caught our voices and downplayed the background noise, helping us focus on what we wanted to hear.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/C2UBXNFmxG8nA0udy1IprMH4LBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_9_Final_Horiz-1af52951f8704af9b76d7dd1ec9744a9.jpg)
 
  Lifewire / James Huenink
@@ -135,6 +119,13 @@ Lifewire / James Huenink
 ## **Price: Inexpensive HD camera**
 
  The Logitech C615 costs $70 MSRP, but you can find it for about half that cost. Even at full price, it's a solid value. The thoughtful design, image quality, and microphone clarity easily justify the price tag.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Acquits itself well against the competition**
 
@@ -175,11 +166,27 @@ Lifewire / James Huenink
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-stardews-best-guide-to-ginger-island/"><u>[New] 2024 Approved Stardew's Best Guide to Ginger Island</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-syma-x5c-remote-controlled-quadcopter-cost-effective-for-starters/"><u>Comprehensive Analysis of the SYMA X5C Remote Controlled Quadcopter - Cost-Effective for Starters</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/conversation-champions-which-ai-triumphs-gpt-or-bard/"><u>Conversation Champions: Which AI Triumphs, GPT or Bard?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-se-2022-to-mac-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone SE (2022) to Mac? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-nokia-g310-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Nokia G310 to New Phone | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Nokia C12 Plus? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-testing-of-the-orbi-whole-home-mesh-network-with-wi-fi-6-technology-for-optimal-performance/"><u>In-Depth Testing of the Orbi Whole Home Mesh Network with Wi-Fi 6 Technology for Optimal Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-weather-alert-apps-for-severe-storms/"><u>Leading Weather Alert Apps for Severe Storms</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/maintaining-business-secrets-how-to-use-chatgpt-safely-in-your-job/"><u>Maintaining Business Secrets: How to Use ChatGPT Safely in Your Job</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-income-through-effective-blog-ads-on-buyselladscom-platform/"><u>Maximizing Income Through Effective Blog Ads on BuySellAds.com Platform</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/reconciling-system-with-a-fresh-net-framework-max-156/"><u>Reconciling System with a Fresh .NET Framework (Max 156)</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/renew-your-email-on-proton-vpn-debunking-myths-the-authenticity-of-the-chatgpt-window-tool/"><u>Renew Your Email on Proton VPN - Debunking Myths: The Authenticity of the ChatGPT Window Tool</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-omoton-t1-pro-stand-combining-cost-efficiency-with-strong-performance/"><u>Reviewing the Omoton T1 Pro-Stand: Combining Cost Efficiency with Strong Performance</u></a></li>
+</ul></div>
+

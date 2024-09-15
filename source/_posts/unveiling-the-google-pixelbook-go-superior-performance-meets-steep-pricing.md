@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Google Pixelbook Go: Superior Performance Meets Steep Pricing"
-date: 2024-08-03T23:04:32.146Z
-updated: 2024-08-04T23:04:32.146Z
+date: 2024-09-14T16:16:22.191Z
+updated: 2024-09-15T19:20:43.106Z
 categories:
   - BestProducts
 description: "This Article Describes Unveiling the Google Pixelbook Go: Superior Performance Meets Steep Pricing"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/ef64597bda93820e24d8ab2d0a8cbf446e80301b9
 
 2.8
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/87Y0vp91-Opdxctf3M6BGQ6r1d8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
@@ -72,30 +69,25 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ## **Setup Process/Installation: Easy install, irritating setup**
 
  To install the hardware, we popped open our mid-size PC tower and inserted the sound card and daughter board into two available PCIe slots. Creative Labs had the foresight to build the main card with a PCIe 1x slots, giving the user flexibility in where they connect their cards to the motherboard. Once the cards were secured, we plugged the headphones and microphone into the corresponding jacks.
@@ -119,8 +111,12 @@ Lifewire / Emily Ramirez
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Software: Lots of options with mixed utility**
 
  For the tinkerers out there, Sound Blaster provides a myriad of audio adjustments through their Z-Series software package. Here, you can EQ any frequency between 20 and 20,000 Hz or activate “Crystallization,” “Scout Mode,” and “Theater Mode.” Crystallization adds punch to the audio’s treble, making voices stand out against the background. Theater Mode is similar to Crystallization, but it tries to_only_ boost voices instead of the entire treble range. We found it great for watching videos. Meanwhile, Scout Mode is squarely aimed at gamers. It theoretically makes enemy noises like footsteps louder.
@@ -133,9 +129,6 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition:** **Falls short of less expensive options**
 
  As we’ve already emphasized, it’s difficult to recommend the aging ZxR at its inflated $250 MSRP. You can find a number of sound cards for significantly less that provide competitive performance, though they generally don’t offer the same robust software package as the ZxR.
@@ -156,14 +149,31 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Sound Blaster ZxR
@@ -187,14 +197,11 @@ Lifewire / Emily Ramirez
 * Software  Sound Blaster Z-Series Software
 * What’s Included  Sound Blaster ZxR sound card, Sound Blaster DBpro card, Sound Blaster Audio Control Module, 1Optical Cable, 1x Stereo(3.5mm)-to-RCA cable, 1x DBpro cable, Quick Start Leaflet, Installation CD containing: Drivers for Windows 7 and Windows 8, Creative Software Suite, User's Guide
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -202,3 +209,24 @@ Lifewire / Emily Ramirez
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-discovering-the-secret-to-engaging-content-with-aspect-ratios-in-youtube/"><u>[New] 2024 Approved Discovering the Secret to Engaging Content with ASPECT RATIOS in YOUTUBE</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-charting-new-territories-leading-6-artists-in-nft-landscape/"><u>[New] Charting New Territories Leading 6 Artists in NFT Landscape</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-a-comprerancial-ranking-top-8-srt-translation-websites/"><u>2024 Approved A Comprerancial Ranking Top 8 SRT Translation Websites</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/clear-guide-getting-rid-of-unwanted-apps-in-macos/"><u>Clear Guide: Getting Rid of Unwanted Apps in macOS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-the-ultimate-review-of-the-gotrax-gxl-v2-high-speed-urban-e-scooter/"><u>Comprehensive Guide: The Ultimate Review of the Gotrax GXL V2 High-Speed Urban E-Scooter</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-testing-of-the-netgear-nighthawk-rax120-top-performance-in-speed-and-connectivity/"><u>Comprehensive Testing of the Netgear Nighthawk RAX120 - Top Performance in Speed and Connectivity</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-concluding-your-digital-footprint-with-linkedins-deactivation-process/"><u>In 2024, Concluding Your Digital Footprint with LinkedIn's Deactivation Process</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-how-to-livestream-on-facebook-from-android-and-ios/"><u>In 2024, How to Livestream on Facebook From Android and iOS?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-poco-x6-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Poco X6 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-the-linksys-wrt1900acs-your-open-source-wifi-solution/"><u>In-Depth Evaluation of the Linksys WRT1900ACS - Your Open Source WiFi Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-moto-g-power-analysis-exceptional-longevity-and-impressive-efficiency/"><u>In-Depth Moto G Power Analysis: Exceptional Longevity & Impressive Efficiency</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcome-the-opaque-obstacle-effective-fixes-for-black-screen-in-nba-2k21-on-pc-update-guide/"><u>Overcome the Opaque Obstacle: Effective Fixes for Black Screen in NBA 2K21 on PC - Update Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stylish-and-soundproof-how-rotibox-ear-toasties-deliver-on-audio-clarity-and-warmth/"><u>Stylish and Soundproof: How Rotibox Ear-Toasties Deliver on Audio Clarity and Warmth</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-mac-guide-to-preview-discovering-and-leveraging-built-in-image-editing-tools/"><u>The Ultimate Mac Guide to Preview: Discovering and Leveraging Built-In Image Editing Tools</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-oneplus-sales-on-black-friday-unbeatable-discounts/"><u>Top OnePlus Sales on Black Friday: Unbeatable Discounts!</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-this-article-shows-top-ten-alternatives-to-adobe-premiere-elements-with-main-functions-for-2024/"><u>Updated This Article Shows Top Ten Alternatives to Adobe Premiere Elements with Main Functions for 2024</u></a></li>
+</ul></div>
+

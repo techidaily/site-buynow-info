@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Analysis of Jackery PowerBar Battery Pack - AC Outlet Included
-date: 2024-09-09T14:20:33.935Z
-updated: 2024-09-10T14:20:33.935Z
+date: 2024-09-09T17:55:17.462Z
+updated: 2024-09-15T16:47:43.830Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Analysis of Jackery PowerBar Battery Pack - AC Outlet Included
@@ -13,28 +13,10 @@ thumbnail: https://www.lifewire.com/thmb/1e0cJN-BsKLogB5b5Fm0imOzPoA=/400x300/fi
 
 3.8
 
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Withings Withings Move Hybrid Smartwatch
 
 ![Withings Move](https://www.lifewire.com/thmb/lRf4MewZgHR7jJoirox43xON-Ds=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4161013-1-a308b649704344f6b5fd15dc900e5742.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Yoona Wagener
 
  What We Like
@@ -88,12 +70,6 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/SRCqvDOet8fouJ8uY8ze0LlCiog=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-2-1fdc9f06eb6a45f2baa2b840822fba5d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Yoona Wagener
 
 ## **Design: Slim and clean**
@@ -135,11 +111,12 @@ Lifewire / Yoona Wagener
 ![Withings Move](https://www.lifewire.com/thmb/WIXFA6BpXvAMWLdKpJ_jmzZh6o4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-5-cbc0f43d847b453bbfae994f03374cdb.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
 ## **Performance: Limited activity tracking**
@@ -159,17 +136,18 @@ Lifewire / Yoona Wagener
 ![Withings Move](https://www.lifewire.com/thmb/vaUmI1isQP98tmL8uIZSghmAWGs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-6-259d8034cfb64485be60f9c5754fec79.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
 ## **Battery: Long-lasting and hassle-free**
@@ -180,12 +158,6 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: An emphasis on general wellness**
 
  Though activity data is somewhat limited, the Withings Move does offer some other more in-depth insights. Sleep activity, for example, is automatically detected and doesn’t require any other action besides wearing the watch while sleeping. When you wake in the morning, you’ll be able to view your quality of sleep for the previous night based on the number of interruptions, duration, and even depth of sleep. There is a hiccup with this feature, though—we noticed when we took it off at our desk one morning, it seemed to think we had fallen back asleep and continued reading our sleep quality.
@@ -198,12 +170,6 @@ Lifewire / Yoona Wagener
 
  There are also a number of other supplemental programs you can sign up for through the Health Connect app in order to up your general wellness. Most of these programs, which are free to join, require a specific type of Withings device, but others, like a meditation and pregnancy tracking program, don’t need any additional equipment.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: A bargain for the value**
 
  The Withings Move retails for $69.95, which is an attractive and affordable price for a hybrid smartwatch—most competitors tend to be well above $100\. While these other models, like the Fossil Harper and Fossil Q Commuter, typically come with more functionality like music storage or streaming, notifications, or taking a picture from your phone, there’s also a bigger price associated with those features.
@@ -211,11 +177,12 @@ Lifewire / Yoona Wagener
  Those looking for a dressier and more substantial watch may find these Fossil models to be better alternatives. Other devices that are comparable in price, like the Fitbit Inspire Fitness Tracker, lack the analog watch qualities and look like designated activity trackers. The Withings Move splits the difference at a modest price.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Withings Move vs. Misfit Phase**
 
  The Misfit Phase is another hybrid smartwatch with a classic wristwatch look, maybe even more so than the Withings Move. Priced at around $175, the Misfit Phase is more expensive, but also comes with a few bonuses that the Withings Move lacks, like text notifications, playing and pausing music on your phone, and also taking selfies.
@@ -231,17 +198,12 @@ Lifewire / Yoona Wagener
  The Withings Move is a strong entry-level fitness tracker for the person who wants to track activities without going all-in on a smartwatch. It’s inexpensive, sporty, and subtle, which makes it compelling for those who don’t want to be distracted by notifications and all the hands-on features smartwatches bring to the table.
 
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Withings Move Hybrid Smartwatch
@@ -260,8 +222,6 @@ Lifewire / Yoona Wagener
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -271,38 +231,14 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-info.techidaily.com/dbpowers-new-portable-power-bank-a-cutting-edge-high-capacity-solution-for-professionals-and-adventurers/"><u>“DBPOWER's New Portable Power Bank: A Cutting-Edge, High Capacity Solution for Professionals and Adventurers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/lite-streaming-sensations-worlds-most-popular-video-content-makers-for-2024/"><u>[New] Elite Streaming Sensations World's Most Popular Video Content Makers for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dominating-the-digital-space-with-trending-content/"><u>[New] In 2024, Dominating the Digital Space with Trending Content</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-free-to-profit-reaching-the-new-500-sub-total/"><u>[Updated] 2024 Approved Free to Profit Reaching the New 500 Sub Total</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-amplify-your-insta-impact-essential-5-lessons-for-influencers-and-real-life-proofs-for-2024/"><u>[Updated] Amplify Your Insta Impact Essential 5 Lessons for Influencers & Real-Life Proofs for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-importance-of-understanding-asmr-media/"><u>[Updated] In 2024, The Importance of Understanding ASMR Media</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-peeling-back-layers-the-hidden-meanings-of-everyday-emojis/"><u>2024 Approved Peeling Back Layers The Hidden Meanings of Everyday Emojis</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Samsung Galaxy F34 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-deep-dive-into-zmis-mighty-power-pack-evaluating-the-portable-20000-watt-marvel/"><u>A Deep Dive Into ZMI's Mighty Power Pack - Evaluating the Portable 20000 Watt Marvel</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/advanced-global-flight-simulation-unveiled-a-detailed-appraisal-of-x-plane-11s-remarkable-visual-fidelity/"><u>Advanced Global Flight Simulation Unveiled: A Detailed Appraisal of X-Plane 11'S Remarkable Visual Fidelity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/advanced-tech-review-discover-the-cutting-edge-large-computer-mouse-pads-revolutionizing-ergonomics-and-productivity/"><u>Advanced Tech Review: Discover the Cutting-Edge Large Computer Mouse Pads Revolutionizing Ergonomics & Productivity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722699446069-affordable-amazon-basics-antenna-guide-for-crystal-clear-free-television/"><u>Affordable Amazon Basics Antenna Guide for Crystal Clear Free Television</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/all-in-one-security-solution-expert-review-of-the-arlo-video-doorbell-with-live-streaming-and-alarms/"><u>All-in-One Security Solution: Expert Review of the Arlo Video Doorbell with Live Streaming & Alarms</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/assessing-the-reliability-of-cyberpower-cp685avrg-ups-unit-an-affordable-option-for-stabilizing-your-electronic-devices/"><u>Assessing the Reliability of CyberPower CP685AVRG UPS Unit: An Affordable Option for Stabilizing Your Electronic Devices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/barnes-and-nobles-latest-innovation-the-nook-glowlight-plus-reviewed/"><u>Barnes & Noble’s Latest Innovation - The Nook GlowLight Plus Reviewed!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-long-distance-networking-gear-2024s-premier-wireless-routers-reviewed/"><u>Best Long-Distance Networking Gear: 2024'S Premier Wireless Routers Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/common-source-amplifier/"><u>Common Source Amplifier</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comparing-smart-home-systems-an-in-depth-analysis-of-ring-and-nest-doorbells/"><u>Comparing Smart Home Systems: An In-Depth Analysis of Ring and Nest Doorbells</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/comprehensive-evaluation-of-the-netgear-nighthawk-x4-wireless-mesh-system-performance/"><u>Comprehensive Evaluation of the Netgear Nighthawk X4 Wireless Mesh System Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/efficient-handheld-car-jumpstart-packs-2024/"><u>Efficient Handheld Car Jumpstart Packs 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/fuel-fascination-with-imagery-the-most-motivating-ig-shots-for-2024/"><u>Fuel Fascination with Imagery The Most Motivating IG Shots for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-itel-s23-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Itel S23 | Dr.fone</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/how-to-translate-audiovideo-content-from-spanish-to-english-and-vice-versa/"><u>How to Translate Audio/Video Content From Spanish to English and Vice Versa?</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-realme-12-pro-5gfrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Realme 12 Pro 5GFRP Lock</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/top-tweets-review-the-full-year-in-videos/"><u>Top Tweets Review The Full Year in Videos</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/travel-light-click-with-confidence-the-perfect-blend-of-accuracy-and-cables-in-sabrents-portable-mouse-solution/"><u>Travel Light, Click with Confidence - The Perfect Blend of Accuracy & Cables in Sabrent's Portable Mouse Solution</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tropico-6-game-analysis-controlling-a-tropical-utopia/"><u>Tropico 6 Game Analysis: Controlling a Tropical Utopia</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-protection-for-gamers-in-depth-review-of-the-top-apc-gaming-ups-units/"><u>Ultimate Protection for Gamers: In-Depth Review of the Top APC Gaming UPS Units</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/understanding-the-benefits-of-investing-in-a-wi-fi-mesh-network/"><u>Understanding the Benefits of Investing in a Wi-Fi Mesh Network</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlock-savings-browse-oodles-no-cost-neighborhood-sales/"><u>Unlock Savings: Browse Oodle's No-Cost Neighborhood Sales</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unpacking-artistry-and-precision-in-microsofts-new-surface-studio-2-is-it-worth-the-investment/"><u>Unpacking Artistry and Precision in Microsoft’s New Surface Studio 2: Is It Worth The Investment?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-lenovo-tab-p11-pro-a-superb-device-with-slight-setbacks/"><u>Unveiling the Lenovo Tab P11 Pro: A Superb Device with Slight Setbacks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-performance-of-samsungs-qn55q60rafxza-a-premium-4k-tv-review/"><u>Unveiling the Performance of Samsung's QN55Q60RAFXZA: A Premium 4K TV Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/value-pack-of-fresh-air-the-topmate-c302-cooling-pad-breakdown-and-recommendation/"><u>Value Pack of Fresh Air: The TopMate C302 Cooling Pad Breakdown and Recommendation</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-design-mastery-creating-flawless-3d-structures-in-mc-for-2024/"><u>[New] Design Mastery Creating Flawless 3D Structures in MC for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-easy-paths-for-exceptional-yt-thumbnails/"><u>[New] Unlock Easy Paths for Exceptional YT Thumbnails</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-fast-track-controlling-netflix-playback-speeds/"><u>2024 Approved Fast Track - Controlling Netflix Playback Speeds</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/audiophiles-dream-device-the-comprehensive-nest-audio-smart-speaker-analysis/"><u>Audiophiles' Dream Device - The Comprehensive Nest Audio Smart Speaker Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/auditory-bliss-unleashed-the-ultimate-nest-audio-experience-for-avid-melomaniacs/"><u>Auditory Bliss Unleashed: The Ultimate Nest Audio Experience for Avid Melomaniacs</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exploring-advanced-pc-components-with-toms-gear-guidance/"><u>Exploring Advanced PC Components with Tom's Gear Guidance</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Tecno Spark 10 4G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/say-hello-to-ultra-hd-streaming-with-apple-tv-a-detailed-look-at-the-2021-model-and-its-cutting-edge-functions/"><u>Say 'Hello' To Ultra HD Streaming with Apple TV: A Detailed Look at the 2021 Model and Its Cutting-Edge Functions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-listening-experience-with-flexus-200-soundbar/"><u>The Ultimate Listening Experience with Flexus 200 Soundbar</u></a></li>
 </ul></div>
+

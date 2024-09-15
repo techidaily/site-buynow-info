@@ -1,7 +1,7 @@
 ---
 title: "Plug & Play SML385BTBK Singing Machine: A Kid-Friendly Karaoke Solution with Dazzling Colors"
-date: 2024-08-03T23:04:32.884Z
-updated: 2024-08-04T23:04:32.884Z
+date: 2024-09-13T18:25:52.675Z
+updated: 2024-09-15T17:57:16.026Z
 categories:
   - BestProducts
 description: "This Article Describes Plug & Play SML385BTBK Singing Machine: A Kid-Friendly Karaoke Solution with Dazzling Colors"
@@ -13,14 +13,8 @@ thumbnail: https://thmb.techidaily.com/6ea42b82e55f6c668ff7a393a7539803912a1c23e
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Dying Light
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Dying Light](https://www.lifewire.com/thmb/ExEFo7aByvSphU-Qxeq8zUjf8lk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
 
 Lifewire / Kelsey Simon
@@ -43,9 +37,6 @@ Lifewire / Kelsey Simon
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Dying Light
 
 ![Dying Light](https://www.lifewire.com/thmb/YWkGikwP23JK119N4M7J22dAPJY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
@@ -71,9 +62,6 @@ Lifewire / Kelsey Simon
 
  Dying Light is a first-person action-adventure game set in the midst of a zombie apocalypse. Its headline feature is kinetic parkour traversal through an open-world infested with unique zombies.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
 
  Lifewire / Kelsey Simon
@@ -82,25 +70,17 @@ Lifewire / Kelsey Simon
 
  The first time you launch the game you'll be treated to an artistic video over the background of a news report. It explains the situation in Harran, the city where the game takes place. The game proper starts with a cut scene that shows you on a plane, about to parachute out. There’s no character creation here, although once you get a little further into the game, you’ll be able to pick your clothes.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
 
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Plot: A character torn between obligation and friendship**
 
  The initial cutscene starts with you on a plane, preparing to jump. Your name is Kyle Crane, and you’re an undercover operative. You’ll parachute to the earth while your boss explains your mission―to find a stolen file―but the second you hit the ground, things don’t go as planned. You’re attacked and forced to fire your weapon to scatter your attackers. Of course, in zombie-infested Harran, a gunshot is zombie bait. Suddenly they're swarming toward you and things look very dire, until you're rescued by a pair of strangers, a man and a woman. The man dies saving you but you and the woman escape. Her name is Jade, and she’ll play a big role throughout the story as you try to win her and her brother’s trust.
@@ -111,9 +91,6 @@ Harran is a whole different city at night.
 
  This is a fairly linear game with regards to the plot. There's a main storyline for you to follow, with some optional side quests that you can take or leave. The narrative does a decent job of building up the circumstances for Kyle feeling torn between his mission and these people, and you’ll learn more about the virus as you go, as well as Antizin, the fictional drug that could lead to a cure.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
 
  Lifewire / Kelsey Simon
@@ -144,17 +121,24 @@ Harran is a whole different city at night.
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Worth the cost, especially with a friend**
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Competition: Other zombie and parkour games**
 
  There are a lot of other zombie survival games out there, but that doesn’t necessarily mean we’d recommend them if you liked Dying Light. You might consider Days Gone, another PlayStation 4 zombie apocalypse game set in an open world, but if the parkour was the main attraction, you might look into the game Mirror’s Edge Catalyst. The game follows a girl in a sci-fi world and features first-person parkour running and fighting. Instead of the rough and gritty world of Dying Light, Catalyst takes place in a sleek futuristic dystopia that's all glossy chrome and burnished glass.
@@ -173,14 +157,11 @@ No advertising on the website.
 * Price  $14.00
 * Available Platforms  PC (Steam) Playstation 4 Xbox One OS X Linux
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -188,3 +169,21 @@ No advertising on the website.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unlock-viral-potential-with-youtube-short-strategies/"><u>[New] 2024 Approved Unlock Viral Potential with YouTube Short Strategies</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-crafting-your-virtual-alter-ego-in-a-metaverse-setting-for-2024/"><u>[New] Crafting Your Virtual Alter Ego in a Metaverse Setting for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-expert-tips-for-preserving-your-roblox-playthrough-mac/"><u>[Updated] In 2024, Expert Tips for Preserving Your Roblox Playthrough (Mac)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-gaomon-pd1560-stylus-tablet-an-exceptional-digital-canvas/"><u>Comprehensive Analysis of the Gaomon PD1560 Stylus Tablet: An Exceptional Digital Canvas</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-xiaomi-redmi-12-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Xiaomi Redmi 12 Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-a51-5g-exceptional-value-in-the-5g-market/"><u>In-Depth Analysis of the Samsung Galaxy A51 5G - Exceptional Value in the 5G Market</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insider-tips-what-to-evaluate-before-picking-up-an-used-ipad/"><u>Insider Tips: What to Evaluate Before Picking Up an Used iPad</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/outstanding-performance-meets-great-deals-on-the-oculus-quest-2-a-detailed-review-of-a-top-vr-headset/"><u>Outstanding Performance Meets Great Deals on the Oculus Quest 2: A Detailed Review of a Top VR Headset</u></a></li>
+<li><a href="https://windows11.techidaily.com/overcoming-chrome-profile-issues-for-windows-users/"><u>Overcoming Chrome Profile Issues for Windows Users</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/reimagine-your-interactions-with-this-chrome-gpt-companion/"><u>Reimagine Your Interactions with This Chrome GPT Companion</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-list-of-high-performance-cable-modems/"><u>The Ultimate List of High-Performance Cable Modems</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-ranking-mac-video-editors-choose-the-ultimate-apple-approved-solution/"><u>Top-Ranking Mac Video Editors: Choose the Ultimate Apple Approved Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-value-of-samsung-65un8000fxza-smart-tv-is-it-a-cut-above-or-overpriced-mediocrity/"><u>Unpacking the Value of Samsung 65UN8000FXZA Smart TV - Is It a Cut Above or Overpriced Mediocrity?</u></a></li>
+</ul></div>
+

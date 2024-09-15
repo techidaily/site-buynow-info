@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Review of the LG Gram 17: Slim Design Meets High-End Specs"
-date: 2024-08-03T23:04:30.488Z
-updated: 2024-08-04T23:04:30.488Z
+date: 2024-09-13T20:54:40.659Z
+updated: 2024-09-15T18:47:18.970Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Review of the LG Gram 17: Slim Design Meets High-End Specs"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/1b4d426689bd18514a96cb95968cc5a755b1ea7a2
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ## Acer Aspire E 15
 
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/c79DXaJ-n7yWNexbj5-KwdH2TP0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1lW4043278-Acer-Aspire-5-c1e432cd86444d3a9d55eb391bdffb0b.jpg)
@@ -43,9 +40,6 @@ Lifewire / Jeremy Laukkonen
 
 ## Acer Aspire E 15
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/HSg9y4iyVf3W5ur1W36JJhp-BNM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1lW4043278-Acer-Aspire-5-c1e432cd86444d3a9d55eb391bdffb0b.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -79,10 +73,6 @@ Lifewire / Jeremy Laukkonen
 
  We put an Acer Aspire E 15 to the test around the office and out in the world to see how it holds up outside of basic benchmarks. Read on to see how it did.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/urRsU5n3D2A-nzQe6NGdQgrDGwM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1lW4043278-Acer-Aspire-2-4cb96f03e4c748a583d14f0c8c9224dc.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -105,10 +95,14 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  Once you finish the initial setup, most users will also want to take additional time to remove the substantial amount of bloatware that comes preinstalled. This isn’t necessary but is something that most users will probably want to do, and it does add quite a bit of time to the setup process if you opt to go that route.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/M-q3UXEJ6htBtTcwPWAH9SLwJeI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1lW4043278-Acer-Aspire-4-1cfdfcc543fa4eb5b5e5449b6ea37413.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -118,9 +112,6 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  The display has decent viewing angles and great contrast, but the colors are a bit washed out. It’s fine for watching videos on YouTube and Netflix—and DVDs, of course—but it wouldn’t be our first choice for movie night. It’s definitely a display that’s best suited for work, with media and gaming as afterthoughts.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Outperforms the competition, but suffers from a slow HDD**
 
  The Acer Aspire E 15 suffers a bit from a slow hard drive, and it could stand to have a bit more RAM, but it performs exceedingly well for a laptop in this category. It beats most of the competition in all important benchmarks and is a joy to use for productivity tasks, web browsing, and even light[gaming](https://www.lifewire.com/best-gaming-laptops-under-1000-4148125) .
@@ -149,21 +140,48 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  The full HD screen and snappy performance make productivity tasks a breeze. You won’t have to wait around every time you want to load or switch between apps. The keyboard is comfortable and responsive, which is great for long typing sessions, and the fantastic battery life means that you can unplug for an entire work or school day without worrying about power.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Acer Aspire E 15](https://www.lifewire.com/thmb/0j4qIM8N-IXUlX66rWrHmqZTjxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1lW4043278-Acer-Aspire-3-8bdb945a491f4f4cbab64c65fa21d9af.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Audio: Decent speakers, but no bass response**
 
  The speakers are decent enough, but the audio quality is still one of the Aspire E 15’s weaker points. They just don’t get all that loud, and when we did crank the volume all the way up, we noticed a bit of distortion in some frequency ranges. There isn’t a whole lot of bass, either, so everything sounds a little tinny—and that only gets worse at louder volumes.
 
  Strangely enough, the audio is actually louder and clearer when the[laptop](https://www.lifewire.com/14-16-inch-laptops-833846) is sitting on a flat surface. It seems like there is a lot of sound escaping from the vents as well as through the actual speaker grills, and placing it on a solid surface seems to improve the audio quality.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network: Great speeds on both 5 GHz and 2.4 GHz networks**
 
@@ -187,9 +205,6 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 
  In a category where a lot of competing devices die out after four or five hours, that’s pretty remarkable.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## **Software: Bogged down by bloatware**
 
  The Acer Aspire E 15 comes with Windows 10, some basic Windows apps, and a free trial of[Microsoft 365](https://www.lifewire.com/how-to-install-office-365-4589808) . It also comes with a whole bunch of bloatware from Acer, Netflix, Evernote, an outdated version of Firefox, and several games you probably won’t want or need.
@@ -217,17 +232,18 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
  The Acer Aspire E 15 hits almost all the right notes while keeping the price way, way down. If you have a little room in your budget, it’s worth investing in the more expensive configuration of this laptop, which comes with a discrete NVIDIA graphics card for gaming, extra RAM, and a speedy SSD.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Asus Chromebook C202SA](https://www.lifewire.com/asus-chromebook-c202sa-review-4589359)
 * [Microsoft Surface Go](https://www.lifewire.com/microsoft-surface-go-review-4690827)
 * [Lenovo Ideapad 320](https://www.lifewire.com/lenovo-ideapad-320-review-4686723)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Aspire E 15
@@ -242,14 +258,11 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
 * Camera  0.9 MP webcam
 * Display  15.6” 1920 x 1080
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -257,3 +270,17 @@ Aesthetics may be the Acer Aspire E 15’s weakest area.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-android-and-ios-top-asmr-audio-picks-for-2024/"><u>[New] Android and iOS Top ASMR Audio Picks for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-cheapest-alternatives-to-androids-facetime/"><u>[Updated] 2024 Approved Cheapest Alternatives to Android's FaceTime</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-ultimate-ig-coverage-toolkit-apple-and-android-included/"><u>[Updated] In 2024, The Ultimate IG Coverage Toolkit, Apple & Android Included</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-flying-adventure-the-syma-x5c-rc-quadcopter-unveiled-in-this-thorough-review/"><u>Budget-Friendly Flying Adventure: The SYMA X5C RC Quadcopter Unveiled in This Thorough Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-romer-led-rechargeable-lantern-assessment-illuminating-your-outdoors-experience/"><u>Comprehensive Romer LED Rechargeable Lantern Assessment - Illuminating Your Outdoors Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insightful-evaluation-how-does-the-high-end-samsung-galaxy-tab-s7plus-compare/"><u>Insightful Evaluation: How Does the High-End Samsung Galaxy Tab S^7+ Compare?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-the-maze-delete-your-facebook-on-android/"><u>Navigate The Maze: Delete Your Facebook On Android</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-oppo-k11x-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Oppo K11x Phone Now with These Tips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-urban-armor-gears-protective-case-for-macbook-pro-durable-and-functional-design/"><u>Review of Urban Armor Gear's Protective Case for MacBook Pro: Durable and Functional Design</u></a></li>
+</ul></div>
+

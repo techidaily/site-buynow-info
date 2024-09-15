@@ -1,7 +1,7 @@
 ---
 title: "The Powerhouse Performer - Unveiling the Arcshell AR-5: Outstanding Quality at an Exceptional Price"
-date: 2024-08-03T23:04:32.548Z
-updated: 2024-08-04T23:04:32.548Z
+date: 2024-09-14T19:31:41.916Z
+updated: 2024-09-15T19:18:15.099Z
 categories:
   - BestProducts
 description: "This Article Describes The Powerhouse Performer - Unveiling the Arcshell AR-5: Outstanding Quality at an Exceptional Price"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/5b3e332fa51492af21abf18ef33b574cc8cc90610
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Acer Chromebook 15 CB3-532
 
 ![Acer Chromebook 15](https://www.lifewire.com/thmb/mI8oEA75yJYzLdjtmBldzjFtccE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer_LaptopsUnder200_Chromebook_HeroSquare-362ddb9951d04861a4b66cea1c000233.jpg)
@@ -77,9 +74,6 @@ Lifewire / Jason Schneider
 
  Lifewire / Jason Schneider
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ## **Design: Slightly bulky with a couple of nice touches**
 
  The first thing you’ll notice about this laptop is just how large it is. That’s mostly to be expected, because it does sport a 15.6-inch display, meaning the chassis has to be at least that big. But the large, approximately 1-inch bezels around the screen make it pretty large, even considering the expected footprint.
@@ -88,6 +82,19 @@ Lifewire / Jason Schneider
 
  The hinge is actually two small contact points that roll into the laptop chassis, which feels dated when the laptop is open but makes it look interesting when it’s closed. The whole laptop is made of plastic, and measures right around one 1-inch thick, weighing in at almost 4.5 pounds. That’s a double-edged sword because while the laptop feels really sturdy and premium despite the plastic material, it isn’t terribly portable.
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: As seamless as a mobile device**
 
  One added benefit to opting for a Chromebook instead of a[full PC](https://www.lifewire.com/best-desktop-pcs-4045927) is that the software is really light. This has implications for both productivity and performance, but it provides a big benefit for the setup process. Because the entire experience, from bootup to browsing, has been designed by Google, you can expect a very similar look and feel to what you’ve probably experienced when signing up and signing in to a[Gmail](https://www.lifewire.com/how-to-use-gmail-1172005) or YouTube account.
@@ -95,13 +102,12 @@ Lifewire / Jason Schneider
  The device first asks you to set your regions, then connect to a Wi-Fi network, then finally to sign into a Google account and set up permissions. From here it drops you basically immediately to the Chromebook home screen where you can either dive right in, or follow the popup tour given by Google. One thing I liked a lot about this was that Google gives you a short three-popup tour to start, then asks if you’d like to go deeper or just jump right into the machine yourself. This staged version of a device tour is a great way to let you, the user, tailor it to your preferences. This also makes it great for an older-aged tech user who might need a bit of hand-holding as they get to know their laptop.
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Display: Big, bright, and better than you might think**
 
  The display on the Acer Chromebook 15 is bigger than you might expect from a laptop that runs[Chrome OS](https://www.lifewire.com/google-chrome-os-1616448) , with a 15.6-inch backlit LED screen that offers a ton of room for windows and programs. The resolution measures in at 1366x768 meaning it checks all the boxes for being classified as an HD display.
@@ -110,9 +116,6 @@ Lifewire / Jason Schneider
 
  The whole laptop is made of plastic, and measures right around 1-inch thick, weighing in at almost 4.5 pounds.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Performance: Really solid, to a point**
 
  Chrome OS provides an interesting advantage in the performance category. Right out of the box, this laptop will look and feel very fast, but as soon as you try to open more than about 6 tabs on Chrome, or you fire up multiple apps and videos, it slows down exponentially. On paper, it sports a dual-core Intel Celeron N3060 processor capable for standard-run speeds of 1.6GHz.
@@ -121,10 +124,6 @@ Lifewire / Jason Schneider
 
  To be fair, Chromebook users likely keep more files in cloud storage drives, and Google includes 100GB of drive storage for free with the purchase for 2 years. So, you might not notice the limited capacity, but I would have preferred at least 32GB.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## **Productivity and Component Quality: Plenty of screen real estate, and passable features**
 
  There’s an interesting case to be made for this Acer Chromebook in terms of productivity. Chrome OS is a very light operating system, which means that it runs quick and light, at least initially. This also means that you can load up more than a few Chrome tabs—something that hogs a lot of power use on Windows laptops. Add that in with the larger 15.6-inch display, giving you lots of room for multiple windows and apps, and this Chromebook is great for those who want to multitask. However, because it isn’t a full OS, you won’t be able to run a whole lot of programs out of the box, and you’re limited to what’s available in the Play Store.
@@ -134,15 +133,16 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  I am a little annoyed with the “search” key that Chromebooks placed where a caps lock key should be--resulting in a lot of accidental search callups. The trackpad also leaves a bit to be desired, requiring a firm, chunky press, and doesn’t support as many gestures as Windows or OSX.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Audio: An unexpected letdown**
 
  Laptops are never amazing specimen when it comes to on-board speakers, so I wasn’t expecting much out of this either. Because it’s a 15-inch machine, there’s plenty of room in the Chromebook 15 for more components, and Acer has opted to put in two giant speaker grilles along either side of the keyboard. Taking that into account, I was hoping that the speakers would be louder and fuller than a normal laptop. However, the response is very tinny and it wasn’t as loud as I was hoping. In fact, these are among the worst speakers I’ve tested on a budget laptop, leaving me to believe that the grilles are just for show.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Acer Chromebook 15](https://www.lifewire.com/thmb/yw3n6Y9SGTIh4h10bF7XbAc5La0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer_LaptopsUnder200_Chromebook_03-5724a73204e94f548f20aec5fa86074f.jpg)
 
  Lifewire / Jason Schneider
@@ -174,15 +174,30 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  That said, the Chromebook 15 runs so well, though likely only because of the lightweight operating system and limited app capabilities. Chrome OS is kind of like just using a Chrome window with a bunch of tabs on a regular PC. For most people, the OS is more than capable of handling most of your browsing needs. This Chromebook is a great example of how far you can push Chrome OS on a budget device, with a big bright screen for watching movies, too.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Really affordable with plenty to offer**
 
  The list price for this Acer Chromebook sits at just about $400 (MSRP), but most of the time you can find it on Amazon for between $150-$250\. I picked up my unit for about $185, and it tends to hover just around there.
 
  For the money, I can confidently say this laptop is worth the price, as long as you have the right applications in mind for it. If you want a cheap starter laptop, or a machine for an older family member that’s easy to use, but you don’t want to spend half a grand getting there, this is a great choice. I can’t say it’s quite as travel-friendly as some of the other budget laptops out there, due to the size and weight. But if you want an affordable machine that’s great for light productivity tasks, and is an excellent movie machine, then you should consider this.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Acer Chromebook 15 vs. Lenovo Chromebook S330 14**
 
@@ -194,9 +209,6 @@ The powerful video editing program for your Windows PC</a>
 
  This is a great Chromebook with a lot of impressive things to offer. The bright screen has plenty of room for vibrant video viewing and multiple windows of productivity. The excellent battery life means you won’t be tethered to a desk, and the light, fast Chrome OS means it will take a lot to slow the Acer Chromebook 15 down. However, the limited onboard storage, bulky size and weight, and the lack of full app choices might limit you a bit too much. At the end of the day, at this price point, it’s perfect for light, basic use.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Chromebook 15 CB3-532
@@ -209,14 +221,11 @@ The powerful video editing program for your Windows PC</a>
 * RAM  4GB
 * Storage  16GB
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -224,3 +233,21 @@ The powerful video editing program for your Windows PC</a>
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-xbox-screen-recorder-how-to-guide/"><u>[New] Xbox Screen Recorder How-To Guide</u></a></li>
+<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-infinix-note-30-pro-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/fostering-long-lasting-communication-with-gpt/"><u>Fostering Long-Lasting Communication with GPT</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/harnessing-hues-iphone-low-light-mastery-for-2024/"><u>Harnessing Hues IPhone Low-Light Mastery for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-ratchet-and-clank-evaluation-timeless-adventure-revitalized/"><u>In-Depth Ratchet & Clank Evaluation: Timeless Adventure Revitalized</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/innovate-impress-and-captivate-in-solo-podcasting-for-2024/"><u>Innovate, Impress, and Captivate in Solo Podcasting for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/is-the-mopher-powerstation-ac-a-convenient-choice-despite-its-high-cost/"><u>Is the Mopher Powerstation AC a Convenient Choice Despite Its High Cost?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/manfrotto-befree-3-way-adjustment-system-high-mobility/"><u>Manfrotto Befree 3-Way Adjustment System: High Mobility</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/raspberry-pi-400-evaluation-compact-computing-power-at-your-fingertips/"><u>Raspberry Pi 400 Evaluation: Compact Computing Power at Your Fingertips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-most-valuable-linkedin-learning-programs-to-enroll-in-this-year/"><u>The Most Valuable LinkedIn Learning Programs to Enroll In This Year</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-the-art-of-video-import-and-export-in-adobe-premiere-pro-2023-tips-and-tricks-for-2024/"><u>Updated The Art of Video Import and Export in Adobe Premiere Pro 2023 Tips and Tricks for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-oneplus-ace-2v-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on OnePlus Ace 2V | Dr.fone</u></a></li>
+</ul></div>
+

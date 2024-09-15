@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the Netgear Nighthawk X6 Wireless Range Extender – Top Picks & Insights
-date: 2024-08-03T23:04:29.726Z
-updated: 2024-08-04T23:04:29.726Z
+date: 2024-09-09T20:27:16.613Z
+updated: 2024-09-15T19:21:20.406Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the Netgear Nighthawk X6 Wireless Range Extender – Top Picks & Insights
@@ -42,9 +42,6 @@ Lifewire / Erika Rawes
 
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/o0LkMzwRLq9UDT8tBDJerDIsp8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
 
 Lifewire / Erika Rawes
@@ -66,9 +63,6 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer C80 is an affordable[long range router](https://www.lifewire.com/best-long-range-routers-4122554) that should be ideal for medium-sized homes. With 3x3[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , parental controls, and remote control using TP-Link’s Tether app, the Archer C80 has a few admirable features for a router under $100, but it also lacks some of the things we’ve come to expect in a router in this price range (like smart assistant compatibility and no USB port). I tested the TP-Link Archer C80 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment when compared to other budget routers on the market.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Basic, but effective**
 
  The Archer C80 is an exceptionally small router, with a body that measures only 4.6 inches tall, 8.5 inches wide, and 1.26 inches in depth. Since its body is smaller than a paperback book, the router can sit inconspicuously on a table or desk. It also has two keyhole mounts on the back for mounting on a wall.
@@ -89,9 +83,6 @@ Lifewire / Erika Rawes
 
  On the bright side, the C80 has beamforming, which promotes a more concentrated signal and a longer range. It has 3 x 3 MU-MIMO technology, which means it can transmit and receive three data streams simultaneously. This helps the router provide a faster signal when you’re watching shows, gaming, or using a 3 x 3 capable computer. It has smart connect, which makes it possible for your router to switch devices between bands, and airtime fairness, which helps reduce lag caused by older or slower devices by distributing airtime more equally. This way, a slow device is less likely to bog down the network.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/tXeiVJNqjtwMg97as87xxtsMwhc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_04-375b5f92ce9d44f4af109c8f6bfada16.jpg)
 
  Lifewire / Erika Rawes
@@ -102,16 +93,23 @@ Lifewire / Erika Rawes
 
  When I loaded up the network with several of the devices in my home—more than 30 smart home products, gaming PCs, laptops, consoles, streaming devices, smart TVs, and phones—I started to experience a noticeable slowdown. This is not the best router for gaming or for those who use multiple connected devices simultaneously. The C80 would be ideal for homes with light to moderate networking demands.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Range: Even better than advertised**
 
  TP-Link advertises the C80 as a router for three-bedroom homes. However, that estimate understates the router’s range capabilities. My home is a two-story, 3,000 square-foot residence with five-bedrooms, and I was able to maintain a stable Wi-Fi connection in every corner. Every closet, bathroom, and bedroom got a steady signal, and I experienced no dead zones whatsoever. Even in the garage, front yard, and backyard, the signal remained strong. It was only when I attempted to use multiple gaming and streaming devices at one time that I experienced any sort of lag.
@@ -126,10 +124,14 @@ Lifewire / Erika Rawes
 
  If you want to control more advanced features, like NAT forwarding, DHCP servers, and IPv6, you’ll need to use the web management tool. The web management tool also provides more extensive parental control features, letting you filter out content by keywords (instead of just blocking websites). The web tool has a user-friendly interface, but it’s not as convenient as using the Tether app.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -148,8 +150,12 @@ Lifewire / Erika Rawes
  Even though it lacks a USB port, the Archer C80 puts out impressive speeds over a long range in homes with light to medium networking capacity. For homes that have several people streaming, gaming, and working on cloud applications, they’ll want something more high octane.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
@@ -176,11 +182,27 @@ Lifewire / Erika Rawes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-premium-asmr-microphones-that-dont-break-the-bank-for-2024/"><u>[New] Premium ASMR Microphones That Don't Break the Bank for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-best-of-the-best-10-timeless-family-vacation-films/"><u>[Updated] In 2024, Best of the Best 10 Timeless Family Vacation Films</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-integrated-upload-sending-vids-to-twitter-and-tumblr-for-2024/"><u>[Updated] Integrated Upload Sending Vids to Twitter and Tumblr for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-swiftpodcasts-guide-for-iphone-users-download-made-simple/"><u>[Updated] SwiftPodcasts Guide for iPhone Users - Download Made Simple</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-speaking-to-tomorrow-iphone-voice-memo/"><u>2024 Approved Speaking to Tomorrow - iPhone Voice Memo</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-power-of-the-gotrax-gxl-v2-ultimate-urban-electric-scooter-with-lightning-speed-performance/"><u>Discover the Power of the Gotrax GXL V2: Ultimate Urban Electric Scooter with Lightning Speed Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-features-of-samsungs-curved-55-inch-ru73-4k-smart-tv-series-worthwhile-or-not/"><u>Evaluating the Features of Samsung's Curved 55-Inch (RU73#) 4K Smart TV Series: Worthwhile or Not?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exploring-ustream-and-its-counterparts/"><u>In 2024, Exploring Ustream & Its Counterparts</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-do-i-sim-unlock-my-apple-iphone-6s-plus-by-drfone-ios/"><u>In 2024, How Do I SIM Unlock My Apple iPhone 6s Plus?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-vive-cosmos-navigating-through-tough-rivals-in-virtual-reality/"><u>In-Depth Analysis of the Vive Cosmos: Navigating Through Tough Rivals in Virtual Reality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovos-pioneering-foldable-laptop-the-x1-fold-stunning-functionality-meets-room-for-improvement/"><u>Lenovo's Pioneering Foldable Laptop, The X1 Fold - Stunning Functionality Meets Room for Improvement</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/simplified-tech-analysis-discovering-if-the-google-pixel-4a-meets-your-needs/"><u>Simplified Tech Analysis: Discovering if the Google Pixel 4a Meets Your Needs</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-vivo-v29e-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Vivo V29e | Dr.fone</u></a></li>
+</ul></div>
+
