@@ -1,7 +1,7 @@
 ---
 title: How the Wii U Became a Thriving Force in Modern Gaming
-date: 2024-09-12T17:32:22.592Z
-updated: 2024-09-15T21:27:31.260Z
+date: 2024-09-16T03:48:30.032Z
+updated: 2024-09-21T01:03:31.697Z
 categories:
   - BestProducts
 description: This Article Describes How the Wii U Became a Thriving Force in Modern Gaming
@@ -101,19 +101,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Comfort: Hefty, but darn comfy**
 
  The original Elite was perhaps the most comfortable controller I’ve ever used, so with the Series 2, I had high hopes in this department. Thanks to some clever but subtle changes by the Microsoft team, this controller is even better.
@@ -127,6 +114,19 @@ Lifewire / Zach Sweat
  The only real issue some users may see as a downside of this controller is that it’s quite a hefty device. The controller weighs 348 grams with all attachments, so it might take some getting used to compared to the 210 gram S controller. I personally love the bulk, as it feels premium, but it might not be for everyone.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/cS5fpyPSlqvyETs-nGxTtAB3vXU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-4-070b6c59b206457ba1068704bbe7bca9.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -151,26 +151,13 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance/Durability: Enhanced performance and durability**
 
@@ -203,6 +190,19 @@ Lifewire / Zach Sweat
  The argument could be made that considering you get a Bluetooth controller capable of working on XB1 and PC, a charging dock and a nice little case to keep it all together, the cost isn’t awful. But if you want all of those things for less, you can grab an S controller, dock and case for far, far less.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/6VfCJGOyjLkAkE_mjiHr7rz8Gyw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-6-0c1d7a2ae4e8443ea5b69f559e52bd12.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -252,21 +252,19 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-instantaneous-collage-creation-for-dynamic-fb-presence/"><u>[New] Instantaneous Collage Creation for Dynamic FB Presence</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-enhancing-classroom-learning-through-recorders/"><u>[Updated] 2024 Approved Enhancing Classroom Learning Through Recorders</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/best-practices-for-converting-webp-to-jpg-format/"><u>Best Practices for Converting WebP to JPG Format</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-apple-iphone-se-2020-affordable-yet-powerful/"><u>Comprehensive Analysis of the Apple iPhone SE (2020): Affordable Yet Powerful</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-unboxing-the-samsung-gear-s3-frontier-a-versatile-and-well-equipped-smartwatch/"><u>Comprehensive Analysis: Unboxing the Samsung Gear S3 Frontier - A Versatile and Well-Equipped Smartwatch</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/eight-high-performing-tablets-for-future-photography-titans/"><u>Eight High-Performing Tablets for Future Photography Titans</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-motorola-moto-g84-5g-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from Motorola Moto G84 5G</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/illuminate-your-road-experience-top-lights-improvement-tips/"><u>Illuminate Your Road Experience: Top Lights Improvement Tips</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Xiaomi Redmi A2 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-knack-one-of-a-kind-character-amidst-common-gameplay/"><u>In-Depth Look at Knack: One-of-a-Kind Character Amidst Common Gameplay</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/optimizing-your-wifi-experience-with-the-netgear-ex3700-ac750-extender-detailed-review-and-insights/"><u>Optimizing Your WiFi Experience with the Netgear EX3700 AC750 Extender - Detailed Review and Insights</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/resolving-the-black-screen-problem-in-windows-11-a-step-by-step-guide/"><u>Resolving the Black Screen Problem in Windows 11: A Step-by-Step Guide</u></a></li>
-<li><a href="https://techidaily.com/top-5-ways-to-fix-excel-2023-file-not-opening-error-stellar-by-stellar-guide/"><u>Top 5 Ways to Fix Excel 2023 File Not Opening Error | Stellar</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-netgear-orbi-assessment-premium-choice-in-mesh-wi-fi-routers/"><u>Top Netgear Orbi Assessment: Premium Choice in Mesh Wi-Fi Routers</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Honor Magic V2 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/urban-mastery-at-your-fingertips-a-thorough-review-of-cities-skylines/"><u>Urban Mastery at Your Fingertips - A Thorough Review of Cities: Skylines</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-exquisite-innovations-in-desktop-tech/"><u>[Updated] Exquisite Innovations in Desktop Tech</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-a-step-by-step-process-to-upgrade-and-update-video-covers-on-social-media/"><u>2024 Approved A Step-by-Step Process to Upgrade and Update Video Covers on Social Media</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-luminous-leaders-top-5-monitors-that-bring-shades-to-life/"><u>2024 Approved Luminous Leaders Top 5 Monitors That Bring Shades to Life</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-chromebook-c202sa-a-comprehensive-student-and-kid-friendly-device-guide/"><u>Asus Chromebook C202SA - A Comprehensive Student & Kid-Friendly Device Guide</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-photos-from-nubia-by-fonelab-android-recover-photos/"><u>Best Android Data Recovery - Retrieve Lost Photos from Nubia .</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-streaming-devices-in-depth-analysis-and-review-of-roku-versus-fire-tv-stick-options/"><u>Best Streaming Devices : In-Depth Analysis and Review of Roku versus Fire TV Stick Options</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-lihan-lhfm1039-bluetooth-fm-transmitter-test-drive-enhanced-audio-for-vehicles/"><u>Comprehensive Lihan LHFM1039 Bluetooth FM Transmitter Test Drive: Enhanced Audio for Vehicles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dive-into-images-like-never-before-experience-canons-sx70-hs/"><u>Dive Into Images Like Never Before - Experience Canon's SX70 HS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-unmatched-performance-with-the-hp-omen-obelisk-a-comprehensive-review/"><u>Experience Unmatched Performance with the HP Omen Obelisk - A Comprehensive Review</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-fix-common-issues-and-crashes-with-biomutant-on-your-computer/"><u>How to Fix Common Issues and Crashes with Biomutant on Your Computer</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-honor-magic-6-lite-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Honor Magic 6 Lite to iPad | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-efficient-movie-recording-strategies-across-desktops-and-handhents/"><u>In 2024, Efficient Movie Recording Strategies Across Desktops and Handhents</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Honor Magic 5 Lite? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-huawei-p20-pros-stunning-camera-features-and-solid-performance/"><u>In-Depth Look at the Huawei P20 Pro's Stunning Camera Features and Solid Performance</u></a></li>
 </ul></div>
 

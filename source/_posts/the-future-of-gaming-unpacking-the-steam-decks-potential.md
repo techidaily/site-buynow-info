@@ -1,7 +1,7 @@
 ---
 title: The Future of Gaming? Unpacking the Steam Deck's Potential
-date: 2024-09-09T18:08:43.812Z
-updated: 2024-09-15T19:28:00.144Z
+date: 2024-09-13T22:16:03.994Z
+updated: 2024-09-20T17:56:43.259Z
 categories:
   - BestProducts
 description: This Article Describes The Future of Gaming? Unpacking the Steam Deck's Potential
@@ -78,6 +78,13 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
@@ -99,10 +106,10 @@ Lifewire / Emily Ramirez
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
@@ -113,21 +120,7 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Lots of options with mixed utility**
 
@@ -137,16 +130,16 @@ Lifewire / Emily Ramirez
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
 
@@ -167,6 +160,19 @@ Lifewire / Emily Ramirez
 **A good card that’s showing its age.**
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
+
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -211,19 +217,18 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-elevate-visuals-best-practices-for-impactful-ig-video-loops-for-2024/"><u>[New] Elevate Visuals Best Practices for Impactful IG Video Loops for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-evaluating-new-tech-in-lg-360-cameras-for-a-fresh-perspective/"><u>2024 Approved Evaluating New Tech in LG 360 Cameras for a Fresh Perspective</u></a></li>
-<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-motorola-edge-40-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Motorola Edge 40 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-apple-iphone-se-2020-affordable-yet-powerful/"><u>Comprehensive Analysis of the Apple iPhone SE (2020): Affordable Yet Powerful</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/eye-catcher-top-screen-recording-software-reviews-for-2024/"><u>Eye Catcher Top Screen Recording Software Reviews for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/failed-to-play-mp4-movies-with-xperia-10-v-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Failed to play MP4 movies with Xperia 10 V</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/final-cut-pros-finest-10-iconic-films-for-2024/"><u>Final Cut Pros Finest 10 Iconic Films for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/illuminate-your-road-experience-top-lights-improvement-tips/"><u>Illuminate Your Road Experience: Top Lights Improvement Tips</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-vivo-x-fold-2-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Vivo X Fold 2 to Mac? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-knack-one-of-a-kind-character-amidst-common-gameplay/"><u>In-Depth Look at Knack: One-of-a-Kind Character Amidst Common Gameplay</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/innovative-approach-breaking-down-videos-into-chapters-for-youtube-for-2024/"><u>Innovative Approach Breaking Down Videos Into Chapters for YouTube for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/optimizing-your-wifi-experience-with-the-netgear-ex3700-ac750-extender-detailed-review-and-insights/"><u>Optimizing Your WiFi Experience with the Netgear EX3700 AC750 Extender - Detailed Review and Insights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-netgear-orbi-assessment-premium-choice-in-mesh-wi-fi-routers/"><u>Top Netgear Orbi Assessment: Premium Choice in Mesh Wi-Fi Routers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/urban-mastery-at-your-fingertips-a-thorough-review-of-cities-skylines/"><u>Urban Mastery at Your Fingertips - A Thorough Review of Cities: Skylines</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-frontiers-in-virtuality-industry-analysis/"><u>[New] 2024 Approved Frontiers in Virtuality Industry Analysis</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-essential-steps-for-crafting-video-based-gifs-on-mobiledesktop-for-2024/"><u>[Updated] Essential Steps for Crafting Video-Based GIFs on Mobile/Desktop for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-to-rotate-your-upside-down-and-sideway-photos-on-iphone/"><u>[Updated] How to Rotate Your Upside Down and Sideway Photos on iPhone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-immediate-capture-in-zoom-conferences-via-snap/"><u>[Updated] In 2024, Immediate Capture in Zoom Conferences via Snap</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-pedal-power-parade-of-playtime/"><u>[Updated] In 2024, Pedal Power Parade of Playtime</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cutting-edge-computing-a-comparative-review-of-the-arm-powered-apple-mac-mini-against-competitors/"><u>Cutting-Edge Computing: A Comparative Review of the ARM-Powered Apple Mac Mini Against Competitors</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-did-the-wii-u-conquer-gaming-markets-worldwide/"><u>How Did the Wii U Conquer Gaming Markets Worldwide?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-the-wii-u-became-a-thriving-force-in-modern-gaming/"><u>How the Wii U Became a Thriving Force in Modern Gaming</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-insight-on-the-garmin-forerunner-265-fitness-tracker-examination/"><u>In-Depth Insight on the Garmin Forerunner 265 Fitness Tracker Examination</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/premium-no-cost-slow-motion-video-capture-options-for-iphonesandroid/"><u>Premium No-Cost Slow Motion Video Capture Options for iPhones/Android</u></a></li>
+<li><a href="https://windows11.techidaily.com/troubleshooting-absence-of-files-on-windows-11/"><u>Troubleshooting Absence of Files on Windows 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-lenovo-ideapad-portable-pc-impressive-structure-with-fundamental-capabilities/"><u>Unveiling the Lenovo Ideapad Portable PC: Impressive Structure with Fundamental Capabilities</u></a></li>
+<li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-from-apple-iphone-se-2020-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes From Apple iPhone SE (2020)?</u></a></li>
 </ul></div>
 

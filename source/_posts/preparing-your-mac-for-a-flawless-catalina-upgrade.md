@@ -1,7 +1,7 @@
 ---
 title: Preparing Your Mac for a Flawless Catalina Upgrade
-date: 2024-09-09T16:47:20.273Z
-updated: 2024-09-15T21:25:39.319Z
+date: 2024-09-13T17:16:15.997Z
+updated: 2024-09-20T20:43:33.955Z
 categories:
   - BestProducts
 description: This Article Describes Preparing Your Mac for a Flawless Catalina Upgrade
@@ -95,13 +95,6 @@ Erika Rawes / Lifewire
 
  On the back of the Pi 400, you’ll find a slot for the microSD card, as well as all of the ports. It has two micro HDMI slots, three USB slots (two 3.0 and one 2.0), a horizontal 40-pin GPIO header, and the port for the power supply. The power button is on the keyboard itself—press F10 to power on the Pi, and press Fn + F10 to power it off.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Setup Process: Easier than previous Pi models
 
  The Raspberry Pi 400 is still...well, a[Raspberry Pi](https://www.lifewire.com/raspberry-pi-4102621) . It isn’t a traditional PC in the sense that it doesn’t have full capabilities like a typical laptop,[desktop computer](https://www.lifewire.com/best-desktop-pcs-4045927) , or even mini computer. The Pi is just a computer—it doesn’t even have an operating system unless you add one (fortunately, this Pi includes the OS with the kit). Even when you add the OS, the Pi has a relatively barebones interface. The whole purpose of a Raspberry Pi is to be whatever you want it to be—a personal computer, a smart home controller, a gaming system, or whatever else you can think of.
@@ -109,13 +102,6 @@ Erika Rawes / Lifewire
  The keyboard made setup easier, as did the additional accessories in the kit. I just had to put the microSD card in the keyboard's slot, connect the mouse and power supply, connect the keyboard to a monitor, and power on the Pi. After some updates, I was up and running.
 
  The whole purpose of a Raspberry Pi is to be whatever you want it to be—a personal computer, a smart home controller, a gaming system, or whatever else you can think of.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Projects: Keyboard helps in some ways, hinders in others
 
@@ -126,6 +112,19 @@ Erika Rawes / Lifewire
  It would be difficult to make anything outdoors with a keyboard, and it would be tough to use the Pi as a security camera when it’s inside of a keyboard. You can remove the Pi from the keyboard if you really want to, but that would kind of defeat the purpose of going with the 400 model. Instead of removing the board, you could just opt for a Pi 4, although it has a lower CPU clock (1.5 Ghz).
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/oideXrFtpj_WzRtq1qacMhsc7Dg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-2-6fbd163b7ed849f684963b93ae8b8735.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Erika Rawes / Lifewire
 
@@ -155,20 +154,33 @@ Erika Rawes / Lifewire
 
  The accessories tab includes a PDF viewer and a calculator, as well as a text editor and an SD card copier. You also have a basic web browser—plenty of tools to get you started.
 
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Audio: Bluetooth connectivity
 
  You won’t find built-in speakers, but the Pi 400 will play audio on your monitor’s speakers when you use the HDMI to mini HDMI cable included in the kit. It also has Bluetooth for connecting a pair of wireless headphones. I had no problem connecting a few different types of Bluetooth headphones to the Pi. There’s no audio output jack, but you can connect compatible USB speakers if you launch the appropriate USB commands in the terminal.
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/vAb_0QFg4Uze6uuiSMlTPtkw_CA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-5-b326f92abc1a4349910f0b7b5d0e2d53.jpg)
 
-Erika Rawes / Lifewire
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Erika Rawes / Lifewire
 
 ## Network: Ethernet or dual-band Wi-Fi
 
@@ -184,31 +196,24 @@ Erika Rawes / Lifewire
 
  Pi computers are great for makers, but once I really started experimenting with the Pi 400, I realized the keyboard is beneficial in some areas, but it’s limiting in others.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Software: Learn to code
 
  In addition to a basic office suite, photo processing software, and games, the Pi 400 Kit comes with several coding applications like Scratch, Scratch 2, Scratch 3, Blue Jay Java IDE, Green Foot Java IDE, Geany, Mathematica, Sense HAT Emulator, and more.
 
  Although the Raspberry Pi OS is basic, the included applications make this an ideal computer for a beginner who wants to learn basic computer programming skills. The interface includes a direct connection to the Pi site, where you can find numerous project ideas from 3D print templates to robotics projects.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: An amazing value
 
  Unless you’re well-versed in using a Pi, I would not suggest going with the Pi 400 alone. It’s best to go with the kit. The Pi 400 kit costs around $100, and that’s a great price considering everything you get. It makes an excellent gift for a young techie or anyone who wants to learn more about computers or automation.
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/sgM6gDaZx8bgvwHPPRkrZjgH9oA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-4-c9378702644a4e77b8a5e58985d72993.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Erika Rawes / Lifewire
 
@@ -225,6 +230,13 @@ Erika Rawes / Lifewire
 **Practical, versatile, and affordable.**
 
  Unlike previous Raspberry Pis that are for more advanced users, the Pi 400 kit is designed for everyone. Whether you want to learn programming, create a gaming system, create a streaming system, or get into 3D modeling, the Pi 400 is a good starting point.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -256,18 +268,20 @@ Erika Rawes / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-premier-5-web-video-capture-tech/"><u>[New] 2024 Approved Premier 5 Web Video Capture Tech</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-practical-steps-for-farewell-in-a-discord-environment/"><u>[New] Practical Steps for Farewell in a Discord Environment</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-unveiling-the-art-of-audio-blend-with-audacity-techniques/"><u>[New] Unveiling the Art of Audio Blend with Audacity Techniques</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-snapchat-enhancement-the-power-of-spotlight-feature/"><u>2024 Approved Snapchat Enhancement The Power of Spotlight Feature</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/asus-vg2n45h-the-ultimate-console-gamers-display/"><u>Asus VG2n45H - The Ultimate Console Gamer's Display</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-examination-of-the-barnes-and-noble-nook-glowlight-plus-biggest-e-reader-on-market/"><u>Comprehensive Examination of the Barnes & Noble Nook GlowLight Plus - Biggest E-Reader on Market</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-determining-the-price-to-film-a-melody-on-camera/"><u>In 2024, Determining the Price to Film a Melody on Camera</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-nubia-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Nubia Phone that is Locked?</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-unveiling-the-top-free-accurate-online-srt-translators/"><u>In 2024, Unveiling the Top Free, Accurate Online SRT Translators</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/librevid-x-version-10-reviewed-highlights-and-downsides-for-2024/"><u>LibreVid X Version 10 Reviewed Highlights and Downsides for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/microsoft-surface-go-evaluation-navigating-the-challenges-of-an-economical-ambiguous-tablet-experience/"><u>Microsoft Surface Go Evaluation: Navigating the Challenges of an Economical, Ambiguous Tablet Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-with-intelligence-a-comprehensive-review-of-the-adaptive-escort-ix-detector/"><u>Navigating with Intelligence: A Comprehensive Review of the Adaptive Escort iX Detector</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/toms-tech-hub-exploring-cutting-edge-hardware/"><u>Tom's Tech Hub: Exploring Cutting-Edge Hardware</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-establishing-baseline-metrics-for-igtv-effectiveness/"><u>[New] In 2024, Establishing Baseline Metrics for IGTV Effectiveness</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-webcam-setup-simplified-for-hp-and-chrome-users/"><u>[Updated] In 2024, Webcam Setup Simplified for HP & Chrome Users</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-infinix-hot-30-5g-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Infinix Hot 30 5G? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/email-warfare-deciding-between-gmail-and-outlookcom-services/"><u>Email Warfare: Deciding Between Gmail and Outlook.com Services</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-for-ultimate-residential-weather-gadgets-2024-edition/"><u>Expert Picks for Ultimate Residential Weather Gadgets - 2024 Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-the-most-efficient-cord-free-telephones/"><u>Expert Picks: The Most Efficient Cord-Free Telephones</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>How to Stop My Spouse from Spying on My Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-12-prominent-xiaomi-redmi-k70e-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Xiaomi Redmi K70E Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Xiaomi Redmi Note 12T Pro? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-search-of-excellence-a-comprehensive-motorola-edgeplus-performance-review/"><u>In Search of Excellence: A Comprehensive Motorola Edge+ Performance Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/interactive-gaming-display-49-curved-philips-evvia-oled-monitor/"><u>Interactive Gaming Display: 49 Curved Philips Evvia OLED Monitor</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/iphoneandroidcd/"><u>IPhoneやAndroidでCD音楽移行方法ランキングトップ選 - パソコン不要!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/macbook-pro-vs-ipad-pro-a-comprehvean-analysis-of-their-functionalities/"><u>MacBook Pro Vs. IPad Pro: A Comprehvean Analysis of Their Functionalities</u></a></li>
+<li><a href="https://fox-that.techidaily.com/starting-out-with-iphone-bluetooth-a-step-by-step-tutorial/"><u>Starting Out with iPhone Bluetooth: A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-bang-for-your-buck-evaluating-nokia-71s-screen-and-camera-quality/"><u>The Best Bang for Your Buck? Evaluating Nokia 7.1'S Screen and Camera Quality</u></a></li>
 </ul></div>
 

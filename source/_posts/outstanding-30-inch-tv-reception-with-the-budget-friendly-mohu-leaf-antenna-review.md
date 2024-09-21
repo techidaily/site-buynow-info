@@ -1,7 +1,7 @@
 ---
 title: Outstanding 30-Inch TV Reception with the Budget-Friendly Mohu Leaf Antenna Review
-date: 2024-09-11T17:58:10.861Z
-updated: 2024-09-15T16:19:29.591Z
+date: 2024-09-18T01:54:27.591Z
+updated: 2024-09-20T16:13:14.929Z
 categories:
   - BestProducts
 description: This Article Describes Outstanding 30-Inch TV Reception with the Budget-Friendly Mohu Leaf Antenna Review
@@ -74,13 +74,6 @@ Lifewire / Jonno Hill
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: Simple and easy**
 
  The ClearStream Eclipse Antenna has the simplest setup of all the HDTV antennas I’ve tested. There is no mounting hardware, no power adapter, and nothing else to worry about. The antenna comes with a strip of adhesive that can be used to affix it directly to a wall or other preferred surface.
@@ -93,24 +86,31 @@ Lifewire / Jonno Hill
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Range: Fair to middling**
 
  Antenna’s Direct rates the ClearStream Eclipse Antenna for up to 35 miles of range, although I’ve seen reports of people getting good results from further, or having trouble from much closer. My apartment is well within the supported range, so my sentiments reflect its use in city settings more than suburbs or exurbs.
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
@@ -123,10 +123,10 @@ Lifewire / Jonno Hill
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -156,17 +156,19 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-elite-audio-capture-top-9-mic-recorders-showcase-for-2024/"><u>[New] Elite Audio Capture Top 9 Mic Recorders Showcase for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-step-by-step-guide-to-uploading-immersive-photos-via-iosandroid/"><u>[Updated] 2024 Approved Step-by-Step Guide to Uploading Immersive Photos via iOS/Android</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-google-nest-hello-camera-features-including-face-identification-and-parcel-alerts/"><u>Comprehensive Analysis of the Google Nest Hello Camera: Features Including Face Identification & Parcel Alerts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/excellence-in-sound-leading-cd-players-and-changers-of-24/"><u>Excellence in Sound: Leading CD Players & Changers of '24</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-the-cutting-edge-technology-within-samsungs-note2nultra-5g-device/"><u>Expert Review: The Cutting-Edge Technology Within Samsung's Note2nUltra 5G Device</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixing-silent-menace-resolving-evil-genius-2-audio-malfunction/"><u>Fixing Silent Menace: Resolving 'Evil Genius 2' Audio Malfunction</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-locate-your-lost-airpods-using-the-find-my-app-11-ways/"><u>How to Locate Your Lost AirPods Using the Find My App - 11 Ways</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/in-2024-11-best-location-changers-for-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-tecno-pop-8-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Tecno Pop 8</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/joining-the-social-tv-revolution-fb-live-and-roku-interactions/"><u>Joining the Social TV Revolution FB Live & Roku Interactions</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/seamlessly-connect-with-our-guide-how-to-install-dells-newest-wifi-driver-for-flawless-internet-access/"><u>Seamlessly Connect with Our Guide: How to Install Dell’s Newest WiFi Driver for Flawless Internet Access</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-30-fastest-portable-car-chargers-under-50-find-your-ideal-anker-option-here/"><u>Top 30 Fastest Portable Car Chargers Under $50 – Find Your Ideal Anker Option Here!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-12-premier-video-game-entrances-by-top-youtubers-free-and-paid-analysis/"><u>2024 Approved 12 Premier Video Game Entrances by Top Youtubers Free & Paid Analysis</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-in-depth-analysis-unveiling-the-best-5-racer-simulations/"><u>2024 Approved In-Depth Analysis Unveiling the Best 5 Racer Simulations</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-the-essential-checklist-for-syncing-obs-and-zoom/"><u>2024 Approved The Essential Checklist for Syncing OBS & Zoom</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-and-efficient-tp-link-re200-ac750-wireless-range-expansion-assessment/"><u>Affordable & Efficient TP-Link RE200 AC750 Wireless Range Expansion Assessment</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/affordable-high-performance-graphic-cards-in-2e24-the-best-picks-for-gamers-on-a-budget/"><u>Affordable High-Performance Graphic Cards in 2E24: The Best Picks for Gamers on a Budget</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-the-ultimate-chefs-sidekick-7-cooking-hacks-inside/"><u>ChatGPT: The Ultimate Chef's Sidekick - 7 Cooking Hacks Inside!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-delightful-gaming-experiences-with-pokemon-shining-pearl/"><u>Discovering Delightful Gaming Experiences with Pokémon Shining Pearl</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-blend-of-tradition-and-innovation-in-the-skagen-falster-3-smartwatch-review/"><u>Exploring the Blend of Tradition and Innovation in the Skagen Falster 3 Smartwatch Review</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-samsung-galaxy-xcover-7-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Samsung Galaxy XCover 7 Activity | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-escort-max-360-the-ultimate-multi-functional-radar-detection-system-with-navigation-capabilities/"><u>In-Depth Analysis: Escort Max 360 - The Ultimate Multi-Functional Radar Detection System with Navigation Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-fitness-with-garmins-latest-an-in-depth-look-at-the-forerunner-945/"><u>Mastering Fitness with Garmin's Latest: An In-Depth Look at the Forerunner 945</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/portable-powerhouse-the-hp-stream-11-for-simplified-daily-use/"><u>Portable Powerhouse: The HP Stream 11 for Simplified Daily Use</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/troubleshooting-your-logitech-f710-on-windows-operating-systems-tips-for-windows-111087/"><u>Troubleshooting Your Logitech F710 on Windows Operating Systems: Tips for Windows 11/10/8/7</u></a></li>
+<li><a href="https://techidaily.com/1726233755233-aifc-movavi/"><u>무료 AIFC 웹 매디어를 사용하여: Movavi 구현 방법</u></a></li>
 </ul></div>
 

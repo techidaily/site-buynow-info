@@ -1,7 +1,7 @@
 ---
 title: Experience The Enhanced Features of Mod's Latest Sidecar Ebike Model
-date: 2024-09-10T18:33:12.629Z
-updated: 2024-09-15T20:52:59.185Z
+date: 2024-09-13T17:54:11.466Z
+updated: 2024-09-20T18:47:45.252Z
 categories:
   - BestProducts
 description: This Article Describes Experience The Enhanced Features of Mod's Latest Sidecar Ebike Model
@@ -84,6 +84,13 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
@@ -95,10 +102,10 @@ Lifewire / Emily Isaacs
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
@@ -116,26 +123,13 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
-
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
@@ -191,21 +185,20 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-from-idea-to-icon-making-the-list-of-top-fb-videos-for-2024/"><u>[New] From Idea to Icon Making the List of Top FB Videos for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-top-5-gaming-monitors-to-perfect-ps5-and-xbox-experience/"><u>[New] In 2024, Top 5 Gaming Monitors to Perfect PS5 and Xbox Experience</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-masterful-podcast-descriptions-strategies-and-case-studies/"><u>[Updated] 2024 Approved Masterful Podcast Descriptions Strategies and Case Studies</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-how-to-fix-obs-studio-drop-frames-issue-for-2024/"><u>[Updated] How To Fix OBS Studio Drop Frames Issue for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-how-do-youtube-channels-get-paid-regularly/"><u>2024 Approved How Do YouTube Channels Get Paid Regularly?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-microsoft-sculpt-ergo-keyboard-assessment-unbeatable-quality-at-a-fair-price/"><u>Comprehensive Microsoft Sculpt Ergo Keyboard Assessment - Unbeatable Quality at a Fair Price</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-boundaries-with-amazons-cutting-edge-fitness-gadget-the-halo/"><u>Exploring the Boundaries with Amazon's Cutting-Edge Fitness Gadget - The Halo</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-resurrected-world-in-depth-review-of-7-days-to-die/"><u>Exploring the Resurrected World: In-Depth Review of '7 Days to Die'</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixing-error-code-0x00001338-in-call-of-duty-vanguard-on-windows-systems-complete-solution/"><u>Fixing Error Code 0X00001338 in Call of Duty Vanguard on Windows Systems – Complete Solution</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Poco F5 5G | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-mac-for-apple-iphone-8-plus-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock on Mac For Apple iPhone 8 Plus?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/kobo-nia-vs-amazon-kindle-in-depth-comparison-and-user-reviews/"><u>Kobo Nia vs Amazon Kindle: In-Depth Comparison and User Reviews</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-robotics-at-home-discover-how-makeblocks-mbot-kit-empowers-young-innovators/"><u>Mastering Robotics at Home? Discover How Makeblock's mBot Kit Empowers Young Innovators</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-lip-sync-your-way-to-fame-top-rated-apps-for-creators-for-2024/"><u>New Lip Sync Your Way to Fame Top-Rated Apps for Creators for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-essential-checklist-for-choosing-a-lightweight-compact-tablet/"><u>The Essential Checklist for Choosing a Lightweight, Compact Tablet</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-tp-links-deco-p9-for-effortless-mesh-wi-fi-setup/"><u>The Ultimate Review of TP-Link's Deco P9 for Effortless Mesh Wi-Fi Setup</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-growth-galore-farming-game-classics-revisited/"><u>[New] In 2024, Growth Galore Farming Game Classics Revisited</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Infinix Hot 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/compact-tp-link-wr902ac-travel-router-portable-wi-fi-on-the-go/"><u>Compact TP-Link WR902AC Travel Router - Portable Wi-Fi on the Go</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exceptional-affordability-meets-style-the-ultimate-fossil-sports-collection-reviewed/"><u>Exceptional Affordability Meets Style: The Ultimate Fossil Sports Collection Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-escort-max-360s-capabilities-a-multi-functional-radar-and-gps-detector-evaluation/"><u>Explore the Escort Max 360'S Capabilities - A Multi-Functional Radar & GPS Detector Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/getting-your-moneys-way-with-these-4-ps5-advantages/"><u>Getting Your Money's Way with These 4 PS5 Advantages</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-airpods-alone-restoring-connection/"><u>In 2024, Airpods Alone Restoring Connection</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-oppo-a1-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Oppo A1 5G Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-samsung-galaxy-a24-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Samsung Galaxy A24 Without PUK Codes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-owc-mercury-pro-a-superior-ssd-with-industry-leading-velocity/"><u>The Ultimate Guide to OWC Mercury Pro: A Superior SSD with Industry-Leading Velocity</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/transforming-mp4-videos-into-h264-format-discover-three-cost-free-techniques/"><u>Transforming MP4 Videos Into H.264 Format: Discover Three Cost-Free Techniques</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-resolving-silent-airpods-despite-being-linked-to-windows-1110-devices/"><u>Troubleshooting Guide: Resolving Silent AirPods Despite Being Linked to Windows 11/10 Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-excellence-in-androids-the-all-encompassing-samsung-galaxy-s21-ultra-evaluation/"><u>Unveiling Excellence in Androids: The All-Encompassing Samsung Galaxy S21 Ultra Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-fusion-of-style-and-cloud-in-nixplay-iris/"><u>Unveiling the Fusion of Style and Cloud in Nixplay Iris</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/worth-your-dough-why-get-a-kindle/"><u>Worth Your Dough: Why Get a Kindle?</u></a></li>
 </ul></div>
 

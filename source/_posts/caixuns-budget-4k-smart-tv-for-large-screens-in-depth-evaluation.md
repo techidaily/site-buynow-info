@@ -1,7 +1,7 @@
 ---
 title: Caixun's Budget 4K Smart TV for Large Screens – In-Depth Evaluation
-date: 2024-09-13T20:28:02.817Z
-updated: 2024-09-15T17:45:20.264Z
+date: 2024-09-14T03:38:43.947Z
+updated: 2024-09-21T02:07:00.055Z
 categories:
   - BestProducts
 description: This Article Describes Caixun's Budget 4K Smart TV for Large Screens – In-Depth Evaluation
@@ -82,6 +82,19 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Comfort: A water resistant removable band**
 
  The Xiaomi Mi Band 4 is water resistant with a 5 ATM rating. This means the band can go in up to 50 meters of water for up to 10 minutes, and it can tolerate shallow water activities like swimming. You can comfortably shower with the band, wear it in the rain, or wear it while you’re drenched in sweat. It doesn’t feel too hot on the wrist either.
@@ -93,13 +106,20 @@ Lifewire / Erika Rawes
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/MsPw0300j9lhgQEmelHfapWXla4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-4-52ee61c2595e4aafb5c1ad04be13f12e.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Not bad for the price**
 
@@ -114,19 +134,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software: Mi Fit App**
 
  The Mi Fit app is somewhat basic, but it provides useful health and fitness information. Some functions, like automatic monitoring, aren’t as easy to find in the app as others, but overall the basic app serves its purpose. As with most fitness trackers, you can set alarms, set event reminders, and share your fitness info. You can view historical data on your heart rate, workouts, steps, and calories burned. You can track your sleep, including deep sleep, light sleep, hours slept, and more.
@@ -134,19 +141,6 @@ Lifewire / Erika Rawes
  In addition to customizing settings and widgets and tracking your data, the Mi Fit app works with other products like the Mi Composition scale, which can provide a more comprehensive experience, including body weight and balance data.
 
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/uyTDWcqaPVwpPOnZeijBG5Y2MYM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-5-040745fab732483a957277c9daaa82ca.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -164,18 +158,18 @@ The 135 mAh battery lasts for up to 20 days.
 
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/kXajF8I7UCVG0wnufwSz3psTRmU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-3-8a9c12e307254854bcd99728db94330c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **Price: An amazing value**
 
  The Xiaomi Mi Smart Band 4 is incredibly affordable, selling for $29 on Amazon. The next gen band, the Mi Band 5, is now hitting the market, which is lowering the price of the fourth generation model. The Mi Band 4 isn’t perfect by any means, and it won’t provide the same experience that you’d get with a tracker that costs hundreds of dollars, but it’s a steal at its price point.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Xiaomi Mi Smart Band 4 vs. Fitbit Charge 3**
 
@@ -227,19 +221,19 @@ The 135 mAh battery lasts for up to 20 days.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-master-your-mobile-communications-skype-and-zoom-on-android/"><u>[Updated] In 2024, Master Your Mobile Communications Skype & Zoom on Android</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-xiaomi-redmi-note-13-pro-5g-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Xiaomi Redmi Note 13 Pro 5G without App | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-monoprice-graphics-tablet-an-in-depth-analysis-of-value-and-performance/"><u>Affordable Monoprice Graphics Tablet: An In-Depth Analysis of Value and Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cost-effective-case-for-macbook-pro-13-users-a-review-of-the-practical-and-budget-friendly-procase-choice/"><u>Cost-Effective Case for MacBook Pro 13 Users: A Review of the Practical and Budget-Friendly ProCase Choice</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dbpower-600a-high-performance-battery-booster-with-18000mah-capacity-comprehensive-review/"><u>DBPower 600A High-Performance Battery Booster with 18,000mAh Capacity: Comprehensive Review</u></a></li>
-<li><a href="https://extra-information.techidaily.com/dissecting-samsungs-photo-enhancing-software-features/"><u>Dissecting Samsung's Photo Enhancing Software Features</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-updated-wireless-lan-driver-for-windows-11-10-8-and-nversions-enhanced-performance-and-support/"><u>Download Updated Wireless LAN Driver for Windows 11, 10, 8 & Nversions – Enhanced Performance and Support</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-lenovo-ideapad-320-where-style-meets-functionality-with-lenovos-iconic-keyboard/"><u>Expert Insights on the Lenovo Ideapad 320 - Where Style Meets Functionality with Lenovo's Iconic Keyboard</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-infinix-smart-8-plus-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Infinix Smart 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-aeeusy-portable-generator-test-why-its-the-preferred-choice-for-pure-sine-wave-energy-in-medicine/"><u>In-Depth AEEUSY Portable Generator Test - Why It's the Preferred Choice for Pure Sine Wave Energy in Medicine</u></a></li>
-<li><a href="https://win11.techidaily.com/maintaining-your-sticky-notes-on-pc/"><u>Maintaining Your Sticky Notes on PC</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/premium-line-in-modems-a-buyers-guide-to-2024-models/"><u>Premium Line-In Modems: A Buyer's Guide to 2024 Models</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/secure-iphone-file-deletion-apps-how-to-permanently-remove-personal-information/"><u>Secure iPhone File Deletion Apps: How to Permanently Remove Personal Information</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unraveling-the-top-8-premium-free-srt-translation-websites-for-2024/"><u>Unraveling the Top 8 Premium Free SRT Translation Websites for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-from-sky-to-screen-live-streaming-from-dji-drones/"><u>[New] From Sky to Screen Live-Streaming From DJI Drones</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-top-15-cine-luts-for-gopro-action-cam/"><u>[New] Top 15 Cine LUTs for Gopro Action Cam</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-total-earning-summary-for-pewdiepie-star/"><u>2024 Approved Total Earning Summary for PewDiePie Star</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/bare-essentials-for-relaxation/"><u>Bare Essentials for Relaxation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-premier-vertical-mice-of-2024-innovative-designs-for-ultimate-control/"><u>Discover the Premier Vertical Mice of 2024: Innovative Designs for Ultimate Control</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-ankers-superspeed-usb-30-hub-powerhouse-performance/"><u>Expert Insights on Anker's SuperSpeed USB 3.0 Hub Powerhouse Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-alienware-aurora-r11-claiming-the-throne-as-the-premier-gaming-computer/"><u>Expert Insights on the Alienware Aurora R11: Claiming the Throne as the Premier Gaming Computer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/immerse-yourself-in-books-rain-or-shine-discovering-the-kobo-libra-h2os-top-features-and-review/"><u>Immerse Yourself in Books, Rain or Shine: Discovering the Kobo Libra H2O's Top Features and Review</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-how-to-screen-capture-high-quality-snaps-with-ease/"><u>In 2024, How to Screen-Capture High-Quality Snaps with Ease</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-mastering-youtube-conversion-the-ultimate-4k-guide/"><u>In 2024, Mastering YouTube Conversion The Ultimate 4K Guide</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Vivo Y100? | Dr.fone</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/secrets-to-successful-twitpicingvideos-included/"><u>Secrets to Successful Twitpicing—Videos Included</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-acoustic-marvel-nest-audio-speaker-reviewed/"><u>Unveiling the Acoustic Marvel - Nest Audio Speaker Reviewed!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-modern-apps-might-not-work-on-your-current-ipad/"><u>Why Modern Apps Might Not Work on Your Current iPad</u></a></li>
 </ul></div>
 

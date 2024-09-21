@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the Best Android Phone - Samsung Galaxy S21 Ultra
-date: 2024-09-11T16:33:56.607Z
-updated: 2024-09-15T19:31:29.178Z
+date: 2024-09-16T01:41:59.690Z
+updated: 2024-09-21T02:57:01.532Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the Best Android Phone - Samsung Galaxy S21 Ultra
@@ -84,6 +84,13 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
@@ -94,19 +101,6 @@ Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
 
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
  Backlighting—we love it, but the Sculpt doesn’t have it. This is, in large part, thanks to its battery-powered design. It wouldn’t make a great deal of sense for the Sculpt to have backlighting since the two AAA[alkaline batteries](https://www.lifewire.com/best-aa-and-aaa-rechargeable-batteries-4134295) would drain significantly faster, but we sure did miss it. It’s important to note that our love of backlighting is also a matter of personal preference. If it’s important to you, you might want to consider a different model. If you can live without it, the Sculpt still has a lot to offer.
@@ -115,31 +109,11 @@ Lifewire / Emily Isaacs
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -155,6 +129,13 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  The Surface is a high-end keyboard, but that quality comes at a higher price. The Surface tends to retail for around $129, much more than the Sculpt which retails for around $80\. That said, it’s an upgrade in almost every way. If you’re on a budget, the Sculpt is a great option, but if you’re able to splurge, the Surface is our top pick for wireless ergonomic keyboards.
@@ -166,6 +147,13 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -197,15 +185,15 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-navigate-your-first-successful-windows-11-sound-capture/"><u>[New] Navigate Your First Successful Windows 11 Sound Capture</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-crafting-captivating-youtube-thumbnails-on-smartphones-for-2024/"><u>[Updated] Crafting Captivating YouTube Thumbnails on Smartphones for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-decoding-the-functionality-of-youtubes-media-hub/"><u>[Updated] In 2024, Decoding the Functionality of YouTube's Media Hub</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-building-sustainable-cities-innovation-in-environmental-design/"><u>2024 Approved Building Sustainable Cities Innovation in Environmental Design</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-hearnow-podcast-and-speaker-assessment/"><u>2024 Approved HearNow Podcast and Speaker Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/balancing-budget-and-quality-in-the-world-of-vixia-cameras/"><u>Balancing Budget and Quality in the World of VIXIA Cameras</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/examining-the-economical-side-of-vixias-camcorder-capabilities/"><u>Examining the Economical Side of VIXIA’s Camcorder Capabilities</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-the-lg-gram-2018-changed-the-game-with-its-mega-screen-and-marvelous-battery-life/"><u>How the LG Gram (2018) Changed the Game with Its Mega Screen and Marvelous Battery Life</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-a-thorough-insight-into-obs-recording-technology/"><u>In 2024, A Thorough Insight Into OBS Recording Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-kootek-portable-cpu-cooler-for-your-computer-top-pick-reviewed/"><u>The Ultimate Guide to the Kootek Portable CPU Cooler for Your Computer - Top Pick Reviewed!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-expert-endorsed-tools-for-improving-your-windows-video-edits/"><u>[Updated] In 2024, Expert-Endorsed Tools for Improving Your Windows Video Edits</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-game-on-mobile-funimate-apk-setup-simplified/"><u>[Updated] In 2024, Game On Mobile Funimate APK Setup Simplified</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-how-amplifi-hd-wi-fi-mesh-system-bids-farewell-to-dead-zones-forever/"><u>Comprehensive Review: How Amplifi HD Wi-Fi Mesh System Bids Farewell to Dead Zones Forever</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/examining-value-proposition-buying-into-apple-vision-pro/"><u>Examining Value Proposition: Buying Into Apple Vision Pro</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-expertise-in-capturing-high-quality-verbal-notes/"><u>In 2024, Expertise in Capturing High-Quality Verbal Notes</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-open-your-apple-iphone-12-pro-max-without-a-home-button-by-drfone-ios/"><u>In 2024, How To Open Your Apple iPhone 12 Pro Max Without a Home Button</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mkv-playback-issues-on-motorola-edge-40-pro-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV playback issues on Motorola Edge 40 Pro</u></a></li>
+<li><a href="https://article-tips.techidaily.com/scriptwriting-essentials-for-authentic-and-engaging-documentaries-for-2024/"><u>Scriptwriting Essentials for Authentic and Engaging Documentaries for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/skyrim-on-switch-a-comprehensive-overview-of-an-epic-rpg-experience/"><u>Skyrim on Switch: A Comprehensive Overview of an Epic RPG Experience</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-10-password-cracking-tools-for-xiaomi-14-pro-by-drfone-android/"><u>Top 10 Password Cracking Tools For Xiaomi 14 Pro</u></a></li>
 </ul></div>
 

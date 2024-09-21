@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of Dell's Affordable Gamer Powerhouse - The G5 5090 Reviewed
-date: 2024-09-13T20:20:39.773Z
-updated: 2024-09-15T20:08:35.982Z
+date: 2024-09-18T00:23:30.720Z
+updated: 2024-09-20T17:14:57.558Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of Dell's Affordable Gamer Powerhouse - The G5 5090 Reviewed
@@ -112,6 +112,13 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Network: Powerful, consistent connections**
 
  The Alienware Aurora R7 has both wired and wireless connectivity for internet access. On the rear of the PC is a Gigabit Ethernet (RJ-45) port for a hardwired internet connection. On the wireless front, the Aurora R7 uses two external 5GHz amplifiers for strong uplink and downlink speeds. These are boosted by Alienware’s Killer Wireless, an internal lag and latency reduction technology to improve long-distance range and intelligently prioritize the most important traffic.
@@ -123,10 +130,10 @@ Lifewire / Gannon Burgett
  Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Baked in goodies to simplify a few pain points of gaming**
@@ -141,13 +148,6 @@ Lifewire / Gannon Burgett
 
  OC Controls is a dedicated program for controlling overclocking levels of the memory and CPU. The program not only makes it easy to control the overclocking settings, but also helps you keep an eye on temperatures while you game.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Pricey compared to DIY, but otherwise a solid value**
 
  The Alienware Aurora R7 with the aforementioned specifications retails for $1,699 (MSRP). Compared to other pre-built computers, it’s a bit high as we’ll see below. It’s also a good bit more expensive than other DIY gaming builds. Convenience isn’t cheap and the Aurora R7 is no exception.
@@ -156,14 +156,14 @@ Lifewire / Gannon Burgett
 
 ![Alienware Aurora R7](https://www.lifewire.com/thmb/dyYHBipuM2zl9fR3GmILkVHlxVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4045927-2-dbdd27635b4a47e6bb7ccdd54bb7d952.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Gannon Burgett
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Convenience rules above all else**
 
@@ -181,24 +181,18 @@ Lifewire / Gannon Burgett
 
  The Alienware Aurora R7 is a wonderful option if you’re looking for a pre-built gaming PC that requires little to no hands-on time to get up and running. Out of the box, it’s ready to take on nearly any game you throw at it, usually at the highest settings. Sure, it’s a bit pricier than a DIY PC, but its compact case, tool-less access, and upgradability makes it a solid option for someone who wants a plug-and-play gaming rig.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Lenovo ThinkCentre M720 Tower](https://www.lifewire.com/lenovo-thinkcentre-m720-tower-review-4776238)
 * [HP Flagship Pro Desktop](https://www.lifewire.com/hp-flagship-pro-desktop-review-4776228)
 * [Acer Aspire TC-885-ACCFLi3O Desktop PC](https://www.lifewire.com/acer-aspire-tc-885-accfli3o-desktop-pc-review-4776155)
-
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -229,20 +223,20 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/hart-a-course-to-success-youtube-studio-blueprint-for-2024/"><u>[New] Chart a Course to Success YouTube Studio Blueprint for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-essential-illumination-products-for-video-creators/"><u>[Updated] 2024 Approved Essential Illumination Products for Video Creators</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-blades-vivid-palette-now-in-stunning-4k-clarity/"><u>[Updated] Blade's Vivid Palette, Now in Stunning 4K Clarity</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-captureconductor-review-a-dive-into-the-best-recording-software/"><u>[Updated] CaptureConductor Review A Dive Into the Best Recording Software</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-deterrence-against-distractive-fb-video-ads/"><u>[Updated] In 2024, Deterrence Against Distractive FB Video Ads</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-streamlining-visual-enhancements-via-luts-in-pro/"><u>2024 Approved Streamlining Visual Enhancements via LUTs in Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-high-speed-wifi-solutions-tp-link-archer-c9-ratings/"><u>Affordable High-Speed WiFi Solutions - TP-Link Archer C9 Ratings</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-new-apple-iphone-se-smart-choice-for-everyone/"><u>Comprehensive Review of the New Apple iPhone SE - Smart Choice for Everyone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/find-local-treasures-for-free-dive-into-oodles-classified-section/"><u>Find Local Treasures for Free: Dive Into Oodle's Classified Section!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-htpc-reviews-find-your-perfect-media-center-setup-today/"><u>Leading HTPC Reviews - Find Your Perfect Media Center Setup Today!</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-edit-avi-files-on-windows-8-with-ease-2023s-top-editor/"><u>New In 2024, Edit AVI Files on Windows 8 with Ease 2023S Top Editor</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/propella-absolutely-unstoppable-the-ultimate-review-of-the-swift-and-economical-7s-40-model/"><u>Propella Absolutely Unstoppable - The Ultimate Review of the Swift and Economical 7S 4.0 Model</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/submerge-analysis-unshakable-soundproofing/"><u>SubMerge Analysis: Unshakable Soundproofing</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/top-toms-computer-and-electronics-store-pioneering-tech-solutions/"><u>Top Tom's Computer & Electronics Store: Pioneering Tech Solutions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-the-apple-iphone-se-2020-an-ideal-option-for-the-practical-consumer/"><u>Unboxing the Apple iPhone SE (2020) - An Ideal Option for the Practical Consumer</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-facetime-call-recording-techniques-unveiled/"><u>[New] Facetime Call Recording Techniques Unveiled</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-crafting-courteous-responses-in-discord-chat/"><u>2024 Approved Crafting Courteous Responses in Discord Chat</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/can-user-corrections-improve-ai-learning-in-chatgpt-platforms/"><u>Can User Corrections Improve AI Learning in ChatGPT Platforms?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-netgear-nighthawk-c7000-an-outstanding-wireless-router-unveiled/"><u>Comprehensive Evaluation of the Netgear Nighthawk C7000: An Outstanding Wireless Router Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-the-most-effective-ups-battery-systems-of-the-year-2amo/"><u>Expert Picks: The Most Effective UPS Battery Systems of the Year 2Amo</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-itel-s23plus-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Itel S23+ Devices | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-tecno-spark-20-proplus-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on Tecno Spark 20 Pro+</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-home-networks-with-the-intelligent-technology-of-the-linksys-ea9500-high-performance-router/"><u>Mastering Home Networks with the Intelligent Technology of the Linksys EA9500 High-Performance Router</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-videos-in-the-spotlight-who-wins-youtube-shorts-or-tiktok-for-2024/"><u>Micro-Videos in the Spotlight Who Wins, YouTube Shorts or TikTok for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-how-the-raspberry-pi-400-revolutionizes-mini-computing-with-an-integrated-keyboard/"><u>Review: How the Raspberry Pi 400 Revolutionizes Mini-Computing with an Integrated Keyboard</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-un65ru80tuxa-tv-unboxed-and-reviewed-intelligent-capabilities-on-stunning-display/"><u>Samsung UN65RU80TUXA TV Unboxed & Reviewed: Intelligent Capabilities on Stunning Display</u></a></li>
+<li><a href="https://extra-support.techidaily.com/selecting-the-best-equipment-for-expeditions-for-2024/"><u>Selecting the Best Equipment for Expeditions for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/supercharge-macbook-pro-with-a-new-ssd/"><u>Supercharge MacBook Pro with a New SSD</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-reveal-simplified-wallet-friendly-journey-monitoring-with-bouncies-connected-device-reviewed/"><u>The Ultimate Reveal: Simplified, Wallet-Friendly Journey Monitoring with Bouncie's Connected Device Reviewed</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-how-to-repair-a-nonfunctional-airpods-microphone-on-windows-11/"><u>Troubleshooting: How to Repair a Nonfunctional AirPods Microphone on Windows 11</u></a></li>
 </ul></div>
 

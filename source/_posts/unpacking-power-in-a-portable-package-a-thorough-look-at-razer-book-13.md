@@ -1,7 +1,7 @@
 ---
 title: "Unpacking Power in a Portable Package: A Thorough Look at Razer Book 13"
-date: 2024-09-14T20:06:23.522Z
-updated: 2024-09-15T20:35:30.001Z
+date: 2024-09-17T02:45:37.267Z
+updated: 2024-09-20T23:47:19.987Z
 categories:
   - BestProducts
 description: "This Article Describes Unpacking Power in a Portable Package: A Thorough Look at Razer Book 13"
@@ -100,14 +100,14 @@ Lifewire / Andrew Hayward
 
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/asGVK-moJ54HvqyY9N6Kb-KM8hw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-04-828899fb01024cd4a0e35980251c04b4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: It’s a bargain**
 
@@ -126,10 +126,10 @@ Lifewire / Andrew Hayward
  It’s honestly difficult to find anything to complain about with the ZMI PowerPack 20000\. It’s powerful and does a great job of charging laptops and phones, it has enough capacity to handle those tasks with ease, it’s compact and well-designed, and the price is fantastic. It’s half the size of the giant Anker power brick that I’ve brought on my last two international trips and can handle all of the same tasks. In other words,_this_ is the power brick I’m bringing on my next trip.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -158,14 +158,16 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-ignite-your-artistic-spirit-find-the-premier-android-drawing-tools/"><u>[New] 2024 Approved Ignite Your Artistic Spirit Find the Premier Android Drawing Tools</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cliffhanger-endings/"><u>Cliffhanger Endings</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-budget-friendly-secret-to-superior-sound-amazon-basics/"><u>Discover the Budget-Friendly Secret to Superior Sound: Amazon Basics</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elite-choice-the-superior-bodycams-of-this-year/"><u>Elite Choice: The Superior Bodycams of This Year</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/google-tv-chromecast-unveiled-a-comprehensive-review-and-alternatives-compared/"><u>Google TV Chromecast Unveiled: A Comprehensive Review & Alternatives Compared</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Oppo Reno 9A | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-poco-c51-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Poco C51 Phone with Broken Screen</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/silence-the-rumble-expert-tips-for-removing-subwoofer-vibrations/"><u>Silence the Rumble: Expert Tips for Removing Subwoofer Vibrations</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/travel-top-tripod-the-best-in-stability-and-portability/"><u>Travel Top Tripod: The Best in Stability and Portability</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-easy-onboarding-for-webinar-logging-in-microsoft-operating-systems-for-2024/"><u>[Updated] Easy Onboarding for Webinar Logging in Microsoft Operating Systems for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unearthing-the-hidden-an-orderly-guide-to-covert-youtube-videos/"><u>[Updated] Unearthing the Hidden An Orderly Guide to Covert YouTube Videos</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-perfect-iphone-images-abide-by-these-10-rules/"><u>2024 Approved Perfect iPhone Images Abide by These 10 Rules</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/5-most-effective-methods-to-unlock-iphone-se-2020-in-lost-mode-drfone-by-drfone-ios/"><u>5 Most Effective Methods to Unlock iPhone SE (2020) in Lost Mode | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/googles-password-manager-security-insights-required/"><u>Google's Password Manager: Security Insights Required</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/he-has-been-working-in-this-industry-for-10-years/"><u>He Has Been Working in This Industry for 10 Years.</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-can-life360-track-you-when-your-vivo-s17-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Vivo S17 is off? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-value-packed-skyspace-service-big-data-at-low-cost/"><u>In 2024, Value-Packed SkySpace Service Big Data at Low Cost</u></a></li>
+<li><a href="https://win-blog.techidaily.com/la-lista-definitiva-de-los-mejores-programas-para-compartir-pantalla-segun-movavi-top-12-recomendados-t1726233819530318/"><u>La Lista Definitiva De Los Mejores Programas Para Compartir Pantalla Según Movavi: Top 12 Recomendados</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-tablet-world-comparing-amazon-fire-versus-samsung-choices/"><u>Navigating the Tablet World: Comparing Amazon Fire Versus Samsung Choices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unraveling-the-thrills-of-space-warfare-in-star-wars-squadrons-our-comprehensive-review/"><u>Unraveling the Thrills of Space Warfare in Star Wars: Squadrons – Our Comprehensive Review</u></a></li>
 </ul></div>
 

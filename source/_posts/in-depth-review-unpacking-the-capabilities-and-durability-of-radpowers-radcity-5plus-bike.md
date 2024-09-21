@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Review: Unpacking the Capabilities and Durability of RadPower's RadCity ^5+ Bike"
-date: 2024-09-11T21:54:35.702Z
-updated: 2024-09-15T18:01:46.556Z
+date: 2024-09-17T17:35:07.365Z
+updated: 2024-09-21T00:26:28.050Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Review: Unpacking the Capabilities and Durability of RadPower's RadCity ^5+ Bike"
@@ -83,6 +83,13 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Camera Quality: Quality camera with some autofocus troubles**
 
  The camera takes 1080p video and has a 2 MP sensor. We tested the webcam’s photo capabilities by taking a picture of some packaging. Color was well represented, but the autofocus was just a bit off. The image was just a bit blurry, and we couldn’t read the smaller words at all. This wasn’t a problem close up, but it made a bigger difference when people were far away.
@@ -95,27 +102,7 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/Bko9Uk1HIIMt9aNgtBf9ATCy0AA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_14_Final_Horiz-4f1b9fe91b8c4229b17dbbe6afb81b8c.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / James Huenink
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Decent sound quality for a small mic**
 
@@ -125,18 +112,25 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/C2UBXNFmxG8nA0udy1IprMH4LBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_9_Final_Horiz-1af52951f8704af9b76d7dd1ec9744a9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / James Huenink
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Inexpensive HD camera**
 
  The Logitech C615 costs $70 MSRP, but you can find it for about half that cost. Even at full price, it's a solid value. The thoughtful design, image quality, and microphone clarity easily justify the price tag.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Acquits itself well against the competition**
 
@@ -186,19 +180,12 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-skypes-premier-audio-capture-solutions/"><u>[New] Skype's Premier Audio Capture Solutions</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-unleash-your-potential-with-these-powerful-snapchat-strategies-for-2024/"><u>[New] Unleash Your Potential with These Powerful Snapchat Strategies for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-explore-androids-best-moba-experiences-in-10/"><u>[Updated] 2024 Approved Explore Android's Best MOBA Experiences in #10</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-navigating-through-paid-product-evaluations-online/"><u>[Updated] In 2024, Navigating Through Paid Product Evaluations Online</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-decoding-skype-call-recordings-optimal-free-and-paid-methods-windowsmac/"><u>2024 Approved Decoding Skype Call Recordings Optimal Free and Paid Methods (Windows/Mac)</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/best-free-video-rotation-software-for-windows-mac-and-mobile-devices/"><u>Best Free Video Rotation Software for Windows, Mac, and Mobile Devices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-in-the-smart-home-arena-comparing-alexa-to-google-assistant/"><u>Best in the Smart Home Arena: Comparing Alexa to Google Assistant</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/complete-guide-to-screen-capturing-in-minecraft/"><u>Complete Guide to Screen Capturing in Minecraft</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-oculus-quest-2-accessory-guide-featuring-the-elite-strap-with-built-in-battery-and-durable-carry-case/"><u>Comprehensive Oculus Quest 2 Accessory Guide: Featuring the Elite Strap with Built-In Battery & Durable Carry Case</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discovering-practical-uses-for-the-innovative-ampasys-andes-1500-compact-generator/"><u>Discovering Practical Uses for the Innovative Ampasys Andes 1500 Compact Generator</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-seamless-ride-of-mods-newest-compact-and-portable-escooter/"><u>Exploring the Seamless Ride of Mod's Newest Compact and Portable eScooter</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/head-to-head-comparison-apple-watch-series-9-against-fitbit-charge-6/"><u>Head-to-Head Comparison: Apple Watch Series 9 Against Fitbit Charge 6</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/high-speed-home-networking-showdown-can-tp-links-archer-ax6000-outperform-the-reliable-nighthawk-ax12/"><u>High-Speed Home Networking Showdown: Can TP-Link's Archer AX6000 Outperform the Reliable Nighthawk AX12?</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-ideal-devices-and-programs-photos-to-movies/"><u>In 2024, Ideal Devices and Programs Photos to Movies</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-fast-track-installing-snapchat-on-your-mac-device/"><u>2024 Approved Fast Track Installing Snapchat on Your Mac Device</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-vivo-x-fold-2-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Vivo X Fold 2 Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-enable-usb-debugging-on-a-locked-motorola-edge-40-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Motorola Edge 40 Phone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-vivo-s17t-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Vivo S17t Location Settings | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/iphone-showdown-how-the-new-iphone-15-pro-stands-up-against-the-pro-max/"><u>IPhone Showdown: How the New iPhone 15 Pro Stands Up Against the Pro Max</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-allure-of-nokia-71-captivating-screen-and-photographic-performance-meets-affordability/"><u>The Allure of Nokia 7.1: Captivating Screen & Photographic Performance Meets Affordability</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-lenovo-ideapad-320-assessment-sleek-and-lightweight-laptop-featuring-lenovos-iconic-keyboard/"><u>Top Lenovo IdeaPad 320 Assessment - Sleek & Lightweight Laptop Featuring Lenovo's Iconic Keyboard</u></a></li>
 </ul></div>
 

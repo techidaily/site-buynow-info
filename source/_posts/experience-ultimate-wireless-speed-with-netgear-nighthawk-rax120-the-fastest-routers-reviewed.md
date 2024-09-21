@@ -1,7 +1,7 @@
 ---
 title: Experience Ultimate Wireless Speed with Netgear Nighthawk RAX120 - The Fastest Routers Reviewed !
-date: 2024-09-11T17:13:15.561Z
-updated: 2024-09-15T19:28:30.222Z
+date: 2024-09-15T18:55:05.974Z
+updated: 2024-09-21T02:16:46.813Z
 categories:
   - BestProducts
 description: This Article Describes Experience Ultimate Wireless Speed with Netgear Nighthawk RAX120 - The Fastest Routers Reviewed !
@@ -92,6 +92,13 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Network Performance: Fast speeds, No USB port**
 
  Although this is a low to mid-tier level device, I was quite impressed with its speed and performance. I live in a suburb about 20 minutes away from Raleigh, NC, and I have Spectrum as my internet service provider. The Wi-Fi speeds in my home max out at 400 Mbps. I have a smart box that sits in a utility closet where the router connects. I mounted the router on the wall in that closet, which has a solid door that acts as an immediate signal obstruction. In spite of the presence of this solid door, I was still able to get between 340 and 350 Mbps all throughout the entire downstairs (on the 5GHz band). On the 2.4GHz band, I could get up to 90Mbps all throughout the first floor and in my garage.
@@ -109,10 +116,10 @@ Lifewire / Erika Rawes
  Every closet, bathroom, and bedroom maintained a signal, and I experienced no dead zones whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: TP-Link Tether app**
@@ -126,10 +133,16 @@ Lifewire / Erika Rawes
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -137,13 +150,6 @@ Lifewire / Erika Rawes
 ## **Price: Around 100 bucks**
 
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **TP-Link Archer C80 vs. TP-Link Archer A9**
 
@@ -190,16 +196,13 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-laugh-ledger-top-10-tweets-for-a-smile/"><u>[New] 2024 Approved Laugh Ledger Top 10 Tweets for a Smile</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-efficient-techniques-to-record-and-store-facebook-calls/"><u>[Updated] Efficient Techniques to Record and Store Facebook Calls</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/antonis-antop-at-127-antenna-evaluation-cutting-edge-design-brings-you-crisp-clear-television-for-free/"><u>ANTONIS Antop AT-127 Antenna Evaluation: Cutting-Edge Design Brings You Crisp, Clear Television for Free!</u></a></li>
-<li><a href="https://article-posts.techidaily.com/craft-your-visual-narrative-top-10-iphoneandroid-screenshot-sticker-apps/"><u>Craft Your Visual Narrative – Top 10 iPhone/Android Screenshot Sticker Apps</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-small-marvel-of-innovation-detailed-insights-on-the-apple-iphone-12-mini/"><u>Exploring the Small Marvel of Innovation: Detailed Insights on the Apple iPhone 12 Mini</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/game-analysis-overcooked-2s-culinary-havoc-unveiled/"><u>Game Analysis: Overcooked! 2'S Culinary Havoc Unveiled</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-honor-magic5-ultimate-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Honor Magic5 Ultimate Quickly? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-capture-in-clarity-best-tools-for-quality-4k-conversion/"><u>In 2024, Capture in Clarity Best Tools for Quality 4K Conversion</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-orchestrating-the-scene-adding-cropping-and-adjusting-music-in-canva/"><u>In 2024, Orchestrating the Scene Adding, Cropping & Adjusting Music in Canva</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-oppo-a18-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Oppo A18 Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://driver-error.techidaily.com/remedying-the-failure-of-enex-driver-integration-in-win11/"><u>Remedying the Failure of eNEX Driver Integration in Win11</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-decoding-the-latest-a-close-look-at-magix-music-maker-2024-features/"><u>[New] Decoding the Latest A Close Look at Magix Music Maker 2024 Features</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-music-making-magic-selecting-background-beats-for-vids/"><u>[Updated] Music Making Magic Selecting Background Beats for Vids</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-overview-on-performance-and-usability-of-google-voice-calls/"><u>Expert Overview on Performance and Usability of Google Voice Calls</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-moto-g-play-experience-outstanding-endurance-combined-with-solid-performance-metrics/"><u>Exploring the Moto G Play Experience: Outstanding Endurance Combined with Solid Performance Metrics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/from-arcade-to-handheld-fun-a-critical-look-at-super-mario-bros-the-nintendo-game-and-watch-legend/"><u>From Arcade to Handheld Fun: A Critical Look at Super Mario Bros - The Nintendo Game & Watch Legend</u></a></li>
+<li><a href="https://techtrends.techidaily.com/het-voorkeurslijst-van-hoegek-pdf-leessoftware-kies-zijnhaar-favoriet/"><u>Het VoorkeursLijst Van HoeGek PDF Leessoftware | Kies Zijn/Haar Favoriet!</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/revolutionizing-video-playback-apple-integrates-av1-hardware-acceleration-into-its-new-m3-processor/"><u>Revolutionizing Video Playback - Apple Integrates AV1 Hardware Acceleration Into Its New M3 Processor</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/videorenewal-assistant-reviving-files/"><u>VideoRenewal Assistant: Reviving Files</u></a></li>
 </ul></div>
 

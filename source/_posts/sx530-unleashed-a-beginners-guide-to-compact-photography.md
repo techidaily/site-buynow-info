@@ -1,7 +1,7 @@
 ---
 title: "SX530 Unleashed: A Beginner's Guide to Compact Photography"
-date: 2024-09-10T17:25:21.377Z
-updated: 2024-09-15T21:58:40.155Z
+date: 2024-09-15T01:29:03.238Z
+updated: 2024-09-20T18:34:58.165Z
 categories:
   - BestProducts
 description: "This Article Describes SX530 Unleashed: A Beginner's Guide to Compact Photography"
@@ -100,6 +100,13 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup: A lot of reading before use**
 
  Once you unpack your flash and install the four AA batteries, you’re going to want to familiarize yourself with the buttons and menu system a little. The YN560 IV has a lot of functionality, but it doesn’t have the most intuitive interface. The front of the device contains a top row of four buttons (a Light/Music icon, Mode, a Wi-Fi icon, and Zoom). Below this is a charge indicator button marked “PILOT”, a direction pad, and an On/Off button.
@@ -120,13 +127,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Yongnuo YN560 IV Wireless Flash Speedlite Master vs Neewer TT560 Flash Speedlite**
 
  Photographers just starting out (or with significantly less complicated lighting ambitions) might be better served by getting a dead-simple option like the Neewer TT560 Flash Speedlite. It’s a no-fuss option with very few extraneous controls that will be a good starting point for most users, and solid for pros who don’t want more than optical trigger functionality on a flash.
@@ -141,18 +141,18 @@ Lifewire / Jonno Hill
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master may not be a very simple flash, but it packs enough functionality to make a very versatile platform for more aspirational photographers. Buyers that want full manual control and radio transmission without paying an arm and a leg will be more than pleased with what they get.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Canon Speedlite 430EX III-RT Flash](https://www.lifewire.com/canon-speedlite-430ex-iii-rt-flash-review-4686835)
 * [Nikon D3400](https://www.lifewire.com/nikon-d3400-review-4776644)
 * [Fovitec SPK10-037 Softbox Lighting Kit](https://www.lifewire.com/fovitec-spk10-037-softbox-lighting-kit-review-4692503)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -186,19 +186,17 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-building-a-strong-network-how-to-form-effective-youtube-partner-relationships/"><u>[New] Building a Strong Network How to Form Effective YouTube Partner Relationships</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/reate-effective-youtube-advertisements-on-a-budget-for-2024/"><u>[New] Create Effective YouTube Advertisements on a Budget for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-decode-your-youtube-preferences-with-these-6-fan-favorite-questionnaires/"><u>[Updated] 2024 Approved Decode Your YouTube Preferences with These 6 Fan-Favorite Questionnaires</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-accelerate-access-funimates-download-demystified/"><u>[Updated] Accelerate Access Funimate's Download Demystified</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/5-ways-to-track-apple-iphone-13-without-app-drfone-by-drfone-virtual-ios/"><u>5 Ways to Track Apple iPhone 13 without App | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazfit-helio-ring-find-out-how-much-when-it-drops-and-whats-inside/"><u>Amazfit Helio Ring - Find Out How Much, When It Drops, and What's Inside!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazon-basics-sleek-tablet-support-reviewed-the-ultimate-travel-companion/"><u>Amazon Basics' Sleek Tablet Support Reviewed: The Ultimate Travel Companion!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/demons-souls-revisited-enhanced-visuals-and-the-quintessential-gaming-experience/"><u>Demons' Souls Revisited: Enhanced Visuals and the Quintessential Gaming Experience</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-restore-a-bricked-oneplus-nord-ce-3-5g-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked OnePlus Nord CE 3 5G Back to Operation | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-pocketful-skies-affordable-large-file-allocator/"><u>In 2024, Pocketful Skies - Affordable Large File Allocator</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-top-7-free-pc-screen-capture-programs/"><u>In 2024, Top 7 Free PC Screen Capture Programs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/master-your-art-with-the-giant-canvas-of-the-htiu-kamvas-gt-191-drawing-tablet-in-depth-analysis/"><u>Master Your Art with the Giant Canvas of the HTIU Kamvas GT-191 Drawing Tablet - In-Depth Analysis</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-madden-19-insights-incredible-modes-yet-showing-signs-of-age/"><u>Unveiling Madden 19 Insights: Incredible Modes Yet Showing Signs of Age</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-style-and-performance-of-taotronics-latest-tt-dl16-modern-led-lamp/"><u>Unveiling The Style & Performance of TaoTronics' Latest TT-DL16 Modern LED Lamp</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-audio-extraction-made-easy-youtube-music-on-your-mac/"><u>[New] Audio Extraction Made Easy YouTube Music on Your Mac</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-7-video-enhancement-cameras-to-skyrocket-your-blogging/"><u>[Updated] Top 7 Video Enhancement Cameras To Skyrocket Your Blogging</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/all-about-the-apple-iphone-upgrade-program/"><u>All About the Apple iPhone Upgrade Program</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/celebrating-w15as-features-while-noting-its-flaws/"><u>Celebrating W15A's Features While Noting Its Flaws</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/detailed-evaluation-razer-kiyo-webcam-for-2024/"><u>Detailed Evaluation Razer Kiyo Webcam for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-moto-g-play-long-lasting-power-and-adequate-processor-capability/"><u>Exploring the Moto G Play: Long-Lasting Power & Adequate Processor Capability</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-samsung-galaxy-f34-5g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Samsung Galaxy F34 5G to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-apple-iphone-6-plus-fixed-drfone-by-drfone-virtual-ios/"><u>In 2024, Why is iPogo not working On Apple iPhone 6 Plus? Fixed | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-samsung-galaxy-note20-ultra-5g-analysis/"><u>In-Depth Samsung Galaxy Note20 Ultra 5G Analysis</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-vivo-y100i-power-5g-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Vivo Y100i Power 5G and Browser | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/sustainable-growth-developing-a-long-term-personal-brand-on-youtube/"><u>Sustainable Growth Developing a Long-Term Personal Brand on YouTube</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-performance-unveiled-in-depth-analysis-of-ankers-powercoreplus-26800-portable-charger-bundle-review/"><u>Top Performance Unveiled: In-Depth Analysis of Anker's PowerCore+ 26800 Portable Charger Bundle Review</u></a></li>
 </ul></div>
 

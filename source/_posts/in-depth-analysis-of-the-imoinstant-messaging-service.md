@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the ImoInstant Messaging Service
-date: 2024-09-13T17:22:41.223Z
-updated: 2024-09-15T19:07:25.695Z
+date: 2024-09-16T21:25:35.627Z
+updated: 2024-09-20T16:18:48.755Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the ImoInstant Messaging Service
@@ -117,6 +117,13 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process and Software: Bluetooth, at long last**
 
  One of our biggest gripes with the original Elite controller was that it lacked Bluetooth functionality despite its premium price tag. Seeing how the much cheaper ONE S variant included this, it was even more frustrating. Thankfully, Microsoft listened to our collective rants and added Bluetooth to the Series 2, which drastically improves the number of devices it can be used with.
@@ -136,6 +143,19 @@ Lifewire / Zach Sweat
  If you plan to buy this controller to use with other electronics that support Bluetooth devices, make sure you do some research before committing to it, as it doesn’t always work with everything. That said, we did manage to pair the controller with a couple other devices that weren’t officially supported.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -161,6 +181,13 @@ Lifewire / Zach Sweat
 
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Like buying a brand new console**
 
  Right now, the Elite Series 2 controller retails at an MSRP of $249.99, about $100 more than its predecessor. This price tag makes it not only the most expensive first-party controller around, but also nearly the cost of a brand new Xbox One S console (or three brand new titles). That can be a tough sell for your average gamer.
@@ -171,21 +198,7 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/6VfCJGOyjLkAkE_mjiHr7rz8Gyw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-6-0c1d7a2ae4e8443ea5b69f559e52bd12.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
 
@@ -200,19 +213,6 @@ Lifewire / Zach Sweat
  **A truly awesome controller with a steep price point.**
 
  Everything we disliked about the original Elite controller has been improved with the second iteration, making it the best first-party controller you can get for XB1 or PC. However, the steep price point might be a hard pill to swallow for users who don’t like to splurge.
-
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -246,19 +246,21 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-info.techidaily.com/numenera-chronicles-torment-review-mastering-sci-fi-storytelling-in-an-epic-roleplaying-game/"><u>'Numenera Chronicles: Torment Review - Mastering Sci-Fi Storytelling in an Epic Roleplaying Game</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-mastering-adsense-on-youtube-a-beginners-guide/"><u>[Updated] 2024 Approved Mastering AdSense on YouTube A Beginner's Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/assassins-creed-valhalla-review/"><u>Assassin's Creed: Valhalla Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/casting-your-vote-in-depth-comparison-of-chromecast-vs-roku-for-optimal-streaming-experience/"><u>Casting Your Vote: In-Depth Comparison of Chromecast Vs. Roku for Optimal Streaming Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cooking-chaos-unleashed-an-exclusive-overcooked-2-evaluation/"><u>Cooking Chaos Unleashed: An Exclusive Overcooked! 2 Evaluation</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/expert-methods-for-incorporating-links-into-tiktok-bios/"><u>Expert Methods for Incorporating Links Into TikTok Bios</u></a></li>
-<li><a href="https://common-error.techidaily.com/fortnite-resolved-how-to-get-your-old-graphics-card-working-on-a-windows-pc/"><u>Fortnite Resolved: How to Get Your Old Graphics Card Working on a Windows PC</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/full-guide-to-unlock-iphone-12-pro-max-with-itunes-by-drfone-ios/"><u>Full Guide to Unlock iPhone 12 Pro Max with iTunes</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-excellence-in-camera-technology-top-15/"><u>In 2024, Excellence in Camera Technology – Top 15</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-tab-s5e-the-ultimate-android-tablet-experience/"><u>In-Depth Analysis of the Samsung Galaxy Tab S5e - The Ultimate Android Tablet Experience</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/online-cropping-made-simple-step-by-step-processes/"><u>Online Cropping Made Simple - Step by Step Processes</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/revolutionize-your-design-studio-aocs-new-line-of-u3-graphics-display-monitors-arrive/"><u>Revolutionize Your Design Studio: AOC's New Line of U3 Graphics Display Monitors Arrive</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/taking-smart-home-to-new-heights-the-revolutionary-echo-4th-gen-unveiled/"><u>Taking Smart Home to New Heights: The Revolutionary Echo (4Th Gen) Unveiled</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-and-fixing-pc-reboot-failure-messages-in-windows-10/"><u>Troubleshooting and Fixing PC Reboot Failure Messages in Windows 10</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-online-oasis-viewer-for-2024/"><u>[Updated] Online Oasis Viewer for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cat-s42-toughphone-evaluation-high-durability-at-the-cost-of-performance/"><u>CAT S42 Toughphone Evaluation: High Durability at the Cost of Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhance-your-internet-experience-with-the-netgear-nighthawk-x6-range-extender-top-features-explored/"><u>Enhance Your Internet Experience with the Netgear Nighthawk X6 Range Extender: Top Features Explored</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-ensure-optimal-performance-razer-blade-17-drivers-update-techniques-on-all-windows-versions/"><u>How To Ensure Optimal Performance: Razer Blade 17 Drivers Update Techniques on All Windows Versions</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-oneplus-ace-2-pro-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your OnePlus Ace 2 Pro Is Unlocked</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-remedying-an-inactive-connection-to-your-obs-cam/"><u>In 2024, Remedying an Inactive Connection to Your OBS Cam</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-sticking-with-your-current-iphone-smart/"><u>Is Sticking with Your Current iPhone Smart?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/light-and-shade-mastery-in-photographic-edits/"><u>Light & Shade Mastery in Photographic Edits</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-nighttime-insight-an-in-depth-look-at-the-j5-tactical-v1-pro-the-unyielding-and-compact-beacon-for-nocturnal-precision/"><u>Mastering Nighttime Insight: An In-Depth Look at the J5 Tactical V1-Pro - The Unyielding and Compact Beacon for Nocturnal Precision</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-videdit-mac/"><u>New 2024 Approved VidEdit Mac</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/oneplus-nord-ce-3-5g-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>OnePlus Nord CE 3 5G Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-s10e-assessment-compact-design-budget-friendly-price-without-compromise/"><u>Samsung Galaxy S10e Assessment: Compact Design, Budget-Friendly Price Without Compromise</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sky-high-quality-unveiled-in-depth-mavic/"><u>Sky-High Quality Unveiled: In-Depth Mavic</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/tout-savoir-pour-convertir-votre-video-mov-en-son-wav-sur-la-plateforme-movavi-sans-depenser-dargent/"><u>Tout Savoir Pour Convertir Votre Vidéo MOV en Son WAV Sur La Plateforme Movavi, Sans Dépenser D'argent !</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tropico-6-unveiled-a-comprehensive-guide-to-building-an-ideal-paradise/"><u>Tropico 6 Unveiled: A Comprehensive Guide to Building an Ideal Paradise</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-the-xp-pen-artist-16-pro-drawing-tablet-performance-breakdown/"><u>Ultimate Guide to the XP-Pen Artist 16 Pro: Drawing Tablet Performance Breakdown</u></a></li>
 </ul></div>
 

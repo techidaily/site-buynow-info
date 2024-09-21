@@ -1,7 +1,7 @@
 ---
 title: "The Mohu Blade TV Antenna: Reviewing Its Innovative Appearance & Strong Indoor Signal Capture"
-date: 2024-09-13T19:42:46.612Z
-updated: 2024-09-15T17:11:14.050Z
+date: 2024-09-13T22:24:59.117Z
+updated: 2024-09-20T23:36:05.022Z
 categories:
   - BestProducts
 description: "This Article Describes The Mohu Blade TV Antenna: Reviewing Its Innovative Appearance & Strong Indoor Signal Capture"
@@ -87,6 +87,13 @@ Lifewire / Erika Rawes
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Almost two dozen channels**
 
  The Antop AT-127 supports UHF and VHF signals. Overall, it works pretty smoothly, though some channels might have look pixelated for a few seconds when you flip to them or take a second or two to fully load.
@@ -94,19 +101,6 @@ Lifewire / Erika Rawes
  The attached coax cable isn’t as long as I’ve seen on other similarly-priced antennas, but it is long enough (10 feet) to place the antenna up high without an extender.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -118,26 +112,27 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -148,13 +143,6 @@ Lifewire / Erika Rawes
 **Works great & looks even better.**
 
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -187,20 +175,17 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-shotsizesavvy-fine-tuning-your-social-media-content-for-instagram-for-2024/"><u>[New] ShotSizeSavvy Fine-Tuning Your Social Media Content for Instagram for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-apps-for-3d-video-intros-on-social-platforms/"><u>2024 Approved Best Apps for 3D Video Intros on Social Platforms</u></a></li>
-<li><a href="https://review-topics.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-infinix-smart-8-plus-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Infinix Smart 8 Plus by Name | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-linksys-ea8300-mastering-smart-device-connectivity/"><u>Comprehensive Analysis of the Linksys EA8300: Mastering Smart Device Connectivity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-most-economical-cell-service-deals-our-expert-picks/"><u>Discover the Most Economical Cell Service Deals : Our Expert Picks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exercise-and-entertain-with-garmin-vivoactive-2-sync-your-workouts-to-the-beat/"><u>Exercise and Entertain with Garmin Vivoactive 2 - Sync Your Workouts to the Beat</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-tcl-32s325-roku-smart-led-tv-a-blend-of-intelligence-and-style-from-2019/"><u>Expert Analysis of the TCL 32S325 Roku Smart LED TV - A Blend of Intelligence and Style From 2019</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-update-your-dell-network-hardware-with-the-best-windows-7-compatible-drivers/"><u>How to Update Your Dell Network Hardware with the Best Windows 7 Compatible Drivers</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-oneplus-11-5g-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror OnePlus 11 5G to Roku | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On OnePlus Ace 2? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-sound-spectrum-listing-websites-for-legal-ringtones/"><u>In 2024, Sound Spectrum Listing Websites for Legal Ringtones</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-review-mmock-1000a-car-jump-starter-with-high-capacity-18000mah-battery-unveiled/"><u>In-Depth Review: MMOCK 1000A Car Jump Starter with High Capacity 18000mAh Battery Unveiled</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/reveal-hidden-iphone-applications-with-simple-steps/"><u>Reveal Hidden iPhone Applications with Simple Steps</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/soundseal-bass-blockers-high-fidelity-study/"><u>SoundSeal Bass Blockers High-Fidelity Study</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/vixia-hf-series-the-economical-lens-for-filmmakers/"><u>VIXIA HF Series: The Economical Lens for Filmmakers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-unleash-potential-blend-the-best-of-tiktok-and-instagram-reel-artistry/"><u>[New] In 2024, Unleash Potential Blend the Best of TikTok and Instagram Reel Artistry</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/op-hd-lenses-for-youtube-creators-for-2024/"><u>[New] Top HD Lenses for YouTube Creators for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-unlocking-the-potential-of-screen-sharing-on-google-meet-for-2024/"><u>[New] Unlocking the Potential of Screen Sharing on Google Meet for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-apowersoft-screen-record-review-and-top-contenders-unveiled/"><u>[Updated] 2024 Approved Apowersoft Screen Record Review & Top Contenders Unveiled</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/100plus-essential-spanish-travel-lexicon-for-unforgettable-journeys/"><u>100+ Essential Spanish Travel Lexicon for Unforgettable Journeys</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/compact-and-versatile-discover-the-acer-aspire-c27-your-ideal-low-profile-all-in-one-pc/"><u>Compact & Versatile: Discover the Acer Aspire C27, Your Ideal Low-Profile All-in-One PC</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/finns-funds-youtube-stars-weekly-take-home-for-2024/"><u>Finn's Funds YouTube Star’s Weekly Take-Home for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-watch-avchd-mts-video-on-samsung-galaxy-s23-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to watch AVCHD MTS video on Samsung Galaxy S23?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-track-your-videos-with-these-top-8-youtube-rank-trackers/"><u>In 2024, Track Your Videos With These Top 8 YouTube Rank Trackers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mirari-kids-alarm-clock-review-a-kid-friendly-awakening-solution/"><u>Mirari Kids Alarm Clock Review - A Kid-Friendly Awakening Solution</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Itel A60s? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-future-of-streaming-our-detailed-take-on-the-newly-released-chromecast-with-google-tv/"><u>The Future of Streaming? Our Detailed Take on the Newly-Released Chromecast with Google TV</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "From Arcade to Handheld Fun: A Critical Look at Super Mario Bros - The Nintendo Game & Watch Legend"
-date: 2024-09-09T21:52:49.478Z
-updated: 2024-09-15T21:15:42.426Z
+date: 2024-09-19T20:27:58.641Z
+updated: 2024-09-20T16:24:47.579Z
 categories:
   - BestProducts
 description: "This Article Describes From Arcade to Handheld Fun: A Critical Look at Super Mario Bros - The Nintendo Game & Watch Legend"
@@ -86,19 +86,6 @@ Lifewire / Emily Isaacs
 
  Nintendo Game & Watch: Super Mario Bros. arrives in a small package that is lovingly designed in the Game & Watch family feel. In addition to the instructional care packet, it also includes a charging cable. Some long-time Nintendo fans may be inclined to keep the box, due to the Game & Watch’s collectible nature.
 
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Setup Process: Pick up and play
 
  The Nintendo Game & Watch: Super Mario Bros. is a pick-up and play device. Simply open the box and remove the console from its shipment packaging, press the power button on the right-hand side, click the Time button to set your clock for the included Watch mode, and then you’re all set to enjoy the preloaded Super Mario Bros_._ and Ball games. It arrives with a partial charge.
@@ -106,16 +93,10 @@ Lifewire / Emily Isaacs
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/IzTLcGKhslJLE9YpMMkMKBV1BME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_03-5ca824e25f85464a83c9187541b0f059.jpg)
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
@@ -130,13 +111,6 @@ Lifewire / Emily Isaacs
 
  The Ball game is the only included Game & Watch title in the product. Balls bounce back and forth in the air as you juggle them to keep them from hitting the ground. Instead of the classic Ball character design, Mario’s head has been superimposed on the character. It’s a much simpler game, and it’s OK, but this game loses its allure fairly quickly due to the repetitive gameplay.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Audio: Surprisingly loud and crisp
 
  The included mono speaker is surprisingly loud and crisp, emitting 8-bit chiptunes. It’s located on the left-hand side of the device, nestled into the case’s trim. While I thought my hands might get in the way and block the sound a bit during play, that didn’t turn out to be true.
@@ -147,6 +121,13 @@ Lifewire / Emily Isaacs
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/PvTcnsQLDp7SFCPIeHreGfS-dgM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_05-01b731a5406d4cbfa37be90277c6e89b.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Emily Isaacs
 
 ## Price: Great value for the price
@@ -155,9 +136,23 @@ Lifewire / Emily Isaacs
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/Te3HyEg18zLT9zKT-eZuFtev8So=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_02-6af770f871344e16ad3f45320d46d52a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Emily Isaacs
 
  For anyone looking to bring the Game & Watch home, they should be aware that while it brings the three included classic titles to life in a fun, exciting way, the Game & Watch doesn't add anything new to the Nintendo family. It caters to long-time Nintendo lovers and collectors, more than anything else.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Nintendo Game & Watch: Super Mario Bros. vs. Nintendo Switch
 
@@ -178,13 +173,6 @@ Lifewire / Emily Isaacs
 * [Nintendo Switch Lite](https://www.lifewire.com/nintendo-switch-lite-review-4788015)
 * [Xbox One X](https://www.lifewire.com/xbox-one-x-review-4707143)
 * [PlayStation 4 Pro](https://www.lifewire.com/playstation-4-pro-review-4707193)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -217,16 +205,19 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-info.techidaily.com/avengers-assemble-an-objective-review-for-fans-and-critics-alike/"><u>'Avengers Assemble': An Objective Review for Fans and Critics Alike</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-video-magic-techniques-to-elevate-your-social-media-impact-for-2024/"><u>[Updated] Instagram Video Magic Techniques to Elevate Your Social Media Impact for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-top-2-video-editing-apps-compared-filmora-and-democracy-creator/"><u>[Updated] Top 2 Video Editing Apps Compared Filmora & Democracy Creator</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-lg-stylo-6-a-perfect-blend-of-style-and-functionality/"><u>Comprehensive Review of LG Stylo 6 - A Perfect Blend of Style & Functionality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/creative-labs-vs-gamers-is-the-2013-sound-blaster-zxr-worth-your-money/"><u>Creative Labs Vs. Gamers: Is the 2013 Sound Blaster ZXR Worth Your Money?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-hp-stream-11-a-sleek-solution-for-everyday-computing-needs/"><u>Discover the HP Stream 11: A Sleek Solution for Everyday Computing Needs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/endospores-can-be-identified-in-the-laboratory-by-staining-techniques-such-as-schaeffer-fulton-stain-which-colors-endospores-green-within-a-pink-or-red-vege9/"><u>Endospores Can Be Identified in the Laboratory by Staining Techniques Such as Schaeffer-Fulton Stain, Which Colors Endospores Green Within a Pink or Red Vegetative Cell Background.</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-the-activation-lock-on-your-ipad-and-apple-iphone-6-without-apple-account-by-drfone-ios/"><u>How to Remove the Activation Lock On your iPad and Apple iPhone 6 without Apple Account</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-vivo-v27-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Vivo V27 Location | Dr.fone</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/in-2024-why-does-itools-virtual-location-not-work-for-apple-iphone-7-plusipad-solved-drfone-by-drfone-virtual-ios/"><u>In 2024, Why Does iTools Virtual Location Not Work For Apple iPhone 7 Plus/iPad? Solved | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/top-5-cinematiccamera-tips/"><u>Top 5 Cinematic/Camera Tips</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-mobile-studio-kits-convenient-for-filmmakers/"><u>[New] 2024 Approved Mobile Studio Kits Convenient for Filmmakers</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-how-to-dive-into-a-friends-life-without-fuss-on-tiktok/"><u>[New] How To Dive Into a Friend's Life Without Fuss on TikTok</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-starting-an-online-platform-for-consumer-goods-reviews/"><u>[New] Starting an Online Platform for Consumer Goods Reviews</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-fujitsn-scansnap-ix1600-evaluation-the-ultimate-workstation-document-scanner/"><u>Comprehensive Fujitsn ScanSnap iX1600 Evaluation: The Ultimate Workstation Document Scanner</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/decoding-cardanos-vasil-transition-an-insightful-exploration-into-its-purpose-and-features/"><u>Decoding Cardano's Vasil Transition: An Insightful Exploration Into Its Purpose and Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/embrace-literary-adventures-with-style-review-of-kobo-clara-hds-unmatched-portability-and-ease/"><u>Embrace Literary Adventures with Style: Review of Kobo Clara HD's Unmatched Portability and Ease</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-asus-rt-ac68u-a-comprehensive-look-at-its-speedy-and-secure-wi-fi-capabilities/"><u>Evaluating the Asus RT-AC68U: A Comprehensive Look at Its Speedy and Secure Wi-Fi Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-differences-between-apple-watch-series-9-and-fitbit-charge-6-which-wins/"><u>Exploring the Differences Between Apple Watch Series 9 and Fitbit Charge 6 – Which Wins?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-infinix-hot-40i-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from Infinix Hot 40i</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-tecno-camon-20-pro-5g-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Tecno Camon 20 Pro 5G Phone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-xiaomi-redmi-k70-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Xiaomi Redmi K70 Location | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/logitech-c615-drivers-error-quick-fixes-and-easy-troubleshooting-tips/"><u>Logitech C615 Drivers Error? Quick Fixes & Easy Troubleshooting Tips!</u></a></li>
+<li><a href="https://win-able.techidaily.com/mastering-pc-compatibility-solutions-for-detroit-become-human/"><u>Mastering PC Compatibility: Solutions for 'Detroit: Become Human'</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/power-up-with-the-ultimate-anker-superspeed-usb-hub-evaluation/"><u>Power Up with the Ultimate Anker SuperSpeed USB Hub Evaluation</u></a></li>
 </ul></div>
 

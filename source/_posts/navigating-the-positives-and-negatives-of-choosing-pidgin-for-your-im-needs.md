@@ -1,7 +1,7 @@
 ---
 title: Navigating the Positives and Negatives of Choosing Pidgin for Your IM Needs
-date: 2024-09-08T18:23:51.398Z
-updated: 2024-09-15T22:07:18.337Z
+date: 2024-09-16T22:22:27.501Z
+updated: 2024-09-21T01:07:44.009Z
 categories:
   - BestProducts
 description: This Article Describes Navigating the Positives and Negatives of Choosing Pidgin for Your IM Needs
@@ -96,6 +96,13 @@ Lifewire / Yoona Wagener
 
  As for water resistance, I didn’t test the 50-meter swimproof rating of the Halo in a pool, but I did shower with the device for three days. Despite the band’s moisture-wicking band material, it remained damp far longer than was comfortable and compared to a fast-drying silicone band. If you’re an avid swimmer or prefer not to remove your wearable while showering, the sport band option will most likely be the more desirable option.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Performance: Constantly monitoring movement, not performance
 
  While this streamlined device doesn’t log detailed workout metrics, the Halo has the upper hand when it comes to continuously monitoring movement—and sedentary stints throughout the day. Whether you’re sitting at a desk or venture out for an errand, the Halo will capture that and pretty accurately categorize it. It consistently registered walking and running activities, though the readout wasn’t very accurate for the latter. Truthfully, I don’t get the impression that that’s the point of the Halo.
@@ -103,13 +110,6 @@ Lifewire / Yoona Wagener
  Instead, the Halo presents all activity data through a convenient point-tracking system. The weekly goal is 150, which converts to 150 minutes of cardiovascular activity, as recommended by the American Heart Association. Periods of movement and exercise count toward this point goal, while periods of non-movement subtract from points earned. It’s a digestible system that offers a new twist on the steps or movement alert functions you’ll find in fitness trackers and[smartwatches](https://www.lifewire.com/an-introduction-to-smart-watches-3441381) from Samsung, Garmin, Fitbit, and others. This system was an encouraging reset from those reminders that sometimes feel more annoying than motivating.
 
 ![Amazon Halo](https://www.lifewire.com/thmb/FjdFyV6Y4mTXNsqccZ4aEBJNpV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_05-e671ee9f77cc4cee8e2580a2dba449d5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener.
 
@@ -120,6 +120,13 @@ Lifewire / Yoona Wagener
  All voice data and images used for the body scan are deletable from the app, though you can also choose to back up body data in the cloud, which Amazon assures is private and well secured.
 
  The body fat scan is based on pictures uploaded to the app—and based on prompts from the app. While it felt invasive and isn’t a feature I’d seek out in a fitness tracker, it worked without issue. Amazon reports that this technology is twice as accurate as smart scales. For the right user who feels comfortable with this kind of data compilation, this feature also offers visualizations of how different body fat percentages would look on your frame and stores your scans for a look at trends over time. All voice data and images used for the body scan are deletable from the app, though you can also choose to back up body data in the[cloud](https://www.lifewire.com/what-is-cloud-computing-817770) , which Amazon assures is private and well secured.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Software: An essential and user-friendly mobile app
 
@@ -132,10 +139,10 @@ Lifewire / Yoona Wagener
  The app makes everything from the initial setup to body scanning and voice tracking straightforward.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Battery: Enough juice to last nearly a week
@@ -148,23 +155,9 @@ Lifewire / Yoona Wagener
 
 Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Price: A reasonable price for the feature set
 
  Retailing for just about $100, the Amazon Halo band certainly won’t break the bank for budget-minded shoppers. While the lack of display could be a deterrent, the solid mobile app provides convenient access to the detailed sleep, automatic activity tracking, and specialized tone of voice and body fat analysis the Halo provides.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Amazon Halo vs. WHOOP Strap 3
 
@@ -177,6 +170,13 @@ Lifewire / Yoona Wagener
 **A futuristic wearable for wellness enthusiasts.**
 
  The Amazon Halo isn’t for everyone with its lack of display and additional layers of data tracking to capture tone of voice and body fat percentage. But for the user that wants a little less hardware but more forward-thinking fitness/health tracking, this unique wearable offers a different approach to increasing activity and wellness awareness on a daily basis.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -215,21 +215,17 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-finding-the-perfect-date-tracker-10-best-androidios-apps/"><u>[New] Finding the Perfect Date Tracker 10 Best Android/iOS Apps</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-fitness-tracking-with-fitbit-versa-lite-an-in-depth-product-evaluation/"><u>Affordable Fitness Tracking with Fitbit Versa Lite: An In-Depth Product Evaluation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/anker-powercore-plus-26800-portable-charger-evaluation-a-comprehensive-review/"><u>Anker PowerCore + 26800 Portable Charger Evaluation - A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/budget-friendly-thermopro-tp67-temperature-probe-a-detailed-analysis/"><u>Budget-Friendly ThermoPro TP67 Temperature Probe - A Detailed Analysis</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/claude-pro-unveiled-diving-into-its-capabilities-vs-chatgpt-plus/"><u>Claude Pro Unveiled: Diving Into Its Capabilities Vs. ChatGPT Plus</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-anker-roav-dashcam-c1-assessment-the-ideal-road-safety-companion/"><u>Comprehensive Anker Roav DashCam C1 Assessment - The Ideal Road Safety Companion</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/deep-dive-into-the-features-of-lenovon-9-inch-nook-tablet/"><u>Deep Dive Into the Features of Lenovo'n 9-Inch Nook Tablet</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/deepening-ties-techniques-for-meaningful-youtube-dialogue/"><u>Deepening Ties Techniques for Meaningful YouTube Dialogue</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-honor-x8b-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Honor X8b Phone that is Locked?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-honor-magic-6-pro-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Honor Magic 6 Pro Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-itel-p55-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Itel P55 to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/meet-the-practicality-of-canons-sx620-hs-camera/"><u>Meet the Practicality of Canon's SX620 HS Camera</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/precision-and-persuasion-crafting-content-that-sticks-on-reddit-for-2024/"><u>Precision and Persuasion Crafting Content That Sticks on Reddit for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/prepare-yourself-upcoming-turmoil-in-fb-headlines/"><u>Prepare Yourself: Upcoming Turmoil in FB Headlines</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/streamlining-data-recovery-on-windows-11-pro/"><u>Streamlining Data Recovery on Windows 11 Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-5-essential-factors-to-assess-when-shopping-for-your-ideal-fitness-band/"><u>Top 5 Essential Factors to Assess When Shopping for Your Ideal Fitness Band</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-learn-the-essential-steps-recording-youtube-live-with-ease-across-devices-for-2024/"><u>[Updated] Learn the Essential Steps Recording YouTube Live with Ease Across Devices for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1726224819717-gif-movavi/"><u>免費網路 GIF 轉換器 - Movavi</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exceptional-mobility-meets-performance-in-our-hp-zbook-firefly-15-g8-test-drive/"><u>Exceptional Mobility Meets Performance in Our HP ZBook Firefly 15 G8 Test Drive</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Itel P40+? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Tecno Spark 20? | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/is-the-google-bard-app-safe-exposing-potential-malware-risks-to-users/"><u>Is the Google Bard App Safe? Exposing Potential Malware Risks to Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/master-your-game-on-a-micro-scale-best-compact-pcs-for-serious-gamers/"><u>Master Your Game on a Micro Scale: Best Compact PCs for Serious Gamers</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-infinix-note-30-vip-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Infinix Note 30 VIP and Browser | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-capabilities-of-rca-video-doorbell-camera-system/"><u>Reviewing the Capabilities of RCA Video Doorbell Camera System</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/superior-webcams-revolutionizing-podcast-recording/"><u>Superior Webcams Revolutionizing Podcast Recording</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-performing-tp-link-archer-a6-ac1200-router-exceptional-budget-friendly-specs-reviewed/"><u>Top-Performing TP-LInk Archer A6 AC1200 Router: Exceptional Budget Friendly Specs Reviewed</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-the-best-free-avi-video-rotators-a-comprehensive-multi-platform-review/"><u>Updated In 2024, The Best Free AVI Video Rotators A Comprehensive Multi-Platform Review</u></a></li>
 </ul></div>
 

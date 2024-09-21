@@ -1,7 +1,7 @@
 ---
 title: "Review of 'Battle for Neighborville': Silly Fun Meets Strategic Plant-Zombie Showdown"
-date: 2024-09-10T16:48:21.197Z
-updated: 2024-09-15T19:12:10.778Z
+date: 2024-09-18T04:04:50.528Z
+updated: 2024-09-20T20:20:35.544Z
 categories:
   - BestProducts
 description: "This Article Describes Review of 'Battle for Neighborville': Silly Fun Meets Strategic Plant-Zombie Showdown"
@@ -100,6 +100,13 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Gameplay: Could be better, but solid overall**
 
  7 Days to Die boasts two playable maps: Navezgane, which is a massive square map consisting of five biomes in which you can use the sandbox world to your advantage; and random map generation, which is a map that randomly spawns cities and biomes. The latter is for players who want a greater challenge, as no random map is the same. The former, however, has fun elements like a school, complete with charging football zombies, and a strip club. From these two kinds of maps alone, gameplay can last for hours (as we said, we’ve clocked in 500 hours at this point).
@@ -121,10 +128,16 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/O0do2JbbpgP_VF7azi5OhENnDpc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-5-13eba1dcdd7d45b48c0c3d07711686e6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -137,29 +150,22 @@ Lifewire / Rebecca Isaacs
 
  Because the graphics are a rather mixed bag, the frames per second (fps) can vary dramatically. We experienced drops as low as 18 fps when playing. When surrounded by a horde, that can cost you your life.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Platform: It’s complicated**
 
  7 Days to Die runs on many platforms:[PC](https://www.lifewire.com/what-is-a-mac-4155662) ,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and[Xbox 360](https://www.lifewire.com/xbox-360-buyers-guide-3562451) . We played 7 Days on PC, and at the time of writing, they released a teaser for the Alpha 18 update which would roll out to the PC version of the game.
 
  Last time we checked, the company that owned all console rights, Telltale, went bust, and The Fun Pimps (the developer) were in legal limbo trying to reacquire their own rights. There’s a good chance that there will not be an update in the console versions of the game anytime soon as this issue makes its way through the courts. Therefore, we strongly recommend that you purchase the PC version if you decide this is a game you might like to try.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Average for an alpha game**
 
  At around $25, 7 Days isn’t the most expensive zombie game on the market. However, it is the most expensive alpha zombie game out there. Because you can purchase it on[Steam](https://www.lifewire.com/what-is-steam-4177380) or Humble Bumble, we recommend waiting for a Steam sale and getting it for a discount, especially since it’s still in progress. This way, if you decide you don’t like it in the future, you aren’t out the full price.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Other sandbox shooters**
 
@@ -174,10 +180,10 @@ Lifewire / Rebecca Isaacs
  Despite flaws in graphics, there’s a lot to love about 7 Days to Die. The challenging skill tree system and dangerous intelligent zombies add an element that’s not typically found in zombie shooters. If you want a game to commit to for hours on end, building bases and exploring dungeon-like homes while slaying zombie cheerleaders, then 7 Days to Die could be a fun way to ease some stress after a long day of work.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -213,16 +219,20 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-top-8-iphone-video-production-secrets-for-high-quality-shoots/"><u>[New] 2024 Approved Top 8 iPhone Video Production Secrets for High-Quality Shoots</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ransform-your-on-screen-identity-into-a-brand-on-youtube-for-2024/"><u>[New] Transform Your On-Screen Identity Into a Brand on YouTube for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-windowwatcher-reviews-guide/"><u>[New] WindowWatcher Reviews Guide</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-subscribers-guide-to-effective-dialogue-on-youtube/"><u>[Updated] 2024 Approved The Subscriber's Guide to Effective Dialogue on YouTube</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-opulence-through-sound-h8i-headphones/"><u>Experience Opulence Through Sound: H8i Headphones</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/how-to-address-and-solve-dnssddll-missing-troubleshooting/"><u>How To Address and Solve 'dnssd.dll Missing' Troubleshooting</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Lava Yuva 3 Pro? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-pros-and-cons-of-the-oneplus-ebony-8t-exceptional-speed-overshadowed-by-lackluster-camera-features/"><u>The Pros and Cons of the OnePlus Ebony 8T - Exceptional Speed Overshadowed By Lackluster Camera Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-anker-superspeed-usb-30-hub-assessment-the-ultimate-charging-and-data-transfer-solution/"><u>Top Rated Anker SuperSpeed USB 3.0 Hub Assessment: The Ultimate Charging and Data Transfer Solution</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-insights-into-the-functionality-and-performance-of-google-nest-doorbells-battery/"><u>Top Rated Insights Into the Functionality and Performance of Google Nest Doorbells (Battery)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-madden-19-insights-incredible-modes-yet-showing-signs-of-age/"><u>Unveiling Madden 19 Insights: Incredible Modes Yet Showing Signs of Age</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/battle-for-neighborville-a-hilariously-satisfying-plants-vs-zombies-shooter-game-review/"><u>'Battle for Neighborville': A Hilariously Satisfying Plants Vs. Zombies Shooter - Game Review</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-free-banner-templates-for-youtube-downloads-and-makers-for-2024/"><u>[Updated] Free Banner Templates for YouTube Downloads & Makers for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-screenflow-exploration-a-mac-focused-journey-through-video-editing-for-2024/"><u>[Updated] ScreenFlow Exploration A Mac-Focused Journey Through Video Editing for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-tweeted-videos-to-downloadable-mp3-files/"><u>2024 Approved From Tweeted Videos to Downloadable MP3 Files</u></a></li>
+<li><a href="https://games-able.techidaily.com/a-trainers-guide-to-the-glimmering-hunt-in-pokemon-scv-80/"><u>A Trainer’s Guide to the Glimmering Hunt in Pokémon SCV (80)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ergoheads-durable-and-cozy-desk-mat-a-thorough-review-for-extended-use-experience/"><u>Ergohead's Durable and Cozy Desk Mat: A Thorough Review for Extended Use Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-battery-version-google-wireless-nest-doorbells/"><u>Expert Analysis of the Battery Version Google Wireless Nest Doorbells</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/harnessing-the-power-of-metaverse-humor-creation/"><u>Harnessing the Power of Metaverse Humor Creation</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-activity-trackers-reviewed-the-ultimate-guide/"><u>Leading Activity Trackers Reviewed: The Ultimate Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/les-meilleurs-videurs-de-videos-wmv-pour-mac-os-windows-11-android-et-iphone-top-5-comparee/"><u>Les Meilleurs Videurs De Vidéos WMV Pour Mac OS, Windows 11, Android Et iPhone: Top 5 Comparée</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionize-your-office-routine-with-the-cubefit-terramat-a-detailed-overview/"><u>Revolutionize Your Office Routine with the CubeFit TerraMat - A Detailed Overview</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-10-essential-apps-every-teen-needs-in-high-school/"><u>Top 10 Essential Apps Every Teen Needs in High School</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-a-detailed-look-at-the-xp-pen-artist-n-16-pro-illustrators-companion/"><u>Unveiling the Features: A Detailed Look at the XP-Pen Artist N 16 Pro Illustrator's Companion</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/user-opinions-and-expert-insights-on-viber-out-service/"><u>User Opinions & Expert Insights on Viber Out Service</u></a></li>
 </ul></div>
 

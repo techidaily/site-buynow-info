@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of the HP OMEN Obelisk: Superior Performance Meets Affordability"
-date: 2024-09-09T20:37:43.320Z
-updated: 2024-09-15T19:49:10.203Z
+date: 2024-09-20T03:38:34.056Z
+updated: 2024-09-20T17:18:16.159Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis of the HP OMEN Obelisk: Superior Performance Meets Affordability"
@@ -84,10 +84,10 @@ Lifewire / James Huenink
  Lifewire / James Huenink
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Camera Quality: Quality camera with some autofocus troubles**
@@ -104,13 +104,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Decent sound quality for a small mic**
 
  We used both[Photobooth](https://www.lifewire.com/how-to-turn-on-camera-on-mac-4175436) and[Skype](https://www.lifewire.com/how-to-make-hd-skype-calls-3426508) to test the performance of the C615\. It was very easy to position the camera exactly the way we wanted it, though the USB cable occasionally gave us problems. We’d swivel the camera and then the pull of the USB cable would turn the whole base so the camera pointed back at the same spot where it started.
@@ -121,9 +114,23 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Inexpensive HD camera**
 
  The Logitech C615 costs $70 MSRP, but you can find it for about half that cost. Even at full price, it's a solid value. The thoughtful design, image quality, and microphone clarity easily justify the price tag.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Acquits itself well against the competition**
 
@@ -140,13 +147,6 @@ Lifewire / James Huenink
  **Strikes a balance between affordability and performance.**
 
  The Logitech C615 Webcam strikes the perfect balance between performance and affordability. The quality design, high definition video, and quality sound make this an excellent webcam for most tasks at a great price.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -180,17 +180,14 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-how-to-share-a-podcast-on-instagram-story-or-post/"><u>[Updated] In 2024, How to Share a Podcast on Instagram Story or Post</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-isolating-still-images-from-motion-in-windows-11-photos/"><u>[Updated] Isolating Still Images From Motion in Windows 11 Photos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-max-360-or-hero-11-unveiling-top-notch-gopro-cams-for-2024/"><u>[Updated] Max 360 or Hero 11 Unveiling Top-Notch GoPro Cams for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/boost-icloud-mail-safety-using-two-step-verification-methods/"><u>Boost iCloud Mail Safety Using Two-Step Verification Methods</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/critical-review-of-cyberpunk-2077-unfinished-yet-intriguingly-crafted-world/"><u>Critical Review of Cyberpunk 2077: Unfinished Yet Intriguingly Crafted World</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/tial-asmr-channel-discoveries-for-2024/"><u>Essential ASMR Channel Discoveries for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-productivity-with-the-ergohead-standing-desk-pad-an-in-depth-comfort-test-over-time/"><u>Maximizing Productivity with the Ergohead Standing Desk Pad - An In-Depth Comfort Test Over Time</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigate-natures-terrain-confidently-the-twelve-south-compass-pro-reviewed/"><u>Navigate Nature's Terrain Confidently: The Twelve South Compass Pro Reviewed</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/perfecting-your-youtube-closings-essential-insights-and-tips-for-2024/"><u>Perfecting Your YouTube Closings - Essential Insights & Tips for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/steam-decks-growing-appeal-4-indications-for-gamers/"><u>Steam Deck's Growing Appeal: 4 Indications for Gamers</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-10-password-cracking-tools-for-vivo-y27-5g-by-drfone-android/"><u>Top 10 Password Cracking Tools For Vivo Y27 5G</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/why-you-should-choose-a-tcl-50-inch-roku-smart-tv-50s425-in-2019-a-detailed-review/"><u>Why You Should Choose a TCL 50-Inch Roku Smart TV (50S425) in 2019 - A Detailed Review</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-mitigate-playback-problems-in-android-and-ios-apps/"><u>[New] In 2024, Mitigate Playback Problems in Android & iOS Apps</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-non-athlete-front-rows-the-ultimate-alternative-list/"><u>[New] Non-Athlete Front Rows The Ultimate Alternative List</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-crafting-compelling-visual-stories-with-ps-distortion-tools/"><u>2024 Approved Crafting Compelling Visual Stories with PS Distortion Tools</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/aggregate-attention-masterful-telegram-advertising-approaches-for-2024/"><u>Aggregate Attention Masterful Telegram Advertising Approaches for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dbpowers-reliable-jump-starter-and-portable-charger-a-comprehensive-look-at-the-peak-1800ab-battery/"><u>DBPOWER's Reliable Jump Starter & Portable Charger: A Comprehensive Look at the Peak 18,00Ab Battery</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-value-of-caixuns-4k-75-android-smart-tv-a-thorough-performance-review/"><u>Discovering the Value of Caixun's 4K 75 Android Smart TV - A Thorough Performance Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-upgrade-to-macos-ventura/"><u>How to Upgrade to macOS Ventura</u></a></li>
+<li><a href="https://apple-account.techidaily.com/the-easy-way-to-remove-an-apple-id-from-your-macbook-for-your-iphone-7-plus-by-drfone-ios/"><u>The Easy Way to Remove an Apple ID from Your MacBook For your iPhone 7 Plus</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/video-guide-mastering-data-security-encrypt-and-recover-your-macs-hdd/"><u>Video Guide: Mastering Data Security – Encrypt & Recover Your Mac's HDD</u></a></li>
 </ul></div>
 
