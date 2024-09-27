@@ -1,7 +1,7 @@
 ---
 title: Budget 75
-date: 2024-09-20T00:54:21.640Z
-updated: 2024-09-20T23:35:01.873Z
+date: 2024-09-25T19:05:28.558Z
+updated: 2024-09-26T22:17:46.266Z
 categories:
   - BestProducts
 description: This Article Describes Budget 75
@@ -41,6 +41,13 @@ Lifewire / Jonno Hill
 [View On Amazon $85](https://www.amazon.com/dp/B00PGTOX26?tag=lifewire-onsite-prod-20&ascsubtag=4686829%7Cned26b5ddc861462ea8962bb31e85883020%7CB00PGTOX26) [View On B&H Photo Video $85](https://www.bhphotovideo.com/c/product/1101196-REG/yongnuo%5Fyn%5F560iv%5Fyn560%5Fiv%5Fspeedlite.html)
 
 4.2
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## YONGNUO YN560 IV Wireless Flash Speedlite Master
 
@@ -100,6 +107,13 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup: A lot of reading before use**
 
  Once you unpack your flash and install the four AA batteries, you’re going to want to familiarize yourself with the buttons and menu system a little. The YN560 IV has a lot of functionality, but it doesn’t have the most intuitive interface. The front of the device contains a top row of four buttons (a Light/Music icon, Mode, a Wi-Fi icon, and Zoom). Below this is a charge indicator button marked “PILOT”, a direction pad, and an On/Off button.
@@ -114,6 +128,13 @@ Lifewire / Jonno Hill
 
  Overall, the YN560 IV gives you a lot of functionality and control, but definitely requires some reading and troubleshooting before you can master the device.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Significant savings for manual users**
 
  Buyers that need a lot of manual control for complex flash setups will be very pleased with what the get for the approximately $60 the YN560 IV costs. It sits at a price that’s a fraction of its TTL-enabled Canon and Nikon counterparts, but twice that of even simpler options. Do you need all the functionality that the YN560 IV offers? Are you willing to troubleshoot a bit with returns to make sure you get good, non-defective units? If the answer to those questions is yes, this is definitely the flash for you.
@@ -121,10 +142,10 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Yongnuo YN560 IV Wireless Flash Speedlite Master vs Neewer TT560 Flash Speedlite**
@@ -146,19 +167,6 @@ Lifewire / Jonno Hill
 * [Canon Speedlite 430EX III-RT Flash](https://www.lifewire.com/canon-speedlite-430ex-iii-rt-flash-review-4686835)
 * [Nikon D3400](https://www.lifewire.com/nikon-d3400-review-4776644)
 * [Fovitec SPK10-037 Softbox Lighting Kit](https://www.lifewire.com/fovitec-spk10-037-softbox-lighting-kit-review-4692503)
-
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -190,5 +198,24 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-capturing-clarity-web-based-high-definition-recorders/"><u>[New] Capturing Clarity Web-Based High-Definition Recorders</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-crop-companions-best-farming-games-to-gather-with-buddies/"><u>[New] Crop Companions Best Farming Games to Gather with Buddies</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/op-11-strategies-for-boosting-your-youtube-videos-visibility-for-2024/"><u>[New] Top 11 Strategies for Boosting Your YouTube Videos' Visibility for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/1-transforming-gifs-into-webm-format-a-step-by-step-guide/"><u>1. Transforming GIFs Into WebM Format: A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722731138420-breaking-down-overwatch-a-riveting-group-combat-adventure-unveiled/"><u>Breaking Down Overwatch - A Riveting Group Combat Adventure Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/brookstones-ultimate-photoframe-reviews/"><u>Brookstone's Ultimate PhotoFrame Reviews</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/comparing-digital-universes-meta-to-omni/"><u>Comparing Digital Universes Meta to Omni</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-dji-mavic-air-2s-ultimate-choice-in-drones/"><u>Comprehensive Analysis of the DJI Mavic Air 2S - Ultimate Choice in Drones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-apple-iphone-12-pro-max-assessment-when-size-matters/"><u>Comprehensive Apple iPhone 12 Pro Max Assessment: When Size Matters</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-philips-hf3505-sunrise-alarm-clock/"><u>Comprehensive Evaluation of Philips HF3505 Sunrise Alarm Clock</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/delete-gmail-account-withwithout-password-on-vivo-x90s-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Vivo X90S</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-nokia-xr21-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Nokia XR21 Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-track-apple-iphone-15-plus-location-without-installing-software-drfone-by-drfone-virtual-ios/"><u>How to Track Apple iPhone 15 Plus Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-call-history-from-realme-12-5g-by-fonelab-android-recover-call-logs/"><u>The way to get back lost call history from Realme 12 5G</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-efficiency-of-extollo-lansocket-1500-swift-data-transfer-lean-delay-and-integrated-power-handling-insight/"><u>Unveiling the Efficiency of Extollo LANSocket 1500: Swift Data Transfer, Lean Delay & Integrated Power Handling Insight</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/urban-armors-fortified-carrier-case-for-macbook-pro-assessed-blending-robustness-with-useful-design-features/"><u>Urban Armor's Fortified Carrier Case for MacBook Pro Assessed: Blending Robustness with Useful Design Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/vintage-vinyl-reimagined-by-audio-techs-at-lp120xusb/"><u>Vintage Vinyl Reimagined by Audio-Tech’s AT-LP120XUSB</u></a></li>
+</ul></div>
 

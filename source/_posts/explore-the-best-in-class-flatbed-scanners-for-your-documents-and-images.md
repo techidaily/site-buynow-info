@@ -1,7 +1,7 @@
 ---
 title: Explore the Best-In-Class Flatbed Scanners for Your Documents and Images
-date: 2024-09-19T21:46:17.164Z
-updated: 2024-09-20T23:16:19.743Z
+date: 2024-09-23T22:39:59.793Z
+updated: 2024-09-26T20:34:58.933Z
 categories:
   - BestProducts
 description: This Article Describes Explore the Best-In-Class Flatbed Scanners for Your Documents and Images
@@ -44,6 +44,13 @@ Lifewire / Matthew S. Smith
 [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6455816.p) [View On Acer.com](https://www.acer.com/ac/en/US/content/predator-model/NH.QD0AA.002)
 
 4.2
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Acer Predator Triton 300 SE
 
@@ -111,15 +118,22 @@ Lifewire / Matthew S. Smith
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/eRv5Q4rKutM9zrhSTCRxbBO4rVc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-6-2af7f9999ae847bda4f5b9b830c9c555.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
  There’s one downside: poor viewing angles. This is unusual in a modern laptop, though I’ve noticed this trait in many high-refresh laptop displays. I can’t give the Triton 300 SE too much flak for this given its otherwise excellent performance.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Performance: Great for games, ok for everything else
 
@@ -128,13 +142,6 @@ Lifewire / Matthew S. Smith
  PCMark 10 hit an overall score of 5,534\. Geekbench 5 turned in a single-core score of 1,418 and a multi-core score of 4,493\. The Geekbench 5 multi-core score is behind the curve;[new AMD Ryzen 7 5000-series laptops](https://www.lifewire.com/amd-vs-intel-which-processor-is-best-for-you-4780276) can almost double that result. This will disappoint content creators who use CPU-dependent applications. The Acer Triton 300 SE won’t keep up with AMD-powered rivals, like the Asus ROG Zephyrus G14, in such workloads.
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/_blPSVdy574t15clSGhbK6JH68o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-4-5a097b76e29b4ee985eee421ed6d0fe8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -156,6 +163,13 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/IiMzYmVU-_I6PnObn0bkjyCzqUk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-3-7cae0e5d13154048bbc93c40976706ca.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
 
  The touchpad is about four inches wide and two and a half inches deep. That’s not bad for a gaming laptop, but average for a productivity machine, and it can feel cramped. It’s responsive and rejects any quick, unintended brush by a palm or thumb. It’s smooth when using multi-touch gestures like two-finger scroll or pinch-to-zoom.
@@ -169,10 +183,10 @@ Lifewire / Matthew S. Smith
  There are limits, of course. It isn’t loud enough to project impressive volume in a living room or kitchen. It can also sound muddy and confused when playing bass-forward music or the most frantic action games. Still, it’s an impressive set of speakers that will rarely leave you wanting for more.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Network: Killer performance
@@ -201,13 +215,6 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/RSfl2dEVmErlvh3BUUFcxqsbt9w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-2-c5eed4bfe7e44014952b5503566097d9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Matthew S. Smith
 
 ## Software: Planet what now?
@@ -219,10 +226,10 @@ Lifewire / Matthew S. Smith
  The laptop comes with Norton antivirus installed. It’s eager to remind you of its presence whenever you download a file or visit an unfamiliar website. The antivirus is easy to uninstall, but its presence takes away from what otherwise feels like a special laptop in Acer’s Predator line.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Price: An outstanding value
@@ -246,6 +253,13 @@ Lifewire / Matthew S. Smith
 **Excellent value for an RTX-powered gaming laptop.**
 
  Acer’s Predator Triton 300 SE is an excellent value that has what gamers want: a great gaming experience and a quality display. Its short battery life and mediocre multi-core processor hold it back in everyday use, but the laptop’s competitive price makes these flaws easy to forgive.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -285,5 +299,23 @@ Lifewire / Matthew S. Smith
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-creating-professional-level-xbox-screen-recordings-for-2024/"><u>[New] Creating Professional-Level Xbox Screen Recordings for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-from-freelance-filmmaker-to-full-time-financier-snapchat-storytelling/"><u>[Updated] In 2024, From Freelance Filmmaker to Full-Time Financier Snapchat Storytelling</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-launchpad-equipment-the-beginners-checklist/"><u>[Updated] Launchpad Equipment The Beginner's Checklist</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/battle-for-supremacy-in-a-new-star-wars-game-a-deep-dive-into-squadrons-features-and-gameplay/"><u>Battle for Supremacy in a New Star Wars Game – A Deep Dive Into Squadrons' Features & Gameplay</u></a></li>
+<li><a href="https://techtrends.techidaily.com/error-resolution-what-to-do-when-you-cant-find-ftd2xxdll-on-your-computer/"><u>Error Resolution: What to Do When You Can't Find ftd2xx.dll on Your Computer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-samsung-galaxy-tab-a-2020-spotlight-on-missing-key-specification/"><u>In-Depth Review of Samsung Galaxy Tab A (2020) - Spotlight on Missing Key Specification</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-assessing-the-dual-efficiency-of-netgears-cable-modem-and-wireless-router-c3700/"><u>In-Depth Review: Assessing the Dual Efficiency of Netgear's Cable Modem and Wireless Router (C3700)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-the-apple-m4-cpu-release-information-and-comprehensive-specs-guide/"><u>Inside the Apple M4 CPU: Release Information and Comprehensive Specs Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/key-factors-to-evaluate-a-guide-to-choosing-the-right-tablet/"><u>Key Factors to Evaluate: A Guide to Choosing the Right Tablet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/microsoft-surface-duo-an-expensive-device-marred-by-software-issues/"><u>Microsoft Surface Duo - An Expensive Device Marred by Software Issues</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/motorola-one-5g-ace-review-great-5g-speeds-and-fantastic-battery-life/"><u>Motorola One 5G Ace Review: Great 5G Speeds and Fantastic Battery Life</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/navigate-to-sites-where-you-can-procure-sponsorships-on-youtube/"><u>Navigate to Sites Where You Can Procure Sponsorships on Youtube</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/oneplus-8t-analysis-fast-performance-marred-by-inconsistent-camera-quality/"><u>OnePlus 8T Analysis: Fast Performance Marred by Inconsistent Camera Quality</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/snapchat-spotlight-unveiled-usage-explained/"><u>Snapchat Spotlight Unveiled Usage Explained</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unleash-creativity-turning-gifs-into-charming-stickers-for-discord-whatsapp-and-telegram/"><u>Unleash Creativity Turning GIFs Into Charming Stickers for Discord, WhatsApp & Telegram</u></a></li>
+<li><a href="https://windows11.techidaily.com/unlocking-memory-integrity-on-windows-11-methods-77/"><u>Unlocking Memory Integrity on Windows 11: Methods 7/7</u></a></li>
+</ul></div>
 

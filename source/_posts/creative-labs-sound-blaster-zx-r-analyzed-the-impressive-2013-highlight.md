@@ -1,7 +1,7 @@
 ---
 title: "Creative Labs' Sound Blaster ZX-R Analyzed: The Impressive 2013 Highlight"
-date: 2024-09-13T18:25:47.342Z
-updated: 2024-09-20T17:18:07.910Z
+date: 2024-09-24T20:34:40.568Z
+updated: 2024-09-26T18:32:27.740Z
 categories:
   - BestProducts
 description: "This Article Describes Creative Labs' Sound Blaster ZX-R Analyzed: The Impressive 2013 Highlight"
@@ -42,6 +42,13 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
@@ -68,6 +75,13 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -90,18 +104,18 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: T-minus one minute**
 
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
 
  Lifewire / Jeffrey Daniel Chadwick
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
 
@@ -123,16 +137,16 @@ Lifewire / Jeffrey Daniel Chadwick
 
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
@@ -171,5 +185,22 @@ Lifewire / Jeffrey Daniel Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-harnessing-viral-power-your-pathway-to-youtube-fame/"><u>[New] 2024 Approved Harnessing Viral Power Your Pathway to YouTube Fame</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-decision-time-for-codecs-are-you-with-av1-or-vp9/"><u>[New] Decision Time for Codecs Are You with Av1 or VP9?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-cutting-edge-content-creation-premier-android-editors/"><u>[Updated] 2024 Approved Cutting-Edge Content Creation Premier Android Editors</u></a></li>
+<li><a href="https://games-able.techidaily.com/affordable-luxury-for-your-virtual-journey/"><u>Affordable Luxury for Your Virtual Journey</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/imac-upgrade-guide/"><u>IMac Upgrade Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-xiaomi-redmi-note-12t-pro-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Xiaomi Redmi Note 12T Pro Phone Pattern Lock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-alienware-aurora-r7-exceptional-power-at-a-premium-price/"><u>In-Depth Evaluation of Alienware Aurora R7: Exceptional Power at a Premium Price</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-insight-into-the-lenovo-thinkpad-x12-detachable-an-impressive-convertible-tablet-and-an-outstanding-keyboard-setup/"><u>In-Depth Insight Into the Lenovo ThinkPad X12 Detachable: An Impressive Convertible Tablet & an Outstanding Keyboard Setup</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-moto-g-power-analysis-exceptional-endurance-and-stellar-efficiency/"><u>In-Depth Moto G Power Analysis: Exceptional Endurance & Stellar Efficiency</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-and-economical-unveiling-the-benefits-of-the-philips-hf3523520-alarm-clock/"><u>Innovative and Economical: Unveiling the Benefits of the Philips HF352지3520 Alarm Clock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ipad-face-off-the-definitive-device-comparison-chart/"><u>IPad Face-Off: The Definitive Device Comparison Chart</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/iphone-gaming-pros-and-cons-finding-the-best-device-for-your-needs/"><u>IPhone Gaming Pros and Cons: Finding the Best Device for Your Needs</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/live-streaming-mastery-with-manycam-top-of-the-line-virtual-webcam-software/"><u>Live Streaming Mastery with ManyCam: Top-of-the-Line Virtual Webcam Software</u></a></li>
+<li><a href="https://win-forum.techidaily.com/step-by-step-guide-removing-a-windows-11-operating-system-update/"><u>Step-by-Step Guide: Removing a Windows 11 Operating System Update</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/top-7-icloud-activation-bypass-tools-for-your-apple-iphone-6-plus-by-drfone-ios/"><u>Top 7 iCloud Activation Bypass Tools For your Apple iPhone 6 Plus</u></a></li>
+</ul></div>
 

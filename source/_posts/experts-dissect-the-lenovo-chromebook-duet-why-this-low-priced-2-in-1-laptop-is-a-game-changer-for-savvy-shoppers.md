@@ -1,7 +1,7 @@
 ---
 title: Experts Dissect the Lenovo Chromebook Duet - Why This Low-Priced, 2-in-1 Laptop Is a Game-Changer for Savvy Shoppers
-date: 2024-09-19T23:23:39.276Z
-updated: 2024-09-21T03:29:06.838Z
+date: 2024-09-25T00:50:22.484Z
+updated: 2024-09-27T04:47:06.716Z
 categories:
   - BestProducts
 description: This Article Describes Experts Dissect the Lenovo Chromebook Duet - Why This Low-Priced, 2-in-1 Laptop Is a Game-Changer for Savvy Shoppers
@@ -43,6 +43,13 @@ Lifewire / Erika Rawes
 
 3
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## TP-Link Archer C9 Wireless Router
 
 ![TP-Link Archer C9 AC1900](https://www.lifewire.com/thmb/5L4k_oD-GKPyliYY-jL-tLQH-Uk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAC1900_HeroSquare-68c63e89f59a47a2944b2a73434417e9.jpg)
@@ -69,6 +76,13 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer C9 AC1900 is a budget-friendly router, so it doesn’t include too many of the features you see in newer, more expensive models. It doesn’t include[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) control or MU-MIMO technology, but it’s supposed to provide a long signal range for larger homes, as well as support fast enough speeds for online gaming and 4K media. I tested the TP-Link AC1900 alongside several other[long range routers](https://www.lifewire.com/best-long-range-routers-4122554) to see how well it performs in the real world.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Fingerprints galore**
 
  The Archer AC1900 definitely isn’t the most attractive router I’ve seen. The version I tested is black, but TP-Link also makes the C9 in white. The gloss finish gives the AC1900 a cheap look, and it, unfortunately, shows each and every smudge and fingerprint when you touch the surface. The indicator lights sit on the front face, and you can easily see the network status with a quick glance.
@@ -81,29 +95,9 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: Takes less than 10 minutes**
 
  Setup is simple, and you can use the Tether app or the TP-Link site. There’s a QR code in the quick setup leaflet, so you can easily find the app. As it goes with most routers, you’ll find a temporary network name, password, and login info on the label. The app walks you through the setup process step-by-step, guiding you through creating your 2.4 and 5 GHz networks.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Connectivity: Decent speeds, long range**
 
@@ -118,10 +112,10 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Key features: Guest network and parental controls**
@@ -133,6 +127,19 @@ Lifewire / Erika Rawes
  Although this is somewhat of a basic router, it has some modern perks. It supports the most recent Internet Protocol version, IPv6\. You can also create a guest network, so you don’t have to share your main network credentials with visitors. The C9 does feature parental controls, but they aren’t exactly comprehensive.
 
  The router performed extremely well at close proximity, but not so well at a distance.
+
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: TP-Link Tether app**
 
@@ -159,6 +166,13 @@ Lifewire / Erika Rawes
  **A reliable budget router that will help prevent drop-offs.**
 
  The TP-Link Archer C9 AC1900 is a good option for those who want a reasonably fast and stable network connection, but don’t want to pay a lot of cash for extra bells and whistles.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -194,5 +208,24 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-save-pc-sound-frequencies-and-mic-dialogue/"><u>[New] 2024 Approved Save PC Sound Frequencies & Mic Dialogue</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-the-comprehensible-guide-to-wincams-bests/"><u>[New] 2024 Approved The Comprehensible Guide to WinCams' Bests</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-ultimate-choice-10-best-webcams-for-win-11-for-2024/"><u>[Updated] Ultimate Choice 10 Best Webcams for Win 11 for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-how-to-smoothly-view-youtube-videos-without-borders/"><u>2024 Approved How to Smoothly View YouTube Videos without Borders?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/deciphering-numbers-an-introduction-to-facebook-insight-for-2024/"><u>Deciphering Numbers An Introduction to Facebook Insight for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/drive-letter-dilemma-in-windows-understanding-the-issues-fixes-presented/"><u>Drive Letter Dilemma in Windows - Understanding The Issues, Fixes Presented</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-features-of-aphaca-bt69-wireless-bluetooth-car-stereo-transmitter-an-in-depth-analysis/"><u>Exploring the Features of Aphaca BT69 Wireless Bluetooth Car Stereo Transmitter - An In-Depth Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-vuebell-video-doorbell-premium-features-at-budget-prices/"><u>Exploring the VueBell Video Doorbell: Premium Features at Budget Prices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/from-basic-to-stunning-graphics-card-laptop-boost/"><u>From Basic to Stunning: Graphics Card Laptop Boost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-up-close-with-the-iphone-15-pro-a-detailed-walkthrough-of-apples-new-smartphone-masterpiece/"><u>Get Up Close with the iPhone 15 Pro: A Detailed Walkthrough of Apple's New Smartphone Masterpiece</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-erase-iphone-11-data-permanently-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Erase iPhone 11 Data Permanently | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-dell-xps-13-7390-the-ultimate-2-in-1-hybrid-laptop/"><u>In-Depth Analysis of the Dell XPS 13 (7390): The Ultimate 2-in-1 Hybrid Laptop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-why-fellowes-microban-wired-keyboard-is-a-top-contender-for-savvy-shoppers/"><u>In-Depth Analysis: Why Fellowes Microban Wired Keyboard Is a Top Contender for Savvy Shoppers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insiders-analysis-of-razers-stealth-nix-13-pioneering-ultrabook-excellence-unveiled/"><u>Insider's Analysis of Razer’s Stealth Nix 13: Pioneering Ultrabook Excellence Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insights-into-the-pros-and-cons-of-hosting-meetings-on-webex-online-tool/"><u>Insights Into the Pros and Cons of Hosting Meetings on WebEx Online Tool</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-professional-results-without-the-professionals-diy-movie-making-for-beginners-for-2024/"><u>New Professional Results Without the Professionals DIY Movie Making for Beginners for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/visual-upgrade-for-win-users-the-triad-approach/"><u>Visual Upgrade for Win Users - The Triad Approach</u></a></li>
+</ul></div>
 

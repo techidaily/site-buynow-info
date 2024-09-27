@@ -1,7 +1,7 @@
 ---
 title: Why a Kindle Might Just Be Right for You
-date: 2024-09-19T03:47:34.292Z
-updated: 2024-09-20T21:52:13.790Z
+date: 2024-09-22T23:34:46.336Z
+updated: 2024-09-26T17:17:43.328Z
 categories:
   - BestProducts
 description: This Article Describes Why a Kindle Might Just Be Right for You
@@ -46,6 +46,13 @@ Lifewire / Jonno Hill
 
 ![Yongnuo YN560 IV Wireless Flash Speedlite Master](https://www.lifewire.com/thmb/UOD6afkRh-xS-Dh1-iagOeoOSdY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_3LW4072366-Yongnuo-YN560-1-33b6547cc9014731ab6e144b0613aaef.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jonno Hill
 
 [View On Amazon $85](https://www.amazon.com/dp/B00PGTOX26?tag=lifewire-onsite-prod-20&ascsubtag=4686829%7Cned26b5ddc861462ea8962bb31e85883020%7CB00PGTOX26) [View On B&H Photo Video $85](https://www.bhphotovideo.com/c/product/1101196-REG/yongnuo%5Fyn%5F560iv%5Fyn560%5Fiv%5Fspeedlite.html)
@@ -67,6 +74,13 @@ Lifewire / Jonno Hill
  The Yongnuo YN560 IV Wireless Flash Speedlite Master finds an interesting balance between barebones manual flashes that sell for around half the price, and much more expensive options from big brands like[Canon](https://www.lifewire.com/best-new-canon-cameras-493499) and Nikon. The big upgrade is full radio control, letting you adjust a group of these lights in concert. Along with 24-105mm zoom support and a quick 3-second recycle time, this is a very appealing flash for off-camera use for portrait and real estate photographers.
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Punching above the price point**
 
@@ -100,6 +114,13 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup: A lot of reading before use**
 
  Once you unpack your flash and install the four AA batteries, you’re going to want to familiarize yourself with the buttons and menu system a little. The YN560 IV has a lot of functionality, but it doesn’t have the most intuitive interface. The front of the device contains a top row of four buttons (a Light/Music icon, Mode, a Wi-Fi icon, and Zoom). Below this is a charge indicator button marked “PILOT”, a direction pad, and an On/Off button.
@@ -113,13 +134,6 @@ Lifewire / Jonno Hill
  The last quirk that users will have to familiarize themselves with is that a lot of menu functionality is only accessed by pressing two of the top row buttons simultaneously. Pressing the first two opens the advanced options, pressing the middle two issues an activation command to the slave units when in TX mode, and pressing the final two buttons lets you set the channel.
 
  Overall, the YN560 IV gives you a lot of functionality and control, but definitely requires some reading and troubleshooting before you can master the device.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Significant savings for manual users**
 
@@ -141,24 +155,18 @@ Lifewire / Jonno Hill
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master may not be a very simple flash, but it packs enough functionality to make a very versatile platform for more aspirational photographers. Buyers that want full manual control and radio transmission without paying an arm and a leg will be more than pleased with what they get.
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Canon Speedlite 430EX III-RT Flash](https://www.lifewire.com/canon-speedlite-430ex-iii-rt-flash-review-4686835)
 * [Nikon D3400](https://www.lifewire.com/nikon-d3400-review-4776644)
 * [Fovitec SPK10-037 Softbox Lighting Kit](https://www.lifewire.com/fovitec-spk10-037-softbox-lighting-kit-review-4692503)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -190,5 +198,18 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-tips-to-inject-oversized-characters-into-tiktoks/"><u>[Updated] 2024 Approved Tips to Inject Oversized Characters Into TikToks</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-achieve-peak-collaboration-a-complete-guide-to-slack-and-filmora-integration/"><u>[Updated] Achieve Peak Collaboration A Complete Guide to Slack & Filmora Integration</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-elite-drone-recommendations-to-boost-gopro-video-impact-for-2024/"><u>[Updated] Elite Drone Recommendations to Boost GoPro Video Impact for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-metaverse-mingle-match-ultimate-pairings/"><u>[Updated] Metaverse Mingle Match Ultimate Pairings</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-pro-window-11-users-guide-to-photovideo-imports/"><u>[Updated] Pro Window 11 Users' Guide to Photo/Video Imports</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-the-best-features-in-gaming-setups/"><u>Decoding the Best Features in Gaming Setups</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dissecting-sound-excellence-sonys-wh-1000xm4-unpacked/"><u>Dissecting Sound Excellence - Sony's WH-1000XM4 Unpacked</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-your-views-with-the-dji-mavic-air-2-expert-insights-and-rating-highlights/"><u>Elevate Your Views with the DJI Mavic Air 2 – Expert Insights and Rating Highlights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expertise-in-audio-premium-cd-devices/"><u>Expertise in Audio: Premium CD Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-best-wi-fi-mesh-systems-of-2024-rankings-and-reviews/"><u>Explore the Best Wi-Fi Mesh Systems of 2024: Rankings & Reviews!</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-xiaomi-14-ultra-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Xiaomi 14 Ultra Lock Screen Clock in Seconds</u></a></li>
+</ul></div>
 

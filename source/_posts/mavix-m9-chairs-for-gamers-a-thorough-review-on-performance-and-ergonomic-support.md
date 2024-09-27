@@ -1,7 +1,7 @@
 ---
 title: Mavix M9 Chairs for Gamers – A Thorough Review on Performance and Ergonomic Support
-date: 2024-09-13T21:52:45.405Z
-updated: 2024-09-20T17:50:02.265Z
+date: 2024-09-22T16:16:53.244Z
+updated: 2024-09-27T04:56:20.865Z
 categories:
   - BestProducts
 description: This Article Describes Mavix M9 Chairs for Gamers – A Thorough Review on Performance and Ergonomic Support
@@ -44,9 +44,29 @@ Lifewire / Erika Rawes
 
 4
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## SEGA Yakuza: Like a Dragon
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/2HQ40tAW6PvhutMT0JyWvwFpbdI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_HeroSquare-ea84381e359846e6951c77b6f7e7c5a0.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -67,6 +87,13 @@ Lifewire / Erika Rawes
  _Our reviewer purchased Yakuza: Like a Dragon so they could put it to the test. Keep reading for the full product review._
 
  The[best PC games](https://www.lifewire.com/best-pc-games-4147292) offer something unique that keeps you coming back for more. Yakuza: Like a Dragon takes the standard Yakuza formula and stands it on its head, moving the fighting system from real-time to turn-based and making this entry to the series feel like a true JRPG. I played Yakuza: Like a Dragon[on PC](https://www.lifewire.com/best-pc-games-4147292) to find out if these changes make this game better or worse. Should you play the new Yakuza or skip it? Read on to check out my full review of Yakuza: Like a Dragon.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Setting and Plot: A very long intro
 
@@ -114,6 +141,13 @@ Lifewire / Erika Rawes
 
  This[PC game](https://www.lifewire.com/pc-gaming-reviews-4689600) plays just like it should, and the controls are top-notch. Everything just works, which is a rare feat these days. You should be able to finish the main story in around 45 to 55 hours, depending on how fast you run through it, but I highly recommend taking your time and enjoying all the wonderful diversions available.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Graphics: Excellent visuals
 
  The graphics and visuals are impressive. Details are accurate and in the right places. Food looks so realistic (and delicious), and there were some moments where I could even see the pores on a person's skin during cinematics.
@@ -128,18 +162,18 @@ Lifewire / Erika Rawes
 
 Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: The typical $60
 
  The base version of Yakuza: Like a Dragon comes in at $60 like most new titles. The price is reasonable for the amount of gameplay. However, you have two other purchase options as well. The Hero Edition, which costs $70, includes the Job Set and the Management Mode set and features two extra jobs and three sets of Management mode employees.
 
  The Legendary Hero edition costs $90, and it includes both previously listed sets, as well as the Crafting Mat, Stat Boost, Karaoke, and Ultimate Costume sets. These are all nice bonuses and can certainly add to the experience, but you will also find more than enough gameplay in the base game.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Yakuza: Like a Dragon vs. Dragon Quest Series
 
@@ -151,25 +185,11 @@ Lifewire / Erika Rawes
 
  A well-crafted masterpiece. Yakuza: Like a Dragon falls into the must-play category for anyone who loves a good story, JRPGs, or a wild game that will make you laugh. It’s definitely a departure from the rest of the series, but that contributes to a lot of the fun and uniqueness of the game.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Cyberpunk 2077](https://www.lifewire.com/cyberpunk-2077-review-5113844)
 * [Godfall](https://www.lifewire.com/godfall-review-5095668)
 * [Torment: Tides of Numenera](https://www.lifewire.com/torment-tides-of-numenera-review-5077302)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -197,5 +217,26 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-interactive-content-platform-audit-and-rating-for-2024/"><u>[New] Interactive Content Platform Audit & Rating for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ai-policy-scope-and-structure/"><u>AI Policy: Scope & Structure</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/decoding-hardware-with-tom-expert-opinions-on-tech-specs-and-reviews/"><u>Decoding Hardware with Tom: Expert Opinions on Tech Specs and Reviews</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-leading-severe-weather-trackers-for-your-smartphone/"><u>Expert Picks: Leading Severe Weather Trackers for Your Smartphone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-nixplay-seeds-unmatched-photo-viewing-quality/"><u>Explore Nixplay Seed's Unmatched Photo Viewing Quality</u></a></li>
+<li><a href="https://extra-information.techidaily.com/exploring-aerial-photos-a-deep-dive-into-dji-sparks-mini-marvel/"><u>Exploring Aerial Photos A Deep Dive Into DJI Spark's Mini Marvel</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/final-act-evaluation-critique-on-hitman-trilogys-last-chapter/"><u>Final Act Evaluation - Critique on Hitman Trilogy's Last Chapter</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/find-your-perfect-match-comparing-amazon-fire-and-samsung-tablets-for-you/"><u>Find Your Perfect Match: Comparing Amazon Fire and Samsung Tablets for You</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-more-for-less-the-lg-24lh4480s-blend-of-affordability-and-functionality/"><u>Get More for Less: The LG 24LH4480's Blend of Affordability and Functionality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hear-the-future-with-sony-headsets/"><u>Hear the Future with Sony Headsets</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/high-speed-5g-connectivity-meets-long-lasting-power-in-the-motorola-one-5g-ace-reviewed/"><u>High-Speed 5G Connectivity Meets Long-Lasting Power in the Motorola One 5G Ace - Reviewed!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-set-up-a-unique-nintendo-network-id-for-your-nintendo-3ds-gaming-experience/"><u>How to Set Up a Unique Nintendo Network ID for Your Nintendo 3DS Gaming Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-spot-the-best-for-gaming-notebooks/"><u>How to Spot the Best for Gaming Notebooks</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-smart-7-hd-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Infinix Smart 7 HD Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-deficit-dilemma-lacking-inventiveness-in-vr/"><u>In 2024, The Deficit Dilemma Lacking Inventiveness in VR</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-the-ultimate-5-online-av-creation-leaders/"><u>In 2024, The Ultimate 5 Online AV Creation Leaders</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/screensaviors-guide-global-and-regional-channels-led-by-you-for-2024/"><u>ScreenSaviors Guide Global and Regional Channels Led by You for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/swift-software-update-for-lenovo-usb-c-dock/"><u>Swift Software Update for Lenovo USB-C Dock</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/the-best-translator-to-translate-videos-online/"><u>The Best Translator to Translate Videos Online</u></a></li>
+</ul></div>
 

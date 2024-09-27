@@ -1,7 +1,7 @@
 ---
 title: "Wasteland 2 - Enhanced Director's Edition Evaluated: Gripping Tactical RPG Experience"
-date: 2024-09-14T20:54:16.912Z
-updated: 2024-09-21T01:37:44.063Z
+date: 2024-09-22T05:33:35.930Z
+updated: 2024-09-27T03:35:55.762Z
 categories:
   - BestProducts
 description: "This Article Describes Wasteland 2 - Enhanced Director's Edition Evaluated: Gripping Tactical RPG Experience"
@@ -71,6 +71,13 @@ thumbnail: https://thmb.techidaily.com/c02c898eea6d72b9e37093c851ecd855aff6005dd
 
  I played the game on PC for several days, but it’s also available on all other major platforms including the upcoming[Xbox Series X](https://www.lifewire.com/price-release-date-specs-xbox-series-x-5077092) , Xbox One, upcoming[PlayStation 5](https://www.lifewire.com/playstation-5-4778089) , and PlayStation 4\.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Story: A lot going on, and none of it to be spoiled**
 
  There’s a lot to say here, but not much that can be said without spoilers. Given how engaging I found the plot, it would be a shame to spoil it in any way. Suffice it to say that, though it begins as a typical revenge story, it soon becomes more complex and interesting. You play as Eivor, a male or female warrior who raids England during the reign of Alfred the Great.
@@ -91,6 +98,13 @@ thumbnail: https://thmb.techidaily.com/c02c898eea6d72b9e37093c851ecd855aff6005dd
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Gameplay: Easy to pick up, challenging to master**
 
  Valhalla’s gameplay will be familiar to fans of the Assassin's Creed franchise, particularly the more recent entries in the series. As usual, there are tweaks and innovations, but it was easy enough for me to pick up, with my most recent experience being with AC Unity. Players who’ve played Origins and Odyssey will find much to be familiar. The fluid movement and iconic parkour makes navigating around the expansive open world fun and engaging, though novices may accidentally fling themselves off a cliff or two by accident as they learn the ropes.
@@ -106,13 +120,6 @@ thumbnail: https://thmb.techidaily.com/c02c898eea6d72b9e37093c851ecd855aff6005dd
  Ubisoft has truly mastered the mechanics of boats, and sailing is just pure joy with your loyal crew singing their way down the fjords as the wind whistles in the rigging, your ship riding the realistic swells. Alternatively, your bard may accompany your seafaring with diverting tales. If there’s one downside is that unlike Odyssey, there’s no ship-to-ship naval combat, but perhaps that makes sense because the Vikings were more land raiders despite their extensive use of longboats to travel.
 
 ![AC Valhalla 3](https://www.lifewire.com/thmb/giaP-JV9QK6uFcdU_di4iWkvszw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-5-56a01de51a2a4540ae8650bece502873.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -142,20 +149,13 @@ thumbnail: https://thmb.techidaily.com/c02c898eea6d72b9e37093c851ecd855aff6005dd
 
 ![AC tattoos](https://www.lifewire.com/thmb/trRirIDsjFej03o-_HDCFsnnrzs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-6-5449cde060b441a499a5189fda9a7a0a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Customization: Lots of stuff to tweak**
@@ -172,14 +172,14 @@ thumbnail: https://thmb.techidaily.com/c02c898eea6d72b9e37093c851ecd855aff6005dd
 
 ![AC Mountain](https://www.lifewire.com/thmb/YazM4IIiw6qfR_cd-AfR8Cek9pg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-10-b813058de14c4b92978d22f84715ab98.jpg)
 
- Lifewire / Andy Zahn
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Andy Zahn
 
 ## **Setup Process and Performance: A rough start**
 
@@ -197,11 +197,25 @@ thumbnail: https://thmb.techidaily.com/c02c898eea6d72b9e37093c851ecd855aff6005dd
 
  Of course, if you’re playing on[console](https://www.lifewire.com/best-gaming-consoles-4154610) you don’t have to worry about performance issues since the game is better optimized. It’s currently available for Xbox One and PlayStation 4, and will be available for the Xbox Series X and PlayStation 5 at launch. You can also get it on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Typical AAA**
 
  The base game will set you back the typical $60, while the gold edition bundles in the season pass and costs a full $100\. That will include the planned expansions which will add Ireland and France to the map. Expensive though $100 is, it does promise a potentially huge amount of content. The game also has microtransactions, which is a bit of a bummer, though these weren’t integrated into the game at the time of writing.
 
 ![AC horse](https://www.lifewire.com/thmb/teY5MG-6xAT5sxNurIFy_iYPPvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-2-58ab82ef1f624e01b1c1c6dab8bca06b.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -216,10 +230,10 @@ thumbnail: https://thmb.techidaily.com/c02c898eea6d72b9e37093c851ecd855aff6005dd
  Assassin’s Creed: Valhalla exceeds, as Assassin’s Creed games so often do, in creating the most painstakingly detailed virtual recreation of a place and period possible. It’s got exploration, intense combat, and enthralling stories by the bucket full, and it’s easy to get lost in its sheer scope and scale. Just beware if you’re playing on a PC that will test the limits of your gaming rig.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -243,5 +257,24 @@ thumbnail: https://thmb.techidaily.com/c02c898eea6d72b9e37093c851ecd855aff6005dd
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-bring-playlists-down-to-youtube-the-5-best-conversion-resources/"><u>[New] 2024 Approved Bring Playlists Down to YouTube The 5 Best Conversion Resources</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-multiplayer-movies-review-poker-edition/"><u>[New] 2024 Approved MULTIPLAYER MOVIES REVIEW Poker Edition</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-step-by-step-strategies-how-to-create-stellar-youtube-shorts/"><u>[New] 2024 Approved Step-by-Step Strategies How to Create Stellar YouTube Shorts</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-audireview-listening-and-recording-evaluation-for-2024/"><u>[New] Audireview Listening & Recording Evaluation for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/analyzing-the-apple-iphone-xs-max-why-it-claims-its-spot-as-the-finest-yet-most-expensive-smartphone/"><u>Analyzing the Apple iPhone XS Max: Why It Claims Its Spot as the Finest Yet Most Expensive Smartphone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/aria-hearing-experience-pioneering-design-and-functionality/"><u>Aria Hearing Experience: Pioneering Design and Functionality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/awaken-refreshed-ihome-zenity-sleep-solution-evaluation-your-guide-to-a-vibrant-morning/"><u>Awaken Refreshed: IHome Zenity Sleep Solution Evaluation - Your Guide to a Vibrant Morning</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-examination-of-the-sleek-and-functional-fitbit-charge-cuffs-reviewed/"><u>Comprehensive Examination of the Sleek & Functional Fitbit Charge Cuffs – Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-oculus-quest-2-affordable-high-quality-vr-gaming/"><u>Comprehensive Review of the Oculus Quest 2: Affordable High-Quality VR Gaming</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-samsung-galaxy-a20-analysis-unlocking-the-secrets-of-an-affordable-powerhouse/"><u>Comprehensive Samsung Galaxy A20 Analysis: Unlocking the Secrets of an Affordable Powerhouse</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/digital-masterpiece-brookstone-framing-reviewed/"><u>Digital Masterpiece: Brookstone Framing Reviewed</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-samsung-galaxy-s23-ultra-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Samsung Galaxy S23 Ultra to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-swift-strategies-for-instagram-reel-success/"><u>In 2024, Swift Strategies for Instagram Reel Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/investing-in-your-segment-of-the-725-million-facebook-payout/"><u>Investing in Your Segment of the $725 Million Facebook Payout</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/thwart-bot-harvesters-secure-your-online-space/"><u>Thwart Bot Harvesters: Secure Your Online Space</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/top-rated-fitness-tracker-devices-for-optimal-health/"><u>Top Rated Fitness Tracker Devices for Optimal Health</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/vonage-review-is-it-still-your-premier-choice-for-voip-solutions/"><u>Vonage Review: Is It Still Your Premier Choice for VoIP Solutions ?</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Nokia's Mid-Range Marvel: The 7.2 Model Review Showcasing Excellence in Its Category"
-date: 2024-09-18T00:01:52.440Z
-updated: 2024-09-21T00:32:16.248Z
+date: 2024-09-20T22:20:52.050Z
+updated: 2024-09-26T20:37:05.891Z
 categories:
   - BestProducts
 description: "This Article Describes Nokia's Mid-Range Marvel: The 7.2 Model Review Showcasing Excellence in Its Category"
@@ -41,6 +41,19 @@ Lifewire / Danny Chadwick
 [View On Apemans.com](https://apemans.com/products/apeman-dash-cam-c450a)
 
 4.2
+
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Apeman C450 Dash Cam
 
@@ -87,14 +100,14 @@ Lifewire / Danny Chadwick
 
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/A63ztrIxThbZlrb_lHJH3YL7778=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_02-6ef4e204d0bd452b9601ec468e5358bf.jpg)
 
- Lifewire / Danny Chadwick
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Danny Chadwick
 
 ## **Setup Process: You’ll have to figure a lot of stuff out for yourself**
 
@@ -109,13 +122,6 @@ Lifewire / Danny Chadwick
  As an alternative, the mount can also be stuck to your dashboard with an adhesive strip. Just make sure you place it in the right spot the first time or you risk losing some of the stickiness. One benefit the dash mount has over the suction cup is that it doesn’t take up any real estate on your windshield that may obstruct your view of traffic.
 
  Your first time using the Apeman C450, you also have the option to set up a time and date stamp as well as a car identification number on your videos. This is a nice option to keep track of when a video was recorded, and which car it was recorded from if you have more than one camera in different vehicles.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Camera Quality: Acceptable for a budget device**
 
@@ -151,6 +157,13 @@ Lifewire / Danny Chadwick
 
  The defects of this dashcam can be forgiven pretty easily considering that it costs less than $50\. If you’re looking for a very inexpensive device, the Apeman C450 is a decent if somewhat flawed solution—it’s definitely not built as solidly and lacks the high resolution of its more expensive competitors, but if you are comfortable working around those shortcomings, this dashcam performs pretty well for the price.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Competition: Apeman C450 vs. Z-Edge Z3 Plus**
 
  We tested the Apeman C450 side by side with the Z-Edge Z3 Plus dashcam. The Z3 Plus is considerably more expensive, and while we found these two devices to be generally similar in form and function, we ultimately favored the Z3 Plus because it lacks the small annoyances that made the Apeman C450 frustrating.
@@ -166,10 +179,10 @@ Lifewire / Danny Chadwick
  Despite a poor-quality build and some design quirks, the Apeman C450 does its job as a dashcam. It has a discreet design, captures pretty good-quality video, and has important extra features like collision detection and a surveillance mode. If you can get past some of its foibles, it's definitely worth the price tag.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -177,6 +190,13 @@ Lifewire / Danny Chadwick
 * [DDpai mini3](https://www.lifewire.com/ddpai-mini3-review-4770579)
 * [Rexing V1 DashCam](https://www.lifewire.com/rexing-v1-dashcam-review-4770571)
 * [Anker Roav DashCam C1](https://www.lifewire.com/anker-roav-dashcam-c1-review-4773139)
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -207,5 +227,26 @@ Lifewire / Danny Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-game-to-video-magic-full-obs-guide-for-ps4-recording/"><u>[Updated] 2024 Approved Game-to-Video Magic Full OBS Guide for PS4 Recording</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exceptional-counsel-premium-ringtone-developers/"><u>2024 Approved Exceptional Counsel Premium Ringtone Developers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/5-outstanding-coding-bootcamps-and-courses-to-advance-your-career/"><u>5 Outstanding Coding Bootcamps and Courses to Advance Your Career</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-beginners-guide-to-navigating-and-editing-with-preview-on-your-mac-computer/"><u>A Beginner's Guide to Navigating and Editing with Preview on Your Mac Computer</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-step-by-step-guide-to-youtube-stats-analysis-via-social-blade-platform/"><u>A Step-by-Step Guide to YouTube Stats Analysis via Social Blade Platform</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ace-your-audios-with-steeply-discounted-tribit-products-on-prime-day-extravaganza/"><u>Ace Your Audios with Steeply Discounted Tribit Products on Prime Day Extravaganza</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/advanced-anti-noise-gear-for-listeners-2024/"><u>Advanced Anti-Noise Gear for Listeners 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/anthem-of-adventure-engaging-sci-fi-action-and-humor-in-the-outer-worlds/"><u>Anthem of Adventure: Engaging Sci-Fi Action and Humor in The Outer Worlds</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-rog-ac5300-network-adapter-tested-top-performance-gear-for-the-hardcore-gamer-and-technology-pros/"><u>Asus ROG AC5300 Network Adapter Tested: Top Performance Gear for the Hardcore Gamer & Technology Pros</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-google-nest-hub-max-exploring-facial-id-technology-and-smart-packaging/"><u>Comprehensive Analysis of the Google Nest Hub Max: Exploring Facial ID Technology & Smart Packaging</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-unveiling-the-top-features-of-apples-latest-gem-iphone-12/"><u>Comprehensive Guide: Unveiling the Top Features of Apple's Latest Gem - iPhone 12!</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/effective-strategies-mastering-job-interviews-with-chatgpt/"><u>Effective Strategies: Mastering Job Interviews with ChatGPT</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/everyday-online-chronicles-a-handy-tip-for-digging-up-fbs-vids/"><u>Everyday Online Chronicles A Handy Tip for Digging Up FB's Vids</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/uch-does-youtube-pay-for-1-million-views-in-2024/"><u>How Much Does YouTube Pay for 1 Million Views, In 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-lock-your-infinix-note-30-vip-racing-edition-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Infinix Note 30 VIP Racing Edition Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-sky-hdr-heaven-curated-list-of-excellent-sites/"><u>In 2024, Sky HDR Heaven - Curated List of Excellent Sites</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-unlocking-iphone-12-mini-lock-screen-3-foolproof-methods-that-actually-work-by-drfone-ios/"><u>In 2024, Unlocking iPhone 12 mini Lock Screen 3 Foolproof Methods that Actually Work</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/quick-tips-reviving-a-sluggish-windows-11-experience/"><u>Quick Tips: Reviving a Sluggish Windows 11 Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-top-performers-best-smart-audio-gadgets-revealed/"><u>Unveiling the Top Performers: Best Smart Audio Gadgets Revealed</u></a></li>
+</ul></div>
 

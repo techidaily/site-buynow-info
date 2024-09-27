@@ -1,7 +1,7 @@
 ---
 title: Is The Docooler USB 2.0 12Mp Digital Camera Worth It? An In-Depth Review & Comparison
-date: 2024-09-17T03:38:37.656Z
-updated: 2024-09-20T21:12:41.690Z
+date: 2024-09-20T23:35:56.001Z
+updated: 2024-09-26T22:23:22.596Z
 categories:
   - BestProducts
 description: This Article Describes Is The Docooler USB 2.0 12Mp Digital Camera Worth It? An In-Depth Review & Comparison
@@ -82,18 +82,18 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup process: Awkward to position**
 
  It takes almost no time to get the Docooler USB 2.0 12 Megapixel up and running. We just plugged the USB cord into the computer and it worked.
 
  It was easy to set up when we clipped it to a laptop, but terrible when we tried to put it on our HD TV. Every time we moved the computer or the USB cable, the camera slid, twisted, or fell off the TV. The ball joint, which connects the camera to the base, didn’t move smoothly, so we struggled to point the Docooler USB 2.0 12 Megapixel in the right direction, and we were too worried about breaking the plastic to try and force it.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Camera Quality: Not even close to advertised**
 
@@ -108,10 +108,10 @@ Lifewire / James Huenink
  Lifewire / James Huenink
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Underwhelming performance in video and audio**
@@ -126,22 +126,16 @@ Lifewire / James Huenink
 
  The audio performance of the Docooler USB 2.0 12 Megapixel was also lackluster. The built-in microphone produced poor quality sound, and when we tested it on Skype, voices were both muffled and echoey. People on the other end could understand what we were saying, but it was an unpleasant experience.
 
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Cheap price, even cheaper webcam**
 
  The Docooler USB 2.0 12 Megapixel is the most inexpensive webcam you can buy, ranging from $8 up to around $15, but there’s a reason it’s priced so low. The image and audio quality are both terrible, and the camera is difficult to use.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Falls short**
 
@@ -156,6 +150,13 @@ Lifewire / James Huenink
 **Impossible to recommend.**
 
  The Docooler USB 2.0 12 Megapixel is one of the most inexpensive cameras on the market for a reason. This camera doesn’t come close to delivering what it promises, meaning it's not worth even the trifle you'd pay for it.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -187,5 +188,24 @@ Lifewire / James Huenink
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-a-compreayers-must-have-top-10-free-passport-photo-tools/"><u>[New] A Compreayer's Must-Have Top 10 Free Passport Photo Tools</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-memory-map-maker/"><u>[Updated] 2024 Approved Memory Map Maker</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-flip-side-of-perspectives-crafting-engaging-images-with-angled-spins-on-instagram-sites/"><u>[Updated] In 2024, The Flip-Side of Perspectives Crafting Engaging Images with Angled Spins on Instagram Sites</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-deep-dive-into-the-powershot-sx70-hs-superzoom-capabilities/"><u>A Deep Dive Into the PowerShot SX70 HS Superzoom Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-thorough-review-of-marvelnmiles-morales-in-spider-man-game-smaller-scale-bigger-consequences/"><u>A Thorough Review of Marvel'n'Miles Morales in Spider-Man Game: Smaller Scale, Bigger Consequences</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>Dose Life360 Notify Me When Someone Checks My Location On Apple iPhone 12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/forgotten-the-voicemail-password-of-vivo-s18-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Vivo S18? Try These Fixes</u></a></li>
+<li><a href="https://media-tips.techidaily.com/how-to-transform-rm-video-clips-into-wmv-format-for-free-and-maintain-excellent-visual-quality-a-comprehensive-guide/"><u>How To Transform RM Video Clips Into WMV Format for Free and Maintain Excellent Visual Quality: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-securing-stipends-by-scrutinizing-subscriptions-on-streaming-services/"><u>In 2024, Securing Stipends by Scrutinizing Subscriptions on Streaming Services</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/introducing-ai-driven-verse-creation-in-book-formations/"><u>Introducing AI-Driven Verse Creation in Book Formations</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722793339583-revolutionizing-road-safety-with-ddpai-mini3-a-fascinating-review/"><u>Revolutionizing Road Safety with DDpai Mini3 – A Fascinating Review!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unleashing-household-connectivity-with-the-tri-band-netgear-nighthawk-x6-ac3200-a-gamers-and-familys-dream/"><u>Unleashing Household Connectivity with the Tri-Band Netgear Nighthawk X6 AC3200 - A Gamer's and Family's Dream!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-new-heights-in-aerial-photography-with-the-dji-mavic-3-review/"><u>Unveiling New Heights in Aerial Photography with the DJI Mavic 3 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-best-smart-speaker-for-melody-lovers-the-nest-audio-assessment/"><u>Unveiling the Best Smart Speaker for Melody Lovers - The Nest Audio Assessment</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-mobile-video-makers-with-a-beat-the-best-apps-for-android-and-iphone/"><u>Updated Mobile Video Makers with a Beat The Best Apps for Android and iPhone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/visual-delights-and-enhanced-efficiency-in-the-latest-imac-m1-powerhouse/"><u>Visual Delights and Enhanced Efficiency in the Latest iMac M1 Powerhouse</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/witness-your-pets-world-with-petcubes-economical-hd-device/"><u>Witness Your Pet's World with Petcube’s Economical HD Device</u></a></li>
+</ul></div>
 

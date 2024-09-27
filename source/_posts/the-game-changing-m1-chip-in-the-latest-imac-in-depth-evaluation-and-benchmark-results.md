@@ -1,7 +1,7 @@
 ---
 title: The Game-Changing M1 Chip in the Latest iMac – In-Depth Evaluation and Benchmark Results
-date: 2024-09-19T18:42:07.899Z
-updated: 2024-09-20T18:21:10.369Z
+date: 2024-09-24T03:00:10.479Z
+updated: 2024-09-26T16:11:22.198Z
 categories:
   - BestProducts
 description: This Article Describes The Game-Changing M1 Chip in the Latest iMac – In-Depth Evaluation and Benchmark Results
@@ -51,6 +51,13 @@ Erika Rawes / Lifewire
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/Lx1zPft9GUcm5A0WBJsxvP8fCUM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Raspberry-Pi-400-Mini-PC-1-2e3e0817c1ad4570a7c3a8d70b7e991b.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Erika Rawes / Lifewire
 
 [View On Amazon $160](https://www.amazon.com/dp/B08RN62ZG3?tag=lifewire-onsite-prod-20&ascsubtag=5113128%7Cn5dea767cc9f34467931c02c7ed3801cc22%7CB08RN62ZG3)
@@ -81,11 +88,25 @@ Erika Rawes / Lifewire
 
  The most recent iteration of the Raspberry Pi, the Raspberry Pi 400, has better processing and the Pi computer built right into a keyboard. This allows for an even more compact personal computer, and the Pi 400 kit even includes a microSD card with the OS preloaded. To see how this new Pi compares to previous generation models and other mini PCs, I tested it for a week. Here’s my full review of the Raspberry Pi 400.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: A PC inside of a keyboard
 
  Previous versions of the Raspberry Pi didn’t exactly come across as accessible to the typical PC user who spends most of their time surfing the web. The older Raspberry Pi models look like a mini motherboard with ports and other components attached. The Raspberry Pi 400 is completely different, as the board is housed inside a keyboard for easier setup and use. It’s reminiscent of those all-in-one PC keyboards from the 80s.
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/7BA0HRUVuCSmbiMi4uyFWkXVuKg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-3-58854ebe9d964ccc984e44f77619fa1a.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Erika Rawes / Lifewire
 
@@ -103,6 +124,13 @@ Erika Rawes / Lifewire
 
  The whole purpose of a Raspberry Pi is to be whatever you want it to be—a personal computer, a smart home controller, a gaming system, or whatever else you can think of.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Projects: Keyboard helps in some ways, hinders in others
 
  One great thing about[Raspberry Pi](https://www.lifewire.com/what-is-raspberry-pi-4042337) is that there’s a community of users to help you out with project ideas, to share terminal commands, and to help with troubleshooting. Pi computers are great for makers, but once I really started experimenting with the Pi 400, I realized the keyboard is beneficial in some areas, but it’s limiting in others.
@@ -112,13 +140,6 @@ Erika Rawes / Lifewire
  It would be difficult to make anything outdoors with a keyboard, and it would be tough to use the Pi as a security camera when it’s inside of a keyboard. You can remove the Pi from the keyboard if you really want to, but that would kind of defeat the purpose of going with the 400 model. Instead of removing the board, you could just opt for a Pi 4, although it has a lower CPU clock (1.5 Ghz).
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/oideXrFtpj_WzRtq1qacMhsc7Dg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-2-6fbd163b7ed849f684963b93ae8b8735.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Erika Rawes / Lifewire
 
@@ -156,13 +177,6 @@ Erika Rawes / Lifewire
 
 Erika Rawes / Lifewire
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Network: Ethernet or dual-band Wi-Fi
 
  The Pi 400 has dual-band Wi-Fi, so you can connect it to a 2.4GHz or 5GHz network. It also has Bluetooth, as well as a[Gigabit Ethernet port](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) for wired connectivity.
@@ -170,10 +184,10 @@ Erika Rawes / Lifewire
  Here at my home in the Research Triangle in North Carolina, my Wi-Fi speeds max out at 400Mbps. I was able to get respectable speeds on this mini PC, with around 100Mbps upload and 30Mbps download. I did not attempt a hardwired connection.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Camera: No CSI port, but you can use a USB webcam
@@ -183,6 +197,13 @@ Erika Rawes / Lifewire
  You can[connect a USB webcam](https://www.lifewire.com/install-and-connect-a-webcam-to-your-pc-2640488) as an alternative, but this won’t provide the same tiny form factor as you’d get with previous Pi models. Also, keep in mind when using a USB webcam, you have to go into the terminal and enter a command to install the webcam package. You can then use commands to take a picture with your webcam, and you can adjust your commands to specify things like sizing, borders, and other conditions. It’s not as seamless as a typical Windows or Chromebox mini PC, where you can just plug, play, and start video chatting. You have to enter a command for just about everything you do.
 
  Pi computers are great for makers, but once I really started experimenting with the Pi 400, I realized the keyboard is beneficial in some areas, but it’s limiting in others.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Software: Learn to code
 
@@ -199,10 +220,10 @@ Erika Rawes / Lifewire
 Erika Rawes / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Raspberry Pi 400 Kit vs. Arduino Student Kit
@@ -218,13 +239,6 @@ Erika Rawes / Lifewire
 **Practical, versatile, and affordable.**
 
  Unlike previous Raspberry Pis that are for more advanced users, the Pi 400 kit is designed for everyone. Whether you want to learn programming, create a gaming system, create a streaming system, or get into 3D modeling, the Pi 400 is a good starting point.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -254,5 +268,26 @@ Erika Rawes / Lifewire
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-a-newbies-blueprint-to-mastering-av1-for-2024/"><u>[New] A Newbie's Blueprint to Mastering AV1 for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-no-credit-calls-unlocking-free-tools-for-iphone-photo-blurring/"><u>2024 Approved No Credit Calls Unlocking Free Tools for iPhone Photo Blurring</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/comprehensive-fix-for-bootmgr-is-missing-blue-screen-issues/"><u>Comprehensive Fix for 'Bootmgr Is Missing' Blue Screen Issues</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-driven-success-stories-unleashing-marketing-potential-through-advanced-analytics/"><u>Cookiebot-Driven Success Stories: Unleashing Marketing Potential Through Advanced Analytics</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/discover-the-depths-of-funimate-for-2024/"><u>Discover the Depths of Funimate for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-the-worlds-leading-online-destinations-ranking-the-top-10-websites-in-use-today/"><u>Discover the World's Leading Online Destinations: Ranking the Top 10 Websites in Use Today</u></a></li>
+<li><a href="https://common-error.techidaily.com/efficient-strategies-for-fixing-your-lenovo-fn-key-without-delay/"><u>Efficient Strategies for Fixing Your Lenovo Fn Key Without Delay</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723211841404-get-your-windows-10-bluetooth-back-on-track-with-our-step-by-step-guide/"><u>Get Your Windows 10 Bluetooth Back on Track with Our Step-by-Step Guide!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-kobo-clara-colours-features-and-performance/"><u>In-Depth Analysis of Kobo Clara Colour's Features and Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-the-2v-clearstream-hdtv-antenna-delivers-on-performance-despite-stylish-appearance/"><u>In-Depth Review: The 2V ClearStream HDTV Antenna Delivers on Performance, Despite Stylish Appearance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-netatmo-outdoor-weather-station-reviewed-a-tech-lovers-dream/"><u>Innovative Netatmo Outdoor Weather Station Reviewed - A Tech Lover's Dream</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-elgoog-an-in-depth-evaluation-of-the-leading-online-site-replicator/"><u>Inside ElgooG: An In-Depth Evaluation of the Leading Online Site Replicator</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-wearables-with-the-upgraded-apple-watch-series-4/"><u>Mastering Wearables with the Upgraded Apple Watch Series 4</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/netatmos-innovative-climate-control-device-reviewed-ideal-for-app-based-home-automation-lovers/"><u>Netatmo's Innovative Climate Control Device Reviewed: Ideal for App-Based Home Automation Lovers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nimble-and-economical-propella-7s-40-inflatable-paddleboard-the-ultimate-review-for-water-enthusiasts/"><u>Nimble & Economical Propella 7S 4.0 Inflatable Paddleboard - The Ultimate Review for Water Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/non-stop-action-and-chuckles-in-plants-vs-zombies-battle-for-neighborville-a-complete-game-evaluation/"><u>Non-Stop Action & Chuckles in Plants Vs. Zombies: Battle for Neighborville: A Complete Game Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/power-meets-artistry-comprehensive-review-of-corsairs-innovative-gaming-rig-the-one-pro/"><u>Power Meets Artistry: Comprehensive Review of Corsair's Innovative Gaming Rig, The One Pro</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-the-intricacies-of-apples-ai-breakthroughs-insights-from-wwdc-2024/"><u>Unveiling the Intricacies of Apple's AI Breakthroughs: Insights From WWDC 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unveiling-the-secrets-to-audio-visual-cohesion-on-facebook/"><u>Unveiling the Secrets to Audio-Visual Cohesion on Facebook</u></a></li>
+</ul></div>
 

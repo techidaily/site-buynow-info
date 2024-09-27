@@ -1,7 +1,7 @@
 ---
 title: "Expert Review on Asus RT-AC68U: Delivering Speed and Security with 5G WiFi"
-date: 2024-09-18T23:08:25.483Z
-updated: 2024-09-20T16:56:35.625Z
+date: 2024-09-20T22:32:11.438Z
+updated: 2024-09-26T19:18:42.311Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Review on Asus RT-AC68U: Delivering Speed and Security with 5G WiFi"
@@ -90,19 +90,33 @@ Lifewire / Andy Zahn
 
  Port selection is rather limited, with a[USB-C](https://www.lifewire.com/usb-c-4149490) port, a USB-A port, a 3.5mm audio jack, and a Surface Connect port which is used for power but can also be used to connect to a Surface Dock. This is really the bare minimum for I/O, and was one of the most frustrating issues for me when using the device.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Display: Ideal for productivity**
 
  The 12.4-inch display on the Surface Laptop Go seems larger than the size would suggest, thanks to its 3:2 aspect ratio. Because of that aspect ratio, this laptop is purpose-built for productivity. In fact, it was the ideal device for typing out this article. The 1536x1024 resolution is quite sharp, and colors are sharp and accurate with great contrast. Due to the 3:2 aspect ratio, you get black bars on the top and bottom when watching movies and shows, but they still look great due to the quality of the screen.
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/kz6EW4svzivooWEtdVJ5TAnOYOs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_06-07315e6a9862481bba3820f745d49887.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Speakers: Loud and proud**
@@ -117,13 +131,6 @@ Lifewire / Andy Zahn
 
  The Surface Laptop Go is certainly not the most powerful laptop around, but with 8GB of RAM, an Intel Core i5-1035G1 CPU, and a fast solid-state drive for storage it feels zippy and responsive.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Decent power for the price**
 
  The Surface Laptop Go is certainly not the most powerful laptop around, but with 8GB of RAM, an Intel Core i5-1035G1 CPU, and a fast solid-state drive for storage it feels zippy and responsive. It’s competent for most productivity tasks, including light photo editing, word processing, and web browsing, essentially filling the same niche as a Chromebook.
@@ -132,20 +139,27 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/dzb-7fUK5xGots6oe-9ZhkMnnTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_07-3d9500befc3a4b50baf014cc571210a5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
  Another limiting factor is the storage capacity of the Surface Laptop Go. The configuration I tested only had 128GB of space on its solid-state drive, and the maximum configuration only comes with 256GB. You’re not going to be storing a lot of data locally on this machine forcing you to resort to cloud storage most of the time.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Connectivity: Modern hardware**
 
  With[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) and[Bluetooth 5.0](https://www.lifewire.com/bluetooth-5-4160255) , the Surface Laptop Go is equipped with a competent range of communications capabilities. I had no issues utilizing the full power of my home Wi-Fi network or connecting Bluetooth devices.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Battery Life: Long-lasting**
 
@@ -156,10 +170,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: A decision to make**
@@ -177,6 +191,13 @@ Lifewire / Andy Zahn
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/_QEntMJEPlaXArgv2l576Qnr7MU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_04-21f4f7c4d0f54436bb1449bf36a42460.jpg)
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Microsoft Surface Laptop Go vs. HP Pavilion 14 HD**
 
@@ -196,13 +217,6 @@ Lifewire / Andy Zahn
 
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
 * [Google Pixelbook Go](https://www.lifewire.com/google-pixelbook-go-review-4797012)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -232,5 +246,22 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-ceased-shorts-missing-on-youtube-screen/"><u>[New] 2024 Approved Ceased Shorts Missing on YouTube Screen</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-elevating-your-professional-image-with-high-quality-ppt-recordings/"><u>[New] 2024 Approved Elevating Your Professional Image with High-Quality PPT Recordings</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-effortless-note-management-on-mematic-platform/"><u>[New] Effortless Note Management on Mematic Platform</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhancing-youtube-video-screens-without-barriers-for-2024/"><u>[New] Enhancing YouTube Video Screens Without Barriers for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-opinion-on-the-google-pixel-5-striking-a-perfect-harmony-between-affordability-and-high-end-specs/"><u>Expert Opinion on the Google Pixel 5: Striking a Perfect Harmony Between Affordability & High-End Specs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-reviews-best-keyboard-wrist-comforts-available/"><u>Expert Reviews: Best Keyboard Wrist Comforts Available</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fitbit-charge-3-assessment-is-it-still-a-worthy-choice/"><u>Fitbit Charge 3 Assessment: Is It Still a Worthy Choice?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/future-proof-your-internet-with-the-best-cable-modems-of-2024/"><u>Future-Proof Your Internet with the Best Cable Modems of 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-pick-the-right-smart-tv-for-your-home/"><u>How to Pick the Right Smart TV for Your Home</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ibuypower-personalized-gaming-systems-exceptional-power-at-an-excellent-price/"><u>IBuypower Personalized Gaming Systems: Exceptional Power at an Excellent Price</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/lowering-volume-steps-in-logic-pro-audio-editing-for-2024/"><u>Lowering Volume Steps in Logic Pro Audio Editing for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-sony-xperia-5-v-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Sony Xperia 5 V</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/secrets-to-stunning-fisheye-sphere-photography-for-2024/"><u>Secrets to Stunning Fisheye Sphere Photography for 2024</u></a></li>
+<li><a href="https://techidaily.com/solved-mac-doesnt-recognize-my-iphone-15-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Solved Mac Doesnt Recognize my iPhone 15 | Stellar</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unlock-language-diversity-using-chatgpt-as-a-translation-workhorse/"><u>Unlock Language Diversity: Using ChatGPT as a Translation Workhorse</u></a></li>
+</ul></div>
 

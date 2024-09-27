@@ -1,7 +1,7 @@
 ---
 title: "Lightweight Manfrotto Befree Aluminum Tripod: Exceptional Durability"
-date: 2024-09-15T18:13:37.384Z
-updated: 2024-09-20T16:02:23.283Z
+date: 2024-09-23T02:35:18.632Z
+updated: 2024-09-27T00:51:04.288Z
 categories:
   - BestProducts
 description: "This Article Describes Lightweight Manfrotto Befree Aluminum Tripod: Exceptional Durability"
@@ -113,10 +113,10 @@ Lifewire / Matthew S. Smith
  The touchscreen is compatible with the Surface Pen. This isn’t especially useful given that the Surface Laptop 4 is, well, a laptop, but it’s nice to have the option. I often use the touchscreen as an alternative to the touchpad in casual use, like online shopping or watching YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Performance: AMD and Intel options hold their own
@@ -136,10 +136,10 @@ Lifewire / Matthew S. Smith
  Still, the Surface Laptop 4 can handle basic gaming needs. Titles like Minecraft and Fortnite are enjoyable at modest detail settings. Newer, demanding games like Metro Exodus are technically playable, but you’ll have to set detail to low and play at a reduced resolution. Even then, you may see hiccups and stutters while playing.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Productivity: A portable multitasking powerhouse
@@ -154,13 +154,6 @@ Lifewire / Matthew S. Smith
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/ZfUq7KgSBkLGGlcycJhWShrQqeg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-5-cc97b158ae2a4aad85a9527ff97d0a76.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Matthew S. Smith
 
  The Surface Laptop 4’s touchpad is large, measuring four and a half inches wide by three inches deep. It’s responsive but doesn’t pick up unintended input. Multi-touch gestures work extremely well, helping you get the most out of[Windows’ underrated multitasking touchpad shortcuts](https://www.lifewire.com/how-to-use-windows-10-touchpad-gestures-4587314) .
@@ -171,13 +164,6 @@ Lifewire / Matthew S. Smith
 
  The speakers are[Dolby Atmos-certified](https://www.lifewire.com/dolby-atmos-cinema-to-home-theater-1847278) and, for once, this has meaning. Movies and TV shows sound great. Dialogue is clear and crisp, yet explosions are impactful. Crisp dialogue also translates to great performance in podcasts. Ramping up volume to maximum let me listen to a podcast while moving around my house, something that normally isn’t possible with a laptop.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Network: Great Wi-Fi, but can we get LTE?
 
  The Surface Laptop 4 supports[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) and[Bluetooth 5.0](https://www.lifewire.com/bluetooth-5-4160255) . Wi-Fi performance was strong in my testing. It can exceed speeds of 800Mbps near my Wi-Fi 6 router, which is true of nearly all compatible laptops. Performance remained great at range, hitting 103Mbps in a detached office. This easily defeats the Lenovo ThinkPad X1 Titanium Yoga, which hit only 40Mbps in the same situation.
@@ -185,10 +171,10 @@ Lifewire / Matthew S. Smith
  4G LTE cellular data is not available. That’s a bit disappointing, as LTE is available in some Surface Pro devices and in competitors like the ThinkPad X1 Titanium Yoga and HP Spectre x360 13t. Optional LTE would be a match for the Surface Laptop 4’s productivity-first design.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Camera: An okay webcam with Windows Hello
@@ -196,6 +182,13 @@ Lifewire / Matthew S. Smith
  The Surface Laptop 4 has a 720p front-facing camera that suffers all the shortcomings you’d expect from a laptop webcam. It looks ok in a bright room, but even a moderately dim setting will lead to grainy, soft video. The camera fails at proper exposure when lighting is uneven.
 
  An IR camera is standard, so[Windows Hello](https://www.lifewire.com/what-is-windows-hello-4782168) facial recognition login is supported. This feature is easy to enable and extremely quick once set up. It works well in poor or uneven lighting.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Battery: It’s good, but don’t believe the hype
 
@@ -213,6 +206,13 @@ Lifewire / Matthew S. Smith
 
  The Surface Laptop 4 ships with[Windows 10 Home](https://www.lifewire.com/windows-10-home-vs-pro-4177144) installed. There’s otherwise not much to say about the software which, for most people, will be good news. The Laptop 4’s stock Windows installation has zero bloatware.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: It’s not cheap, but it’s good value
 
  I tested the entry-level Surface Laptop 4 with an AMD Ryzen 5 Surface Edition processor. This model starts at $1,000 with 8GB of RAM and a 256GB solid-state drive. Intel models start at $1,300 for a Core i5 processor with the same RAM and storage.
@@ -228,6 +228,13 @@ Lifewire / Matthew S. Smith
  Microsoft sells the Laptop 3 starting at $800\. Seems like a deal, right? But here’s the thing: the base Laptop 3 has a 128GB solid-state drive, while the base Laptop 4 has a 256GB drive. The real difference is only $100 because the Laptop 3’s price jumps to $900 with the storage upgrade.
 
  I think most buyers will be happy with either laptop, but the Laptop 4’s performance feels worth the extra $100\.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Microsoft Surface Laptop 4 vs. Apple MacBook Air
 
@@ -246,6 +253,13 @@ Lifewire / Matthew S. Smith
  **One of the best Windows laptops you can get.**
 
  Microsoft’s Surface Laptop 4 is one of the best Windows laptops available today. Its design is attractive, yet functional, and it delivers great performance for the price. The Surface Laptop 4 can’t overcome Apple’s competing MacBooks, but it’s a great pick if you want to stick with Windows.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -285,5 +299,26 @@ Lifewire / Matthew S. Smith
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-spin-innovator-pack/"><u>[New] Spin Innovator Pack</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-feel-motivated-10-epic-movies-with-deep-impact-for-2024/"><u>[Updated] Feel Motivated 10 Epic Movies with Deep Impact for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-comprehensively-reviewing-youtubes-restrictions-vs-cc-flexibility/"><u>[Updated] In 2024, Comprehensively Reviewing YouTube's Restrictions Vs. CC Flexibility</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-present-trends-in-drone-technology-for-the-future/"><u>[Updated] Present Trends in Drone Technology for the Future</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-thunder-gods-fury-new-age-begins/"><u>[Updated] Thunder God's Fury New Age Begins</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-sync-vimeo-videos-with-powerpoint-a-step-by-step-approach/"><u>2024 Approved Sync Vimeo Videos with PowerPoint A Step-by-Step Approach</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-toolwiz-explored-detailed-review-for-image-enthusiasts/"><u>2024 Approved Toolwiz Explored Detailed Review for Image Enthusiasts</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/exit-strategy-securing-your-data-against-chatgpt/"><u>Exit Strategy: Securing Your Data Against ChatGPT</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-about-realme-c33-2023-frp-bypass-by-drfone-android/"><u>In 2024, About Realme C33 2023 FRP Bypass</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-chromecast-with-google-tv-eating-into-firetv-market-share/"><u>Is Chromecast with Google TV Eating Into FireTV Market Share?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/m1-chipset-unleashed-how-apples-new-cpu-transforms-the-202amacbook-pro/"><u>M1 Chipset Unleashed: How Apple's New CPU Transforms the 202Amacbook Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-market-top-spots-for-purchasing-premium-phones-with-confidence/"><u>Navigating the Market: Top Spots for Purchasing Premium Phones with Confidence</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/owc-mercury-pro-ssd-breakdown-leading-the-pack-with-superior-quality/"><u>OWC Mercury Pro SSD Breakdown: Leading the Pack with Superior Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/quality-meets-cost-effectiveness-the-ultimate-guide-to-choosing-fellowes-microban-wired-keyboard-for-your-needs/"><u>Quality Meets Cost-Effectiveness: The Ultimate Guide to Choosing Fellowes' Microban Wired Keyboard for Your Needs</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/quick-steps-to-install-the-latest-synaptics-touchpad-driver-update/"><u>Quick Steps to Install the Latest Synaptics Touchpad Driver Update</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revealing-the-unique-charm-of-brand-less-audio-devices/"><u>Revealing the Unique Charm of Brand-Less Audio Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tech-savvy-or-tech-stylish-a-deep-dive-into-the-features-and-performance-of-the-tcl-32s325-2019-with-built-in-roku-smart-technology/"><u>Tech Savvy or Tech Stylish? A Deep Dive Into the Features and Performance of The TCL 32S325 (2019) with Built-In Roku Smart Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-battle-of-tech-titans-analyzing-ipad-pro-against-macbook-pro/"><u>The Battle of Tech Titans: Analyzing iPad Pro Against MacBook Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-blend-of-chic-and-functionality-in-nixplay-iris/"><u>The Ultimate Blend of Chic and Functionality in Nixplay Iris</u></a></li>
+</ul></div>
 

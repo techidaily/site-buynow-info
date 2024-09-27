@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Guide & Evaluation of the Google Maps iPhone Version
-date: 2024-09-17T01:08:48.354Z
-updated: 2024-09-20T23:44:54.273Z
+date: 2024-09-19T22:23:53.263Z
+updated: 2024-09-26T23:28:00.888Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Guide & Evaluation of the Google Maps iPhone Version
@@ -74,11 +74,25 @@ Lifewire / Jeremy Laukkonen
 
  Luna is an impressive service with what seems like solid underlying tech right out of the gate. The biggest questions seem to be how and when Amazon will go about filling holes in the library, how well the service will work when they eventually roll out 4K streaming, and whether we’ll see better Android support in the future.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design and Controls: Decent enough app and a nearly flawless controller
 
  Luna isn’t a traditional game console, so there isn’t much design to speak of in terms of hardware. The two important elements here are the Luna app, which operates as an Android app on Fire TV and a web app in[Chrome](https://www.lifewire.com/what-is-google-chrome-4687647) and[Safari](https://www.lifewire.com/what-is-safari-4173608) , and the controller that’s technically optional.
 
 ![Amazon Luna](https://www.lifewire.com/thmb/c10USyUEVgaFrdeWRUBgX6MNpOQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_05-7314cf2ae25a4f428d93f40cc56fb5d1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -111,10 +125,10 @@ Lifewire / Jeremy Laukkonen
 ![Amazon Luna](https://www.lifewire.com/thmb/6427gP-MSnqe4st8hfuI-7yxlos=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_03-f12a92bc606e43caa77b445a2fdcf1c1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -124,10 +138,10 @@ Lifewire / Jeremy Laukkonen
  After the initial setup process, your Luna controller is ready to go regardless of platform. Power on the controller, launch the Luna app or website, and everything automatically connects without any additional work or input.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Performance: Impressive game streaming, but no 4K
@@ -150,6 +164,13 @@ Lifewire / Jeremy Laukkonen
 
  If you have a slow internet connection or suffer from poor connectivity, then it’s likely that the brief issues I experienced could be amplified to an unacceptable point. If you have a decent connection, live closer to a major metropolitan area than I do, and have more than 10Mbps of downstream bandwidth available, the service should work just fine.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Software: Dozens of games, but the library is a bit thin with a lot of holes
 
  Luna’s biggest issue, and its biggest question mark going forward, is its streaming library. Amazon is taking a page from Microsoft’s book in that they’re trying to function as a Netflix of game streaming, but Amazon just doesn’t have the same deep library as Microsoft.
@@ -167,13 +188,6 @@ Lifewire / Jeremy Laukkonen
  For some reason, the fighting category is populated by titles like the rogue-like shooter Everspace and the co-op brawler River City Girls. No actual fighting games, though. The horror category was empty until Amazon scored Resident Evil 7 Gold Edition and also saddled gorefest pixel art platformer Valfaris with the horror tag.
 
  It’s clear that Amazon is working to bring a nice mix of games to the service, but the depth and breadth of the titles you can access with a basic subscription remain the biggest question as Luna moves through beta and toward general launch.
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Price: Affordable fee reflects the thin library
 
@@ -233,5 +247,26 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-mastering-youtube-traffic-growth-the-ultimate-list-of-keyword-analyzers/"><u>[New] In 2024, Mastering YouTube Traffic Growth The Ultimate List of Keyword Analyzers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-streamlining-your-gaming-diary-overwatch-video-documentation/"><u>[Updated] 2024 Approved Streamlining Your Gaming Diary Overwatch Video Documentation</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/copyright-clarity-how-to-verify-video-rights-pre-upload/"><u>Copyright Clarity How to Verify Video Rights Pre-Upload</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/creating-stunning-slow-motion-videos-with-your-iphone-a-4-step-guide-using-the-movavi-app/"><u>Creating Stunning Slow Motion Videos with Your iPhone: A 4-Step Guide Using the Movavi App</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-viewers-interest-with-innovative-valorant-thumbnail-ideas-for-2024/"><u>Enhancing Viewers' Interest with Innovative Valorant Thumbnail Ideas for 2024</u></a></li>
+<li><a href="https://win-special.techidaily.com/how-microsofts-recent-update-boosts-productivity-for-creative-professionals-on-teams-exploring-zdnet-findings/"><u>How Microsoft's Recent Update Boosts Productivity for Creative Professionals on Teams: Exploring ZDNet Findings</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-itel-s23plus-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Itel S23+ Activity | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-unlocking-apple-watch-or-iphone-6-plus-from-icloud-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Unlocking Apple Watch Or iPhone 6 Plus from iCloud</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-apples-homepod-mini-features-on-music-and-siri/"><u>In-Depth Evaluation of Apple's HomePod Mini: Features on Music & Siri</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-mlb-the-show-19-analysis-beautiful-sportscraft-meets-unforeseen-role-playing-elements/"><u>In-Depth MLB The Show 19 Analysis: Beautiful Sportscraft Meets Unforeseen Role-Playing Elements</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/invest-in-your-pets-security-with-petcubes-economical-hd-monitor/"><u>Invest in Your Pet's Security with Petcube's Economical HD Monitor</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-the-price-worth-it-a-thorough-examination-of-the-alienware-aurora-r7s-capabilities/"><u>Is the Price Worth It? A Thorough Examination of the Alienware Aurora R7's Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-17-inch-gaming-and-work-laptops-for-tech-savvy-consumers/"><u>Leading 17-Inch Gaming & Work Laptops for Tech Savvy Consumers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovo-ideapad-flex-5-spin-detailed-unboxing-and-performance-insights/"><u>Lenovo IdeaPad Flex 5 Spin - Detailed Unboxing and Performance Insights</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-what-is-ai-voice-over/"><u>New 2024 Approved What Is AI Voice Over?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/record-spinning-made-easy-exploring-the-lp60xbt/"><u>Record Spinning Made Easy: Exploring the LP60XBT</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-aesthetic-appeal-and-lightweight-advantage-of-the-acer-chromebook-r-11-unveiled/"><u>The Aesthetic Appeal & Lightweight Advantage of the Acer Chromebook R 11 Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-samsung-galaxy-watch3-through-a-critical-lens-classic-elegance-pairing-with-latest-innovations/"><u>The Samsung Galaxy Watch3 Through a Critical Lens: Classic Elegance Pairing With Latest Innovations</u></a></li>
+</ul></div>
 
