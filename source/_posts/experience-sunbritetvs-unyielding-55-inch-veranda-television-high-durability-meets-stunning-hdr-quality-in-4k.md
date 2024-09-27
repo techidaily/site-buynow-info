@@ -176,16 +176,5 @@ Harran is a whole different city at night.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Vivo X100 Pro | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/flawless-firefights-advanced-techniques-to-combat-low-fps-in-valorant-exclusive-2024-insights/"><u>Flawless Firefights: Advanced Techniques to Combat Low FPS in Valorant (Exclusive 2024 Insights)</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-successfully-address-a-non-functioning-aol-mail-application-in-iphone-discover-the-6-most-helpful-fixes/"><u>How to Successfully Address a Non-Functioning AOL Mail Application in iPhone: Discover the 6 Most Helpful Fixes</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-go-joystick-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Samsung Galaxy A05s? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/interactive-illumination-the-future-of-memory-presentation/"><u>Interactive Illumination: The Future of Memory Presentation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/professional-audio-identity-sennheiser-presence/"><u>Professional Audio Identity: Sennheiser Presence</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/structuring-a-compelling-resume-cv-on-linkedin-for-2024/"><u>Structuring a Compelling Resume (CV) on LinkedIn for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-most-effective-software-replacing-microsoft-office/"><u>The Most Effective Software Replacing Microsoft Office</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-10-premium-17-inch-laptop-picks/"><u>Top 10 Premium 17-Inch Laptop Picks</u></a></li>
-</ul></div>
+
 

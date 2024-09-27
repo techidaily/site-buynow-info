@@ -176,15 +176,5 @@ Harran is a whole different city at night.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-15-top-rated-screen-capture-tools-to-support-education/"><u>[New] 15 Top-Rated Screen Capture Tools to Support Education</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-quick-and-effective-methods-to-save-instagram-stories/"><u>2024 Approved Quick & Effective Methods to Save Instagram Stories</u></a></li>
-<li><a href="https://driver-install.techidaily.com/download-mtk-usb-drivers-for-windows-11-10/"><u>Download MTK USB Drivers for Windows 11, 10</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/from-conventional-windows-10-advance-towards-64-bit-mastery/"><u>From Conventional Windows 10, Advance Towards 64-Bit Mastery</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-nokia-130-music-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Nokia 130 Music | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-leading-platforms-for-snagging-snapchat-soundtracks/"><u>In 2024, Leading Platforms for Snagging Snapchat Soundtracks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-stellaris-strategy-adventure-in-interstellar-empire-building/"><u>In-Depth Analysis: Stellaris - Strategy Adventure in Interstellar Empire Building</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/user-guide-and-expert-insight-on-rings-latest-battery-doorbell-device/"><u>User Guide & Expert Insight on Ring's Latest Battery Doorbell Device</u></a></li>
-</ul></div>
+
 

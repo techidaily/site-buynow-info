@@ -175,19 +175,5 @@ Harran is a whole different city at night.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-best-10-de-stress-fun-titles-for-playtime/"><u>[New] Best 10 De-Stress Fun Titles for Playtime</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-disclosing-the-top-10-hidden-story-enthusiasts-for-2024/"><u>[New] Disclosing the Top 10 Hidden Story Enthusiasts for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-pinnacle-of-popularity-on-reddit-top-10-ranking/"><u>[New] Pinnacle of Popularity on Reddit - Top 10 Ranking</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-mastering-clear-webcam-footage-recording-and-editing-tips/"><u>2024 Approved Mastering Clear Webcam Footage Recording & Editing Tips</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expertly-ranked-best-mouse-devices-to-elevate-your-ipad-usage-today/"><u>Expertly Ranked Best Mouse Devices to Elevate Your iPad Usage Today</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-gamble-for-peace-10-chill-out-choices/"><u>In 2024, Gamble for Peace 10 Chill-Out Choices</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Infinix Smart 8 HD | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-review-how-the-xbox-one-elite-series-ncontroller-dominates-game-controls/"><u>In-Depth Review: How the Xbox One Elite Series nController Dominates Game Controls</u></a></li>
-<li><a href="https://win-able.techidaily.com/mastering-tribes-of-midgard-effective-strategies-to-overcome-game-disruptions-and-crashes/"><u>Mastering 'Tribes of Midgard': Effective Strategies to Overcome Game Disruptions and Crashes</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/microsoft-surface-go-review-an-affordable-tablet-with-a-puzzling-identity-crisis/"><u>Microsoft Surface Go Review: An Affordable Tablet With a Puzzling Identity Crisis</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-nulaxy-km18-car-fm-transmitter-trustworthy-performance-over-time/"><u>The Ultimate Review of Nulaxy KM18 Car FM Transmitter - Trustworthy Performance Over Time</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/user-guide-to-the-high-costs-and-inconveniences-of-owning-a-microsoft-surface-duo/"><u>User Guide to the High Costs & Inconveniences of Owning a Microsoft Surface Duo</u></a></li>
-</ul></div>
+
 

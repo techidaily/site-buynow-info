@@ -176,18 +176,5 @@ Harran is a whole different city at night.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-eyecapture-master-series-version-x/"><u>[New] 2024 Approved EyeCapture Master Series - Version X</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-finding-icons-a-targeted-approach-to-instas-powerful-voices/"><u>[New] 2024 Approved Finding Icons A Targeted Approach to Insta's Powerful Voices</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-pilot-to-perfection-complete-review-of-dji-phantom-4/"><u>[New] In 2024, Pilot to Perfection Complete Review of DJI Phantom 4</u></a></li>
-<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Samsung Galaxy S24 | Dr.fone</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/2024-approved-twitter-videos-at-full-hd-your-watchful-pathway/"><u>2024 Approved Twitter Videos at Full HD - Your Watchful Pathway</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/choosing-the-right-iphone-for-gamers-a-comprehensive-review/"><u>Choosing the Right iPhone for Gamers: A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/future-proof-portable-music-systems-2024-edition/"><u>Future-Proof Portable Music Systems - 2024 Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-truecaller-application-a-users-guide/"><u>In-Depth Analysis of the Truecaller Application: A User's Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/inside-the-mighty-xbox-series-x-next-gen-console-powerhouse-reviewed/"><u>Inside the Mighty Xbox Series X: Next-Gen Console Powerhouse Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-pick-affordable-fellowes-microban-wired-keyboard-a-comprehensive-review/"><u>Top Pick: Affordable Fellowes Microban Wired Keyboard - A Comprehensive Review</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/ultimate-epubor-your-definitive-guide-to-the-perfect-ebook-converter/"><u>Ultimate EPUBor: Your Definitive Guide to the Perfect eBook Converter</u></a></li>
-</ul></div>
+
 
