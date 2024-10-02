@@ -1,7 +1,7 @@
 ---
 title: "Universal Flexible Bluetooth Keyboard by MoKo: Compact & Portable"
-date: 2024-09-24T16:27:47.272Z
-updated: 2024-09-26T17:02:49.571Z
+date: 2024-09-25T21:51:19.981Z
+updated: 2024-10-02T09:33:54.130Z
 categories:
   - BestProducts
 description: "This Article Describes Universal Flexible Bluetooth Keyboard by MoKo: Compact & Portable"
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/526c473a4f2f84c7776ce16d41fe4812db866e7d1
 
 4.6
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## MoKo Universal Foldable Keyboard
 
 [View On Amazon](https://www.amazon.com/MoKo-Universal-Ultra-Thin-Bluetooth-Compatible/dp/B01EHSLFAY/?tag=lifewire-onsite-prod-20&ascsubtag=4780289%7Cn5042862dc88b4247855b5214c266875a05%7CB01EHSLFAY)
@@ -78,24 +85,18 @@ thumbnail: https://thmb.techidaily.com/526c473a4f2f84c7776ce16d41fe4812db866e7d1
 
  The hotkeys on the keyboard are located on the top row. These include several excellent built-in functions, such as cut, skipping forward or back in multimedia tracks, pausing music, increasing or decreasing volume, opening a new search, and several others. These are easy to use thanks to the function key on the lower-left hand side of the keyboard. One drawback, however, is the blue color used to identify these built-in functions is somewhat difficult to see in low-light conditions.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Setup Process and Connectivity: Broad Device Compatibility
 
  The MoKo Universal Foldable Bluetooth Keyboard arrives in a small box with the keyboard itself, a small one-year free warranty card, a pamphlet with setup instructions, and a micro USB charging cable. One piece we wish it included is a stand for smartphones. While it’s compatible with them, it’s not very convenient to type on them without one. We’d highly recommend getting a separate stand if you’re considering this keyboard for a smartphone.
 
 ![MoKo Universal Foldable Bluetooth Keyboard](https://www.lifewire.com/thmb/kSFKzJNiMoWHKHqKIec3JqHwGpw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Moko_ErgoKeyboards_2LW4147386_04-0b2a547be6764125ab80c1db9df177bf.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -104,6 +105,13 @@ thumbnail: https://thmb.techidaily.com/526c473a4f2f84c7776ce16d41fe4812db866e7d1
  We tested this with our desktop computer and with our[Samsung Galaxy](https://www.lifewire.com/samsung-galaxy-s-phones-4156903) S10+. The setup process was the same between the two devices. First, we ensured that our desktop and smartphone were Bluetooth enabled. Next, we unfolded the keyboard and pressed the FN and T button to enter pairing mode. A flashing blue light indicated that the keyboard was then ready for pairing. On both our desktop and our S10+, the keyboard quickly turned up under the name “Foldable Bluetooth Keyboard.” We selected it and, just like that, pairing was complete.
 
  The MoKo is small—hardly larger than your hand when folded down to its collapsed size.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Battery: Plenty of Juice for Work
 
@@ -115,20 +123,13 @@ thumbnail: https://thmb.techidaily.com/526c473a4f2f84c7776ce16d41fe4812db866e7d1
 
 ![MoKo Universal Foldable Bluetooth Keyboard](https://www.lifewire.com/thmb/_ZZ5LMz0jlm5vldVU2UTdDoXbeA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Moko_ErgoKeyboards_2LW4147386_05-fc37bb4154314025a1a1bfae6c6f5e24.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## MoKo Universal Folding Keyboard vs. Jelly Comb B047
@@ -144,13 +145,6 @@ thumbnail: https://thmb.techidaily.com/526c473a4f2f84c7776ce16d41fe4812db866e7d1
  **A great traveler’s keyboard with a portable design and long-lasting battery.**
 
  The MoKo Universal Foldable Bluetooth Keyboard is an ultra-thin, split keyboard that packs plenty of bang for your buck. Its U-shaped ergonomic design is comfortable, and with a battery life of up to 40 hours of continuous use or 30 days of standby time make it a great choice for commuters or frequent travelers.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -183,24 +177,15 @@ thumbnail: https://thmb.techidaily.com/526c473a4f2f84c7776ce16d41fe4812db866e7d1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-harmonizing-your-android-device-a-guide-to-personalized-ringtone-and-sound-configurations/"><u>[New] Harmonizing Your Android Device A Guide to Personalized Ringtone and Sound Configurations</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-mastering-ppt-perfecting-your-voiceover-artistry-for-2024/"><u>[New] Mastering PPT Perfecting Your Voiceover Artistry for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-exploring-ways-to-share-youtube-videos-on-social-media-platforms-fb/"><u>[Updated] Exploring Ways to Share YouTube Videos on Social Media Platforms (FB)</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-two-simple-tweaks-for-skyrocketing-youtube-traffic/"><u>2024 Approved Two Simple Tweaks for Skyrocketing YouTube Traffic</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/blending-iphone-videos-a-simple-guide/"><u>Blending iPhone Videos A Simple Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/connecting-gamers-insightful-razer-portal-wi-fi-review/"><u>Connecting Gamers: Insightful Razer Portal Wi-Fi Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/decoding-ios-vs-android-which-device-aligns-with-your-needs/"><u>Decoding iOS vs Android: Which Device Aligns with Your Needs?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discovering-value-and-reliability-a-comprehensive-revelation-of-the-procase-sleeve-for-macbook-pro-13/"><u>Discovering Value & Reliability: A Comprehensive Revelation of the ProCase Sleeve for MacBook Pro 13</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-evaluation-of-top-race-rc-rock-crawler-conquering-diverse-outdoor-challenges/"><u>Expert Evaluation of Top Race R/C Rock Crawler: Conquering Diverse Outdoor Challenges</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-the-most-advanced-and-effective-mesh-wi-fi-networks-available-in-2eplust/"><u>Expert Review: The Most Advanced and Effective Mesh Wi-Fi Networks Available in 2E+t%</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expertly-curated-selections-leading-htpcs-that-elevate-your-home-entertainment-in-234/"><u>Expertly Curated Selections: Leading HTPCs that Elevate Your Home Entertainment in 2^34</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experts-rate-the-robustness-and-value-of-omotons-t1-tablet-support/"><u>Experts Rate the Robustness & Value of Omoton's T1 Tablet Support</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-extollo-lansocket-1500-exceptional-performance-with-lightning-fast-speeds-and-minimal-delays/"><u>Exploring the Extollo LANSocket 1500 - Exceptional Performance with Lightning-Fast Speeds & Minimal Delays</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/exposing-hidden-data-in-macos-without-third-party-software-the-terminal-way/"><u>Exposing Hidden Data in macOS Without Third-Party Software – The Terminal Way</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/gaming-on-high-can-ps5-replace-your-ps4-pro-experience/"><u>Gaming on High: Can PS5 Replace Your PS4 Pro Experience?</u></a></li>
-<li><a href="https://games-able.techidaily.com/navigating-network-navigation-on-nintendo-switch/"><u>Navigating Network Navigation on Nintendo Switch</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/reviving-your-huion-pen-top-5-fixes-for-immediate-action/"><u>Reviving Your Huion Pen: Top 5 Fixes for Immediate Action</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/the-ultimate-walkthrough-to-obtain-toshiba-printer-drivers-in-windows-1087/"><u>The Ultimate Walkthrough to Obtain Toshiba Printer Drivers in Windows 10/8/7</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-guide-overcoming-common-ue4-errors-in-arise/"><u>Troubleshooting Guide: Overcoming Common UE4 Errors in Arise</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-pathway-to-popularity-masterful-igtv-video-posts-for-2024/"><u>[New] The Pathway to Popularity Masterful IGTV Video Posts for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-leading-cost-free-switch-gaming-apps/"><u>[Updated] In 2024, Leading Cost-Free Switch Gaming Apps</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-crafting-an-elite-home-computer-for-professional-4k-editing/"><u>2024 Approved Crafting an Elite Home Computer for Professional 4K Editing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-ideal-steadicams-for-captivating-high-quality-shoots-on-your-dslr-camera/"><u>2024 Approved Ideal Steadicams for Captivating, High-Quality Shoots on Your DSLR Camera</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-altering-facebook-passphrase/"><u>Best Practices for Altering Facebook Passphrase</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-audio-ankers-life-q30-anc-hearing-experience/"><u>Budget Audio: Anker's Life Q30 ANC Hearing Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-affordable-power-of-alcatel-joy-tab-2-lte-our-expert-opinion/"><u>Experience the Affordable Power of Alcatel Joy Tab 2 LTE - Our Expert Opinion</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/plug-and-play-fun-with-the-singing-machine-sml385btbk-the-most-accessible-colorful-karaoke-device/"><u>Plug & Play Fun With the Singing Machine SML385BTBK: The Most Accessible Colorful Karaoke Device!</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/skyrocket-viewer-count-the-most-proven-ways-to-enhance-views-for-2024/"><u>Skyrocket Viewer Count The Most Proven Ways to Enhance Views for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/testing-the-waters-with-asus-rt-ac88u-an-insightful-review-for-gamers-and-streamers/"><u>Testing the Waters with Asus RT-AC88U - An Insightful Review for Gamers and Streamers</u></a></li>
 </ul></div>
 

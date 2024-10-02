@@ -1,7 +1,7 @@
 ---
 title: "Kensun's Compact Tire Pump Assessment: Durable & Handy Anywhere"
-date: 2024-09-23T20:48:11.529Z
-updated: 2024-09-27T06:37:17.032Z
+date: 2024-09-30T02:28:16.067Z
+updated: 2024-10-02T09:31:29.279Z
 categories:
   - BestProducts
 description: "This Article Describes Kensun's Compact Tire Pump Assessment: Durable & Handy Anywhere"
@@ -80,6 +80,19 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -102,13 +115,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Display and Viewfinder: Saturated and clear**
 
  The three-inch, 920,000-dot screen on the SX70 HS looks amazing—perhaps_too_ amazing, as your photos will look better on it than on your phone or computer. The screen is fully articulating and solidly built. Our one complaint would be how easily it picks up smudges, and how difficult those smudges are to remove. An advantage of the articulating screen is that it can be turned face-in to avoid dirt and damage and to save on battery life.
@@ -116,13 +122,6 @@ Lifewire / Andy Zahn
  The electronic viewfinder (EVF) is bright and clear with 2,360,000 dots. It’s not the best EVF we’ve ever used as it seems slightly small and cramped, but it gets the job done. A sensor automatically detects when you put your eye up to it (a function that can be adjusted in the settings), which means you don’t have to hunt for a button to switch the EVF on.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Autofocus: Blazing fast**
 
@@ -133,10 +132,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
@@ -156,10 +155,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Modes: Plenty to choose from (and only some are useful)**
@@ -176,6 +175,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Video Quality: A mixed bag**
 
  The SX70 HS fumbles a bit when it comes to video. It’s no slouch by any means, but the footage is nothing to brag about. You can record up to 4K resolution, but unfortunately, the camera has to crop in to record at this resolution. Also, we found that footage is never especially sharp compared to other cameras.
@@ -189,6 +195,13 @@ Lifewire / Andy Zahn
  Time-lapse mode is where the SX70 HS really shines in terms of video. You can easily access this mode via the menu system, and there is a wide range of customizable options available. For those not experienced with time-lapse video, you can simply select from one of three subject-based settings. Time-lapses can be recorded at up to 4K resolution and truly excellent quality.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Lots of options**
 
@@ -228,13 +241,6 @@ Lifewire / Andy Zahn
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  PowerShot SX70
@@ -269,21 +275,24 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-carve-a-unique-meme-with-precision-today/"><u>[New] 2024 Approved Carve a Unique Meme with Precision Today</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-21-pioneering-metaverse-ventures-for-insightful-discussion/"><u>[Updated] 2024 Approved 21 Pioneering Metaverse Ventures for Insightful Discussion</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unleashing-video-power-the-galaxy-s8-in-4k/"><u>[Updated] 2024 Approved Unleashing Video Power The Galaxy S8 in 4K</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-pro-rated-apple-compreran-of-the-best-screen-recorders/"><u>[Updated] In 2024, Pro-Rated Apple Compreran of the Best Screen Recorders</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-best-ios-psp-emulators-our-top-5-selections/"><u>2024 Approved Best iOS PSP Emulators Our Top 5 Selections</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-tips-on-how-to-upgrade-your-intel-imac-system/"><u>Expert Tips on How to Upgrade Your Intel iMac System</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/facebook-favorites-top-8-androidiphone-apps-for-social-popularity/"><u>Facebook Favorites Top 8 Android/iPhone Apps for Social Popularity</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/guide-to-securing-superior-quality-pics-without-charges/"><u>Guide to Securing Superior Quality Pics without Charges</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/heimvision-sunrise-alarm-clock-a80s-review/"><u>HeimVision Sunrise Alarm Clock A80S Review</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-realme-c67-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Realme C67 4G | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-reset-apple-id-and-apple-password-on-iphone-12-pro-max-by-drfone-ios/"><u>How to Reset Apple ID and Apple Password On iPhone 12 Pro Max</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-oneplus-6t-superior-functionality-at-an-attractive-cost/"><u>In-Depth Analysis of the OnePlus 6T: Superior Functionality at an Attractive Cost</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-x-chair-x4-executive-perfect-workplace-seating-solution/"><u>In-Depth Analysis of the X-Chair X4 Executive - Perfect Workplace Seating Solution</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-chargetechs-ultra-powerful-27000mah-portable-charging-device/"><u>In-Depth Evaluation: ChargeTech's Ultra Powerful 27000mAh Portable Charging Device</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/key-aspects-of-research-to-conduct-before-buying-modern-printer-technology/"><u>Key Aspects of Research to Conduct Before Buying Modern Printer Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/logitechs-affordable-prodigy-unveiling-the-capabilities-of-the-c615-webcam/"><u>Logitech's Affordable Prodigy? Unveiling the Capabilities of the C615 Webcam</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tides-of-numenera-where-sci-fi-meets-rpg-a-detailed-look-at-a-game-crafted-for-worldbuilders-and-story-enthusiasts/"><u>'Tides of Numenera' - Where Sci-Fi Meets RPG: A Detailed Look at a Game Crafted for Worldbuilders and Story Enthusiasts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nfographics-spotlight-on-future-social-trends-for-2024/"><u>[New] Infographics Spotlight on Future Social Trends for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-mastering-snapchat-enhancing-images-and-videos/"><u>[New] Mastering Snapchat Enhancing Images & Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-best-macpc-screenshot-toolkit-for-desktops/"><u>[Updated] In 2024, Best MacPC Screenshot Toolkit for Desktops</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-omni-vmix-universal-controller/"><u>[Updated] Omni-VMix Universal Controller</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-lava-blaze-2-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Lava Blaze 2 Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-yet-powerful-a-closer-look-at-ospreys-ws-2902a-ambient-weather-sensor-with-comprehensive-review-and-insights/"><u>Affordable Yet Powerful: A Closer Look at Osprey's WS-2902A Ambient Weather Sensor with Comprehensive Review and Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-ultimate-6-locations-for-purchasing-your-next-laptop/"><u>Discover The Ultimate 6 Locations For Purchasing Your Next Laptop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-haunting-realm-of-bloodborne-our-gameplay-review/"><u>Exploring the Haunting Realm of Bloodborne - Our Gameplay Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-dominate-trade-in-offworld-trading-company-a-strategic-guide-to-empire-building/"><u>How to Dominate Trade in Offworld Trading Company – A Strategic Guide to Empire Building</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expert-strategies-to-elevate-your-gopro-footage/"><u>In 2024, Expert Strategies to Elevate Your GoPro Footage</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-samsung-galaxy-s24-ultra-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Samsung Galaxy S24 Ultra?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-essentials-of-combining-apple-music-and-videos/"><u>In 2024, The Essentials of Combining Apple Music & Videos</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/iphone-13-pro-max-icloud-activation-lock-bypass-by-drfone-ios/"><u>iPhone 13 Pro Max iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-verdict-on-the-versatile-linksys-ac1900-router/"><u>The Definitive Verdict on the Versatile Linksys AC1900 Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-sumind-bt70b-bluetooth-adapter-reviewed-a-versatile-solution-for-car-audio-enthusiasts/"><u>The Sumind BT70B Bluetooth Adapter Reviewed: A Versatile Solution for Car Audio Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-ranking-police-body-cameras-a-comprehensive-guide/"><u>Top-Ranking Police Body Cameras : A Comprehensive Guide</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-steps-solving-the-issue-of-non-functional-corsair-icue-on-windows-11/"><u>Troubleshooting Steps: Solving the Issue of Non-Functional Corsair iCUE on Windows 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unleash-power-with-beatit-bt-d11-portable-charger-evaluation/"><u>Unleash Power with Beatit BT-D11 Portable Charger Evaluation</u></a></li>
 </ul></div>
 

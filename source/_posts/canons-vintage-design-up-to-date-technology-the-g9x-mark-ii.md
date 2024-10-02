@@ -1,7 +1,7 @@
 ---
 title: Canon's Vintage Design, Up-to-Date Technology – The G9X Mark II
-date: 2024-09-24T21:52:22.338Z
-updated: 2024-09-26T21:12:23.288Z
+date: 2024-09-30T02:06:04.983Z
+updated: 2024-10-02T08:00:39.770Z
 categories:
   - BestProducts
 description: This Article Describes Canon's Vintage Design, Up-to-Date Technology – The G9X Mark II
@@ -46,13 +46,6 @@ Lifewire / Jonno Hill
 
 ![ClearStream 2V HDTV Antenna](https://www.lifewire.com/thmb/q2B57F3c717qLOPlnokMF7al1pA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_HeroSquare-b07d5067648049ecb987e39b62796406.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jonno Hill
 
 [View On Amazon $88](https://www.amazon.com/dp/B007RH5GZI/?tag=lifewire-onsite-prod-20&ascsubtag=4843109%7Cn245c3b842cae4efcb285c88c84d3394016%7CB007RH5GZI) [View On Walmart $88](https://www.walmart.com/ip/30312147) [View On Tractor Supply Co. $108](https://www.tractorsupply.com/tsc/product/antennas-direct-clearstream-2v-uhf-vhf-indoor-outdoor-dtv-antenna-with-mount-adic2vcjm?slfpid=3)
@@ -78,14 +71,14 @@ Lifewire / Jonno Hill
 
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/vY1j7QoS0FLwOKNhPlSfR3XMlmo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_02-e97897fe03b74f5faa2eefad3b3b7208.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Glimpsing an ugly future**
 
@@ -112,10 +105,10 @@ Lifewire / Jonno Hill
  In my channel acquisition test, the ClearStream managed 76 channels consistently, far and away the best result from any of the devices I tested. The worst antenna I tested picked up just 47 channels, and the second best, 69\. Needless to say, all the wires, cages, and bulbous plastic spheres are clearly doing something here, because this was the best result I saw.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: Extensive**
@@ -124,20 +117,14 @@ Lifewire / Jonno Hill
 
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/NoQoQy3-EFUpi1z9oMTpD2JGWHQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_04-70f5a48ac9a347d286c71240b85cbc1c.jpg)
 
- Lifewire / Jonno Hill
-
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Jonno Hill
 
 ## **Price: Performance doesn’t come cheap**
 
@@ -153,6 +140,13 @@ Lifewire / Jonno Hill
 
 **Great performance for those that need it.**
  The ClearStream 2V Indoor/Outdoor HDTV Antenna isn’t the cheapest or best-looking antenna on the market, but it gets the job done better than any of the other antennas we tested. Buyers who know they need an antenna with better range and performance will find this to be a noticeable bump from cheaper indoor antennas.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -180,17 +174,20 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-a-new-chapter-for-recording-tech-dive-into-the-2023-apeaksoft-update/"><u>[New] 2024 Approved A New Chapter for Recording Tech? Dive Into the 2023 Apeaksoft Update</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-3-easy-youtube-audio-extraction-methods-free-and-secure/"><u>[New] In 2024, 3 Easy YouTube Audio Extraction Methods Free & Secure</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-fast-and-easy-guide-how-to-set-up-snapchat-on-a-mac-for-2024/"><u>[Updated] Fast & Easy Guide How to Set up Snapchat on a Mac for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-stepping-into-silence-fading-out-audio-in-adobe-premiere-pro-for-2024/"><u>[Updated] Stepping Into Silence Fading Out Audio in Adobe Premiere Pro for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elevating-your-video-experience-the-premium-perspective/"><u>Elevating Your Video Experience: The Premium Perspective</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exclusive-samsung-discounts-on-prime-day-grab-them-now/"><u>Exclusive Samsung Discounts on Prime Day - Grab Them Now!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-improved-tv-reception-in-depth-review-of-the-clearstream-2v-indooroutdoor-hd-antenna-style-meets-performance/"><u>Experience Improved TV Reception: In-Depth Review of the ClearStream 2V Indoor/Outdoor HD Antenna – Style Meets Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-unparalleled-audio-with-g-pro-x/"><u>Experience Unparalleled Audio with G Pro X</u></a></li>
-<li><a href="https://win11.techidaily.com/microsofts-strategy-behind-extended-updates-for-windows-11/"><u>Microsoft's Strategy Behind Extended Updates for Windows 11</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/navigating-chatgpts-extension-signup-procedure/"><u>Navigating ChatGPT's Extension Signup Procedure</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/the-significance-of-msdia80dll-and-when-you-should-consider-keeping-or-deleting-this-file/"><u>The Significance of msdia80.dll and When You Should Consider Keeping or Deleting This File</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/1725289634526-ai/"><u>ただ一言から始める！無料AIで自動ビデオコンテンツを創り出す方法</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-turning-twitter-videos-into-audible-mp3s/"><u>[New] Turning Twitter Videos Into Audible MP3s</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-leading-synthetic-ps3-games-for-pc-gamers/"><u>[Updated] In 2024, Leading Synthetic PS3 Games for PC Gamers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-proven-youtube-seo-methods-for-video-rankings/"><u>[Updated] Proven YouTube SEO Methods for Video Rankings</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/breaking-the-loop-of-0xf0831-error-in-win11-os/"><u>Breaking the Loop of 0XF0831 Error in Win11 OS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-testing-on-the-urban-armor-gear-macbook-pro-shield-a-blend-of-strength-and-practicality/"><u>Comprehensive Testing on the Urban Armor Gear MacBook Pro Shield - A Blend of Strength & Practicality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dissecting-the-oneplus-9-a-critical-review-exposes-inadequacies/"><u>Dissecting the OnePlus 9: A Critical Review Exposes Inadequacies</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/cing-video-discoverability-through-youtube-images/"><u>Enhancing Video Discoverability Through Youtube Images</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-oneplus-9-specs-and-value-shortcomings-revealed/"><u>Evaluating OnePlus 9 Specs and Value - Shortcomings Revealed</u></a></li>
+<li><a href="https://win-blog.techidaily.com/free-online-converter-change-flac-files-to-mp4-format-with-movavi/"><u>Free Online Converter: Change FLAC Files to MP4 Format with Movavi</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-tropico-6-mastery-of-a-blissful-archipelago/"><u>In-Depth Look at Tropico 6 - Mastery of a Blissful Archipelago</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/small-but-mighty-an-in-depth-analysis-of-amazons-newest-echo-dot-gen3-alexa-device/"><u>Small but Mighty: An In-Depth Analysis of Amazon's Newest Echo Dot Gen3 Alexa Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-your-homes-security-landscape-with-the-blink-outdoor-4w-wifi-light-floodlight-camera-a-hands-on-installation-guide-for-optimal-performance/"><u>Transform Your Home's Security Landscape With The Blink Outdoor 4W WiFi Light Floodlight Camera: A Hands-On Installation Guide for Optimal Performance</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unlock-the-potential-advanced-techniques-for-podcast-editing-in-garageband-for-2024/"><u>Unlock the Potential Advanced Techniques for Podcast Editing in GarageBand for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/where-tech-enthusiasts-choose-their-smartphones-top-rated-stores-reviewed/"><u>Where Tech Enthusiasts Choose Their Smartphones: Top Rated Stores Reviewed</u></a></li>
 </ul></div>
 

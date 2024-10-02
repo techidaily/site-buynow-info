@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Lenovo 130S: Slimmed Down, Yet Still Functionally Robust"
-date: 2024-09-26T02:05:33.491Z
-updated: 2024-09-26T21:16:49.835Z
+date: 2024-09-28T23:46:10.342Z
+updated: 2024-10-02T11:27:33.000Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring the Lenovo 130S: Slimmed Down, Yet Still Functionally Robust"
@@ -48,6 +48,13 @@ Lifewire / Andy Zahn
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andy Zahn
 
 [View On Walmart $562](https://www.walmart.com/ip/Canon-PowerShot-SX70-HS-20-3MP-65x-Optical-Zoom-Digital-Point-Shoot-Camera/773178799?slfpid=3) [View On Adorama.com $699](https://www.adorama.com/icasx70.html) [View On B&H Photo Video $599](https://www.bhphotovideo.com/c/product/1435399-REG/canon%5F3071c001%5Fpowershot%5Fsx70%5Fhs%5Fdigital.html)
@@ -81,10 +88,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Built to last, great to use**
@@ -103,31 +110,11 @@ Lifewire / Andy Zahn
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
 
@@ -145,13 +132,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Photo Quality: Great colors, average resolution**
 
  We love the warm, natural color tone that[Canon cameras](https://www.lifewire.com/best-new-canon-cameras-493499) produce, and the SX70 HS doesn’t disappoint. Its photos are vibrant and it captures particularly nice portraits.
@@ -167,6 +147,13 @@ Lifewire / Andy Zahn
  RAW files are rich and detailed, and[JPEG images](https://www.lifewire.com/jpeg-myths-and-facts-1701548) are well-rendered, though JPEG images do show the compression artifacts typical of point-and-shoot cameras. The built-in flash raises and lowers manually and is functional if unexceptional.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Modes: Plenty to choose from (and only some are useful)**
 
@@ -196,13 +183,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -212,6 +192,13 @@ Lifewire / Andy Zahn
  There is also the option to connect to a[Canon printer](https://www.lifewire.com/best-canon-printers-4584899) and print your images directly from the camera. We found these features useful but also something of a hassle, since the process of connecting devices to the camera is pretty tedious.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Big brand, big price tag**
 
@@ -234,6 +221,13 @@ Lifewire / Andy Zahn
  **A tremendously fun camera that is exceedingly well-rounded if a bit pricey.**
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -275,16 +269,19 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-mastering-video-content-insights-into-effective-keywords/"><u>[New] 2024 Approved Mastering Video Content Insights Into Effective Keywords</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-speeding-up-live-instagram-broadcasts-on-desktop-for-2024/"><u>[Updated] Speeding Up Live Instagram Broadcasts on Desktop for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/all-ages-exploration-of-minecraft-your-go-to-review-resource/"><u>All-Ages Exploration of Minecraft: Your Go-To Review Resource</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/best-disney-dvd-converter-simple-and-effective-ways-to-digitize-your-favorite-films/"><u>Best Disney DVD Converter - Simple & Effective Ways to Digitize Your Favorite Films</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cost-effective-topmate-c302-chill-pad-scrutiny-stellar-performance-on-a-shoestring/"><u>Cost-Effective TopMate C302 Chill Pad Scrutiny: Stellar Performance on a Shoestring</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-top-notch-sound-and-vision-with-the-huawei-mediapad-m5-tablet-reviewed/"><u>Experience Top-Notch Sound and Vision with the Huawei MediaPad M5 Tablet Reviewed!</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-explore-the-best-30-no-cost-sites-bringing-high-end-illustration-to-life/"><u>In 2024, Explore the Best 30 No-Cost Sites Bringing High-End Illustration to Life</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-review-exceptional-photography-with-the-latest-google-pixel-tier-device/"><u>In-Depth Review: Exceptional Photography with the Latest Google Pixel Tier Device</u></a></li>
-<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Tecno Pop 7 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/1722971950922-samsungs-latest-offering-the-innovative-55-ru7300-4k-smart-tv-reviewed/"><u>Samsung's Latest Offering: The Innovative 55 Ru7300 4K Smart TV Reviewed!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-the-garmin-venu-your-constant-partner-in-personal-well-being-and-activity-management/"><u>Unveiling the Power of the Garmin Venu: Your Constant Partner in Personal Well-Being & Activity Management</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/alcatel-joy-tab-2-pro-your-guide-to-the-best-economical-lte-tablet-ever-made/"><u>Alcatel Joy Tab 2 Pro: Your Guide to the Best Economical LTE Tablet Ever Made</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/all-about-the-nintendo-switch-lite-cost-effective-handheld-gaming-on-demand/"><u>All About the Nintendo Switch Lite: Cost-Effective Handheld Gaming on Demand</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/check-for-promotions-some-carriers-may-offer-promotional-deals-on-the-galaxy-s21-fe-when-signing-up-for-a-new-service-plan-or-as-part-of-trade-in-programs-m85/"><u>Check for Promotions: Some Carriers May Offer Promotional Deals on the Galaxy S21 FE when Signing up for a New Service Plan or as Part of Trade-In Programs. Make Sure You're Aware of These Options Before Making Your Purchase.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/complete-guide-to-the-netgear-nighthawk-x10-ad7200-ultimate-wireless-performance-analysis/"><u>Complete Guide to the Netgear Nighthawk X10 (AD7200) – Ultimate Wireless Performance Analysis</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/creating-perfect-2x2-photographs-using-your-iphone-top-editing-apps-revealed/"><u>Creating Perfect 2X2 Photographs Using Your iPhone - Top Editing Apps Revealed</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-the-logitech-g29-steering-wheel-software-for-pc-windows-10-11-and-7/"><u>Download the Logitech G29 Steering Wheel Software for PC (Windows 10, 11 & 7)</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-tecno-phantom-v-fold-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-honor-magic-6-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Honor Magic 6 Device</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-video-posting-pathway-for-twitter-and-tumblr-users/"><u>In 2024, Video Posting Pathway for Twitter & Tumblr Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-sonys-new-powerhouse-a-comprehensive-review-of-the-ps5/"><u>Inside Sony's New Powerhouse: A Comprehensive Review of the PS5</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/mastering-slow-motion-top-10-video-editing-tools-for-professionals/"><u>Mastering Slow Motion Top 10 Video Editing Tools for Professionals</u></a></li>
+<li><a href="https://win11.techidaily.com/resolving-0x80070194-on-onedrive-and-windows-oses/"><u>Resolving 0X80070194 on OneDrive & Windows OSes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-syma-x5c-quadcopter-an-accessible-and-affordable-option-for-new-pilots/"><u>Review of SYMA X5C Quadcopter: An Accessible and Affordable Option for New Pilots</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-vivo-s18e-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Vivo S18e Phone Password Without Factory Reset Full Guide Here</u></a></li>
 </ul></div>
 

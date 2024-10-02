@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Ergohead Mat Assessment: Excellence in Standing Desk Cushioning"
-date: 2024-09-23T02:54:27.521Z
-updated: 2024-09-27T04:39:29.762Z
+date: 2024-09-25T01:55:31.740Z
+updated: 2024-10-02T04:37:51.916Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Ergohead Mat Assessment: Excellence in Standing Desk Cushioning"
@@ -45,6 +45,13 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Kelsey Simon
 
 [View On Amazon](https://www.amazon.com/Techland-Torment-Tides-Numenera-PlayStation-4/dp/B01N2VISUC/?tag=lifewire-onsite-prod-20&ascsubtag=5077302%7Cnac6eb02defc3413da4da5d4ed0dc77ea21%7CB01N2VISUC) [View On Steampowered.com](https://store.steampowered.com/app/272270/Torment%5FTides%5Fof%5FNumenera/) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/torment-tides-of-numenera/141986.html)
@@ -70,10 +77,10 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -84,24 +91,18 @@ Lifewire / Kelsey Simon
 
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Gameplay: Dialogue prompts and effort**
 
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -116,13 +117,6 @@ Lifewire / Kelsey Simon
  Overall, this game was a weak attempt at offering players the experience of a novel in[video game](https://www.lifewire.com/game-play-and-streaming-4781449) format. The storytelling is very heavy-handed. The writing is weak and full of repeated telling of things you can easily see on-screen around you. There’s little to no direction about where to go or what exactly you should be doing, and combined with the long paragraphs of text, things becomes boring fast. The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way. It’s just a shame that it gets buried under such heavy, inactive storytelling.
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Graphics: Outdated and simplistic**
 
@@ -155,10 +149,10 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -184,18 +178,24 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/arness-the-power-of-engagement-boosting-youtube-traffic/"><u>[New] Harness the Power of Engagement Boosting YouTube Traffic</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-sign-up-saga-crafting-your-digital-persona-facebook-for-2024/"><u>[New] Sign Up Saga Crafting Your Digital Persona (Facebook) for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-beantech-bitwatch-s1-plus-smartwatch-assessment-an-engaging-gadget-for-savvy-shoppers/"><u>Affordable Beantech Bitwatch S1 Plus Smartwatch Assessment – An Engaging Gadget for Savvy Shoppers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-value-packed-oneplus-nord-n100-smartphone-on-a-shoestring-budget/"><u>Comprehensive Analysis of the Value-Packed OnePlus Nord N100 Smartphone on a Shoestring Budget</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-and-expert-review-on-the-all-rounder-samsung-galaxy-tab-s4-tablet/"><u>Comprehensive Guide and Expert Review on the All-Rounder Samsung Galaxy Tab S4 Tablet</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/detailed-assessment-of-hc-wxf991s-video/"><u>Detailed Assessment of HC-WXF991's Video</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-silent-woes-solutions-for-world-of-warcrafts-audio-problem/"><u>Fixing Silent Woes: Solutions for World of Warcraft's Audio Problem</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-best-online-meeting-capture-the-leading-5-gadgets/"><u>In 2024, Best Online Meeting Capture The Leading 5 Gadgets</u></a></li>
-<li><a href="https://facebook.techidaily.com/january-update-will-fb-lift-trump-ban/"><u>January Update: Will FB Lift Trump Ban?</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/leverage-cookiebots-capabilities-to-skyrocket-your-website-traffic-and-conversions/"><u>Leverage Cookiebot's Capabilities to Skyrocket Your Website Traffic and Conversions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-the-hunt-for-premium-phones-the-leading-stores-with-unmatched-selections/"><u>Mastering the Hunt for Premium Phones: The Leading Stores with Unmatched Selections</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/probing-financial-depths-an-analysis-of-mr-beasts-wealth/"><u>Probing Financial Depths An Analysis of Mr. Beast's Wealth</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-apple-airtag-why-its-perfect-for-your-iphone-experience/"><u>Unveiling the Apple AirTag: Why It's Perfect for Your iPhone Experience</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-serene-gaming-selection-quietest-phone-apps/"><u>[Updated] 2024 Approved Serene Gaming Selection Quietest Phone Apps</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-best-of-the-rest-cutting-edge-vr-games-for-google-cardboard/"><u>[Updated] Best of the Rest Cutting-Edge VR Games for Google Cardboard</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-exploring-virtuality-current-realities-future-hurdles-for-2024/"><u>[Updated] Exploring Virtuality Current Realities, Future Hurdles for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-lightning-snag-techniques-to-download-tiktok-shorts/"><u>2024 Approved Lightning Snag Techniques to Download TikTok Shorts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/applecare-plus-essentials-top-5-reasons-to-sign-up-for-it/"><u>AppleCare Plus Essentials: Top 5 Reasons to Sign Up for It</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-e-readers-and-tablets-the-key-differences-between-kindle-and-fire/"><u>Comparing E-Readers and Tablets: The Key Differences Between Kindle and Fire</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-data-from-vivo-y27-4g-by-fonelab-android-recover-data/"><u>Easy steps to recover deleted data from Vivo Y27 4G</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-microsoft-surface-studio-2-is-its-high-cost-worth-it/"><u>Evaluating the Microsoft Surface Studio 2: Is Its High Cost Worth It?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-7-superior-mac-video-applications/"><u>In 2024, 7 Superior Mac Video Applications</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Xiaomi Redmi K70E? | Dr.fone</u></a></li>
+<li><a href="https://app-tips.techidaily.com/is-1password-a-high-value-investment-comprehensive-expert-evaluation-of-this-top-tier-password-solution-insights-from-tech-sector-leaders/"><u>Is 1Password a High-Value Investment? Comprehensive Expert Evaluation of This Top-Tier Password Solution - Insights From Tech Sector Leaders</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mesh-wireless-justifiable-expenses/"><u>Mesh Wireless: Justifiable Expenses?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/senso-activbuds-wireless-headphones-review/"><u>Senso ActivBuds Wireless Headphones Review</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/spotting-bingchatgpt-token-conspiracies-in-the-digital-space-for-safety-and-security/"><u>Spotting BingChatGPT Token Conspiracies in the Digital Space for Safety and Security</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-asus-zenwifi-xt8-ax6600-test-run-comprehensive-guide-to-advanced-mesh-wi-fi-systems/"><u>The ASUS ZenWiFi XT8 AX6600 Test Run: Comprehensive Guide to Advanced Mesh Wi-Fi Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-choosing-high-quality-styli-for-ipads/"><u>Ultimate Guide to Choosing High-Quality Styli for iPads</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-samsung-galaxy-s20-fe-with-5g-the-perfect-choice-for-tech-enthusiasts/"><u>Ultimate Guide to the Samsung Galaxy S20 FE with 5G - The Perfect Choice for Tech Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-logitech-c920-pro-hd-webcam-unveiling-true-high-definition/"><u>Ultimate Guide: Logitech C920 Pro HD Webcam - Unveiling True High-Definition</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-realme-v30t-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Realme V30T Has Black Screen of Death? | Dr.fone</u></a></li>
 </ul></div>
 

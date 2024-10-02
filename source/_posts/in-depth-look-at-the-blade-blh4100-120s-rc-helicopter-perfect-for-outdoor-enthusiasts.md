@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Look at the Blade BLH4100 120S RC Helicopter: Perfect for Outdoor Enthusiasts"
-date: 2024-09-22T00:24:28.545Z
-updated: 2024-09-27T07:37:00.754Z
+date: 2024-09-26T21:53:39.462Z
+updated: 2024-10-02T09:30:48.651Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Look at the Blade BLH4100 120S RC Helicopter: Perfect for Outdoor Enthusiasts"
@@ -49,6 +49,13 @@ Lifewire / Emily Isaacs
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/-RQ5Ui3BjE0KxHGHYE-UjNz7EY4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_HeroSquare-b4b1522941d44a18b75a586155788477.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Emily Isaacs
 
 [View On Amazon $1,499](https://www.amazon.com/dp/B07NHQ4CXM?tag=lifewire-onsite-prod-20&ascsubtag=4782074%7Cnbf356f5c2a82467e96b6fbc9b5b4691023%7CB07NHQ4CXM) [View On Walmart $3,497](https://www.walmart.com/ip/LG-65-Class-OLED-C9-Series-4K-2160P-Smart-Ultra-HD-HDR-TV-OLED65C9PUA-2019-Model/543371577)
@@ -75,13 +82,6 @@ Lifewire / Emily Isaacs
 
  Lifewire / Emily Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Smart and sleek**
 
 [OLED TVs](https://www.lifewire.com/oled-tv-basics-1846926) are among the best money can buy, characterized by their ability to produce a wide range of colors alongside deep, rich blacks by toggling individual pixels to emit their own light. On top of this, OLED frames are thinner and lighter than their LED predecessors. It’s a powerful combination that makes for a startlingly realistic picture alongside an expanded range of placement options. In the case of the LG C9, it’s a design that’s as smart as it is sleek thanks to the inclusion of Google Assistant and Alexa.
@@ -94,14 +94,14 @@ Lifewire / Emily Isaacs
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/mxKfDJGuIKYcsSIQoKfzwDbYYmg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_02-3da87ff8439343f691cf02e9234d1f04.jpg)
 
- Lifewire / Emily Isaacs
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Emily Isaacs
 
 ## **Setup Process: Do it yourself worthy, but you’ll need a hand**
 
@@ -117,13 +117,6 @@ Lifewire / Emily Isaacs
 
  Once the TV has been installed, LG’s WebOS guides the first-time setup process by prompting inputs for settings ranging from time zone and language up to and including any necessary user agreements. The LG C9 will complete a scan in order to identify the devices and then you’re free to customize the TV’s settings by pressing the gear button on the LG Magic Remote. The first setting we changed was the Auto Power Saving (APS) picture mode, which reduces power use by dimming the brightness of the TV. The other important setting to disable is TruMotion, which smooths motion in TV shows and movies by altering the frame rate of the programming. If your LG’s picture looks a bit too much like a soap opera, chances are you need to disable this setting.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Image Quality: Stunning picture**
 
  The image quality on the LG C9 is, frankly, stunning thanks in large part to its excellent contrast and wide range of colors, combined with the OLED panel’s ability to turn individual pixels on and off. Even from wide viewing angles, the 4K picture maintains its excellence, with limited washing out and color loss.
@@ -134,20 +127,27 @@ Lifewire / Emily Isaacs
 
  These pictures are further enhanced with LG’s α9 Gen 2 intelligent processor, new to 2019’s model. It excels at drawing out detail and correcting quality discrepancies within the picture, such as banding which creates textures and strips in areas of the screen that would otherwise be smooth. This is particularly important given the large screen size and high resolution. While it’s not as bright as an LED TV since it lacks backlighting, it doesn’t need it as the TV already possesses excellent color, a change here would risk washing out the inky blacks on the screen.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Audio: Better than expected**
 
  While OLED TVs aren’t generally known for their great sound quality, the LG C9 has a surprisingly good sound system all things considered—but a soundbar would still be recommended. Audio in TV or movies is generally good, but it struggles to regulate loud and soft noises in a scene. Streaming Lizzo’s_Cuz I Love You_ on Spotify produces a surprising depth of sound, but it’s simply not comparable to a more robust system that a soundbar or home theater system would provide.
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/SZUaFESJi6OZubIeLdK1e9L9FEM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_04-c559e4cc6de64f0c8baf4470f883dd9e-4844a7694fb74eb2904f1128ba93f760.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Smooth and easy to use**
 
@@ -157,18 +157,18 @@ Lifewire / Emily Isaacs
 
  In addition to the WebOS software, the LG C9 also comes with Google Assistant as well as Amazon’s Alexa. It makes it easy to search content, switch between apps and features, or check the weather, among other things.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: A premium price for a premium TV**
 
  65-inch 4K TV’s generally retail for between $800-$5,000, and this cost jumps further as screen size increases. The LG C9 is a premium 4K TV that sits at the top of this curve, offering integrated smart technologies and excellent picture with an intuitive, easy-to-use interface. As such, it comes at a premium price of $2,500 (Amazon) that exceeds the cost of many competitor models, but with so many additional features it’s worth the high price—even if it’s difficult to swallow.
 
 [How to Buy a TV For Your Home in 2024](https://www.lifewire.com/best-60-inch-tvs-4580159)
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **LG OLED C9 65-inch vs. Samsung 65-inch Class Q60R**
 
@@ -231,22 +231,14 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-achieving-profitability-on-youtube-average-view-count-for-success/"><u>[New] 2024 Approved Achieving Profitability on YouTube Average View Count for Success</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-fabricate-funny-faces/"><u>[Updated] Fabricate Funny Faces</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-unlock-social-data-with-top-free-facebook-downloaders/"><u>[Updated] Unlock Social Data with Top Free Facebook Downloaders</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-how-to-eliminate-live-sharing-on-devices/"><u>2024 Approved How to Eliminate Live Sharing on Devices</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/5-best-voice-recorders-for-mac-devices/"><u>5 Best Voice Recorders for Mac Devices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-the-mobvoi-ticwatch-pro-3-dual-screens-and-extended-endurance-reviewed/"><u>Comprehensive Guide to the Mobvoi TicWatch Pro 3: Dual Screens & Extended Endurance Reviewed</u></a></li>
-<li><a href="https://techtrends.techidaily.com/comprehensive-instructions-on-syncing-different-gadgets-with-one-handy-universal-remote-device/"><u>Comprehensive Instructions on Syncing Different Gadgets with One Handy Universal Remote Device</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-compact-and-reliable-audew-portable-air-pump-functionality-unmatched/"><u>Comprehensive Review of the Compact and Reliable AUDEW Portable Air Pump - Functionality Unmatched</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/d-links-pl-2000-powerline-solution-evaluation-user-friendly-setup-lightning-fast-data-sharing/"><u>D-Link's PL 2000 Powerline Solution Evaluation - User-Friendly Setup, Lightning-Fast Data Sharing!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/doggone-delightful-pet-and-player-fun/"><u>Doggone Delightful: Pet and Player Fun</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/drive-smarter-with-the-ix-escort-radar-detector-ai-enhanced-road-safety-on-the-go/"><u>Drive Smarter with the iX Escort Radar Detector: AI-Enhanced Road Safety on the Go</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/echo-dot-3rd-gen-review-everything-alexa-has-to-offer-in-a-tiny-package/"><u>Echo Dot (3Rd Gen) Review: Everything Alexa Has to Offer in a Tiny Package</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-android-at-its-finest-with-our-expert-google-pixel-3-evaluation/"><u>Experience Android at Its Finest with Our Expert Google Pixel 3 Evaluation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-tp-link-wifi-re505x-range-booster-capabilities/"><u>Expert Analysis of TP-Link WiFi RE505X Range Booster Capabilities</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-linking-perfection-incorporating-linktree-into-your-tiktok-profile/"><u>In 2024, Linking Perfection Incorporating Linktree Into Your TikTok Profile</u></a></li>
-<li><a href="https://win11.techidaily.com/navigating-windows-11-for-home-interface/"><u>Navigating Windows 11 for Home Interface</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/prime-fb-videos-deciding-on-the-best-ten-for-2024/"><u>Prime FB Videos Deciding on the Best Ten for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-launching-into-the-spotlight-instagram-lives/"><u>[Updated] 2024 Approved Launching Into the Spotlight Instagram Lives</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-harmonizing-different-footage-sources-on-ios-device/"><u>[Updated] In 2024, Harmonizing Different Footage Sources on iOS Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-your-digital-sketches-with-the-xp-pen-artist-16-pro-an-in-depth-analysis/"><u>Elevate Your Digital Sketches with the XP-Pen Artist 16 Pro: An In-Depth Analysis</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ce-video-reach-strategic-insights-into-youtubes-tag-system-for-2024/"><u>Enhance Video Reach Strategic Insights Into YouTube's Tag System for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/romer-rechargeable-torch-reviewed-the-eco-conscious-way-to-illuminate-the-great-outdoors-with-style-and-strength/"><u>Romer Rechargeable Torch Reviewed: The Eco-Conscious Way to Illuminate the Great Outdoors with Style & Strength</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-undetected-window-two-screen-issue/"><u>Solving Undetected Window Two-Screen Issue</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-sound-wings-under-20-new-beelc-41/"><u>The Best Sound Wings Under $20: New BeeLC-41</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-8-tips-to-boost-your-iphones-wi-fi-connectivity-and-speed/"><u>Top 8 Tips to Boost Your iPhone's Wi-Fi Connectivity and Speed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/user-insights-on-google-duo-a-critical-review-for-seamless-conversations/"><u>User Insights on Google Duo: A Critical Review for Seamless Conversations</u></a></li>
 </ul></div>
 

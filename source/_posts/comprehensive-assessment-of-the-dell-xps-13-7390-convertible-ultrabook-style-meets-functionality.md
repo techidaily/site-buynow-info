@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Assessment of the Dell XPS 13 7390 Convertible Ultrabook - Style Meets Functionality
-date: 2024-09-20T00:04:17.392Z
-updated: 2024-09-26T22:54:20.732Z
+date: 2024-09-27T00:40:55.681Z
+updated: 2024-10-01T21:13:11.484Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Assessment of the Dell XPS 13 7390 Convertible Ultrabook - Style Meets Functionality
@@ -41,13 +41,6 @@ Lifewire / Jonno Hill
 
 4.4
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Clearstream ECLIPSE
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/0gXsFyigpZzsnNAEj3tIrKImB8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
@@ -75,17 +68,37 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/AbdriPZwiRfd8iHxT9N5E6Ae2hk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_03-d434cf7b4c5f4f73b08c8c220fd0d43e.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Inoffensive but unexceptional**
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup: Simple and easy**
@@ -100,13 +113,6 @@ Lifewire / Jonno Hill
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Range: Fair to middling**
 
  Antenna’s Direct rates the ClearStream Eclipse Antenna for up to 35 miles of range, although I’ve seen reports of people getting good results from further, or having trouble from much closer. My apartment is well within the supported range, so my sentiments reflect its use in city settings more than suburbs or exurbs.
@@ -115,22 +121,16 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
-
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
@@ -169,22 +169,18 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/new-the-prime-selection-top-ranked-gopro-case-models/"><u>[New] The Prime Selection Top-Ranked GoPro Case Models</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-bypassing-blockbusters-2023-indie-favorites-for-2024/"><u>[Updated] Bypassing Blockbusters 2023 Indie Favorites for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-simplifying-avi-gif-conversion-with-filmora-on-windowsmac/"><u>[Updated] Simplifying AVI-GIF Conversion with Filmora on Windows/Mac</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-unraveling-the-meaning-and-usage-of-blue-emoji-in-fb-messages/"><u>[Updated] Unraveling the Meaning and Usage of Blue Emoji in FB Messages</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/enhance-gaming-bliss-ps5xbox-series-x-screen-revelations/"><u>Enhance Gaming Bliss PS5/Xbox Series X Screen Revelations</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-lava-yuva-3-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Lava Yuva 3 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/inside-scoop-fixing-your-issue-with-minecraft-connection-to-world-unable/"><u>Inside Scoop: Fixing Your Issue with 'Minecraft Connection to World Unable'</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solution-guide-troubleshooting-and-fixing-non-functional-redragon-microphone-compatibility-with-windows/"><u>Solution Guide: Troubleshooting and Fixing Non-Functional Redragon Microphone Compatibility with Windows</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-breath-of-life-with-quick-charge-on-jabra-talk-25/"><u>The Breath of Life with Quick Charge on Jabra Talk 25</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-definitive-ranking-how-apples-ipad-pro-11-2018-outshines-competitors-in-tablet-tech/"><u>The Definitive Ranking: How Apple's iPad Pro 11 (2018) Outshines Competitors in Tablet Tech</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-truth-about-the-lg-k9n-is-a-5g-phone-upgrade-justified/"><u>The Truth About the LG K9n: Is a 5G Phone Upgrade Justified?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-buyers-guide-to-choosing-a-superior-cable-modem/"><u>The Ultimate Buyer's Guide to Choosing a Superior Cable Modem</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-buying-a-google-pixel-n-n-4a-5g-reasons-why-its-worth-your-money/"><u>The Ultimate Guide to Buying a Google Pixel N N 4a 5G - Reasons Why It's Worth Your Money!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-unihertz-atom-xl-how-a-small-device-packs-big-performance-punches/"><u>The Ultimate Guide to the Unihertz Atom XL: How a Small Device Packs Big Performance Punches</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-samsung-galaxy-a20-smartphone-review-is-it-worth-your-money/"><u>Top Samsung Galaxy A20 Smartphone Review: Is It Worth Your Money?</u></a></li>
-<li><a href="https://driver-error.techidaily.com/troubleshooting-intel-management-engine/"><u>Troubleshooting Intel Management Engine</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-the-urban-armor-gear-macbook-case-a-blend-of-strength-and-utility/"><u>Unboxing and Testing the Urban Armor Gear MacBook Case: A Blend of Strength & Utility</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-joining-the-social-tv-revolution-fb-live-and-roku-interactions/"><u>[New] In 2024, Joining the Social TV Revolution FB Live & Roku Interactions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-how-to-forge-strong-content-partnerships-on-youtube/"><u>[Updated] 2024 Approved How to Forge Strong Content Partnerships on YouTube</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-replace-periscope-top-6-mobile-video-applications/"><u>[Updated] In 2024, Replace Periscope Top 6 Mobile Video Applications</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-high-quality-fta-tv-with-amazons-basics-flat-antenna-a-cost-effective-solution/"><u>Experience High-Quality FTA TV with Amazon's Basics Flat Antenna: A Cost-Effective Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-ultimate-jrpg-in-yakuza-like-a-dragon-dont-miss-out/"><u>Experience the Ultimate JRPG in Yakuza: Like a Dragon – Don't Miss Out!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fitbit-versa-2-review/"><u>Fitbit Versa 2 Review</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/free-online-tool-seamless-conversion-from-pcx-images-to-jpeg-format-with-ease/"><u>Free Online Tool: Seamless Conversion From PCX Images to JPEG Format with Ease</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-a-oneplus-12r-easily-by-drfone-android/"><u>How To Unlock a OnePlus 12R Easily?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exclusive-look-the-10-best-countdown-clock-apps-for-your-big-event-androidios/"><u>In 2024, Exclusive Look The 10 Best Countdown Clock Apps for Your Big Event (Android/iOS)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/safeguarding-apples-handheld-an-evaluation-of-the-six-best-antivirus-applications-for-iphones/"><u>Safeguarding Apple's Handheld: An Evaluation of The Six Best Antivirus Applications for iPhones</u></a></li>
+<li><a href="https://win11.techidaily.com/strategies-to-address-code-0x0001-glitches-in-ge-and-windows-os/"><u>Strategies to Address Code 0X0001 Glitches in GE & Windows OS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-amazing-portability-of-amazon-basics-tablet-holder-a-comprehensive-review/"><u>The Amazing Portability of Amazon Basics' Tablet Holder - A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-notch-auditory-experience-professional-insights-on-creative-labs-sound-blaster-zxr-201n/"><u>Top-Notch Auditory Experience: Professional Insights on Creative Labs’ Sound Blaster ZXR (201N)</u></a></li>
 </ul></div>
 

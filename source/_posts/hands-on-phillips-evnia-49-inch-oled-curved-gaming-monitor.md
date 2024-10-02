@@ -1,7 +1,7 @@
 ---
 title: "Hands-On: Phillips Evnia 49-Inch OLED Curved Gaming Monitor"
-date: 2024-09-23T18:31:28.204Z
-updated: 2024-09-26T21:54:17.135Z
+date: 2024-09-29T07:28:42.994Z
+updated: 2024-10-01T21:28:42.221Z
 categories:
   - BestProducts
 description: "This Article Describes Hands-On: Phillips Evnia 49-Inch OLED Curved Gaming Monitor"
@@ -41,16 +41,16 @@ Lifewire / Kelsey Simon
 
 3.8
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Days Gone
 
 ![Days Gone](https://www.lifewire.com/thmb/OhLBxtaDQ5jb89rJmIMnan1soS4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Days-Gone-Zombie-Game-PS4-1-ecafdc83e8e0460cbc31b8b0e4976faa.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -78,10 +78,10 @@ Lifewire / Kelsey Simon
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: A long installation process**
@@ -89,13 +89,6 @@ Lifewire / Kelsey Simon
  If you purchased the game on disc, when you first pop it into your PlayStation 4 you’ll have to update. The update is fairly large, so be prepared to wait. The game finally launches, you'll be prompted to select between easy, normal, or hard difficulty, and then treated to a scene-setting introductory cutscene.
 
 ![Days Gone](https://www.lifewire.com/thmb/HE8j4XoxbKMWIQagUtGCXFf6bKo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-2-3b29272bf1b2423781e104041dc00457.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -113,7 +106,21 @@ As in most zombie fiction, the real monster is man.
 
 ![Days Gone](https://www.lifewire.com/thmb/XWR-CgFF865KBE1ipv7cwdi-P3w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Days-Gone-Zombie-Game-PS4-5-b1914ac9859b409d9460fea24fc7f251.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Gameplay: Standard zombie action with bikers**
 
@@ -132,10 +139,10 @@ As in most zombie fiction, the real monster is man.
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Graphics: Smooth and detailed**
@@ -164,13 +171,6 @@ As in most zombie fiction, the real monster is man.
 
  Days Gone is a game that tried very hard to combine two tropes very much in the entertainment zeitgeist in the past few years—zombies and bikers. It's graphically strong, with great character animations and detailed environments and character models. The clunky controls and some pacing issues may make recommending it at full price difficult, but on sale, it's an easy pickup, especially for zombie fans shopping for an entertaining PS4 game.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  Days Gone
@@ -192,19 +192,19 @@ As in most zombie fiction, the real monster is man.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/he-ultimate-gear-list-for-any-aspiring-vlogger-top-12-cameras/"><u>[New] The Ultimate Gear List for Any Aspiring Vlogger - Top 12 Cameras</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-visionary-storylines-in-the-eight-genre-sphere-for-2024/"><u>[New] Visionary Storylines in the Eight Genre Sphere for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-the-ultimate-list-10-text-effects-to-elevate-your-clips/"><u>2024 Approved The Ultimate List 10 Text Effects to Elevate Your Clips</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/from-words-to-memories-recording-with-iphone-for-2024/"><u>From Words to Memories Recording with iPhone for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/get-more-bang-for-your-buck-with-the-budget-friendly-arcshell-ar-5/"><u>Get More Bang for Your Buck with the Budget-Friendly Arcshell AR-5</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-realme-11-pro-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Realme 11 Pro Phones with/without a PC</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-apple-iphone-6s-drfone-by-drfone-ios/"><u>How to Remove and Reset Face ID on Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-swagtron-swagger-scooter-redefining-fashionable-urban-mobility/"><u>In-Depth Look at Swagtron Swagger Scooter: Redefining Fashionable Urban Mobility</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/inside-the-tascam-cd-200bt-a-professional-music-player-for-studio-and-field-use/"><u>Inside the Tascam CD-200BT: A Professional Music Player for Studio and Field Use</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-a-monthly-subscription-to-netflix-a-smart-move/"><u>Is a Monthly Subscription to Netflix A Smart Move?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/key-guidelines-in-selecting-previously-owned-gadgets/"><u>Key Guidelines in Selecting Previously Owned Gadgets</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/linksys-ea9500-router-review-powerful-router-with-intelligent-technology/"><u>Linksys EA9500 Router Review: Powerful Router with Intelligent Technology</u></a></li>
-<li><a href="https://fox-that.techidaily.com/solving-location-unavailable-issues-a-step-by-step-guide-for-iphone-users/"><u>Solving 'Location Unavailable' Issues: A Step-by-Step Guide for iPhone Users</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-novices-route-to-rapidly-play-videos-on-snapchat-for-2024/"><u>The Novice's Route to Rapidly Play Videos on Snapchat for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-how-to-make-a-cooking-video-in-steps-an-ultimate-guide/"><u>[New] 2024 Approved How to Make a Cooking Video in Steps - an Ultimate Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boosting-blog-income-through-effective-advertisement-on-buyselladscom/"><u>Boosting Blog Income Through Effective Advertisement on BuySellAds.com</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-for-leading-karaoke-machines-edition/"><u>Expert Picks for Leading Karaoke Machines Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-top-performing-optical-drives-on-the-market/"><u>Expert Picks: Top-Performing Optical Drives on the Market</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-zoom-strategy-for-fb-live-success/"><u>In 2024, The Ultimate Zoom Strategy for FB Live Success</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-studio-screening-shorts/"><u>In 2024, Top Studio Screening Shorts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-untapped-realities-of-instagram-story-watchers/"><u>In 2024, Untapped Realities of Instagram Story Watchers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/key-factors-to-assess-when-purchasing-a-lock-free-mobile-device/"><u>Key Factors to Assess When Purchasing a Lock-Free Mobile Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-your-budget-with-the-highly-reliable-acer-aspire-e-15/"><u>Maximizing Your Budget with the Highly Reliable Acer Aspire E 15</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-alluring-saga-and-advantages-of-persian-study/"><u>The Alluring Saga and Advantages of Persian Study</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/toms-tech-reviews-insights-on-the-latest-computer-gear/"><u>Tom's Tech Reviews: Insights on the Latest Computer Gear</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-3-livres-de-descarga-gratuita-para-extracao-de-dvd-no-windows-11-complete-download-guide/"><u>Top 3 Livres De Descarga Gratuita Para Extração De DVD No Windows 11: Complete Download Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-infinix-note-30-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Infinix Note 30 Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-lamicall-s-tablet-base-a-thorough-appraisal-of-user-friendly-features/"><u>Unveiling the Lamicall S Tablet Base: A Thorough Appraisal of User-Friendly Features</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Empire Rising and Falling in 'Imperator: Rome' – An In-Depth Game Review"
-date: 2024-09-19T23:07:01.301Z
-updated: 2024-09-26T20:22:29.902Z
+date: 2024-09-25T01:26:22.022Z
+updated: 2024-10-02T00:55:05.265Z
 categories:
   - BestProducts
 description: "This Article Describes Empire Rising and Falling in 'Imperator: Rome' – An In-Depth Game Review"
@@ -41,9 +41,23 @@ Lifewire / Kelsey Simon
 
 2.7
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -69,6 +83,13 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
  This whole introduction is slow moving and boring, and getting through it is rough. But even past this, things don’t necessarily pick up and get more interesting. The game has such a heavy hand with its narration, telling you the game’s visuals even though you can see them right there on your screen. The whole game reads like someone wrote a novel, couldn’t publish it, and then decided making a[video game](https://www.lifewire.com/best-gaming-consoles-4154610) was a better idea, and instead of trimming the fat, they left every unnecessary description and detail in the game’s prompt.
@@ -82,13 +103,6 @@ Lifewire / Kelsey Simon
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -112,21 +126,7 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Only worth it if you’re keen on the story**
 
@@ -135,13 +135,6 @@ Lifewire / Kelsey Simon
  That said, if role-playing games with a text-heavy focus are of interest to you, then the game does have a lot to offer for the cost. The world of Numenera is vast, and considering all the prompts that alter the story, the game also has a lot of replayability. While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else, and for those players, the $50 cost will be worth it.
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Other story focused RPGs**
 
@@ -154,6 +147,13 @@ Lifewire / Kelsey Simon
  **A text-heavy RPG that doesn’t live up to its predecessor.**
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -178,22 +178,22 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-moviemakermag-all-about-androvid-editor/"><u>[New] MovieMakerMag All About AndroVid Editor</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-enhancing-conversion-rates-with-twitter-ads/"><u>[Updated] Enhancing Conversion Rates with Twitter Ads</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-capturing-vistas-with-the-high-end-z32x-monitor/"><u>2024 Approved Capturing Vistas with the High-End Z32X Monitor</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apples-vision-pro-a-must-buy-heres-why/"><u>Apple's Vision Pro – A Must-Buy? Here’s Why</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/complete-tutorial-for-implementing-the-arctic-zephyr-2-design-into-kodi-environment/"><u>Complete Tutorial for Implementing the Arctic Zephyr 2 Design Into Kodi Environment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-uninterrupted-connectivity-the-amplifi-hd-mesh-wi-fi-system-evaluation/"><u>Experience Uninterrupted Connectivity - The Amplifi HD Mesh Wi-Fi System Evaluation</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/helldivers-2-pc-malfunctioning-here-are-reliable-solutions/"><u>Helldivers 2 PC Malfunctioning? Here Are Reliable Solutions!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-does-vibers-paid-calls-function-unraveling-the-mystery-and-sharing-experiences/"><u>How Does Viber's Paid Calls Function? Unraveling The Mystery & Sharing Experiences</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-viral-velocity-on-instagram-leveraging-video-and-likes/"><u>In 2024, Viral Velocity on Instagram Leveraging Video & Likes</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-vonage-still-the-best-voip-service-provider/"><u>Is Vonage Still the Best VoIP Service Provider?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/netgears-ac1200-wifi-booster-unveiled-an-in-depth-review-of-the-ex6200-range-extender-for-ultimate-connectivity/"><u>Netgear's AC1200 WiFi Booster Unveiled: An In-Depth Review of the EX6200 Range Extender for Ultimate Connectivity.</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/top-spots-unveiling-stunning-no-cost-tiktok-backgrounds-for-2024/"><u>Top Spots Unveiling Stunning, No-Cost TikTok Backgrounds for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-premier-wireless-range-enhancers/"><u>Ultimate Guide to the Premier Wireless Range Enhancers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-selection-of-leading-pc-soundcards-for-the-year-2024/"><u>Ultimate Selection of Leading PC Soundcards for the Year 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-the-nook-glowlight-4-reading-device-a-detailed-guide/"><u>Unboxing & Testing the Nook GlowLight 4 Reading Device - A Detailed Guide</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unveiling-the-latest-in-technology-at-toms-hardware/"><u>Unveiling the Latest in Technology at Tom's Hardware</u></a></li>
-<li><a href="https://win-forum.techidaily.com/fhm-alyat-alhd-mn-tkalyf-alshhn-oalirgaaa-lbdaa-mntgat/"><u>فهم آليات الحد من تكاليف الشحن والإرجاع لبضع منتجات</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essentials-for-youtube-music-playlists/"><u>[New] Essentials for YouTube Music Playlists</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-identifying-exclusion-from-chatsphere-for-2024/"><u>[New] Identifying Exclusion From Chatsphere for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-advanced-techniques-to-manage-safe-area-multitasking/"><u>2024 Approved Advanced Techniques to Manage Safe Area Multitasking</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-androids-top-gaming-app-kinemaster-unveiled/"><u>2024 Approved Android's Top Gaming App KineMaster Unveiled</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-the-ultimate-xbox-one-shutterbug-techniques/"><u>2024 Approved The Ultimate Xbox One Shutterbug Techniques</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/award-winning-scripts-exposed/"><u>Award-Winning Scripts Exposed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bisio-basic-watch-assessment-stellar-performance-at-an-affordable-price-point/"><u>Bisio Basic Watch Assessment: Stellar Performance at an Affordable Price Point</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/can-tp-links-archer-ax6000-outperform-netgears-nighthawk-ax12-in-speed-and-reliability-expert-insights-inside/"><u>Can TP-Link's Archer AX6000 Outperform Netgear's Nighthawk AX12 in Speed & Reliability? Expert Insights Inside!</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/capture-perfection-optimal-use-of-zoom-feature-for-photos-and-videos-for-2024/"><u>Capture Perfection Optimal Use of Zoom Feature for Photos & Videos for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-apple-homepod-mini-evaluation-sound-quality-voice-assistant-and-additional-features/"><u>Comprehensive Apple HomePod Mini Evaluation: Sound Quality, Voice Assistant & Additional Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-how-does-the-latest-generation-amazon-fire-hd-eight-stack-up-in-affordability-and-performance/"><u>Comprehensive Review: How Does The Latest Generation Amazon Fire HD Eight Stack Up in Affordability and Performance?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/crafting-the-ideal-drone-lipo-energy-allies-for-2024/"><u>Crafting the Ideal Drone - LiPo Energy Allies for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/definitive-guide-to-address-svchostexe-overutilization-of-cpu-resources-in-windows-11/"><u>Definitive Guide to Address svchost.exe Overutilization of CPU Resources in Windows 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-byb-e430-a-superior-swing-arm-led-illumination-solution-reviewed/"><u>Evaluating the BYB E430: A Superior Swing-Arm LED Illumination Solution Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/snap-up-spectacular-deals-prime-day-specials-for-all-models-of-roku-devices/"><u>Snap Up Spectacular Deals - Prime Day Specials for All Models of Roku Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-oculus-quest-2-experience-unparalleled-virtual-reality-gaming-at-a-phenomenal-bargain/"><u>The Oculus Quest 2 Experience: Unparalleled Virtual Reality Gaming at a Phenomenal Bargain</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/xbox-controller-revolution-our-expert-take-on-why-the-elite-series-is-a-gamepad-legend/"><u>Xbox Controller Revolution: Our Expert Take on Why the Elite Series ² Is a Gamepad Legend</u></a></li>
 </ul></div>
 

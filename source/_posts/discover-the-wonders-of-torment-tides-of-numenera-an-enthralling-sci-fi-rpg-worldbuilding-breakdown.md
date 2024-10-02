@@ -1,7 +1,7 @@
 ---
 title: "Discover the Wonders of 'Torment: Tides of Numenera': An Enthralling Sci-Fi RPG Worldbuilding Breakdown"
-date: 2024-09-26T07:39:57.054Z
-updated: 2024-09-26T18:48:16.060Z
+date: 2024-09-27T07:13:01.057Z
+updated: 2024-10-01T23:59:40.144Z
 categories:
   - BestProducts
 description: "This Article Describes Discover the Wonders of 'Torment: Tides of Numenera': An Enthralling Sci-Fi RPG Worldbuilding Breakdown"
@@ -82,6 +82,13 @@ thumbnail: https://thmb.techidaily.com/38800d1bcd9a0db51e74a8d6e9d259f45c0a81d4c
 * **Who else recommends it?** TechRadar, Wired, T3, Tom’s Guide, Digital Trends, and CNET recommend the Nintendo Switch OLED.
 * **What do buyers think?** 90% of buyers on Amazon have rated the Nintendo Switch OLED five stars, with the console having an average score of 4.8 out of 5.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Also Great
 
 [Valve Steam Deck](https://www.amazon.com/Valve-Handheld-Console-No-Operating-System/dp/B0BBQRYN9M?tag=lifewire-onsite-prod-20&ascsubtag=8656300%7Cn828e9c21ba084df1b24d3ffdd45b85b813%7CB0BBQRYN9M)
@@ -126,13 +133,6 @@ thumbnail: https://thmb.techidaily.com/38800d1bcd9a0db51e74a8d6e9d259f45c0a81d4c
 * **Who else recommends it?** The Verge, Forbes, IGN, PCGamer, and Wired have all recommended the Steam Deck with the Steam Deck OLED considered a particular highlight.
 * **What do buyers think?** The Steam Deck has sold over 3 million units on the Steam website. Relatively recently featured on Amazon, it has 86% four- or five-star ratings across 564 reviews.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Easiest on the Budget
 
 [Hyper Mega Tech Super Pocket](https://www.walmart.com/ip/Hyper-Mega-Tech-Capcom-Super-Pocket-Retro-System/5194946970)
@@ -146,10 +146,10 @@ thumbnail: https://thmb.techidaily.com/38800d1bcd9a0db51e74a8d6e9d259f45c0a81d4c
 **TL;DR:** Old enough to remember the Nintendo Game Boy? This is a lot like that with plenty of nostalgic games on-board and more to be purchased separately. It’s perfect for anyone seeking nostalgia and it’s very keenly priced too.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Why We Recommend This
@@ -181,6 +181,13 @@ thumbnail: https://thmb.techidaily.com/38800d1bcd9a0db51e74a8d6e9d259f45c0a81d4c
 * **Who else recommends it?** TechRadar, GamesRadar, Stuff, and The Guardian have all highly rated the Hyper Mega Tech Super Pocket.
 * **What do buyers think?** Between the two models, the Hyper Mega Tech Super Pocket has an average rating of 4.5 out of 5 on Amazon. 84% of customers have rated the Capcom version 4 or 5 stars, with 90% rating the Taito the same score.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How I Test
 
  I reviewed every handheld gaming console featured here over a number of weeks. The Nintendo Switch OLED, Switch Lite, and Steam Deck were purchased by me, while the Hyper Mega Tech Super Pocket, and Logitech G Cloud were acquired on loan from the manufacturer.
@@ -188,10 +195,10 @@ thumbnail: https://thmb.techidaily.com/38800d1bcd9a0db51e74a8d6e9d259f45c0a81d4c
  While playing them, I focused on how fun they are to use, how portable they are, and how user-friendly they are.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Other Handheld Gaming Consoles We Considered
@@ -205,13 +212,6 @@ Logitech G Cloud.
 Lifewire / Jennifer Allen
 
  The[Logitech G Cloud](https://www.amazon.com/Logitech-Handheld-Long-Battery-Touchscreen-Lightweight-Tablet/dp/B09T9FHZLH?tag=lifewire-onsite-prod-20&ascsubtag=8656300%7Cn828e9c21ba084df1b24d3ffdd45b85b813%7C) is a device that allows you to play games via the cloud with ease. It supports Xbox Game Pass, GeForce Now, and Steam Cloud, effectively working as a custom Android tablet.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What to Look For
 
@@ -254,24 +254,20 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-realtime-game-scorekeeper/"><u>[New] RealTime Game Scorekeeper</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-from-individual-to-institutional-growth-in-youtube-space/"><u>[Updated] From Individual to Institutional Growth in YouTube Space</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-lunapic-101-a-step-by-step-photo-editing-guide/"><u>[Updated] LunaPic 101 A Step-by-Step Photo Editing Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-ergohead-standing-desk-mat-assessment-for-sustained-work-stamina/"><u>Comprehensive Ergohead Standing Desk Mat Assessment for Sustained Work Stamina</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/dissecting-device-based-learning-the-on-chip-approach/"><u>Dissecting Device-Based Learning: The On-Chip Approach</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-of-the-huawei-p20-pro-superior-camera-and-solid-smartphone-functions-combined/"><u>Expert Review of the Huawei P20 Pro: Superior Camera and Solid Smartphone Functions Combined</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/future-ready-the-ideal-modemrouter-duos-for-enhanced-home-networking-in-twenty-twenty-four/"><u>Future-Ready: The Ideal Modem/Router Duos for Enhanced Home Networking in ˈtwenty Twenty Four'</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-honor-magic-5-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Honor Magic 5 Phones with/without a PC</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/high-performance-thermaltake-laptop-chiller-assessment-overflowing-with-features-despite-the-cost/"><u>High-Performance Thermaltake Laptop Chiller Assessment: Overflowing with Features Despite the Cost</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-bypass-activation-lock-from-iphone-15-pro-max-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Bypass Activation Lock from iPhone 15 Pro Max</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-utilizing-speech-recognition-for-efficient-documentation-and-transcription-in-ms-word/"><u>In 2024, Utilizing Speech Recognition for Efficient Documentation and Transcription in MS Word</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/innovative-android-camera-apps-for-2024/"><u>Innovative Android Camera Apps for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mlb-the-show-19-analysis-stunning-visuals-meet-unexpected-rpg-features/"><u>MLB The Show 19 Analysis: Stunning Visuals Meet Unexpected RPG Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/motorola-one-hyper-assessment-powerful-performance-in-a-compact-mid-tier-device/"><u>Motorola One Hyper Assessment: Powerful Performance in a Compact Mid-Tier Device</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/quickstream-simple-steps-for-live-podcast-broadcasting-for-2024/"><u>Quickstream Simple Steps for Live Podcast Broadcasting for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revisiting-a-beloved-franchise-in-depth-assessment-of-the-new-and-improved-ratchet-and-clank/"><u>Revisiting a Beloved Franchise: In-Depth Assessment of the New and Improved Ratchet & Clank</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/sdr-to-super-hd-a-practical-guide-for-quality-improvement/"><u>SDR to Super HD A Practical Guide for Quality Improvement</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-high-end-glion-dolly-e-scooter-fancy-design-rapid-specs-hefty-tag/"><u>The High-End Glion Dolly E-Scooter - Fancy Design, Rapid Specs, Hefty Tag</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-blueear-bluetooth-enabled-beanie-hat-review-sleek-design-and-adequate-sound-quality-revealed/"><u>Unveiling the BlueEar Bluetooth-Enabled Beanie Hat Review: Sleek Design & Adequate Sound Quality Revealed</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-streamline-viewing-learn-to-insert-timestamps-on-videos/"><u>[New] Streamline Viewing Learn to Insert Timestamps on Videos</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-navigating-multi-platform-engagement-for-content-creators/"><u>2024 Approved Navigating Multi-Platform Engagement for Content Creators</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/easy-methods-to-extract-and-save-pictures-within-word-files/"><u>Easy Methods to Extract and Save Pictures Within Word Files</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-effectiveness-of-cyberpowers-entry-level-cp685avrg-backup-power-unit/"><u>Evaluating the Effectiveness of Cyberpower's Entry-Level CP685AVRG Backup Power Unit</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723015612812-google-meet-not-recognizing-mic-heres-how-to-fix-it-on-windows-11-and-10-devices/"><u>Google Meet Not Recognizing Mic? Here's How to Fix It on Windows 11 & 10 Devices!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Infinix Smart 7? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-nokia-c32-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Nokia C32 to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-asus-vivobook-11-assessment-ideal-for-the-space-conscious-consumer-on-a-budget/"><u>In-Depth Asus Vivobook 11 Assessment: Ideal for the Space-Conscious Consumer on a Budget</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-synology-rt2600ac-exceptional-range-and-parental-control-capabilities-in-one-unit/"><u>In-Depth Look at the Synology RT2600AC: Exceptional Range & Parental Control Capabilities in One Unit</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/solutions-for-your-hot-iphone-understanding-causes-and-remedies/"><u>Solutions for Your Hot iPhone: Understanding Causes and Remedies</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-blueprint-to-publicizing-your-private-ai-discussions/"><u>The Blueprint to Publicizing Your Private AI Discussions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ins-and-outs-of-vyncs-link-evaluation-robust-link-monitoring-with-obscure-membership-levels/"><u>The Ins and Outs of Vyncs Link Evaluation: Robust Link Monitoring With Obscure Membership Levels</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-assessing-lenovo-thinkpad-x1-fold-features-benefits-and-drawbacks/"><u>The Ultimate Guide to Assessing Lenovo ThinkPad X1 Fold - Features, Benefits, and Drawbacks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transition-to-power-shift-from-windows-10-home-to-pro/"><u>Transition to Power: Shift From Windows 10 Home to Pro</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unlocking-the-secrets-how-to-erase-your-personal-identification-number-pin-from-windows-10-system/"><u>Unlocking the Secrets: How To Erase Your Personal Identification Number (PIN) From Windows 10 System</u></a></li>
 </ul></div>
 

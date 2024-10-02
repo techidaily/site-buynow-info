@@ -1,7 +1,7 @@
 ---
 title: Experience Lighting Evolution - Exclusive Deal on the Powerful YN560IV
-date: 2024-09-19T22:11:22.005Z
-updated: 2024-09-26T18:31:50.723Z
+date: 2024-09-29T03:03:35.867Z
+updated: 2024-10-01T16:49:20.567Z
 categories:
   - BestProducts
 description: This Article Describes Experience Lighting Evolution - Exclusive Deal on the Powerful YN560IV
@@ -71,13 +71,6 @@ thumbnail: https://www.lifewire.com/thmb/D3JB0dOJvbzFClasEyEehvWN5c8=/400x300/fi
 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -85,13 +78,6 @@ thumbnail: https://www.lifewire.com/thmb/D3JB0dOJvbzFClasEyEehvWN5c8=/400x300/fi
  With very large sides, the front is really just a small panel with light-up LED indicators showing connectivity details and which Ethernet ports are in use. There’s also a small WPS button beneath the LED panel for easy connectivity with a router. On the wider back panel are the four wired[Ethernet ports](https://www.lifewire.com/what-is-an-ethernet-port-817546) for plugging in devices such as game consoles and computers, as well as a USB 3.0 port, DC power port, and the power button itself.
 
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Avoid the app**
 
@@ -105,7 +91,27 @@ thumbnail: https://www.lifewire.com/thmb/D3JB0dOJvbzFClasEyEehvWN5c8=/400x300/fi
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: Smooth sailing**
 
@@ -131,6 +137,13 @@ thumbnail: https://www.lifewire.com/thmb/D3JB0dOJvbzFClasEyEehvWN5c8=/400x300/fi
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: More than most**
 
  The Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender is listed at $250, although it’s being sold for $220 at multiple retailers as of this writing. That’s definitely on the higher end for an extender.
@@ -138,10 +151,10 @@ thumbnail: https://www.lifewire.com/thmb/D3JB0dOJvbzFClasEyEehvWN5c8=/400x300/fi
  Should you really spend that much on an extender? If you don’t already have a new Wi-Fi 6 router, then probably not. You might see higher peaks of speed as I did, but rather than trying to mix and match old and new tech, you’re probably better off investing in a new Wi-Fi mesh system that can cover the entire house. Netgear’s Orbi is a favorite, as is Google’s similar Nest Wi-Fi system.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Netgear Nighthawk AX8 vs. Netgear Nighthawk X6S (EX8000)**
@@ -153,19 +166,6 @@ thumbnail: https://www.lifewire.com/thmb/D3JB0dOJvbzFClasEyEehvWN5c8=/400x300/fi
  **Only for early adopters with Wi-Fi 6 routers and devices.**
 
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
-
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -193,21 +193,17 @@ thumbnail: https://www.lifewire.com/thmb/D3JB0dOJvbzFClasEyEehvWN5c8=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-drones-that-follow-you-back-top-10-drone-leaders/"><u>[New] 2024 Approved Drones That Follow You Back - Top 10 Drone Leaders</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-uniting-platforms-post-videos-across-twitter-and-tumblr/"><u>[New] In 2024, Uniting Platforms Post Videos Across Twitter & Tumblr</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-mastering-twitter-uploading-videos-compliance/"><u>[Updated] 2024 Approved Mastering Twitter Uploading Videos Compliance</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-photography-refinement-removing-backgrounds-and-blurring-effectively/"><u>2024 Approved Photography Refinement Removing Backgrounds & Blurring Effectively</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-ultimate-unboxing-the-logitech-4k-webcam-review/"><u>2024 Approved Ultimate Unboxing The Logitech 4K Webcam Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-excellence-in-depth-analysis-of-the-zte-blade-a3ys-remarkable-features/"><u>Affordable Excellence: In-Depth Analysis of the ZTE Blade A^3Y^s Remarkable Features</u></a></li>
-<li><a href="https://fox-http.techidaily.com/audiences-choice-top-8-best-for-uhd-blu-ray-for-2024/"><u>Audience's Choice Top 8 Best for UHD Blu-Ray for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-in-class-small-form-factor-gaming-desktops-reviewed/"><u>Best-in-Class Small Form Factor Gaming Desktops Reviewed</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Oppo A56s 5G | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/enhancing-playability-overcoming-decreased-fps-problems-in-forza-horizon-5-pc-edition/"><u>Enhancing Playability: Overcoming Decreased FPS Problems in Forza Horizon 5 PC Edition</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-the-complete-guide-to-itel-p55-5g-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Itel P55 5G FRP Bypass Everything You Need to Know</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/uncovering-the-benefits-of-the-mohu-leaf-hdtv-antenna-for-under-50/"><u>Uncovering the Benefits of the Mohu Leaf HDTV Antenna for Under $50</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlocking-streaming-excellence-a-battle-between-chromecast-and-roku-for-top-spot/"><u>Unlocking Streaming Excellence: A Battle Between Chromecast and Roku for Top Spot</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-of-the-apc-back-ups-pro-1500va-generous-power-supply-extensive-socket-availability-and-battery-replacement-overview/"><u>Unveiling the Features of the APC Back-UPS Pro 1500VA: Generous Power Supply, Extensive Socket Availability & Battery Replacement Overview</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-potential-of-photoscape-an-expert-review-of-this-free-photography-enhancer-software/"><u>Unveiling the Potential of PhotoScape: An Expert Review of This Free Photography Enhancer Software</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/z7-camera-connoisseurs-guide-how-nearly-every-feature-excels/"><u>Z7 Camera Connoisseur's Guide: How Nearly Every Feature Excels</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-instant-media-transformation-enhance-fb-videos-to-hdmp4-on-the-fly/"><u>[New] 2024 Approved Instant Media Transformation Enhance FB Videos to HD/MP4 on the Fly</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-iphone-shutterbugs-tips-for-better-images/"><u>[New] IPhone Shutterbugs Tips for Better Images</u></a></li>
+<li><a href="https://games-able.techidaily.com/enhancing-visual-experience-controlling-ambiance-on-microsoft-devices/"><u>Enhancing Visual Experience: Controlling Ambiance on Microsoft Devices</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop My Spouse from Spying on My Lava Blaze 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-fire-tv-cube-by-amazon-speedstreaming-marvel/"><u>In-Depth Look at the Fire TV Cube by Amazon – Speedstreaming Marvel!</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/launching-a-brand-on-reddit-7-must-try-promotional-methods-for-2024/"><u>Launching a Brand on Reddit 7 Must-Try Promotional Methods for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-smart-spectacles-the-ultimate-list/"><u>Leading Smart Spectacles: The Ultimate List</u></a></li>
+<li><a href="https://extra-support.techidaily.com/perfecting-podcast-intros-a-guide-with-illustrations-for-2024/"><u>Perfecting Podcast Intros A Guide with Illustrations for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/pinnacle-picture-enhancer-resolution-rise/"><u>Pinnacle Picture Enhancer Resolution Rise</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-identifying-variances-between-ipad-and-ipad-air/"><u>The Ultimate Guide To Identifying Variances Between iPad and iPad Air</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-rotibox-bluetooth-cap-stylish-cozy-and-audio-delivering-a-winning-experience/"><u>Ultimate Guide to the Rotibox Bluetooth Cap: Stylish, Cozy & Audio Delivering a Winning Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/your-guide-to-the-most-high-end-17-laptops-available/"><u>Your Guide to the Most High-End 17 Laptops Available</u></a></li>
 </ul></div>
 

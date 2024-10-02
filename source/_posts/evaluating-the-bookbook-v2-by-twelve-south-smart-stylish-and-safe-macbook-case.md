@@ -1,7 +1,7 @@
 ---
 title: "Evaluating the BookBook V2 by Twelve South: Smart, Stylish, and Safe MacBook Case"
-date: 2024-09-22T00:40:09.395Z
-updated: 2024-09-27T06:37:33.534Z
+date: 2024-09-27T23:19:42.298Z
+updated: 2024-10-01T16:35:00.019Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating the BookBook V2 by Twelve South: Smart, Stylish, and Safe MacBook Case"
@@ -88,10 +88,10 @@ Lifewire / Sascha Brodsky
  Apple has also gone full circle and replaced the ports it removed in previous iterations of the MacBook. You get a MagSafe connector, headphone jack, SD card slot, HDMI port, and three Thunderbolt 4 ports, which should be enough for almost any user. There’s no USB-A port but most people won’t miss it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Keyboard: Precision is everything
@@ -103,13 +103,6 @@ Lifewire / Sascha Brodsky
  The Pro has one of the best keyboards I’ve ever used on a laptop. But If I’m going to be picky, I would say that the key resistance is a little too strong, which can lead to finger fatigue during extended typing sessions.
 
  Just above the keyboard is another area where Apple has decided to go backward. The company has ditched the Touch Bar, a strip that allows touch access to software functions. As someone who used the Touch Bar for several years and never found a use for it, I say good riddance.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Trackpad: Big and bold
 
@@ -136,10 +129,10 @@ Lifewire / Sascha Brodsky
  Text looks terrific on the Pro, and I ended up spending time gazing at Word documents just to admire the way words look so crisp and defined. Video playback was equally impressive, with the Mini-LED screen revealing a level of detail that made me want to rewatch my favorite movies. The no-glare coating also works very well, even when using the Pro in direct sunlight.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Performance: Sizzling speed that stays cool
@@ -153,10 +146,10 @@ Lifewire / Sascha Brodsky
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/UM5_acSqOhRJtIaZE3CeAWp45y0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-2-2be1639ee44f489286cb43a53aaf6454.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Sascha Brodsky
@@ -174,10 +167,10 @@ Lifewire / Sascha Brodsky
  Multi-Core: 7552
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Battery: Keeps on going and going
@@ -224,6 +217,13 @@ Lifewire / Sascha Brodsky
 * [Apple MacBook Air 13-inch](https://www.lifewire.com/macbook-air-13-inch-m1-2020-review-5092793)
 * [Dell XPS 13 7390 (2020)](https://www.lifewire.com/dell-xps-13-7390-2-in-1-review-5113106)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  MacBook Pro 16-inch (2021)
@@ -258,24 +258,14 @@ Lifewire / Sascha Brodsky
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-demystifying-youtube-edits-an-in-depth-analysis-and-review/"><u>[New] 2024 Approved Demystifying YouTube Edits An In-Depth Analysis and Review</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-brainless-beats-celebrating-best-zombie-gaming-for-2024/"><u>[New] Brainless Beats Celebrating Best Zombie Gaming for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-ultimate-race-realism-5-favorites/"><u>[New] In 2024, Ultimate Race Realism 5 Favorites</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-final-cut-pros-top-10-vfx-power-players/"><u>2024 Approved Final Cut Pro’s Top 10 VFX Power Players</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-spice-up-your-videos-7-premium-royalty-free-audio-clips/"><u>2024 Approved Spice Up Your Videos 7 Premium, Royalty-Free Audio Clips</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-virtual-artisans-haven-retreat/"><u>2024 Approved Virtual Artisans' Haven Retreat</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-3-ways-to-unlock-iphone-12-pro-max-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock iPhone 12 Pro Max without Passcode or Face ID | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Oppo Reno 8T | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-meme-magic-online/"><u>In 2024, Meme Magic Online</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-oppo-f23-5g-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Oppo F23 5G FRP</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-the-market-how-to-choose-the-right-tv/"><u>Navigating the Market: How to Choose the Right TV</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/samsung-cf591-analyzed-is-it-the-perfect-gaming-display/"><u>Samsung CF591 Analyzed - Is It the Perfect Gaming Display?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-definitive-ranking-why-apples-ipad-pro-11-201n-is-a-top-choice-for-creative-professionals-and-gamers/"><u>The Definitive Ranking: Why Apple's iPad Pro (11, 201N) Is a Top Choice for Creative Professionals and Gamers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-definitive-review-of-the-stunningly-vivid-sony-xbr49x900f-a-cutting-edge-49-4k-uhd-smart-television/"><u>The Definitive Review of the Stunningly Vivid Sony XBR49X900F - A Cutting Edge 49 4K UHD Smart Television</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-philips-hf3520-alarm-clock-examined-budget-friendly-reliability-uncovered/"><u>The Philips HF3520 Alarm Clock Examined - Budget-Friendly Reliability Uncovered</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-e-reader-for-bibliophiles-unveiling-the-kobo-forma/"><u>The Ultimate E-Reader for Bibliophiles: Unveiling the Kobo Forma</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-gps-running-watches/"><u>Top-Rated GPS Running Watches</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unleashing-desktop-capabilities-on-the-go-with-apples-m1-chip-in-the-latest-ipad-pro/"><u>Unleashing Desktop Capabilities On-the-Go with Apple's M1 Chip in the Latest iPad Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlocking-high-speed-internet-with-google-wifi-a-user-friendly-mesh-network-explainer/"><u>Unlocking High-Speed Internet with Google WiFi - A User-Friendly Mesh Network Explainer</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-bridging-audio-realms-to-the-screen-designing-eye-catching-audio-graphs-and-animating-video-sequences-with-premiere-pro-mastery/"><u>2024 Approved Bridging Audio Realms to the Screen Designing Eye-Catching Audio Graphs & Animating Video Sequences with Premiere Pro Mastery</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-how-to-make-a-youtube-subscribe-link-easy/"><u>2024 Approved How to Make a YouTube Subscribe Link - Easy!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bouncies-budget-friendly-automobile-positioning-system-examined-a-detailed-guide-to-convenient-accessible-gps-technology/"><u>Bouncie's Budget-Friendly Automobile Positioning System Examined: A Detailed Guide to Convenient, Accessible GPS Technology</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/choreographing-ideal-canon-time-lapse-shots-for-2024/"><u>Choreographing Ideal Canon Time-Lapse Shots for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/guide-installing-apple-tv-app-on-your-amazon-firestick-device/"><u>Guide: Installing Apple TV App on Your Amazon Firestick Device</u></a></li>
+<li><a href="https://techtrends.techidaily.com/reduced-discrepancy-in-conversion-ratios-optimizing-handbrakes-output-size-accuracy/"><u>Reduced Discrepancy in Conversion Ratios: Optimizing Handbrake's Output Size Accuracy</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/smart-home-showdown-the-ultimate-comparison-between-ring-and-nest-doorbells/"><u>Smart Home Showdown: The Ultimate Comparison Between Ring and Nest Doorbells</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/under-100-superiority-the-ultimate-guide-to-the-tp-link-archer-c80s-features-and-reviews/"><u>Under $100 Superiority: The Ultimate Guide to the TP-Link Archer C80's Features & Reviews</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-the-potential-of-preview-on-your-mac-a-comprehensive-guide-to-advanced-photo-editing-techniques/"><u>Unlocking the Potential of Preview on Your Mac: A Comprehensive Guide to Advanced Photo Editing Techniques</u></a></li>
 </ul></div>
 

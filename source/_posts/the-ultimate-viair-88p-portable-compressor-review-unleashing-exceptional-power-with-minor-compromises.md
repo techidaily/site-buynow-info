@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Viair 88P Portable Compressor Review: Unleashing Exceptional Power with Minor Compromises"
-date: 2024-09-21T05:00:43.752Z
-updated: 2024-09-26T17:15:07.316Z
+date: 2024-10-01T05:12:39.983Z
+updated: 2024-10-01T18:30:42.539Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate Viair 88P Portable Compressor Review: Unleashing Exceptional Power with Minor Compromises"
@@ -46,13 +46,6 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/5zZ5bclZ7zJVo8nRB2Y33JNM3w4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_HeroSqaure-ac1bb2840cb04106b14f3838b80a3bf2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Danny Chadwick
 
 [View On Amazon](https://www.amazon.com/V1-Dashboard-Recorder-G-Sensor-Recording/dp/B00X528FNE/?tag=lifewire-onsite-prod-20&ascsubtag=4770571%7Cn9eae1cd5706347139b8b83241f9d42ea10%7CB00X528FNE) [View On Home Depot](https://www.homedepot.com/p/Rexing-V1-2-4-in-LCD-FHD-1080p-170-Wide-Angle-Dashboard-Camera-Recorder-Car-Dash-Cam-with-G-Sensor-WDR-Loop-Recording-V1/301705517)
@@ -80,6 +73,13 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Fits perfectly on your windshield**
 
  The Rexing V1 Dashcam has a more distinctive form factor than other models we reviewed. Unlike many popular dashcam models, the V1 doesn’t resemble a point-and-shoot camera that hangs from your windshield. Rather, it’s angled to fit the curve of the glass. This makes for a more integrated, smooth look.
@@ -99,10 +99,16 @@ Lifewire / Danny Chadwick
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Be sure that’s where you want to put it**
@@ -119,19 +125,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Camera Quality: Basic**
 
  You can set this dash-mounted camera to capture footage in either 720p or 1080p resolution, which is pretty limited. Similar dashcams can capture footage up to 2560 x 1440 resolution, with others going all the way up to 4K. However, if all you’re looking for is a simple security device, 1080p will do just fine.
@@ -140,20 +133,13 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/9_1pHoEq74JWPJ8reothv8PeI8E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_04-c5d42af8ddfa4296a6c6b1e8551edef6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Set it and forget it**
@@ -169,6 +155,19 @@ Lifewire / Danny Chadwick
  One feature that is unique to the Rexing V1 is time-lapse recording. It is turned off by default and Rexing recommends you keep it off for your day-to-day driving. But if you’re taking a road trip with scenic routes or want to record a particular journey, this feature is fun to have.
 
  Like the rest of the dashboard cameras we tested, the Rexing V1 has the ability to record audio, but it does a middling job of it. Voices in the car and sounds coming from the interior speakers were clear enough to understand, but sounds from outside the vehicle were muddy at best.
+
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: A good value**
 
@@ -189,6 +188,19 @@ Lifewire / Danny Chadwick
  **It delivers on what it was designed to do, without any extras.**
 
  There isn’t much to complain about with the Rexing V1 DashCam. Its innovative form factor combined with a wide array of video capture features and decent picture quality means you won’t have any buyer’s remorse if you choose this dashcam.
+
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -219,20 +231,19 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-connoisseurs-compendium-budget-friendly-photography-havens-for-2024/"><u>[New] Connoisseur's Compendium Budget-Friendly Photography Havens for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-the-audiovisual-experience-elevated-mastering-audio-blending-in-audacity-for-2024/"><u>[New] The Audiovisual Experience Elevated Mastering Audio Blending in Audacity for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-oppo-a79-5g-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Oppo A79 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-critical-look-at-nikons-l340-bridge-camera/"><u>A Critical Look at Nikon's L340 Bridge Camera</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/accelerate-efficiency-transition-your-pc-from-win7-to-10/"><u>Accelerate Efficiency: Transition Your PC From Win7 to 10</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ace-your-transcription-needs-with-the-best-speech-to-text-apps-of-202n/"><u>Ace Your Transcription Needs with the Best Speech-to-Text Apps of 202N</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722703627838-comprehensive-guide-to-the-dependable-kensun-portable-tire-inflator-travel-companion/"><u>Comprehensive Guide to the Dependable Kensun Portable Tire Inflator - Travel Companion!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722531411211-comprehensive-truecaller-application-analysis/"><u>Comprehensive TrueCaller Application Analysis</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/from-text-to-titles-an-in-depth-guide-to-srt-conversion-for-2024/"><u>From Text to Titles An In-Depth Guide to SRT Conversion for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/mastering-web-archiving-tips-and-tricks-for-leveraging-the-wayback-machine/"><u>Mastering Web Archiving: Tips and Tricks for Leveraging the Wayback Machine</u></a></li>
-<li><a href="https://win-top.techidaily.com/online-free-tool-transform-your-flv-videos-into-high-quality-avi-by-movavi/"><u>Online Free Tool: Transform Your FLV Videos Into High-Quality AVI by Movavi</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722515960605-top-ranked-artist-tablets-a-comprehensive-guide/"><u>Top Ranked Artist Tablets : A Comprehensive Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/unleash-your-auditory-adventures-installing-apple-podcasts-app/"><u>Unleash Your Auditory Adventures Installing Apple Podcasts App</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/visionary-voyage-tripod-the-best-for-travel-photography/"><u>Visionary Voyage Tripod: The Best for Travel Photography</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-examining-facebooks-hidden-activity-knowledge-is-power/"><u>[New] Examining Facebook’s Hidden Activity Knowledge Is Power</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-direct-conversion-convert-and-upload-mp3-songs-on-youtube-for-2024/"><u>[Updated] Direct Conversion Convert & Upload MP3 Songs on YouTube for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/avantree-aria-review-hidden-gems-discovered/"><u>Avantree Aria Review: Hidden Gems Discovered</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-features-of-samsungs-curved-55-inch-ru73-4k-smart-tv-series-worthwhile-or-not/"><u>Evaluating the Features of Samsung's Curved 55-Inch (RU73#) 4K Smart TV Series: Worthwhile or Not?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-on-lava-storm-5g-by-drfone-android/"><u>How to Bypass FRP on Lava Storm 5G?</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/improved-email-management-with-mozilla-thunderbird-v52-latest-features-and-changes/"><u>Improved Email Management with Mozilla Thunderbird v52 - Latest Features and Changes</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-vidcollector-social-media-to-device/"><u>In 2024, VidCollector Social Media to Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-vive-cosmos-navigating-through-tough-rivals-in-virtual-reality/"><u>In-Depth Analysis of the Vive Cosmos: Navigating Through Tough Rivals in Virtual Reality</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/is-the-chatgpt-server-up-discover-5-reliable-ways-to-verify-right-away/"><u>Is the ChatGPT Server Up? Discover 5 Reliable Ways to Verify Right Away</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovos-pioneering-foldable-laptop-the-x1-fold-stunning-functionality-meets-room-for-improvement/"><u>Lenovo's Pioneering Foldable Laptop, The X1 Fold - Stunning Functionality Meets Room for Improvement</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lg-k51-smartphone-assessment-stunning-aesthetics-vs-sluggish-cpu/"><u>LG K51 Smartphone Assessment: Stunning Aesthetics vs Sluggish CPU</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/simplified-tech-analysis-discovering-if-the-google-pixel-4a-meets-your-needs/"><u>Simplified Tech Analysis: Discovering if the Google Pixel 4a Meets Your Needs</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/the-netgear-orbi-ac770-wi-fi-mesh-router-reviewed-a-wallet-friendly-option-in-a-sea-of-expensive-competitors/"><u>The Netgear Orbi (AC770) Wi-Fi Mesh Router Reviewed - A Wallet-Friendly Option in a Sea of Expensive Competitors</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/thorough-review-of-the-much-anticipated-movie-the-avengers-by-marvel-studios/"><u>Thorough Review of the Much Anticipated Movie - The Avengers by Marvel Studios</u></a></li>
 </ul></div>
 

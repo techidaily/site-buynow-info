@@ -1,7 +1,7 @@
 ---
 title: Ultimate LG Gram 15.6 Laptop Evaluation for 2018 - Exceptionally Lightweight with Long Battery Life
-date: 2024-09-24T00:42:03.166Z
-updated: 2024-09-26T23:56:37.762Z
+date: 2024-09-30T04:42:15.553Z
+updated: 2024-10-01T16:40:33.846Z
 categories:
   - BestProducts
 description: This Article Describes Ultimate LG Gram 15.6 Laptop Evaluation for 2018 - Exceptionally Lightweight with Long Battery Life
@@ -42,6 +42,13 @@ thumbnail: https://www.lifewire.com/thmb/WO1Uv0Ov9TxKq4M5pTlTSvAuuLs=/400x300/fi
 
 3.8
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Microsoft Flight Simulator X: Gold Edition
 
 ![Microsoft Flight Simulator X: Gold Edition](https://www.lifewire.com/thmb/qdqiCl5ARAuMH7mtUAu6szKbUM0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW840502MicrosoftFlightSimX_HeroSquare-ff9662e0ea894d8e8964aa8b64e9af9f.jpg)
@@ -69,6 +76,19 @@ thumbnail: https://www.lifewire.com/thmb/WO1Uv0Ov9TxKq4M5pTlTSvAuuLs=/400x300/fi
  So how does this legendary flight simulator hold up today? It’s not without its flaws, but the experience is still a solid one. Check out our review here and see for yourself.
 
 ![Microsoft Flight Simulator X: Gold Edition](https://www.lifewire.com/thmb/uwjre5Sam8ge-OfnA-CJEUdp8Vo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW840502MicrosoftFlightSimX_02-308281f4a45a45439f265538706d4f33.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -98,6 +118,13 @@ thumbnail: https://www.lifewire.com/thmb/WO1Uv0Ov9TxKq4M5pTlTSvAuuLs=/400x300/fi
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Gameplay: Dated, but still solid**
 
  Given that FSX is now quite old, the gameplay still holds up for the most part, but feels somewhat dated in certain areas. Because this game comes complete with all the original content and expansions, there’s a daunting amount of content to sift through, which keeps replayability high.
@@ -122,21 +149,7 @@ thumbnail: https://www.lifewire.com/thmb/WO1Uv0Ov9TxKq4M5pTlTSvAuuLs=/400x300/fi
 
 ![Microsoft Flight Simulator X: Gold Edition](https://www.lifewire.com/thmb/oUI0sMg_D0Wrf9Maq7QACUvz4sI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW840502MicrosoftFlightSimX_04-a52be5fb83e54c04acfc68a9b28af39d-2c15555da01247beb7532ce91594646d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Zach Sweat
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Graphics: Like traveling back in time**
 
@@ -150,13 +163,6 @@ Lifewire / Zach Sweat
 
  Aircraft textures on the outside are perhaps the highlight of this area, but the ground, buildings, cockpit, and controls don’t exactly look amazing. You can, however, download some mods to add HD resolutions to things that will help remedy this, and they’re pretty easy to install.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Cheap unless you want the DLC**
 
  So with a 13-year-old game like FSX, you’d expect the price to be quite low, right? While FSX can typically be found for around $25 on Steam, and you can frequently find it on sale for just $5\. This gets you the Gold Edition that includes all the original content and the Acceleration expansion. So for the price, it’s pretty fair—especially considering how many hundreds of hours you can get from the base game.
@@ -164,13 +170,6 @@ Lifewire / Zach Sweat
  For Steam users, however, the game has an insane amount of DLC options. While most of these aren’t necessary to have, they can really add up if you’re someone who likes to have it all. Currently, the Steam version has almost $2,000 worth of DLC, but no one really needs to get all that to have a good time with FSX, so choose what you want, or simply enjoy the base game and download mods to supplement the content for free.
 
  We should also mention here that there are plans in place for FSX to finally get a true successor in the near future with Microsoft’s Flight Simulator 2020 just on the horizon, so it may be worth it to hold off.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Microsoft Flight Simulator X vs. X-Plane 11 Global Flight Simulator**
 
@@ -187,6 +186,13 @@ Lifewire / Zach Sweat
 **A decade later, still one of the greats.**
 
  It’s crazy to think that a game that’s over a decade old is still relevant today, but FSX is one of those legendary titles that keeps chugging along. If you can handle the outdated graphics and controls, it will easily bring you hundreds of hours of entertainment.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -221,24 +227,19 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-understanding-youtubes-legal-framework-vs-cc/"><u>[Updated] 2024 Approved Understanding YouTube's Legal Framework Vs. CC</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-delving-deep-a-sincere-examination-of-recordcast/"><u>[Updated] In 2024, Delving Deep A Sincere Examination of RecordCast</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-smartphone-video-cutting-edge-apple-and-androids-leading-apps/"><u>[Updated] In 2024, Smartphone Video Cutting-Edge Apple & Android's Leading Apps</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-top-ten-accelerating-youtube-sectors-of-thought/"><u>[Updated] The Top Ten Accelerating YouTube Sectors of Thought</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/blade-e-flite-mcx2-ready-to-launch-rc-helicopter-reviewed-soaring-to-the-top-of-rtf-models/"><u>Blade E-Flite mCX^2 Ready-to-Launch RC Helicopter Reviewed - Soaring to the Top of RTF Models</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/find-your-perfect-cheap-mobile-plan-the-ultimate-guide-to-savings/"><u>Find Your Perfect Cheap Mobile Plan - The Ultimate Guide to Savings</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/find-your-perfect-match-elite-selection-of-17-inch-laptops/"><u>Find Your Perfect Match: Elite Selection of 17-Inch Laptops</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-does-the-samsung-galaxy-s10plus-stack-up-against-its-successor-the-s20/"><u>How Does the Samsung Galaxy S10+ Stack Up Against Its Successor, the S20?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-14-plus-to-other-iphone-13-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 14 Plus to other iPhone 13 Pro devices? | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-tips-for-smooth-cross-sounding-with-audacity/"><u>In 2024, Expert Tips for Smooth Cross-Sounding with Audacity</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-optimize-your-gaming-with-kinemaster-usage-tips-and-comparisons-with-best-online-games/"><u>In 2024, Optimize Your Gaming with KineMaster Usage Tips & Comparisons with Best Online Games</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-how-motorola-edgeplus-struggles-with-top-tier-benchmarks/"><u>In-Depth Analysis: How Motorola Edge+ Struggles with Top-Tier Benchmarks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/michael-kors-gen-5e-mkgo-accessory-line-a-fusion-of-elegance-and-practicality-in-depth-review/"><u>Michael Kors Gen 5E MKGO Accessory Line: A Fusion of Elegance and Practicality - In-Depth Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/nokia-71-review/"><u>Nokia 7.1 Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/protecting-your-porch-for-a-price-in-depth-review-of-the-wallet-friendly-remobell-device/"><u>Protecting Your Porch for a Price: In-Depth Review of the Wallet-Friendly RemoBell Device</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/securing-your-art-against-ai-utilizing-nightshade-effectively/"><u>Securing Your Art Against AI: Utilizing Nightshade Effectively</u></a></li>
-<li><a href="https://win-forum.techidaily.com/step-by-step-guide-updating-device-drivers-on-windows-10/"><u>Step-by-Step Guide: Updating Device Drivers on Windows 10</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-insight-on-iphone-13-expert-review-and-comparison/"><u>The Ultimate Insight on iPhone 13: Expert Review and Comparison</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/ultimate-guide-on-iphone-7-plus-icloud-activation-lock-bypass-by-drfone-ios/"><u>Ultimate Guide on iPhone 7 Plus iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-quickcapture-studio-chrome-os-snapper-for-2024/"><u>[New] QuickCapture Studio Chrome OS Snapper for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-top-10-ios-gif-apps-showcase-iphone-series/"><u>[Updated] In 2024, Top 10 iOS GIF Apps Showcase IPhone Series</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-step-by-step-approach-to-understanding-and-using-telegram-online/"><u>2024 Approved Step-By-Step Approach to Understanding and Using Telegram Online</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/canon-powershot-sx530-review-a-great-compact-camera-for-any-beginner/"><u>Canon PowerShot SX530 Review: A Great, Compact Camera for Any Beginner</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-expert-analysis-netgear-ex6200-ac1200-wireless-range-expansion-unit-a-user-friendly-guide/"><u>Comprehensive Expert Analysis: Netgear EX6200 AC1200 Wireless Range Expansion Unit - A User-Friendly Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experts-rate-affordable-efficient-tv-reception-with-amazonbasics-flat-antenna/"><u>Experts Rate: Affordable, Efficient TV Reception with AmazonBasics Flat Antenna</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-xiaomi-redmi-note-13-5g-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Xiaomi Redmi Note 13 5G Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-without-social-media-data-unravelled/"><u>Life Without Social Media: Data Unravelled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-usability-with-the-lamicall-s-tablet-support-an-insightful-evaluation/"><u>Maximizing Usability with the Lamicall S Tablet Support - An Insightful Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-through-the-tech-distinguishing-a-kindle-from-an-amazon-fire-device/"><u>Navigating Through the Tech: Distinguishing a Kindle From an Amazon Fire Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/should-you-invest-in-chatgpt-plus-discover-the-5-compelling-reasons-to-enroll-today/"><u>Should You Invest in ChatGPT Plus? Discover the 5 Compelling Reasons to Enroll Today!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-10-best-games-for-steam-deck-of-2023/"><u>The 10 Best Games for Steam Deck of 2023</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-compreayer-guide-to-iphone-hdr-mastery/"><u>The Compreayer Guide to iPhone HDR Mastery</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/tutela-completa-sobre-a-criacao-de-mundos-personalizados-no-minecraft-guia-do-usuario/"><u>Tutela Completa Sobre a Criação De Mundos Personalizados No Minecraft: Guia Do Usuário!</u></a></li>
 </ul></div>
 

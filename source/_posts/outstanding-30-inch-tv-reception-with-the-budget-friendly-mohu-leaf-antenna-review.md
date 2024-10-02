@@ -1,7 +1,7 @@
 ---
 title: Outstanding 30-Inch TV Reception with the Budget-Friendly Mohu Leaf Antenna Review
-date: 2024-09-18T01:54:27.591Z
-updated: 2024-09-20T16:13:14.929Z
+date: 2024-09-25T18:35:25.482Z
+updated: 2024-10-02T08:42:47.489Z
 categories:
   - BestProducts
 description: This Article Describes Outstanding 30-Inch TV Reception with the Budget-Friendly Mohu Leaf Antenna Review
@@ -70,6 +70,13 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Inoffensive but unexceptional**
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
@@ -87,10 +94,10 @@ Lifewire / Jonno Hill
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: Fair to middling**
@@ -99,18 +106,18 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
 
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
@@ -123,10 +130,10 @@ Lifewire / Jonno Hill
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -154,5 +161,22 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-exacting-speech-recognition-via-googles-precision-tools/"><u>[New] 2024 Approved Exacting Speech Recognition via Google's Precision Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-the-art-and-size-game-your-guide-to-top-tier-yt-banners/"><u>[New] In 2024, Mastering the Art & Size Game Your Guide to Top-Tier YT Banners</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-elevating-shorts-visibility-a-thumbnail-transformation-journey/"><u>[Updated] Elevating Shorts Visibility A Thumbnail Transformation Journey</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-explore-20-most-shared-rap-tracks-on-social-media/"><u>[Updated] In 2024, Explore 20 Most Shared Rap Tracks on Social Media</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-navigating-the-essence-of-photography-polarrs-edits-revealed-for-2024/"><u>[Updated] Navigating the Essence of Photography Polarr’s Edits Revealed for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asuss-latest-masterpiece-for-gamers-the-rapture-gt-ax11000-router-a-detailed-breakdown-of-speed-and-features/"><u>ASUS's Latest Masterpiece for Gamers - The Rapture GT-AX11000 Router: A Detailed Breakdown of Speed and Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/contrasting-iphone-15-pro-max-and-samsung-s2e-ultra-a-detailed-breakdown-of-their-unique-features/"><u>Contrasting iPhone 15 Pro Max and Samsung S2e Ultra - A Detailed Breakdown of Their Unique Features</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-dell-latitude-e6420-drivers-in-a-flash-top-picks-for-swift-access/"><u>Download Dell Latitude E6420 Drivers in a Flash: Top Picks for Swift Access</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-features-of-the-netgear-c3cable-modemrouter-duo-time-for-an-update/"><u>Exploring the Features of the Netgear C3Cable Modem/Router Duo – Time for an Update?</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-samsung-galaxy-z-fold-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/game-changing-console-or-not-discover-why-the-ps5-is-worth-it/"><u>Game-Changing Console or Not? Discover Why the PS5 Is Worth It</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-fresh-msi-sound-card-drivers-for-windows-systems-instantly/"><u>Get Fresh MSI Sound Card Drivers for Windows Systems Instantly</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-music-players-best-portable-cds/"><u>Innovative Music Players: Best Portable CDs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/step-by-step-guide-to-crafting-impressive-instagram-loops-for-2024/"><u>Step-by-Step Guide to Crafting Impressive Instagram Loops for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-rexing-v1-dashcam-an-in-depth-look-at-its-stealthy-design-and-cost-effective-value/"><u>Unboxing the Rexing V1 Dashcam: An In-Depth Look at Its Stealthy Design and Cost-Effective Value</u></a></li>
+</ul></div>
 

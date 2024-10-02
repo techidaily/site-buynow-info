@@ -1,7 +1,7 @@
 ---
 title: "Xbox Series S Assessment: Powerful Gaming in a Compact Form"
-date: 2024-09-22T17:50:56.378Z
-updated: 2024-09-27T02:19:15.256Z
+date: 2024-09-30T22:39:22.274Z
+updated: 2024-10-02T01:46:12.916Z
 categories:
   - BestProducts
 description: "This Article Describes Xbox Series S Assessment: Powerful Gaming in a Compact Form"
@@ -43,10 +43,10 @@ Lifewire / Zach Sweat
 4.8
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Microsoft Xbox One Elite Series 2 Controller
@@ -109,10 +109,10 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Comfort: Hefty, but darn comfy**
@@ -128,13 +128,6 @@ Lifewire / Zach Sweat
  The only real issue some users may see as a downside of this controller is that it’s quite a hefty device. The controller weighs 348 grams with all attachments, so it might take some getting used to compared to the 210 gram S controller. I personally love the bulk, as it feels premium, but it might not be for everyone.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/cS5fpyPSlqvyETs-nGxTtAB3vXU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-4-070b6c59b206457ba1068704bbe7bca9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -157,6 +150,13 @@ Lifewire / Zach Sweat
  If you plan to buy this controller to use with other electronics that support Bluetooth devices, make sure you do some research before committing to it, as it doesn’t always work with everything. That said, we did manage to pair the controller with a couple other devices that weren’t officially supported.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -193,10 +193,10 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/6VfCJGOyjLkAkE_mjiHr7rz8Gyw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-6-0c1d7a2ae4e8443ea5b69f559e52bd12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -216,10 +216,10 @@ Lifewire / Zach Sweat
  Everything we disliked about the original Elite controller has been improved with the second iteration, making it the best first-party controller you can get for XB1 or PC. However, the steep price point might be a hard pill to swallow for users who don’t like to splurge.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -254,17 +254,21 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-premier-mobile-cloud-storage-apps-2024-rankings/"><u>[New] Premier Mobile Cloud Storage Apps - 2024 Rankings</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-expedite-vimeo-video-playback-for-2024/"><u>[Updated] Expedite Vimeo Video Playback for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-identifying-high-impact-keywords-for-effective-youtube-marketing/"><u>[Updated] In 2024, Identifying High-Impact Keywords for Effective YouTube Marketing</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/boost-your-lenovo-display-performance-with-new-driver-downloads/"><u>Boost Your Lenovo Display Performance with New Driver Downloads</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elite-iphone-extras-that-elevate-usage-and-style/"><u>Elite iPhone Extras That Elevate Usage and Style</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-infinix-smart-7-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Infinix Smart 7 Data? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-your-viewing-experience-on-a-budget-with-the-75-caixun-4k-android-tv/"><u>Maximizing Your Viewing Experience on a Budget with the 75 Caixun 4K Android TV</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overcoming-steam-installation-hurdles-in-windows-11/"><u>Overcoming Steam Installation Hurdles in Windows 11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/samsung-un65ru8000fxza-an-examination-of-its-stunning-visuals-and-smart-capabilities/"><u>Samsung UN65RU8000FXZA: An Examination of Its Stunning Visuals and Smart Capabilities</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/skybound-streaming-engaging-your-audience-on-facebook/"><u>Skybound Streaming Engaging Your Audience on Facebook</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-amazonbasics-high-security-shredder-unveiled-a-detailed-look-at-the-12-sheet-micro-cut-innovation/"><u>The AmazonBasics High-Security Shredder Unveiled: A Detailed Look at the 12-Sheet Micro Cut Innovation.</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unlocking-the-power-of-gpt-models-in-terminal-seamless-setup-for-linux-enthusiasts/"><u>Unlocking the Power of GPT Models in Terminal: Seamless Setup for Linux Enthusiasts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-top-6-instagram-money-calculator-safe-and-effective/"><u>[New] In 2024, Top 6 Instagram Money Calculator - Safe & Effective</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-mastering-the-art-of-partial-youtube-extraction/"><u>[Updated] Mastering the Art of Partial YouTube Extraction</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/audio-aces-challenge-apples-airpods-pro-against-galaxy-buds-pro-rivalry/"><u>Audio Aces Challenge: Apple's Airpods Pro Against Galaxy Buds Pro Rivalry</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/compact-hp-stream-11-laptop-essential-tech-on-the-go/"><u>Compact HP Stream 11 Laptop: Essential Tech on the Go</u></a></li>
+<li><a href="https://win-best.techidaily.com/convert-videos-seamlessly-with-movavis-free-movmxf-to-on-line-tools/"><u>Convert Videos Seamlessly with Movavi's Free MOV/MXF to On-Line Tools!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-acer-aspire-c27-the-ultimate-compact-and-versatile-desktop-computer/"><u>Exploring the Acer Aspire C27: The Ultimate Compact and Versatile Desktop Computer</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-oneplus-ace-3-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked OnePlus Ace 3 Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-from-clicks-to-cash-elevating-exposure-economics/"><u>In 2024, From Clicks to Cash Elevating Exposure Economics</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-screen-mirroring-apple-iphone-15-pro-to-tv-or-pc-drfone-by-drfone-ios/"><u>In 2024, How Screen Mirroring Apple iPhone 15 Pro to TV or PC? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/step-into-a-world-of-magic-expert-led-guide-to-snapchat-edits/"><u>Step Into a World of Magic Expert-Led Guide to Snapchat Edits</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/strategic-approaches-for-creating-impactful-youtubes-finality/"><u>Strategic Approaches for Creating Impactful Youtubes' Finality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/streamlining-your-journey-from-windows-10-to-11-update/"><u>Streamlining Your Journey From Windows 10 to 11 Update</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/thrashing-rivals-in-fifa-19-a-definitive-guide-to-winning-at-online-soccer/"><u>Thrashing Rivals in FIFA 19: A Definitive Guide to Winning at Online Soccer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-acer-aspire-e-15-analysis-the-ultimate-guide-to-affordable-high-performance-laptops/"><u>Top Rated Acer Aspire E 15 Analysis - The Ultimate Guide to Affordable, High-Performance Laptops</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unraveling-the-sophistication-of-the-skagen-falster-3-a-harmonious-mix-of-vintage-appeal-and-contemporary-smartwatch-innovations/"><u>Unraveling the Sophistication of the Skagen Falster 3: A Harmonious Mix of Vintage Appeal and Contemporary Smartwatch Innovations</u></a></li>
 </ul></div>
 

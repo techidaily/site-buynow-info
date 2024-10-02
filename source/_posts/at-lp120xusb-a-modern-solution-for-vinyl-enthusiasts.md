@@ -1,7 +1,7 @@
 ---
 title: "AT-LP120XUSB: A Modern Solution for Vinyl Enthusiasts"
-date: 2024-09-15T21:17:13.342Z
-updated: 2024-09-21T00:31:17.444Z
+date: 2024-09-26T22:33:22.375Z
+updated: 2024-10-01T16:52:40.836Z
 categories:
   - BestProducts
 description: "This Article Describes AT-LP120XUSB: A Modern Solution for Vinyl Enthusiasts"
@@ -68,6 +68,13 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: All-plastic, but sturdy and subtle**
 
  The Anker PowerDrive 2 might not be the sharpest or most cutting-edge looking in-car USB charger, but what it lacks in visual pizazz, it more than makes up for in sturdiness.
@@ -81,10 +88,10 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Fast charging for demanding devices**
@@ -96,6 +103,19 @@ Lifewire / Nick Jaynes
  The Anker PowerDrive 2 is the workhorse of the in-car USB charger market.
 
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
+
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Middle of the pack**
 
@@ -118,10 +138,10 @@ Lifewire / Nick Jaynes
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -148,5 +168,26 @@ Lifewire / Nick Jaynes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/oost-engagement-top-8-youtube-video-trackers-unveiled-for-2024/"><u>[New] Boost Engagement - Top 8 YouTube Video Trackers Unveiled for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-inside-apeaksofts-2023-recording-technology-breakthroughs/"><u>[New] In 2024, Inside Apeaksoft's 2023 Recording Technology Breakthroughs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-how-to-take-long-exposure-shots-with-iphone-in-ios-11-or-previous/"><u>[Updated] How to Take Long Exposure Shots with iPhone in iOS 11 or Previous</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-guide-to-large-prop-integration-in-tiktok-productions/"><u>[Updated] In 2024, Guide to Large Prop Integration in TikTok Productions</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/a-comprehensive-guide-to-mac-screenshot-conversion-for-2024/"><u>A Comprehensive Guide to Mac Screenshot Conversion for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dominating-the-battlefield-how-alienwares-aurora-r11-ascends-to-become-the-ultimate-gaming-machine/"><u>Dominating the Battlefield: How Alienware's Aurora R11 Ascends to Become the Ultimate Gaming Machine</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-durability-and-joy-maisto-rc-rock-crawler-reviewed/"><u>Exploring the Durability and Joy: Maisto RC Rock Crawler Reviewed!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/halo-bolt-power-bankjump-starter-unveiled-a-comprehensive-product-evaluation/"><u>Halo Bolt Power Bank/Jump Starter Unveiled: A Comprehensive Product Evaluation</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-infinix-hot-30-5g-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Infinix Hot 30 5G.</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Motorola Defy 2? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-digital-content-with-apples-2019-ipad-air-review-the-definitive-analysis/"><u>Mastering Digital Content with Apple's 2019 iPad Air Review: The Definitive Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/motorola-mg7700-unveiled-expert-evaluation-of-its-swift-reliability/"><u>Motorola MG7700 Unveiled: Expert Evaluation of Its Swift Reliability</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-price-for-quality-exploring-the-capabilities-of-the-fitbit-versa-lite-tracker/"><u>The Best Price for Quality: Exploring the Capabilities of the Fitbit Versa Lite Tracker</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-essentials-of-creating-memorable-fb-slideshows/"><u>The Essentials of Creating Memorable FB Slideshows</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-future-is-here-assessing-the-impact-of-a-new-cpu-on-the-latest-13-inch-apple-macbook-pro/"><u>The Future Is Here: Assessing the Impact of a New CPU on the Latest 13-Inch Apple MacBook Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-upgrade-manual-for-intel-imac-owners-looking-to-boost-their-systems/"><u>The Ultimate Upgrade Manual for Intel iMac Owners Looking to Boost Their Systems</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/top-15-gaming-capture-utilities/"><u>Top 15 Gaming Capture Utilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-apple-airtag-assessment-ideal-device-for-iphone-enthusiasts/"><u>Top Apple AirTag Assessment: Ideal Device for iPhone Enthusiasts</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/windows-and-system-event-notification-services-connection-problem-fixed/"><u>Windows & System Event Notification Services Connection Problem, Fixed!</u></a></li>
+</ul></div>
 

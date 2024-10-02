@@ -1,7 +1,7 @@
 ---
 title: "Student-Friendly & Kid-Tough: A Comprehensive Analysis of the Asus Chromebook C202SA"
-date: 2024-09-19T16:54:25.144Z
-updated: 2024-09-26T16:31:27.511Z
+date: 2024-09-25T00:13:55.356Z
+updated: 2024-10-01T21:28:10.028Z
 categories:
   - BestProducts
 description: "This Article Describes Student-Friendly & Kid-Tough: A Comprehensive Analysis of the Asus Chromebook C202SA"
@@ -81,6 +81,13 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Display: 10.5-inch Super AMOLED**
 
  You can usually rely on Samsung devices to have top-notch display quality, and the Tab S6 is no different. The super AMOLED display is crisp and clear. The text is sharp, and the colors are bright and vivid. The 10.5-inch display feels large enough to watch shows and movies or to use as a hybrid when you connect the keyboard case.
@@ -91,6 +98,19 @@ Lifewire / Erika Rawes
 
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/-pHfCamdNdeJAmfn1IG93dda0i4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_Tab_S6_03-ecf977b8c98b41a08872f0605a589246.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Performance: Qualcomm 855**
@@ -98,6 +118,13 @@ Lifewire / Erika Rawes
  The Tab S6 has the Qualcomm 855 processor, which is a pretty solid mobile CPU. It comes in two versions: one version with 128GB of storage and 6 GB of RAM, and one version with 256 GB of storage and 8 GB of RAM. I tested the former version. On PCMark Work 2.0, the lower level Tab S6 scored a 9022\. On Geekbench 5, the Tab S6 scored a single core score of 747 and a multi-core score of 2,518\. It’s multi-core scores come in very close to the A12 Bionic chip in the iPad (2019).
 
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/TIUmjQSMgpAJw4W3I6fcgiYY1BM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_Tab_S6_06-cc64b6b41e8f4420b9fe38d223541b52.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -127,13 +154,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Camera: Dual rear cameras**
 
  The Tab S6 has dual rear cameras, and a single front-facing camera. It has a 13 MP camera and a 5 MP camera on the back, and an 8 MP camera on the front. For a tablet, the camera quality is actually pretty good. It’s not as good as your typical flagship phone, but it’s better than you’d expect on a hybrid tablet. Photos are surprisingly clean and detailed, so you could absolutely get a good group pic at the office, or snap a clear pic of a document you need to send.
@@ -141,10 +161,10 @@ Lifewire / Erika Rawes
  The Tab S6 can take UHD video (3840x2160) at 30 FPS with the rear camera and FHD (1920x1080) at 30 FPS with the front cam, and it has a few cool software features like a food mode, pro mode, night mode, and hyperlapse. You can also create an AR emoji and take advantage of additional features like Bixby Vision.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Battery: Worse than the Tab S4**
@@ -152,13 +172,6 @@ Lifewire / Erika Rawes
  The Tab S6 has a serviceable battery capacity. The 7040 mAh battery lasts for up to 15 hours play time. The S Pen does take some of the Tab’s battery, but it doesn’t affect the battery life to a noticeable degree. I was able to use the S6 on and off for most of the day, and I still had some battery leftover for the next day. The Galaxy Tab S4 had a slightly better 7300 mAh battery that lasted for up to 16 hours of play time. I was surprised to see that the Tab S6 had less battery capacity than its predecessor.
 
  I was able to use the S6 on and off for most of the day, and I still had some battery leftover for the next day.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Now on Android 10**
 
@@ -168,24 +181,24 @@ Lifewire / Erika Rawes
 
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/C7-02cY18jujcl8-9vfJim9_H_M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_Tab_S6_05-2f0768554c044e18bedec871758e51ef.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: On the high end**
 
  The Galaxy Tab S6 sells for $649 for the 128 gig version, which is pricey for an android tablet. But, considering the S Pen is included in the package, the price is a bit more reasonable.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Samsung Galaxy Tab S6 vs. Samsung Galaxy Tab A (2020)**
@@ -197,13 +210,6 @@ Lifewire / Erika Rawes
 **An attractive tablet that hits almost every mark.**
 
  The Galaxy Tab S6 is one of the better 10-inch tablets available.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -238,20 +244,18 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-the-perfected-practice-of-combining-youtube-videos/"><u>[Updated] The Perfected Practice of Combining YouTube Videos</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-top-5-best-monitors-for-playstation5/"><u>[Updated] Top 5 Best Monitors for PlayStation5</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/au-cddvd/"><u>無限量自由發佈 - AU CD/DVD移動流傳</u></a></li>
-<li><a href="https://windows11.techidaily.com/a-deeper-dive-into-user-experience-revamping-windows-11-widgets/"><u>A Deeper Dive Into User Experience: Revamping Windows 11 Widgets</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/consistent-pet-nourishment-with-the-ultimate-six-course-auto-feeder-by-petsafe/"><u>Consistent Pet Nourishment with the Ultimate Six-Course Auto Feeder by PetSafe</u></a></li>
-<li><a href="https://techtrends.techidaily.com/decoding-the-power-of-your-device-using-windows-10-battery-reports-effectively/"><u>Decoding the Power of Your Device: Using Windows 10 Battery Reports Effectively</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-photoscapes-features-your-ultimate-guide-to-a-top-tier-gratis-picture-tweaker/"><u>Exploring PhotoScape's Features - Your Ultimate Guide to a Top-Tier, Gratis Picture Tweaker</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-value-of-portability-and-price-a-look-at-the-microsoft-surface-laptop-go/"><u>Exploring the Value of Portability & Price: A Look at the Microsoft Surface Laptop Go</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/how-to-preserve-your-gameplay-for-future-replays-for-2024/"><u>How to Preserve Your Gameplay for Future Replays for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-mastering-powerpoint-recording-on-camera-for-professionals/"><u>In 2024, Mastering PowerPoint Recording on Camera for Professionals</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/smartphone-selection-simplified-comparing-the-latest-iphones-with-top-tier-samsungs/"><u>Smartphone Selection Simplified: Comparing the Latest iPhones with Top-Tier Samsungs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-midland-gxt100nv-point-to-point-radio-evaluated-for-sharp-audio-quality/"><u>The Midland GXT100nV Point-to-Point Radio Evaluated for Sharp Audio Quality</u></a></li>
-<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your OnePlus Ace 2V | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-performance-assessment-the-kootek-portable-laptop-chiller/"><u>Top Performance Assessment: The Kootek Portable Laptop Chiller</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/xp-pen-artist-16-pro-tablet-uncovered-comprehensive-user-testimonials-and-reviews/"><u>XP-Pen Artist 16 Pro Tablet Uncovered: Comprehensive User Testimonials & Reviews</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-cataloging-camera-types-for-visual-media/"><u>[New] 2024 Approved Cataloging Camera Types for Visual Media</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/utting-edge-techniques-in-live-streamed-gaming/"><u>[New] Cutting-Edge Techniques in Live-Streamed Gaming</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-7-comedy-youtube-video-ideas-that-only-funny-people-are-allowed-to-try/"><u>[Updated] 2024 Approved 7 Comedy YouTube Video Ideas That Only Funny People Are Allowed to Try</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-freezing-your-window-windows-screenshoting-guide-for-2024/"><u>[Updated] Freezing Your Window Windows Screenshoting Guide for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-proven-strategies-for-flawless-xbox-video-capture/"><u>[Updated] In 2024, Proven Strategies for Flawless Xbox Video Capture</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/a-musical-guide-to-enhancing-slides-with-tunes/"><u>A Musical Guide to Enhancing Slides with Tunes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/detailed-breakdown-navigating-with-google-maps-on-the-ios-platform/"><u>Detailed Breakdown: Navigating with Google Maps on the iOS Platform</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-extended-display-size-an-in-depth-review-of-barnes-and-nobles-newest-nook-ereader/"><u>Discovering the Extended Display Size: An In-Depth Review of Barnes & Noble's Newest Nook eReader</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1725289941684-isodvd/"><u>ISOファイルをディスク化せずにDVDへ自由配布:完全ガイド</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lg-oled-c9-65-inch-4k-smart-tv-review-perfect-picture-for-the-tv-enthusiast/"><u>LG OLED C9 65-Inch 4K Smart TV Review: Perfect Picture for the TV Enthusiast</u></a></li>
+<li><a href="https://techidaily.com/repair-video-tool-repair-all-your-damaged-video-files-of-samsung-galaxy-s24-by-stellar-video-repair-mobile-video-repair/"><u>Repair Video Tool - Repair all your damaged video files of Samsung Galaxy S24</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-nest-audio-evaluation-the-ultimate-sound-experience-for-avid-listeners/"><u>Top Nest Audio Evaluation: The Ultimate Sound Experience for Avid Listeners</u></a></li>
+<li><a href="https://win-forum.techidaily.com/top-social-platforms-understanding-the-impact-of-facebook-twitter-instagram-and-youtube/"><u>Top Social Platforms: Understanding the Impact of Facebook, Twitter, Instagram and YouTube</u></a></li>
 </ul></div>
 

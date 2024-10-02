@@ -1,7 +1,7 @@
 ---
 title: Exploring Wi-Fi 6 Capabilities with the Netgear Nighthawk RAX80 – A User's Perspective
-date: 2024-09-14T23:52:56.295Z
-updated: 2024-09-21T00:26:47.085Z
+date: 2024-09-26T16:21:55.219Z
+updated: 2024-10-01T22:35:03.638Z
 categories:
   - BestProducts
 description: This Article Describes Exploring Wi-Fi 6 Capabilities with the Netgear Nighthawk RAX80 – A User's Perspective
@@ -41,6 +41,13 @@ Lifewire / Bill Thomas
 [View On Amazon $25](https://www.amazon.com/dp/B00IF0JAYE/?tag=lifewire-onsite-prod-20&ascsubtag=4686094%7Cn04462eaac973429b8b417ec47f0b261514%7CB00IF0JAYE) [View On Walmart $76](https://www.walmart.com/ip/NETGEAR-N600-8x4-WiFi-Cable-Modem-Router-Combo-C3700-DOCSIS-3-0-Certified-for-XFINITY-by-Comcast-Spectrum-Cox-and-more-C3700-100NAS/36009477) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-dual-band-n600-router-with-8-x-4-docsis-3-0-cable-modem-black%2F3707003.p%3Fcmp%3DRMX%26skuId%3D3707003)
 
 3.4
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Netgear C3700 Cable Modem Router
 
@@ -82,18 +89,18 @@ Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/sNdotwRQaaANrcOOFjoNRrlmeak=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-3-24f328c303ef44929cc9f49334ac5fb8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/zfaMhW3pqkYXVuVTQM9Swnx9cQk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-5-a204a239cbd549c9b5949b2536b49ff8.jpg)
 
  Lifewire / Bill Thomas
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Setup: Nice and simple
 
@@ -105,6 +112,13 @@ Lifewire / Bill Thomas
 
  We weren’t impressed with the wireless performance, but the wired performance surprised us.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Connectivity: Everything a small home needs
 
  The Netgear C3700 is a modem-router combo, which means, hypothetically, it’s the only networking device many people will need. On top of the two Gigabit[Ethernet](https://www.lifewire.com/what-is-an-ethernet-cable-817548) ports, you’re also getting dual antennas, which makes this a dual-band device (2.4GHz and 5.0GHz). It’s not the fastest wireless connection in the world, though—the Netgear C3700 is rated for N600 speeds, something we haven’t seen in a few years.
@@ -114,10 +128,10 @@ Lifewire / Bill Thomas
  There is also a USB 2.0 port around the back where you can plug in a hard drive or a printer for network access.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Network Performance: Great when wired, but wireless speeds lag
@@ -132,6 +146,13 @@ Lifewire / Bill Thomas
 
  Lifewire / Bill Thomas
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Software: No frills
 
  We prefer a network backend that’s straight to the point, and that’s exactly what we got with the Netgear C3700.
@@ -141,13 +162,6 @@ Lifewire / Bill Thomas
  We were able to click over into the “advanced” tab to gain access to more robust controls, but this shouldn’t be necessary for most users. Power users will probably appreciate the fine controls.
 
  You can also download the Netgear Genie app on your phone, which allows you to manage your network from a more attractive interface. Much of the same functionality is here, but it might be a more approachable interface for those who don’t really know where to start with their router settings.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Price: It pays for itself
 
@@ -202,5 +216,26 @@ Lifewire / Bill Thomas
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-from-zero-to-hero-navigating-youtubes-growth-journey/"><u>[New] 2024 Approved From Zero to Hero Navigating Youtube's Growth Journey</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-understanding-youtube-shorts-earnings-for-maker-income/"><u>[New] In 2024, Understanding YouTube Shorts Earnings for Maker Income</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-mov-mastery-on-windows-11-discover-the-best-recording-methods-from-our-six-step-guide/"><u>[Updated] 2024 Approved .MOV Mastery on Windows 11 - Discover the Best Recording Methods From Our Six-Step Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-screen-recording-with-internal-devices-on-huaweis-mate-mate-1020-and-p-p20-p10/"><u>[Updated] 2024 Approved Screen Recording with Internal Devices on Huawei’s Mate (Mate 10/20) and P (P20, P10)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-apple-tv-4k-and-roku-ultra-which-is-the-best-streaming-device/"><u>Comparing Apple TV 4K and Roku Ultra: Which Is the Best Streaming Device?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-netgear-nighthawk-x4-wi-fi-mesh-extender-seamless-network-expansion/"><u>Comprehensive Review of the Netgear Nighthawk X4 Wi-Fi Mesh Extender - Seamless Network Expansion</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/effortless-android-sound-capture-4-non-root-methods-for-2024/"><u>Effortless Android Sound Capture 4 Non-Root Methods for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elbphilharmonie-concert-hall-extension-hamburg-germany/"><u>Elbphilharmonie Concert Hall Extension, Hamburg, Germany</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-realme-gt-3-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Realme GT 3 Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-vivo-y78plus-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Vivo Y78+ Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-7-ways-to-unlock-a-locked-oppo-f25-pro-5g-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Oppo F25 Pro 5G Phone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-becoming-a-pro-at-visual-effects-creation/"><u>In 2024, Becoming a Pro at Visual Effects Creation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/incredible-value-comprehensive-content-at-low-cost-on-the-roku-platform/"><u>Incredible Value: Comprehensive Content at Low Cost on the Roku Platform</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/quality-sound-for-the-thrifty-tech-user-senso-buds-guide/"><u>Quality Sound for the Thrifty Tech User - Senso Buds Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/roku-and-fire-tv-stick-face-off-which-streaming-device-wins-the-battle-for-home-entertainment/"><u>Roku and Fire TV Stick Face-Off: Which Streaming Device Wins the Battle for Home Entertainment?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-dji-phantom-4-extension-pack-for-2024/"><u>The Ultimate DJI Phantom 4 Extension Pack for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/through-the-gamers-lens-why-the-alienware-aurora-r11-stands-out/"><u>Through the Gamer's Lens: Why the Alienware Aurora R11 Stands Out</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-active-living-with-cubefits-terramat-a-comprehensive-product-assessment/"><u>Transform Active Living with CubeFit's TerraMat: A Comprehensive Product Assessment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-ultimate-gameplay-setup-with-samsungs-q60r-qled-4k-series/"><u>Unboxing the Ultimate Gameplay Setup with Samsung's Q60R QLED 4K Series</u></a></li>
+</ul></div>
 

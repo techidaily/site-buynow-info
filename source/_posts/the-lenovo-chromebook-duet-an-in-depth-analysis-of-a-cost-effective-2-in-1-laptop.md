@@ -1,7 +1,7 @@
 ---
 title: The Lenovo Chromebook Duet - An In-Depth Analysis of a Cost-Effective 2-In-1 Laptop
-date: 2024-09-24T21:47:24.678Z
-updated: 2024-09-26T20:17:37.273Z
+date: 2024-10-01T01:28:37.294Z
+updated: 2024-10-01T22:11:19.949Z
 categories:
   - BestProducts
 description: This Article Describes The Lenovo Chromebook Duet - An In-Depth Analysis of a Cost-Effective 2-In-1 Laptop
@@ -46,6 +46,13 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/5zZ5bclZ7zJVo8nRB2Y33JNM3w4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_HeroSqaure-ac1bb2840cb04106b14f3838b80a3bf2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Danny Chadwick
 
 [View On Amazon](https://www.amazon.com/V1-Dashboard-Recorder-G-Sensor-Recording/dp/B00X528FNE/?tag=lifewire-onsite-prod-20&ascsubtag=4770571%7Cn9eae1cd5706347139b8b83241f9d42ea10%7CB00X528FNE) [View On Home Depot](https://www.homedepot.com/p/Rexing-V1-2-4-in-LCD-FHD-1080p-170-Wide-Angle-Dashboard-Camera-Recorder-Car-Dash-Cam-with-G-Sensor-WDR-Loop-Recording-V1/301705517)
@@ -71,14 +78,14 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/JfL4E5NnuBPl6-93Hv3PI4IJsV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_05-bcfff5f440b545378c9ee4e6b431ffac.jpg)
 
- Lifewire / Danny Chadwick
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Danny Chadwick
 
 ## **Design: Fits perfectly on your windshield**
 
@@ -96,6 +103,13 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/ztn3EsFqtKkWImvQhtgcr1vlHwI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_02-9ee3aa46e7394a1ab263a6b12b287314.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Danny Chadwick
 
 ## **Setup Process: Be sure that’s where you want to put it**
@@ -110,21 +124,7 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/df0_L-UzAk3OryqSCncsjfqi8QM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_03-2273fff3f71944368711b60f5da9687e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Danny Chadwick
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Camera Quality: Basic**
 
@@ -135,6 +135,13 @@ Lifewire / Danny Chadwick
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/9_1pHoEq74JWPJ8reothv8PeI8E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_04-c5d42af8ddfa4296a6c6b1e8551edef6.jpg)
 
  Lifewire / Danny Chadwick
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Set it and forget it**
 
@@ -150,22 +157,15 @@ Lifewire / Danny Chadwick
 
  Like the rest of the dashboard cameras we tested, the Rexing V1 has the ability to record audio, but it does a middling job of it. Voices in the car and sounds coming from the interior speakers were clear enough to understand, but sounds from outside the vehicle were muddy at best.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: A good value**
 
  The Rexing V1 retails for $130, but as of the time of this writing, can typically be purchased for closer to $100\. We feel like this is a perfectly appropriate price for this device—it falls right in the middle of the typical dashcam price range, providing better performance than super budget models, but without the high-tech features of the more expensive options out there. In short, it’s a good price for a solid, basic device.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Z3 Plus vs. Rexing V1**
@@ -213,19 +213,24 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-innovative-youtube-titles-crafting-a-standout-brand/"><u>[New] 2024 Approved Innovative YouTube Titles Crafting a Standout Brand</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-a-blueprint-for-success-three-core-writing-principles-for-compelling-fb-ad-content/"><u>[New] In 2024, A Blueprint for Success Three Core Writing Principles for Compelling FB Ad Content</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-incorporate-soundtrack-elements-into-premiere-pro/"><u>[Updated] 2024 Approved Incorporate Soundtrack Elements Into Premiere Pro</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-video-quality-mastering-aspect-ratio-and-size-settings-on-youtube/"><u>[Updated] In 2024, Elevate Video Quality Mastering Aspect Ratio and Size Settings on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-quick-tunes-explore-video-music-characters/"><u>[Updated] Quick Tunes Explore Video Music Characters</u></a></li>
-<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-nubia-red-magic-9-proplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apple-watch-uncovered-a-deep-dive-into-gps-and-cellular-features/"><u>Apple Watch Uncovered: A Deep Dive Into GPS and Cellular Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-thermaltake-massive-tm-notebook-cooler-assessment-packed-with-features-high-cost/"><u>Comprehensive Thermaltake Massive TM Notebook Cooler Assessment: Packed with Features, High Cost</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-most-popular-microsoft-office-alternatives-for-businesses/"><u>Discover the Most Popular Microsoft Office Alternatives for Businesses</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-gotrax-gxl-v2-e-scooter-ideal-for-speedy-city-commutes/"><u>Expert Analysis of the Gotrax GXL V2 E-Scooter: Ideal for Speedy City Commutes</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-the-complete-scrutiny-of-camstudio-screencapture-tech/"><u>In 2024, The Complete Scrutiny of CamStudio ScreenCapture Tech</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-elevate-your-audio-2-fade-infade-out-methods-in-fcp/"><u>New 2024 Approved Elevate Your Audio 2 Fade-In/Fade-Out Methods in FCP</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/pro-level-strategies-captioning-content-on-vimeo-for-2024/"><u>Pro-Level Strategies Captioning Content on Vimeo for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-sonic-elixir-beoplay-h8i-overview/"><u>The Ultimate Sonic Elixir: Beoplay H8i Overview</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-choreographing-gripping-podcast-openings/"><u>[New] Choreographing Gripping Podcast Openings</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-guide-to-audio-recording-with-windows-11/"><u>[New] Guide to Audio Recording with Windows 11</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-optimal-screen-record-settings-for-facetime-conversations/"><u>[New] In 2024, Optimal Screen Record Settings for FaceTime Conversations</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-premiere-pro-a-launchpad-for-youtube-videos/"><u>[New] Premiere Pro A Launchpad for YouTube Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-sketched-snicker-fits-kapwing-meme-artisan/"><u>2024 Approved Sketched Snicker-Fits Kapwing Meme Artisan</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/battery-operated-google-wireless-nest-doorbell-functionality-and-features-unveiled/"><u>Battery Operated Google Wireless Nest Doorbell: Functionality and Features Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-most-effective-iphone-antivirus-solutions-for-enhanced-mobile-safety/"><u>Discover the Most Effective iPhone Antivirus Solutions for Enhanced Mobile Safety</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-ultimate-picks-top-educational-portals-for-e-learning/"><u>Discover the Ultimate Picks: Top Educational Portals for E-Learning</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-durable-design-and-cost-effectiveness-of-the-fintie-case-for-macbook-pro-13/"><u>Evaluating the Durable Design & Cost-Effectiveness of the Fintie Case for MacBook Pro 13</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-kensun-mobile-tire-pump-a-combination-of-strength-and-portability/"><u>Evaluating the Kensun Mobile Tire Pump – A Combination of Strength and Portability</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/excellent-unrestricted-pubg-visual-sequences/"><u>Excellent Unrestricted PUBG Visual Sequences</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-leading-no-tangle-call-devices-your-definitive-selection-guide/"><u>Exploring Leading No-Tangle Call Devices - Your Definitive Selection Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-realme-c53-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Realme C53? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/incredible-lightness-meets-robust-performance-the-lg-gram-17-analysis/"><u>Incredible Lightness Meets Robust Performance - The LG Gram 17 Analysis</u></a></li>
+<li><a href="https://review-topics.techidaily.com/insert-signature-in-dotm-file-by-ldigisigner-sign-a-word-sign-a-word/"><u>Insert signature in .dotm file</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-top-highlight-reel-creators-desktop-and-mobile-apps-for-2024/"><u>New Top Highlight Reel Creators Desktop and Mobile Apps for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/rainbow-six-siege-fixed-now-running-smoothly/"><u>Rainbow Six Siege Fixed! Now Running Smoothly</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sound-powered-by-logitech-g533-a-game-changer/"><u>Sound Powered by Logitech G533: A Game Changer?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-review-of-the-halo-bolt-portable-jump-starter-and-power-bank-unleash-reliable-energy/"><u>Top Review of the Halo Bolt Portable Jump Starter & Power Bank - Unleash Reliable Energy</u></a></li>
 </ul></div>
 

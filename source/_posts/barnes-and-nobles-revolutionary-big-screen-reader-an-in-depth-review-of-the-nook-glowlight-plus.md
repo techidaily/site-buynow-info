@@ -1,7 +1,7 @@
 ---
 title: Barnes & Noble's Revolutionary Big Screen Reader - An In-Depth Review of the Nook Glowlight Plus.
-date: 2024-09-20T18:17:03.689Z
-updated: 2024-09-27T00:14:33.180Z
+date: 2024-09-29T21:00:03.595Z
+updated: 2024-10-02T05:02:46.439Z
 categories:
   - BestProducts
 description: This Article Describes Barnes & Noble's Revolutionary Big Screen Reader - An In-Depth Review of the Nook Glowlight Plus.
@@ -73,20 +73,13 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/MW5wYA5ujBjG5LdXn-w9bTJd5WQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-2-a59091cd21c04d99a42270199349fc2a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Easy thanks to Steam**
 
@@ -95,6 +88,13 @@ Lifewire / Rebecca Isaacs
  One of the nicest aspects about 7 Days is that when you boot up a game, and even after, you have a plethora of options to customize gameplay. Do you want Scavenger (easiest setting) or do you want to play on the hardest settings in which the game actually tells you, “You’re one bad mother!”? Do you want the 24-hour cycle to span 30 minutes or two hours of real time? Do you want zombies to sprint at night? How many zombies do you want in your day 7 horde? These are all great options for creating unique and challenging gameplay.
 
 ![7 Days to Die](https://www.lifewire.com/thmb/Eq0YCIdbj82yj3lOCWEdZS7jX6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-4-341174c3997543728bd2b024c6e2a309.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -113,10 +113,10 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/U2XChOqkiQvFhP69V0cQ5mYcYME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-3-d19d9b4d19734cffb022d6e0db90382e.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -143,13 +143,6 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Graphics: Outdated, but detailed on optimal**
 
  For a game that was released in 2013 originally, the graphics could be a little better, even if you play on optimal settings. Back in the day, we played on lower settings rather than splurge on a fancy graphics card. If you play on the lower settings, it’s cringeworthy, though not as cringeworthy as the Witcher 3’s lowest settings.
@@ -157,6 +150,13 @@ Lifewire / Rebecca Isaacs
  7 Days has a decent 3D graphics system that they’ve definitely improved as the alpha updates have been released. As a consequence, the minimum requirements have also increased. Those who play on minimum settings may want to take note of that. While we hope they’ll improve these over the next alpha updates, we are taking the graphics as they are at the time of this review, and right now, while they’re detailed on optimal settings, they could be better.
 
  Because the graphics are a rather mixed bag, the frames per second (fps) can vary dramatically. We experienced drops as low as 18 fps when playing. When surrounded by a horde, that can cost you your life.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Platform: It’s complicated**
 
@@ -167,6 +167,13 @@ Lifewire / Rebecca Isaacs
 ## **Price: Average for an alpha game**
 
  At around $25, 7 Days isn’t the most expensive zombie game on the market. However, it is the most expensive alpha zombie game out there. Because you can purchase it on[Steam](https://www.lifewire.com/what-is-steam-4177380) or Humble Bumble, we recommend waiting for a Steam sale and getting it for a discount, especially since it’s still in progress. This way, if you decide you don’t like it in the future, you aren’t out the full price.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Other sandbox shooters**
 
@@ -179,13 +186,6 @@ Lifewire / Rebecca Isaacs
  **If you love smart zombies, you’ll love this game.**
 
  Despite flaws in graphics, there’s a lot to love about 7 Days to Die. The challenging skill tree system and dangerous intelligent zombies add an element that’s not typically found in zombie shooters. If you want a game to commit to for hours on end, building bases and exploring dungeon-like homes while slaying zombie cheerleaders, then 7 Days to Die could be a fun way to ease some stress after a long day of work.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -220,19 +220,20 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-tickle-me-tiktok-jokes-and-riddles-the-best-in-laughter/"><u>[New] 2024 Approved Tickle-Me TikTok Jokes & Riddles – The Best in Laughter</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-extreme-playlist-best-tiktok-crazy-games-to-try/"><u>[New] In 2024, Extreme Playlist Best TikTok Crazy Games to Try</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-free-explore-youtubes-9-premium-full-length-christmas-flicks/"><u>[Updated] Free Explore YouTube's 9 Premium Full-Length Christmas Flicks</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-mastering-the-art-of-podcast-name-creation-and-50plus-dynamic-example-titles/"><u>[Updated] Mastering the Art of Podcast Name Creation & 50+ Dynamic Example Titles</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-vivo-y200e-5g-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Vivo Y200e 5G Phone Using PC | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-honor-90-pro-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Honor 90 Pro Without Volume Buttons | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-xiaomi-redmi-note-12-pro-5g-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Xiaomi Redmi Note 12 Pro 5G Is Unlocked</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-monetization-showdown-dailymotion-versus-youtube/"><u>In 2024, Monetization Showdown Dailymotion Versus YouTube</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-the-ultimate-guide-to-motorola-moto-g-stylus-5g-2023-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Motorola Moto G Stylus 5G (2023) Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-all-in-one-fitness-companion-a-deep-dive-into-the-features-of-fitbit-versa-2-with-integrated-smartwatch-functionality/"><u>The All-in-One Fitness Companion: A Deep Dive Into the Features of Fitbit Versa 2 with Integrated Smartwatch Functionality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-complete-guide-to-amazfit-heliorings-costs-availability-date-and-component-breakdown/"><u>The Complete Guide to Amazfit HelioRing's Costs, Availability Date & Component Breakdown</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-comprehensive-review-of-asus-vivobook-eb-11-perfect-mix-of-portability-and-value/"><u>The Comprehensive Review of Asus VivoBook Eb 11: Perfect Mix of Portability and Value</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-pixel-slate-examined-confronting-the-disarray-within-chromeos/"><u>The Pixel Slate Examined: Confronting the Disarray Within ChromeOS</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-portable-charger-face-off-spotlight-on-the-zmi-powerpack-20000-review/"><u>The Ultimate Portable Charger Face-Off: Spotlight on the ZMI PowerPack 20000 Review</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-essential-screen-recording-software-a-comprehensive-analysis/"><u>[Updated] Essential Screen Recording Software A Comprehensive Analysis</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-harmony-match-maker/"><u>[Updated] Harmony Match Maker</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-deepdelete-masterful-background-erasure/"><u>2024 Approved DeepDelete Masterful Background Erasure</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/macx-dvd-converter-pro-pack/"><u>公式ガイド:MacX DVD Converter Pro Packを使う方法とライセンスコード分析</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/advanced-wi-fi-reach-expanders-top-performing-models-for-enhanced-connectivity/"><u>Advanced Wi-Fi Reach Expanders: Top Performing Models for Enhanced Connectivity</u></a></li>
+<li><a href="https://win-guides.techidaily.com/enhance-reader-engagement-by-auto-playing-videos-on-arrival-discover-how-with-flipbuilder/"><u>Enhance Reader Engagement by Auto-Playing Videos on Arrival - Discover How with FlipBuilder</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-c32-bootloader-easily-by-drfone-android/"><u>How to Unlock Nokia C32 Bootloader Easily</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-bypass-activation-lock-on-iphone-13-mini-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Bypass Activation Lock on iPhone 13 mini</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/iphone-13-assessment-a-detailed-look-at-the-newest-apple-smartphone/"><u>IPhone 13 Assessment - A Detailed Look at the Newest Apple Smartphone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/m1-chip-ipad-pro-2021-review-experience-powerhouse-portability/"><u>M1 Chip iPad Pro 2021 Review: Experience Powerhouse Portability</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/secure-social-scale-the-premier-app-selection-for-ios-and-android-users/"><u>Secure Social Scale - The Premier App Selection for iOS & Android Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sony-xbr65x850f-4k-television-stunning-visuals-at-an-unbelievable-price-point-review/"><u>Sony XBR65X850F 4K Television: Stunning Visuals at an Unbelievable Price Point Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-the-samsung-galaxy-a20-affordable-quality-that-endures-over-time/"><u>The Ultimate Verdict on the Samsung Galaxy A20: Affordable Quality that Endures Over Time</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-sleek-powerhouse-comprehensive-review-of-the-thinkpad-x1-nano-by-lenovo/"><u>Unboxing the Sleek Powerhouse: Comprehensive Review of the ThinkPad X1 Nano by Lenovo</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/weather-enthusiasts-rejoice-with-the-impeccable-netatmo-station-review-a-technophiles-dream-come-true/"><u>Weather Enthusiasts Rejoice with the Impeccable Netatmo Station Review – A Technophile's Dream Come True!</u></a></li>
 </ul></div>
 

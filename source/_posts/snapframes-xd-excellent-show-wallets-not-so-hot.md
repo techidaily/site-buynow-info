@@ -1,7 +1,7 @@
 ---
 title: "SnapFrames XD: Excellent Show, Wallet's Not So Hot"
-date: 2024-09-20T00:51:07.803Z
-updated: 2024-09-20T20:01:21.539Z
+date: 2024-09-29T01:39:21.851Z
+updated: 2024-10-02T06:07:13.983Z
 categories:
   - BestProducts
 description: "This Article Describes SnapFrames XD: Excellent Show, Wallet's Not So Hot"
@@ -46,6 +46,13 @@ Lifewire / Jonno Hill
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jonno Hill
 
 [View On Amazon](https://www.amazon.com/Mohu-Television-Paper-thin-Performance-MH-110598/dp/B00HSMK580/?tag=lifewire-onsite-prod-20&ascsubtag=4843108%7Cnc1d14f8f39df4c2dac4b8d8ca33f9ac217%7CB00HSMK580) [View On Walmart $48](https://www.walmart.com/ip/Mohu-Leaf-30-Flat-30-Mile-Indoor-HDTV-Antenna/36126033) [View On Home Depot $41](https://www.homedepot.com/p/Mohu-Leaf-30-HDTV-Indoor-Antenna-MH-110583/205146429?slfpid=3)
@@ -69,6 +76,13 @@ Lifewire / Jonno Hill
 
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
@@ -76,10 +90,10 @@ Lifewire / Jonno Hill
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup: Dead simple**
@@ -112,16 +126,10 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
 
 <!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -149,5 +157,19 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-vimeos-budget-friendly-tools-for-seamless-edits/"><u>[Updated] 2024 Approved Vimeo's Budget-Friendly Tools for Seamless Edits</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-tune-into-success-with-instagram-soundscapes-for-2024/"><u>[Updated] Tune Into Success with Instagram Soundscapes for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/breaking-the-noise-barrier-techniques-for-fixing-your-soundless-static-machine/"><u>Breaking the Noise Barrier: Techniques for Fixing Your Soundless Static Machine</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-gimp-free-image-editing-software-evaluation-across-various-platforms/"><u>Comprehensive GIMP Free Image Editing Software Evaluation Across Various Platforms</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/cutting-edge-screen-recorders-for-professionals/"><u>Cutting-Edge Screen Recorders for Professionals</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/directing-youtube-and-twitter-videos-via-whatsapp-messages/"><u>Directing YouTube & Twitter Videos via WhatsApp Messages</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exclusive-prime-sale-deals-on-outstanding-tribit-speakers-and-innovative-earbuds-collection/"><u>Exclusive Prime Sale Deals on Outstanding Tribit Speakers and Innovative Earbuds Collection</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-infinix-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Infinix ?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/key-factors-in-choosing-a-home-broadband-device/"><u>Key Factors in Choosing a Home Broadband Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/uncovering-value-detailed-review-of-the-alcatel-joy-tab-2s-budget-appeal-and-lte-capabilities/"><u>Uncovering Value: Detailed Review of the Alcatel Joy Tab 2'S Budget Appeal & LTE Capabilities</u></a></li>
+<li><a href="https://games-able.techidaily.com/unlocking-gba-games-in-your-linux-console/"><u>Unlocking GBA Games in Your Linux Console</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/vyncs-tracking-tool-overview-dependable-monitoring-with-puzzling-membership-options/"><u>Vyncs Tracking Tool Overview: Dependable Monitoring with Puzzling Membership Options</u></a></li>
+</ul></div>
 

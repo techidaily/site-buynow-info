@@ -1,7 +1,7 @@
 ---
 title: "Discovering Value in OnePlus Nord N10 5G: A Review You Shouldn't Miss"
-date: 2024-09-13T19:23:56.749Z
-updated: 2024-09-20T21:35:50.228Z
+date: 2024-10-01T06:51:11.040Z
+updated: 2024-10-01T20:31:03.688Z
 categories:
   - BestProducts
 description: "This Article Describes Discovering Value in OnePlus Nord N10 5G: A Review You Shouldn't Miss"
@@ -46,6 +46,13 @@ Lifewire / Jonno Hill
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jonno Hill
 
 [View On Amazon](https://www.amazon.com/Mohu-Television-Paper-thin-Performance-MH-110598/dp/B00HSMK580/?tag=lifewire-onsite-prod-20&ascsubtag=4843108%7Cnc1d14f8f39df4c2dac4b8d8ca33f9ac217%7CB00HSMK580) [View On Walmart $48](https://www.walmart.com/ip/Mohu-Leaf-30-Flat-30-Mile-Indoor-HDTV-Antenna/36126033) [View On Home Depot $41](https://www.homedepot.com/p/Mohu-Leaf-30-HDTV-Indoor-Antenna-MH-110583/205146429?slfpid=3)
@@ -80,10 +87,10 @@ Lifewire / Jonno Hill
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Acceptable but not incredible**
@@ -91,6 +98,13 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna wasn’t the highest performing antenna that I tested, even among similar unpowered antennas. In my channel acquisition test, the Leaf picked up 56 channels on average across all the iterations performed.
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: Fairly limited**
 
@@ -103,10 +117,10 @@ Lifewire / Jonno Hill
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
@@ -143,5 +157,21 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-turning-youtube-shorts-into-a-money-machine-essentials-and-earnings-prospects/"><u>[New] 2024 Approved Turning YouTube Shorts Into a Money Machine Essentials and Earnings Prospects</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-before-you-fly-drone-purchase-tips-and-considerations/"><u>[New] Before You Fly Drone Purchase Tips and Considerations</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-comprehensive-breakdown-of-zd-soft-recording-features/"><u>[Updated] In 2024, Comprehensive Breakdown of ZD Soft Recording Features</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-pixelperfect-image-transformations-for-2024/"><u>[Updated] PixelPerfect Image Transformations for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/combatting-blurry-and-warped-youtube-videos-for-2024/"><u>Combatting Blurry and Warped YouTube Videos for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-the-capabilities-of-tcls-32s325-an-insightful-2019-roku-smart-led-television-review/"><u>Decoding the Capabilities of TCL's 32S325: An Insightful 2019 Roku Smart LED Television Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevating-your-viewing-experience-with-1byones-digital-amplified-tv-antenna-for-enhanced-indoor-signal/"><u>Elevating Your Viewing Experience with 1byOne's Digital Amplified TV Antenna for Enhanced Indoor Signal</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/essential-review-of-the-user-friendly-google-wifi-router-a-top-choice-for-seamless-connectivity/"><u>Essential Review of the User-Friendly Google WiFi Router - A Top Choice for Seamless Connectivity</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-se-2022-without-passcode-by-drfone-ios/"><u>How to Unlock iPhone SE (2022) Without Passcode?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-animators-companion-expertly-reviewed-3d-modeling-software/"><u>In 2024, The Animator's Companion Expertly Reviewed 3D Modeling Software</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-exposing-the-shortcomings-in-pioneers-blu-ray-burner-model-bdr-xd05b/"><u>In-Depth Review Exposing the Shortcomings in Pioneer's Blu-Ray Burner, Model BDR-XD05B</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-review-of-the-2021-apple-tv-4k-experience-stunning-hd-quality-streaming-enhanced-by-convenient-siri-controls/"><u>The Definitive Review of the 2021 Apple TV 4K: Experience Stunning HD Quality Streaming Enhanced by Convenient Siri Controls</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/transform-your-gaming-rig-experience-superior-cooling-and-aesthetics-with-deepcools-latest-tech-and-chic-pixel-silicone-upgrades/"><u>Transform Your Gaming Rig: Experience Superior Cooling and Aesthetics with DeepCool’s Latest Tech and Chic Pixel Silicone Upgrades</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-blade-e-flite-mcx2-rtf-helicopter-ultimate-guide-and-review-for-rc-enthusiasts/"><u>Unveiling the Blade E-Flite mCX2 RTF Helicopter: Ultimate Guide and Review for RC Enthusiasts</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Expert Review: Testing the Capabilities of the Garmin Forerunner 265 Sportswatch"
-date: 2024-09-24T06:53:23.789Z
-updated: 2024-09-26T21:35:51.442Z
+date: 2024-09-28T07:58:59.800Z
+updated: 2024-10-02T02:01:44.524Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Review: Testing the Capabilities of the Garmin Forerunner 265 Sportswatch"
@@ -42,9 +42,23 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -67,13 +81,6 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -92,27 +99,7 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels (in a rural area)**
 
@@ -122,6 +109,13 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Range: 35 miles**
 
  The AmazonBasics antenna has a 35-mile range, which isn’t very far considering 50 plus miles is becoming more common. It is omnidirectional, however, so you don’t need to point it in a specific direction. It supports UHF/VHF, so I was able to get a decent selection of channels.
@@ -129,6 +123,13 @@ Lifewire / Erika Rawes
  Even with the short-range, I was able to pick up 16 channels on my first attempt, including The CW, PBS, and more. In a different room in my test home, I was able to get 23 channels, but this is probably because there’s less tree cover outside of the house on that side of the property. Considering the location of my test home, 23 channels is pretty good.
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Super affordable**
 
@@ -147,19 +148,6 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
-
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -192,24 +180,17 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-conquer-windows-10-a-mov-filming-masterclass-for-2024/"><u>[New] Conquer Windows 10 A MOV Filming Masterclass for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/tep-by-step-guide-to-saving-your-youtube-playlists/"><u>[New] Step-by-Step Guide to Saving Your YouTube Playlists</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-win10-ultimate-screenshot-and-video-capture-kit/"><u>[Updated] In 2024, Win10 Ultimate Screenshot & Video Capture Kit</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-the-workings-of-drones-an-introduction-for-beginners/"><u>[Updated] The Workings of Drones An Introduction for Beginners</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/crescendo-video-tips-for-music-loving-snapchaters-for-2024/"><u>Crescendo Video Tips for Music-Loving Snapchaters for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/digital-stargazers-guide-to-best-sky-imaging-websites/"><u>Digital Stargazers' Guide to Best Sky Imaging Websites</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discovering-the-power-of-affordability-in-depth-look-at-samsung-galaxy-a7-5g-vs-leading-phones-on-the-market/"><u>Discovering the Power of Affordability: In-Depth Look at Samsung Galaxy A7 5G Vs. Leading Phones on The Market</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/echostop-clearears-noise-reduction-review/"><u>EchoStop ClearEars Noise Reduction Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/economical-entry-model-assessment-of-syma-x5c-remote-control-drone/"><u>Economical Entry Model Assessment of SYMA X5C Remote Control Drone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-world-of-digital-reading-with-the-highly-rated-kobo-forma-reviewed-here/"><u>Exploring the World of Digital Reading with the Highly Rated Kobo Forma Reviewed Here</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/filter-not-working-error-in-excel-2003-fix-2024-by-stellar-guide/"><u>Filter Not Working Error in Excel 2003 Fix 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/gb-mb-drivers-direct-downloader-windows-installation/"><u>GB MB Drivers: Direct Downloader, Windows Installation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-motorola-mg7700-high-performance-unmatched/"><u>In-Depth Analysis of Motorola MG7700 - High Performance Unmatched</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-portable-and-economical-asus-vivobook-11/"><u>In-Depth Analysis of the Portable & Economical ASUS VivoBook 11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-insights-into-netgears-top-of-the-line-c7000-modem-a-superior-choice-for-seamless-connectivity/"><u>In-Depth Insights Into Netgear's Top-of-the-Line C7000 Modem: A Superior Choice for Seamless Connectivity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/inside-the-tp-link-archer-c80-an-affordable-speed-demon-under-100/"><u>Inside the TP-Link Archer C80: An Affordable Speed Demon Under $100</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/insights-into-4-key-benefits-of-the-walmartplus-program/"><u>Insights Into 4 Key Benefits of the Walmart+ Program</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-essential-guide-to-spotting-a-haunted-account-9-ways/"><u>The Essential Guide to Spotting a Haunted Account (9 Ways)</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-9-strategies-leveraging-chatgpt-for-enhanced-health-management/"><u>Top 9 Strategies: Leveraging ChatGPT for Enhanced Health Management</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-in-depth-screen-capturing-a-resourceful-guide-for-dell-users/"><u>[New] In 2024, In-Depth Screen Capturing A Resourceful Guide for Dell Users</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-navigating-facebooks-updated-algorithm-preparation-checklist/"><u>2024 Approved Navigating Facebook's Updated Algorithm Preparation Checklist</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/choosing-the-right-iphone-for-gamers-a-comprehensive-review/"><u>Choosing the Right iPhone for Gamers: A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/future-proof-portable-music-systems-2024-edition/"><u>Future-Proof Portable Music Systems - 2024 Edition</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-vivo-s18-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Vivo S18 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-graphicgenius-create-funny-memes/"><u>In 2024, GraphicGenius Create Funny Memes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-footage-enhancement-without-borders/"><u>In 2024, YouTube Footage Enhancement Without Borders</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-truecaller-application-a-users-guide/"><u>In-Depth Analysis of the Truecaller Application: A User's Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/mastering-cross-platform-communication-twitch-and-whatsapp-synergy-for-2024/"><u>Mastering Cross-Platform Communication Twitch & WhatsApp Synergy for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/perfecting-narrative-scripts-dialogue-excellence-for-2024/"><u>Perfecting Narrative Scripts Dialogue Excellence for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-pick-affordable-fellowes-microban-wired-keyboard-a-comprehensive-review/"><u>Top Pick: Affordable Fellowes Microban Wired Keyboard - A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-body-cameras-find-your-perfect-match/"><u>Top-Rated Body Cameras : Find Your Perfect Match</u></a></li>
 </ul></div>
 

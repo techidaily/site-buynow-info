@@ -1,7 +1,7 @@
 ---
 title: In-Depth Evaluation of the Speedy & Affordable TP-Link Archer C8n Wireless Router
-date: 2024-09-22T22:00:46.326Z
-updated: 2024-09-26T22:14:50.343Z
+date: 2024-09-28T21:53:33.027Z
+updated: 2024-10-02T02:53:24.692Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Evaluation of the Speedy & Affordable TP-Link Archer C8n Wireless Router
@@ -41,6 +41,13 @@ Lifewire / Erika Rawes
 [View On Amazon](https://www.amazon.com/dp/B075ZQXB26/?tag=lifewire-onsite-prod-20&ascsubtag=4845569%7Cn4bcb8b1996c24cd3b14f62e195599b0615%7CB075ZQXB26)
 
 4.2
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## AmazonBasics Ultra-Thin Antenna
 
@@ -88,10 +95,10 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels (in a rural area)**
@@ -110,27 +117,20 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
@@ -143,10 +143,10 @@ Lifewire / Erika Rawes
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -180,17 +180,18 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-art-of-crafting-a-youtube-video-with-100kplus-reach/"><u>[New] In 2024, The Art of Crafting a YouTube Video with 100K+ Reach</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-essential-list-best-microphones-for-4k-ultra-hd-for-2024/"><u>[Updated] Essential List Best Microphones for 4K Ultra HD for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-dailymotion-vs-youtube-who-earns-more-from-video-content/"><u>[Updated] In 2024, Dailymotion vs YouTube Who Earns More From Video Content?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/b550-xt-unveiled-speech-recognition-and-sound-isolation/"><u>B550-XT Unveiled: Speech Recognition & Sound Isolation</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-samsung-galaxy-a24-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Samsung Galaxy A24 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-unveil-images-clearly-10-online-editors-guide/"><u>In 2024, Unveil Images Clearly 10 Online Editors' Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-the-game-with-power-and-savings-a-complete-look-into-ibuypowers-gaming-setup/"><u>Mastering the Game with Power & Savings: A Complete Look Into Ibuypower's Gaming Setup</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/next-level-gaming-experience-with-the-samsung-q60r-series-qled-4k-smart-tv-a-comprehensive-review/"><u>Next-Level Gaming Experience with the Samsung Q60R Series QLED 4K Smart TV - A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionize-your-playtime-philips-evonias-49-inch-advanced-oled-gaming-monitor/"><u>Revolutionize Your Playtime: Philips Evonia's 49-Inch Advanced OLED Gaming Monitor</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1723001533943-smooth-performance-upgrade-for-assassins-creed-odyssey-pc-edition-troubles-no-more/"><u>Smooth Performance Upgrade for Assassin's Creed Odyssey - PC Edition Troubles No More</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-securing-facebook-profile-and-group-links/"><u>Step-by-Step: Securing Facebook Profile & Group Links</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/wonder-workshops-dash-a-connected-interactive-toy-ready-to-roll-into-action/"><u>Wonder Workshop's Dash - A Connected, Interactive Toy Ready to Roll Into Action!</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-film-lovers-answers-repository/"><u>[Updated] Film Lovers' Answers Repository</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-unveiling-aerial-shots-the-full-potential-of-mi-drone-for-2024/"><u>[Updated] Unveiling Aerial Shots The Full Potential of MI Drone for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/backtrack-innovation-box-for-2024/"><u>Backtrack Innovation Box for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-charming-blend-of-efficiency-price-point-and-size-with-the-samsung-galaxy-s10e-review/"><u>Discover the Charming Blend of Efficiency, Price Point, and Size with the Samsung Galaxy S10e Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/echo-pop-vs-echo-dot-whats-the-difference/"><u>Echo Pop Vs. Echo Dot: What's the Difference?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-motorola-moto-g23-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Motorola Moto G23 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-on-apple-iphone-12-pro-without-password-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account On Apple iPhone 12 Pro without Password?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/psd-mastery-journey-unlimited-complimentary-texts-for-2024/"><u>PSD Mastery Journey Unlimited Complimentary Texts for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionizing-smartwatch-experience-the-elevated-capabilities-of-samsung-galaxy-watch-active2-detailed-review/"><u>Revolutionizing Smartwatch Experience: The Elevated Capabilities of Samsung Galaxy Watch Active2 Detailed Review</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/the-artist-writes-an-ipad-guide-to-time-lapse-photography-for-2024/"><u>The Artist' Writes An iPad Guide to Time-Lapse Photography for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-most-advanced-and-efficient-cable-modems-to-upgrade-your-internet-speed/"><u>The Most Advanced and Efficient Cable Modems to Upgrade Your Internet Speed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-upsides-and-downsides-of-communicating-with-pidgin-instant-messaging/"><u>The Upsides and Downsides of Communicating with Pidgin Instant Messaging</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-netgear-routers-for-optimal-performance/"><u>Top-Rated Netgear Routers for Optimal Performance</u></a></li>
 </ul></div>
 

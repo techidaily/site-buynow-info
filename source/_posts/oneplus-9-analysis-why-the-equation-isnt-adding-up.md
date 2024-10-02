@@ -1,7 +1,7 @@
 ---
 title: "OnePlus 9 Analysis: Why the Equation Isn't Adding Up"
-date: 2024-09-22T06:21:29.346Z
-updated: 2024-09-27T02:25:53.541Z
+date: 2024-09-29T08:23:51.503Z
+updated: 2024-10-01T20:03:52.255Z
 categories:
   - BestProducts
 description: "This Article Describes OnePlus 9 Analysis: Why the Equation Isn't Adding Up"
@@ -46,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 
 ![Watch Dogs: Legion](https://www.lifewire.com/thmb/Qr_SiCRONOchw7xBWly6nRwi4qM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Watch-Dogs-Legion-PC-1-4cb0288b78324a52bf9ccce096ab5218.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 [View On Amazon $53](https://www.amazon.com/Watch-Dogs-Legion-Standard-Digital/dp/B07SR1FMMC/?tag=lifewire-onsite-prod-20&ascsubtag=5085469%7Cn3b401040a24e4adbb87768f638d99c1a06%7CB07SR1FMMC) [View On Walmart $9](https://www.walmart.com/ip/Watch-Dogs-Legion-PlayStation-4-PlayStation-5/210835769?slfpid=3) [View On Best Buy $15](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fwatch-dogs-legion-standard-edition-playstation-4-playstation-5%2F6350606.p%3FskuId%3D6350606)
@@ -63,6 +70,13 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 * [Specs](https://www.lifewire.com/#toc-full-spec)
 
  Watch Dogs: Legion is the latest installment in Ubisoft’s[Watch Dogs](https://www.liveabout.com/watch-dogs-2-cheats-codes-and-walkthroughs-4773695) series, and you can literally play as any character you encounter in the open world. Although Watch Dogs: Legion released without online gameplay (it became available in December 2020), you can play the campaign mode on PC or[console](https://www.lifewire.com/best-gaming-consoles-4154610) right now. Is this game worth the time and monetary investment? I played Watch Dogs: Legion for 30 hours to find out, evaluating its story, gameplay, graphics, to see how it compares to other titles.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setting and Plot: Fun, but predictable**
 
@@ -89,10 +103,10 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
  Watch Dogs: Legion looks incredible, with great draw distances, and an incredibly detailed world.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Gameplay: Cool character engine, redundant missions**
@@ -102,13 +116,6 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
  Fighting is simple yet satisfying, with a dodge and counter system that feels realistic, and interesting finishing moves. Shooting feels pretty ok too— the aiming works well, and the duck and cover system feels natural. Cut scenes are very well done. They don’t feel arbitrarily thrown in, and they’re well integrated in the game engine. The main storyline takes around 20 hours, but it’ll take much longer if you play all the side missions.
 
 ![Watch Dogs: Legion character creation](https://www.lifewire.com/thmb/fT7PRS6tGlloKdqVFXl8H-TPrVY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-2-ed238e68324c450997c310f225ff57a6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -130,14 +137,14 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 
 ![Watch Dogs: Legion mission](https://www.lifewire.com/thmb/K-AWpBjCaRJlrJ0G-xBMEG92pQo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-7-87aeabc18ddb4bca8252d33fcb1f20bf.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Erika Rawes / Lifewire
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: The usual $60**
 
@@ -146,13 +153,6 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
  There’s just not enough multiplayer meat on the bone or story to justify paying that much more. The $60 price even feels a little high for this game. If you really love open world games, the $60 price might be worth it to you, especially since you can upgrade at no additional cost to the next-gen version if you buy the game on[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) or[Xbox One](https://www.lifewire.com/xbox-one-buyers-guide-3562291) , but you might not get as much playtime out of Watch Dogs: Legion as you would other $60 titles.
 
  The story kept me interested, although the plot bordered on predictable.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Watch Dogs: Legion vs. Grand Theft Auto Series**
 
@@ -185,22 +185,24 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-make-money-with-facebook-a-practical-roadmap/"><u>[New] 2024 Approved Make Money with Facebook A Practical Roadmap</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-crafting-powerful-instagram-content-top-strategies-for-video-marketing/"><u>[New] In 2024, Crafting Powerful Instagram Content Top Strategies for Video Marketing</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-a-novices-choice-ideal-game-recording-and-editing-tools-for-2024/"><u>[Updated] A Novice’s Choice Ideal Game Recording & Editing Tools for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/breathe-life-into-lifeless-fb-posts-unveil-the-top-12-recovery-methods-in-23-for-2024/"><u>Breathe Life Into Lifeless FB Posts - Unveil the Top 12 Recovery Methods in '23 for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/brightening-tactics-for-android-video-enthusiasts/"><u>Brightening Tactics for Android Video Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/deciding-between-smart-voice-aids-alexa-or-google-assistant-for-your-needs/"><u>Deciding Between Smart Voice Aids: Alexa or Google Assistant for Your Needs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/high-speed-asus-rog-rapture-gt-ax110-wireless-router-review-ultimate-performance-for-gamers/"><u>High-Speed Asus ROG Rapture GT-AX110# Wireless Router Review: Ultimate Performance for Gamers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-the-unihertz-atom-xl-revolutionizes-the-phone-market-with-its-small-size-robustness-and-powerful-features/"><u>How the Unihertz Atom XL Revolutionizes the Phone Market With Its Small Size, Robustness and Powerful Features</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/improve-pc-performance-with-intels-latest-iris-plus-graphics-software-on-windows-10-and-11/"><u>Improve PC Performance with Intel's Latest Iris Plus Graphics Software on Windows 10 and 11</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-exclusive-listing-high-quality-free-streamers-for-webm-files/"><u>In 2024, Exclusive Listing High-Quality, Free Streamers for WebM Files</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-remove-your-apple-id-permanently-from-apple-iphone-14-pro-by-drfone-ios/"><u>In 2024, How To Delete iCloud Account Remove Your Apple ID Permanently From Apple iPhone 14 Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-unveiling-the-strengths-and-limitations-of-the-google-pixel-5-flagship-device/"><u>In-Depth Evaluation: Unveiling the Strengths and Limitations of the Google Pixel #5 Flagship Device</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/optimizing-welding-parameters-can-improve-efficiency-and-reduce-waste/"><u>Optimizing Welding Parameters Can Improve Efficiency and Reduce Waste.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/photoscape-review-free-image-editing-software/"><u>PhotoScape Review - Free Image Editing Software</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/screen-blank-gpu-missing-2020/"><u>Screen Blank: GPU Missing [2020]</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-samsungs-4k-hdr10plus-star-qn55q60rafxza-smart-tv-review/"><u>The Ultimate Guide to Samsung's 4K HDR10+ Star, QN55Q60RAFXZA Smart TV Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-2024-long-distance-wireless-routers-buyers-guide/"><u>Top 2024 Long-Distance Wireless Routers: Buyer's Guide</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-expert-insights-bridging-obs-and-facebook-live-streaming/"><u>[New] Expert Insights Bridging OBS and Facebook Live Streaming</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-utilize-vlc-software-for-webcam-video-storage/"><u>[Updated] 2024 Approved Utilize VLC Software for Webcam Video Storage</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-in-depth-analysis-screenflow-performance-on-macbooks/"><u>2024 Approved In-Depth Analysis ScreenFlow Performance on MacBooks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/arlos-hybrid-solution-for-home-safety-in-depth-review-of-the-video-doorbell-that-also-sounds-an-alert/"><u>Arlo's Hybrid Solution for Home Safety: In-Depth Review of The Video Doorbell That Also Sounds an Alert</u></a></li>
+<li><a href="https://win-answers.techidaily.com/beat-the-lag-fixing-deathloops-frame-drops-and-stutters-in-windows/"><u>Beat the Lag: Fixing Deathloop's Frame Drops & Stutters in Windows</u></a></li>
+<li><a href="https://review-topics.techidaily.com/change-location-on-yik-yak-for-your-xiaomi-redmi-note-12-4g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Xiaomi Redmi Note 12 4G to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-linksys-ac1900-max-stream-wifi-router-the-perfect-choice-for-all-users/"><u>Comprehensive Analysis of Linksys AC1900 Max-Stream WiFi Router: The Perfect Choice for All Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-netgear-c3700-a-dual-purpose-modem-and-router/"><u>Comprehensive Evaluation of the Netgear C3700 - A Dual-Purpose Modem and Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/conquer-the-cosmos-a-critical-take-on-stellaris-exploration-gameplay/"><u>Conquer The Cosmos: A Critical Take on Stellaris' Exploration Gameplay</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/elevate-your-bookkeeping-accuracy-using-abbeys-smart-document-recognition-solutions/"><u>Elevate Your Bookkeeping Accuracy Using ABBEY’s Smart Document Recognition Solutions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-daily-blog-key-practices-and-avoidance-tactics/"><u>Elevate Your Daily Blog Key Practices and Avoidance Tactics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-samsungs-newest-offering-the-55-ru7300-4k-oled-television-a-true-worthy-contender/"><u>Evaluating Samsung's Newest Offering – The 55 RU7300 4K OLED Television: A True Worthy Contender?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-radpower-radcity-5-plus-an-impressive-yet-substantially-built-e-bike-for-daily-commutes/"><u>Exploring RadPower RadCity 5 Plus: An Impressive, Yet Substantially-Built E-Bike for Daily Commutes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-easily-register-and-connect-with-the-nintendo-network-on-your-nintendo-3ds-device/"><u>How to Easily Register and Connect with the Nintendo Network on Your Nintendo 3DS Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rayman-legends-examination-an-expertly-crafted-side-scroller/"><u>Rayman Legends Examination: An Expertly Crafted Side-Scroller</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/the-full-unpacked-experience-of-the-logitech-4k-webcam-for-2024/"><u>The Full Unpacked Experience of the Logitech 4K Webcam for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-pros-and-cons-of-using-a-clearstream-2v-hdtv-antenna-for-indooroutdoor-use-looks-and-performance-evaluated/"><u>The Pros & Cons of Using a ClearStream 2V HDTV Antenna for Indoor/Outdoor Use: Looks and Performance Evaluated</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-and-review-for-choosing-a-ring-battery-doorbell/"><u>Ultimate Guide and Review for Choosing a Ring Battery Doorbell</u></a></li>
+<li><a href="https://change-location.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
 </ul></div>
 

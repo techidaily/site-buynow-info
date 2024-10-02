@@ -1,7 +1,7 @@
 ---
 title: "Assessing the Value: Is Steam Deck a Smart Buy?"
-date: 2024-09-25T22:10:12.391Z
-updated: 2024-09-26T22:40:50.630Z
+date: 2024-09-27T17:10:57.772Z
+updated: 2024-10-01T22:58:50.048Z
 categories:
   - BestProducts
 description: "This Article Describes Assessing the Value: Is Steam Deck a Smart Buy?"
@@ -43,22 +43,15 @@ Lifewire / Danny Chadwick
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Apeman C450 Dash Cam
 
 ![Apeman C450 Dashcam](https://www.lifewire.com/thmb/qtPoWkWW4veIi00rgbPVt6Q4pu8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_HeroSquare2-c752b8527e31471e9018279dea42a8ca.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
 
@@ -83,6 +76,13 @@ Lifewire / Danny Chadwick
 
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/wyf8r7L4gDINa5Etodv7VR7ogds=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_03-3a8b995526fe491b9634a885db40804a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Danny Chadwick
 
 ## **Design: All the basics**
@@ -101,13 +101,6 @@ Lifewire / Danny Chadwick
 
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/A63ztrIxThbZlrb_lHJH3YL7778=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_02-6ef4e204d0bd452b9601ec468e5358bf.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Danny Chadwick
 
 ## **Setup Process: You’ll have to figure a lot of stuff out for yourself**
@@ -125,10 +118,10 @@ Lifewire / Danny Chadwick
  Your first time using the Apeman C450, you also have the option to set up a time and date stamp as well as a car identification number on your videos. This is a nice option to keep track of when a video was recorded, and which car it was recorded from if you have more than one camera in different vehicles.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Camera Quality: Acceptable for a budget device**
@@ -165,13 +158,6 @@ Lifewire / Danny Chadwick
 
  The defects of this dashcam can be forgiven pretty easily considering that it costs less than $50\. If you’re looking for a very inexpensive device, the Apeman C450 is a decent if somewhat flawed solution—it’s definitely not built as solidly and lacks the high resolution of its more expensive competitors, but if you are comfortable working around those shortcomings, this dashcam performs pretty well for the price.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Competition: Apeman C450 vs. Z-Edge Z3 Plus**
 
  We tested the Apeman C450 side by side with the Z-Edge Z3 Plus dashcam. The Z3 Plus is considerably more expensive, and while we found these two devices to be generally similar in form and function, we ultimately favored the Z3 Plus because it lacks the small annoyances that made the Apeman C450 frustrating.
@@ -186,11 +172,25 @@ Lifewire / Danny Chadwick
 
  Despite a poor-quality build and some design quirks, the Apeman C450 does its job as a dashcam. It has a discreet design, captures pretty good-quality video, and has important extra features like collision detection and a surveillance mode. If you can get past some of its foibles, it's definitely worth the price tag.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [DDpai mini3](https://www.lifewire.com/ddpai-mini3-review-4770579)
 * [Rexing V1 DashCam](https://www.lifewire.com/rexing-v1-dashcam-review-4770571)
 * [Anker Roav DashCam C1](https://www.lifewire.com/anker-roav-dashcam-c1-review-4773139)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -223,22 +223,20 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-partnership-performed-live-tiktok-edition-for-2024/"><u>[New] Partnership Performed Live TikTok Edition for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-smart-shoppers-guide-to-affordable-cloud-space/"><u>[New] The Smart Shopper's Guide to Affordable Cloud Space</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ai-chatbots-unveiled-separating-fact-from-fiction-in-top-9-urban-legends/"><u>AI Chatbots Unveiled: Separating Fact From Fiction in Top 9 Urban Legends</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-m-mock-1000a-car-battery-booster-evaluation-the-prime-18k-mah-solution/"><u>Comprehensive M MOCK 1000A Car Battery Booster Evaluation: The Prime 18K mAh Solution</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-remarkable-enhancements-of-apple-watch-series-4/"><u>Expert Insights on The Remarkable Enhancements of Apple Watch Series 4</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-features-and-performance-of-the-2019-apple-ipad-air-a-comprehensive-analysis/"><u>Exploring the Features and Performance of the 2019 Apple iPad Air - A Comprehensive Analysis</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722958817948-get-your-new-geforce-gpu-drivers-now-optimized-for-windows-gaming/"><u>Get Your New GeForce GPU Drivers Now - Optimized for Windows Gaming</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/head-to-head-comparison-apple-tv-4k-stacks-up-to-roku-ultra/"><u>Head-to-Head Comparison: Apple TV 4K Stacks Up to Roku Ultra</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-instagram-stories-mastering-the-art-of-time-manipulation/"><u>In 2024, Instagram Stories – Mastering the Art of Time Manipulation</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/integrating-video-content-from-youtube-into-websites-a-comprehensive-guide/"><u>Integrating Video Content From YouTube Into Websites - A Comprehensive Guide</u></a></li>
-<li><a href="https://review-topics.techidaily.com/iphone-12-data-recovery-an-infographic-to-conquer-iphone-data-loss-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>iPhone 12 Data Recovery – An Infographic to Conquer iPhone Data Loss | Stellar</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/nixplay-nix-advance-x15d-digital-frame-review-beautiful-hd-photos/"><u>Nixplay NIX Advance X15D Digital Frame Review: Beautiful HD Photos</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/nixplay-seed-review/"><u>Nixplay Seed Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-drawing-tablets-of-2024/"><u>The Best Drawing Tablets of 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/0-histology-streams-for-academics/"><u>Top 10 Histology Streams for Academics</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-reviews-of-cheapest-car-battery-packs-explore-the-ultimate-low-price-high-performance-options-with-best-priced-power-drives-by-anker/"><u>Top Reviews of Cheapest Car Battery Packs - Explore the Ultimate Low Price, High Performance Options with Best Priced Power Drives by Anker</u></a></li>
-<li><a href="https://os-tips.techidaily.com/top-strategies-and-devices-for-seamless-iphone-wi-fi-connection/"><u>Top Strategies & Devices for Seamless iPhone Wi-Fi Connection</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-elevating-video-quality-incorporating-bb-and-lc-elements-in-fb/"><u>[New] Elevating Video Quality Incorporating BB and LC Elements in FB</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-lenovo-tab-4-examination-pros-and-cons-of-an-economical-android-device/"><u>Affordable Lenovo Tab #4 Examination - Pros and Cons of an Economical Android Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-top-tier-vr-gaming-with-oculus-quest-2-expert-review-and-pricing-breakdown/"><u>Discover Top-Tier VR Gaming with Oculus Quest 2 - Expert Review and Pricing Breakdown</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fitbit-inspire-hr-review-a-fitness-tracker-you-can-wear-247/"><u>Fitbit Inspire HR Review: A Fitness Tracker You Can Wear 24/7</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-vivo-y27-4g-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Vivo Y27 4G Pattern Lock Screen</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-motorola-moto-g14-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Motorola Moto G14 Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-nikons-1j5-videographer-a-spectacle-in-4k/"><u>In 2024, Nikon's 1J5 Videographer A Spectacle in 4K</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-prime-10-image-repositories-without-costs/"><u>In 2024, Prime 10 Image Repositories Without Costs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-chatgpt-plus-a-smart-choice-for-your-needs-uncover-5-compelling-reasons-to-join-now/"><u>Is ChatGPT Plus a Smart Choice for Your Needs? Uncover 5 Compelling Reasons to Join Now!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-the-fitbit-charge-3-worth-buying-in-depth-analysis-and-comparison/"><u>Is the Fitbit Charge 3 Worth Buying ? In-Depth Analysis and Comparison</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/master-the-kitchen-with-ai-7-uses-of-chatgpt-for-aspiring-chefs/"><u>Master the Kitchen with AI: 7 Uses of ChatGPT for Aspiring Chefs</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/reliable-ai-transforming-e-tax-services-the-new-era-of-accountability-and-convenience/"><u>Reliable AI Transforming E-Tax Services: The New Era of Accountability and Convenience</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/resolved-pc-error-0xc0000017-essential-steps-for-successful-system-repair/"><u>RESOLVED: PC Error 0Xc0000017 - Essential Steps for Successful System Repair</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-mastering-plants-vs-zombies-battle-for-neighborville-a-hilarious-shooter-game-for-all-ages/"><u>The Ultimate Guide to Mastering Plants Vs. Zombies: Battle for Neighborville: A Hilarious Shooter Game for All Ages</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/us-debut-of-nickwatch-coincides-with-exciting-kids-choice-ceremony/"><u>U.S. Debut of NickWatch Coincides with Exciting Kids' Choice Ceremony</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Masterpiece in Progress? Exploring Cyberpunk 2077'S Successes & Faults
-date: 2024-09-20T04:08:00.188Z
-updated: 2024-09-27T05:40:27.632Z
+date: 2024-09-25T04:23:10.752Z
+updated: 2024-10-01T21:15:10.257Z
 categories:
   - BestProducts
 description: This Article Describes Masterpiece in Progress? Exploring Cyberpunk 2077'S Successes & Faults
@@ -44,23 +44,9 @@ Lifewire / Emily Ramirez
 
 2.8
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -87,10 +73,16 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -99,20 +91,27 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process/Installation: Easy install, irritating setup**
 
@@ -124,20 +123,14 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
 
@@ -156,6 +149,13 @@ Lifewire / Emily Ramirez
  For the tinkerers out there, Sound Blaster provides a myriad of audio adjustments through their Z-Series software package.
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Unjustified expense**
 
@@ -224,22 +224,14 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-eye-catching-thumbnails-the-top-20-youtube-fonts-unveiled/"><u>[Updated] 2024 Approved Eye-Catching Thumbnails The Top 20 YouTube Fonts Unveiled</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-practical-approach-switching-video-orientation-in-vlc/"><u>[Updated] In 2024, Practical Approach Switching Video Orientation in VLC</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-launch-sequence-the-right-moment-for-podcasts-for-2024/"><u>[Updated] Launch Sequence The Right Moment for Podcasts for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-unparalleled-audio-capture-top-9-online-microphone-systems-in-23/"><u>2024 Approved Unparalleled Audio Capture Top 9 Online Microphone Systems in '23</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/chordcapture-studio-free-download-and-evaluate/"><u>ChordCapture Studio Free, Download & Evaluate</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-ring-doorbell-pro-max-is-it-worth-upgrading/"><u>Expert Insights on the Ring Doorbell Pro Max – Is It Worth Upgrading?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-the-poweradd-pilot-pro2-ultimate-power-bank-for-your-laptop-and-electronics/"><u>Expert Review: The POWERADD Pilot Pro2 - Ultimate Power Bank for Your Laptop and Electronics</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/feline-frenzy-a-gaming-experience/"><u>Feline Frenzy: A Gaming Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/fujitsu-scansnap-ix1600-your-complete-guide-to-the-most-reliable-desktop-document-scanner-reviewed/"><u>Fujitsu ScanSnap iX1600: Your Complete Guide to the Most Reliable Desktop Document Scanner Reviewed</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-vivo-t2-5g-drfone-by-drfone-android/"><u>How to Screen Mirroring Vivo T2 5G? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Vivo Y36i | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-the-pioneer-bdr-xs0n-blu-ray-writer-balancing-mobility-with-functionality/"><u>In-Depth Evaluation of the Pioneer BDR-XS0n Blu-Ray Writer: Balancing Mobility with Functionality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/inexpensive-yet-frustrating-the-nikon-coolpix-a10-story/"><u>Inexpensive, Yet Frustrating: The Nikon COOLPIX A10 Story</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mac-enthusiasts-rejoice-in-depth-freestyle2-blue-performance-assessment/"><u>Mac Enthusiasts Rejoice: In-Depth Freestyle2 Blue Performance Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-the-trade-wars-in-offworld-trading-company-a-comprehensive-empire-building-guide/"><u>Mastering the Trade Wars in Offworld Trading Company: A Comprehensive Empire-Building Guide</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/top-ranking-humor-image-editor/"><u>Top-Ranking Humor Image Editor</u></a></li>
-<li><a href="https://howto.techidaily.com/why-your-oppo-find-n3-flip-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Oppo Find N3 Flip Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-composition-techniques-for-eye-catching-fb-ad-content/"><u>[New] 2024 Approved Composition Techniques for Eye-Catching FB Ad Content</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-mastering-the-integration-of-b-roll-footage/"><u>[New] 2024 Approved Mastering the Integration of B-Roll Footage</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/anthropics-newest-tool-a-detailed-review-of-the-smart-photo-editor-software/"><u>Anthropics' Newest Tool: A Detailed Review of the Smart Photo Editor Software</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/color-depth-explored-windows-hdri-for-editors-for-2024/"><u>Color Depth Explored Windows HDRI for Editors for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-choosing-an-apc-gaming-ups-for-optimal-pc-performance/"><u>Comprehensive Guide to Choosing an APC Gaming UPS for Optimal PC Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-streamers-a-detailed-analysis-of-chromecast-and-roku-for-enhanced-viewing-pleasure/"><u>Decoding Streamers: A Detailed Analysis of Chromecast and Roku for Enhanced Viewing Pleasure</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-realme-c51-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Realme C51 Devices</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/rhythmcapture-toolkit-a-critical-walkthrough-for-2024/"><u>RhythmCapture Toolkit A Critical Walkthrough for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-ring-video-doorbell-2-analysis-top-of-the-line-security/"><u>Ultimate Ring Video Doorbell 2 Analysis: Top of the Line Security</u></a></li>
 </ul></div>
 
