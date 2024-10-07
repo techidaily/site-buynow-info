@@ -1,7 +1,7 @@
 ---
 title: "FT:TFW Ratio = Fat-Free Mass to Total Body Water Ratio."
-date: 2024-09-29T09:58:15.322Z
-updated: 2024-10-02T02:07:40.883Z
+date: 2024-10-02T18:25:49.541Z
+updated: 2024-10-07T16:00:41.099Z
 categories:
   - BestProducts
 description: "This Article Describes FT:TFW Ratio = Fat-Free Mass to Total Body Water Ratio."
@@ -46,6 +46,13 @@ Lifewire / Jonno Hill
 
 ![ClearStream 2V HDTV Antenna](https://www.lifewire.com/thmb/q2B57F3c717qLOPlnokMF7al1pA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_HeroSquare-b07d5067648049ecb987e39b62796406.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jonno Hill
 
 [View On Amazon $88](https://www.amazon.com/dp/B007RH5GZI/?tag=lifewire-onsite-prod-20&ascsubtag=4843109%7Cn245c3b842cae4efcb285c88c84d3394016%7CB007RH5GZI) [View On Walmart $88](https://www.walmart.com/ip/30312147) [View On Tractor Supply Co. $108](https://www.tractorsupply.com/tsc/product/antennas-direct-clearstream-2v-uhf-vhf-indoor-outdoor-dtv-antenna-with-mount-adic2vcjm?slfpid=3)
@@ -71,20 +78,14 @@ Lifewire / Jonno Hill
 
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/vY1j7QoS0FLwOKNhPlSfR3XMlmo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_02-e97897fe03b74f5faa2eefad3b3b7208.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Glimpsing an ugly future**
 
@@ -103,10 +104,10 @@ Lifewire / Jonno Hill
  Once the entire device is assembled, the real work begins in my opinion. Now you have to figure out how and where to mount this beast of an antenna. Antenna’s Direct has you covered here, including a hefty bracket and swiveling mast that will help you mount the antenna to just about anywhere with a flat surface that you don’t mind screwing some bolts into.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Top tier**
@@ -117,13 +118,6 @@ Lifewire / Jonno Hill
 
  In my channel acquisition test, the ClearStream managed 76 channels consistently, far and away the best result from any of the devices I tested. The worst antenna I tested picked up just 47 channels, and the second best, 69\. Needless to say, all the wires, cages, and bulbous plastic spheres are clearly doing something here, because this was the best result I saw.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Range: Extensive**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna is rated for up to 60 miles. These ratings are generally based on relatively unobstructed paths between the signal and your device. There is a lot less than 60 miles between me and my local TV broadcast source, but if the other results are any indication, the ClearStream has a fighting chance at living up to these claims.
@@ -132,16 +126,16 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Performance doesn’t come cheap**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna has a list price of $120 and a 90-day rolling average price on Amazon of $83\. This is significantly more than any of the other antennas I tested, some of which could be had for around $25\. If you live far enough that you need a better performing antenna, however, it could easily be worth every penny. I would only caution buyers to make sure they really do need this performance before pulling the trigger on this very large antenna.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **ClearStream 2V Indoor/Outdoor HDTV Antenna vs 1byone Digital Amplified Indoor HD TV Antenna**
 
@@ -180,19 +174,24 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-instamagic-weaving-your-story-with-every-posts-caption-for-2024/"><u>[New] Instamagic Weaving Your Story with Every Post's Caption for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-leading-screen-grabbers-top-picks-for-windows-11/"><u>[New] Leading Screen Grabbers Top Picks for Windows 11</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-mastering-the-art-of-instagram-metrics-analysis-your-ultimate-ig-guide-for-2024/"><u>[New] Mastering the Art of Instagram Metrics Analysis – Your Ultimate IG Guide for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-veiled-vocal-vaults-top-6-under-the-radar-mobile-apps-for-2024/"><u>[New] Veiled Vocal Vaults Top 6 Under-the-Radar Mobile Apps for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-a-beginners-tutorial-on-using-luts-in-ar-for-2024/"><u>[Updated] A Beginner's Tutorial on Using LUTs in AR for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-empowering-learning-through-educational-videos-on-youtube-for-2024/"><u>[Updated] Empowering Learning Through Educational Videos on YouTube for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-photo-framing-made-easy-leading-apps-and-sites-reviewed/"><u>[Updated] Photo Framing Made Easy Leading Apps and Sites Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-marvel-motorola-one-vs-iphone-a-comprehensive-comparison/"><u>Affordable Marvel: Motorola One Vs. IPhone - A Comprehensive Comparison</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazon-luna-gaming-experience-evaluation-exceptional-smoothness-in-cloud-based-play/"><u>Amazon Luna Gaming Experience Evaluation: Exceptional Smoothness in Cloud-Based Play</u></a></li>
-<li><a href="https://win-dash.techidaily.com/amd-radeon-hd-7870-windows-10-driver-update-guide-and-download-links/"><u>AMD Radeon HD 7870 Windows 10 Driver Update Guide & Download Links</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-depth-of-mlb-the-show-19-athletic-graphics-meet-adventurous-gameplay-mechanics/"><u>Unveiling the Depth of MLB The Show 19: Athletic Graphics Meet Adventurous Gameplay Mechanics</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-samsungs-qn55q6f-a-breakthrough-in-4k-hdr-smart-tv-technology/"><u>Unveiling the Power of Samsung's QN55Q6F: A Breakthrough in 4K HDR Smart TV Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-the-samsung-qn55q60rafxza-smart-tv-exceptional-4k-resolution-and-hdr10plus/"><u>Unveiling the Power of the Samsung QN55Q60RAFXZA Smart TV: Exceptional 4K Resolution & HDR10+</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-pros-and-cons-of-googles-flagship-contender-a-deep-dive-into-the-pixel-tale/"><u>Unveiling the Pros and Cons of Google's Flagship Contender: A Deep Dive Into the Pixel Tale</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-professional-gamcapture-tools-and-tactics-for-quality-content/"><u>[New] In 2024, Professional GamCapture Tools and Tactics for Quality Content</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-navigate-discords-streaming-landscape-a-comprehensive-tutorial/"><u>[New] Navigate Discord's Streaming Landscape A Comprehensive Tutorial</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-insiders-guide-to-captivating-youtube-headlines-for-2024/"><u>[Updated] The Insider's Guide to Captivating YouTube Headlines for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-halo-review/"><u>Amazon Halo Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-x441ba-review-a-big-screen-laptop-with-tradeoffs/"><u>Asus X441BA Review: A Big Screen Laptop With Tradeoffs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-parent-and-child-the-amazon-fire-hd-10-kid-editions-secure-environment/"><u>Comprehensive Evaluation of Parent & Child The Amazon Fire HD 10 Kid Edition's Secure Environment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-microsoftcu-portable-cost-effective-solution-with-the-new-laptop-go-our-comprehensive-review/"><u>Discover Microsoft'cu Portable, Cost-Effective Solution with the New Laptop Go - Our Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-power-of-apple-m4-microchip-insight-into-its-imminent-release-and-technical-data-sheet/"><u>Explore the Power of Apple M4 Microchip - Insight Into Its Imminent Release & Technical Data Sheet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-controversy-in-tropico-6-critique-of-a-sun-soaked-tyranny/"><u>Exploring the Controversy in Tropico 6: Critique of a Sun-Soaked Tyranny</u></a></li>
+<li><a href="https://review-topics.techidaily.com/identify-missing-or-malfunctioning-your-drivers-with-windows-device-manager-on-windows-11-by-drivereasy-guide/"><u>Identify missing or malfunctioning your drivers with Windows Device Manager on Windows 11</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-audio-visual-innovators-group/"><u>In 2024, Audio-Visual Innovators Group</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-best-practices-for-non-audio-filming/"><u>In 2024, Best Practices for Non-Audio Filming</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-best-solutions-for-samsung-network-unlock-by-drfone-android/"><u>In 2024, Best Solutions for Samsung Network Unlock</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-standard-edition-review-of-djis-drone-model-3/"><u>In 2024, The Standard Edition Review of DJI's Drone Model 3</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-lensdirect-prescription-sunglasses-the-ultimate-defense-against-digital-screen-glare/"><u>In-Depth Look at LensDirect Prescription Sunglasses: The Ultimate Defense Against Digital Screen Glare</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-multi-device-connectivity-an-experts-review-on-the-amazon-basics-7-port-usb-3-hub/"><u>Mastering Multi-Device Connectivity: An Expert's Review on the Amazon Basics 7 Port USB 3 Hub</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-viral-potential-in-tiktok-unboxer-videos/"><u>Mastering Viral Potential in TikTok Unboxer Videos</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/streaming-essentials-the-ultimate-movie-list-by-lifewire/"><u>Streaming Essentials: The Ultimate Movie List by Lifewire</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-the-economical-xiaomi-mi-smart-band-4-is-my-preferred-choice-for-fitness-tracking/"><u>Why the Economical Xiaomi Mi Smart Band 4 Is My Preferred Choice for Fitness Tracking</u></a></li>
 </ul></div>
 

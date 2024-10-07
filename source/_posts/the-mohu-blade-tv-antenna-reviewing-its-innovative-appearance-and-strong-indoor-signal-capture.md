@@ -1,7 +1,7 @@
 ---
 title: "The Mohu Blade TV Antenna: Reviewing Its Innovative Appearance & Strong Indoor Signal Capture"
-date: 2024-09-13T22:24:59.117Z
-updated: 2024-09-20T23:36:05.022Z
+date: 2024-10-06T16:40:55.517Z
+updated: 2024-10-07T17:13:46.548Z
 categories:
   - BestProducts
 description: "This Article Describes The Mohu Blade TV Antenna: Reviewing Its Innovative Appearance & Strong Indoor Signal Capture"
@@ -46,6 +46,13 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 [View On Walmart $29](https://www.walmart.com/ip/612208092)
@@ -66,6 +73,13 @@ Lifewire / Erika Rawes
  _We purchased the Antop AT-127 so our expert reviewer could thoroughly test and assess it. Keep reading for our full product review._
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Reversible faux wood finish**
 
@@ -88,10 +102,10 @@ Lifewire / Erika Rawes
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels**
@@ -104,6 +118,13 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Range: Could be better**
 
  My test home is in a rural area, and there’s a lot of tree cover on the property. The omnidirectional Antop AT-127 has a 40-mile range, which was enough to pick up local channels from neighboring cities.
@@ -112,25 +133,11 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -173,5 +180,22 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-master-iphone-filmmaking-for-full-sphere-effects/"><u>[New] Master iPhone Filmmaking for Full Sphere Effects</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-tech-savvy-academics-recording-education-talks-with-macos-for-2024/"><u>[New] Tech-Savvy Academics Recording Education Talks with MacOS for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-why-does-facebook-suggested-videos-not-showing-up/"><u>[Updated] In 2024, Why Does Facebook Suggested Videos Not Showing Up?</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-perfecting-game-capture-techniques-and-tricks/"><u>[Updated] Perfecting Game Capture Techniques & Tricks</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-essential-steps-in-logging-youtube-live-content/"><u>2024 Approved Essential Steps in Logging YouTube Live Content</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/best-of-mobile-8-ranked-free-and-premium-apps-for-androids-video-tiles/"><u>Best of Mobile #8 Ranked Free & Premium Apps for Android's Video Tiles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-testing-of-the-garmin/"><u>Comprehensive Testing of the Garmin</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/coolpix-b500-a-failed-wi-fi-journey/"><u>COOLPIX B500: A Failed Wi-Fi Journey?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/crucial-aspects-you-shouldnt-ignore-a-guide-to-selecting-the-perfect-tablet/"><u>Crucial Aspects You Shouldn't Ignore: A Guide to Selecting the Perfect Tablet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/desktop-class-performance-in-a-sleek-package-ipad-pro-2021-m1-exposed/"><u>Desktop-Class Performance in a Sleek Package: IPad Pro (2021, M1) Exposed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-apple-itouch-7th-the-interim-audio-gadget/"><u>Discovering the Apple iTouch 7Th: The Interim Audio Gadget</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dreame-bot-l10-pro-overview-innovative-room-cleaning-automation-using-lidar-technology/"><u>Dreame Bot L10 Pro Overview: Innovative Room Cleaning Automation Using LiDAR Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevating-performance-is-laptop-cpu-upgrading-realistic/"><u>Elevating Performance: Is Laptop CPU Upgrading Realistic?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-samsung-galaxy-s23-ultra-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Samsung Galaxy S23 Ultra to iPhone | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-resurrecting-lost-confidential-snapshots/"><u>In 2024, Resurrecting Lost, Confidential Snapshots</u></a></li>
+</ul></div>
 

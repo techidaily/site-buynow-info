@@ -1,7 +1,7 @@
 ---
 title: "SunBriteTV's Veranda Series: Rugged 55-Inch 4K TV for Extreme Durability and Crisp Display"
-date: 2024-09-25T23:36:39.501Z
-updated: 2024-10-02T07:56:10.681Z
+date: 2024-10-06T18:09:37.375Z
+updated: 2024-10-07T16:53:57.784Z
 categories:
   - BestProducts
 description: "This Article Describes SunBriteTV's Veranda Series: Rugged 55-Inch 4K TV for Extreme Durability and Crisp Display"
@@ -67,14 +67,14 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/86PZ5XCiq91ihr7-8UNmM5io9pY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_4_Final_Horiz-bad356a5002b4156859dca672e8a8eb4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / James Huenink
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design:** **Flexible, foldable design**
 
@@ -90,13 +90,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Camera Quality: Quality camera with some autofocus troubles**
 
  The camera takes 1080p video and has a 2 MP sensor. We tested the webcam’s photo capabilities by taking a picture of some packaging. Color was well represented, but the autofocus was just a bit off. The image was just a bit blurry, and we couldn’t read the smaller words at all. This wasn’t a problem close up, but it made a bigger difference when people were far away.
@@ -109,6 +102,13 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/Bko9Uk1HIIMt9aNgtBf9ATCy0AA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_14_Final_Horiz-4f1b9fe91b8c4229b17dbbe6afb81b8c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / James Huenink
 
 ## **Performance: Decent sound quality for a small mic**
@@ -119,25 +119,31 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/C2UBXNFmxG8nA0udy1IprMH4LBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_9_Final_Horiz-1af52951f8704af9b76d7dd1ec9744a9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / James Huenink
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Inexpensive HD camera**
 
  The Logitech C615 costs $70 MSRP, but you can find it for about half that cost. Even at full price, it's a solid value. The thoughtful design, image quality, and microphone clarity easily justify the price tag.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Acquits itself well against the competition**
 
@@ -187,15 +193,14 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-harvesting-happiness-the-ultimate-list-of-7-14-mods/"><u>[Updated] 2024 Approved Harvesting Happiness The Ultimate List of #7-14 Mods</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-quick-guide-incorporating-more-photos-into-your-instagram-story/"><u>[Updated] 2024 Approved Quick Guide Incorporating More Photos Into Your Instagram Story</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-xiaomi-redmi-13c-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Xiaomi Redmi 13C Activity | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-smartphone-as-your-gateway-to-immersive-virtual-reality/"><u>In 2024, Smartphone as Your Gateway to Immersive Virtual Reality</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/mastering-tiktok-audio-transform-into-phone-ringtones/"><u>Mastering TikTok Audio Transform Into Phone Ringtones</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/motorola-mg7700-user-guide-achieving-lightning-fast-connectivity-and-reliability/"><u>Motorola MG7700 User Guide: Achieving Lightning Fast Connectivity & Reliability</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/next-level-smart-speaker-experience-detailed-review-of-amazon-echo-gen-4/"><u>Next-Level Smart Speaker Experience: Detailed Review of Amazon Echo (Gen 4)</u></a></li>
-<li><a href="https://driver-error.techidaily.com/repairing-realtek-driver-post-windows-10-switch/"><u>Repairing Realtek Driver Post-Windows 10 Switch</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revamp-your-gaming-experience-with-a-larger-ps3-hard-drive/"><u>Revamp Your Gaming Experience with a Larger PS3 Hard Drive</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/rig-ready-resilience-the-ultimate-guide-to-selecting-a-high-quality-apc-gaming-ups/"><u>Rig-Ready Resilience: The Ultimate Guide to Selecting a High-Quality APC Gaming UPS</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-miniature-motorcade-matchups-for-2024/"><u>[Updated] Miniature Motorcade Matchups for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-yt-highlights-year-end-spotlight-on-top-music-reactions-for-2024/"><u>[Updated] YT Highlights Year-End Spotlight on Top Music Reactions for 2024</u></a></li>
+<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-oppo-reno-10-pro-5g-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/reclaiming-your-facebook-account-steps-when-you-dont-have-an-email-or-phone/"><u>Reclaiming Your Facebook Account: Steps When You Don't Have an Email or Phone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-6-strategies-how-chatgpt-can-boost-your-career-hunt/"><u>Top 6 Strategies: How ChatGPT Can Boost Your Career Hunt</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-public-speaking-experts/"><u>Top-Rated Public Speaking Experts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-samsung-galaxy-s22-display-shields-ultimate-buyers-guide/"><u>Top-Rated Samsung Galaxy S22 Display Shields - Ultimate Buyer's Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-smart-alarm-devices-a-comprehensive-guide/"><u>Top-Rated Smart Alarm Devices : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-smart-lighting-control-devices/"><u>Top-Rated Smart Lighting Control Devices</u></a></li>
 </ul></div>
 

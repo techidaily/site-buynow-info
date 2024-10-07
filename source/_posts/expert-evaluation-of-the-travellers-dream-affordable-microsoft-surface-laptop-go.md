@@ -1,7 +1,7 @@
 ---
 title: Expert Evaluation of the Traveller's Dream - Affordable Microsoft Surface Laptop Go
-date: 2024-09-29T20:20:28.577Z
-updated: 2024-10-01T21:15:55.365Z
+date: 2024-09-30T17:44:03.506Z
+updated: 2024-10-07T18:07:03.373Z
 categories:
   - BestProducts
 description: This Article Describes Expert Evaluation of the Traveller's Dream - Affordable Microsoft Surface Laptop Go
@@ -42,22 +42,16 @@ Lifewire / Danny Chadwick
 
 4.2
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Rexing V1 DashCam
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/5zZ5bclZ7zJVo8nRB2Y33JNM3w4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_HeroSqaure-ac1bb2840cb04106b14f3838b80a3bf2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
 
@@ -84,14 +78,14 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/JfL4E5NnuBPl6-93Hv3PI4IJsV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_05-bcfff5f440b545378c9ee4e6b431ffac.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Danny Chadwick
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Fits perfectly on your windshield**
 
@@ -109,6 +103,13 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/ztn3EsFqtKkWImvQhtgcr1vlHwI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_02-9ee3aa46e7394a1ab263a6b12b287314.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Danny Chadwick
 
 ## **Setup Process: Be sure that’s where you want to put it**
@@ -123,20 +124,13 @@ Lifewire / Danny Chadwick
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/df0_L-UzAk3OryqSCncsjfqi8QM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_03-2273fff3f71944368711b60f5da9687e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Camera Quality: Basic**
@@ -146,6 +140,19 @@ Lifewire / Danny Chadwick
  When we reviewed the footage captured by the Rexing V1, we found it to be highly detailed and clear when the car was moving along city streets. However, when we hit the freeway, the picture became a little less clear. Signs were hard to read unless you stopped the recording, and small details such as license plates and bumper stickers on other cars couldn’t be made out at all. Nevertheless, the videos yield a good picture of what happens when you drive.
 
 ![Rexing V1 DashCam](https://www.lifewire.com/thmb/9_1pHoEq74JWPJ8reothv8PeI8E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4062264_04-c5d42af8ddfa4296a6c6b1e8551edef6.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
 
@@ -162,13 +169,6 @@ Lifewire / Danny Chadwick
  One feature that is unique to the Rexing V1 is time-lapse recording. It is turned off by default and Rexing recommends you keep it off for your day-to-day driving. But if you’re taking a road trip with scenic routes or want to record a particular journey, this feature is fun to have.
 
  Like the rest of the dashboard cameras we tested, the Rexing V1 has the ability to record audio, but it does a middling job of it. Voices in the car and sounds coming from the interior speakers were clear enough to understand, but sounds from outside the vehicle were muddy at best.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: A good value**
 
@@ -219,16 +219,17 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-enhancing-viewership-transferring-twitch-content-to-fb-for-2024/"><u>[New] Enhancing Viewership Transferring Twitch Content to FB for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-pure-summer-magic-the-top-10-classic-kids-films/"><u>[New] Pure Summer Magic The Top 10 Classic Kid's Films</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-proven-techniques-for-amplifying-your-impact-on-youtube-shorts/"><u>[Updated] 2024 Approved Proven Techniques for Amplifying Your Impact on YouTube Shorts</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-intuitive-face-blurring-guide-on-piscart-tools/"><u>2024 Approved Intuitive Face-Blurring Guide on PiscArt Tools</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/resolve-your-apple-iphone-xr-keeps-asking-for-outlook-password-drfone-by-drfone-ios/"><u>Resolve Your Apple iPhone XR Keeps Asking for Outlook Password | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/snapshotpro-365-year-round-windowsmac-snapshots-for-2024/"><u>SnapshotPro 365 Year-Round Windows/Mac Snapshots for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-wallet-friendly-wonder-a-comprehensive-look-at-the-moto-g-with-stylus-technology/"><u>The Wallet-Friendly Wonder: A Comprehensive Look at the Moto G with Stylus Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-iphone-models-ranked-by-gamer-performance-which-one-reigns-supreme/"><u>Top iPhone Models Ranked by Gamer Performance: Which One Reigns Supreme?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-picks-expertly-reviewed-best-wireless-mouse-models/"><u>Top Picks: Expertly Reviewed Best Wireless Mouse Models</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-gps-running-watches-your-ultimate-guide/"><u>Top-Rated GPS Running Watches : Your Ultimate Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-the-syma-x5c-rc-quadcopter-top-pick-for-entry-level-enthusiasts/"><u>Unboxing & Testing the SYMA X5C RC Quadcopter – Top Pick for Entry-Level Enthusiasts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-premier-5-ios-backdrop-change-applications-for-iphones-x-8-7/"><u>[New] Premier 5 iOS Backdrop Change Applications for iPhones (X, 8, 7)</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unleashing-potential-current-vr-innovations/"><u>[New] Unleashing Potential Current VR Innovations</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-conquer-the-social-networking-landscape-and-grow-your-followers/"><u>[Updated] 2024 Approved Conquer the Social Networking Landscape and Grow Your Followers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/adjusting-google-meet-display-mobile-and-laptop-focus-for-2024/"><u>Adjusting Google Meet Display Mobile and Laptop Focus for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/end-your-frustration-with-continuous-spotify-ads-discover-a-quick-solution-now/"><u>End Your Frustration with Continuous Spotify Ads - Discover a Quick Solution Now!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhancing-retro-gaming-dolphin-emulator-now-comes-with-earnable-achievements-for-classic-gamecube-games/"><u>Enhancing Retro Gaming: Dolphin Emulator Now Comes with Earnable Achievements for Classic GameCube Games</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-persistent-necessity-of-installing-and-downloading-in-modern-physical-gaming/"><u>Exploring the Persistent Necessity of Installing and Downloading in Modern Physical Gaming</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/free-access-catching-all-us-formula-e-races-without-paying-a-dime/"><u>Free Access: Catching All U.S. Formula E Races Without Paying a Dime</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-show-wi-fi-password-on-vivo-v27-by-drfone-android/"><u>How to Show Wi-Fi Password on Vivo V27</u></a></li>
+<li><a href="https://fox-that.techidaily.com/speedy-fixes-for-ios-emoji-suggestions-that-wont-suggest-anything/"><u>Speedy Fixes for iOS Emoji Suggestions That Won't Suggest Anything</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-ultimate-fix-guide-combatting-a-non-active-wsresetexe/"><u>The Ultimate Fix Guide: Combatting a Non-Active WSReset.exe</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tips-and-tricks-to-tell-if-your-iphone-11-is-unlocked-by-drfone-ios/"><u>Tips And Tricks To Tell if Your iPhone 11 Is Unlocked</u></a></li>
 </ul></div>
 

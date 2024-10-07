@@ -1,7 +1,7 @@
 ---
 title: Best Handheld Input Devices for Enhanced iPad Navigation
-date: 2024-09-26T06:54:03.472Z
-updated: 2024-10-01T21:32:34.581Z
+date: 2024-09-30T17:21:51.923Z
+updated: 2024-10-07T16:11:46.552Z
 categories:
   - BestProducts
 description: This Article Describes Best Handheld Input Devices for Enhanced iPad Navigation
@@ -47,10 +47,10 @@ Lifewire / Yoona Wagener
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/4iXRVsuxT7GiqqU4k4vdl39TFNg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_HeroSquare-6cc84a98de3e43e1a252acfbcc81fbb3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
@@ -77,13 +77,6 @@ Lifewire / Yoona Wagener
 
  This latest iteration of the Access bundles first-rate perks like accepting or rejecting calls via Bluetooth calling, Google Pay, sleep and exercise logging, as well as several battery modes. While it lacks serious fitness tracking chops, the Access Gen 5E flourishes with luxe styling and everyday conveniences.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design: Luxe sensibility front and center
 
  If you’re interested in a feature-rich smartwatch that doubles as a statement fashion accessory, you won’t be disappointed by the Access Gen 5E. The 43-millimeter case sports an eye-catching pave pattern around the perimeter and sturdy aluminum construction. A substantial and responsive multipurpose button with the MK logo etched into it serves as a thoughtful accent. All of these details give this watch an elevated look from the very first glance.
@@ -108,6 +101,13 @@ Lifewire / Yoona Wagener
 
  This feature made clasping the band speedy, but I still experienced a slightly loose fit overall. During normal wear, while relaxing, sleeping, or working at a desk, this wasn’t an issue. While running, the case’s considerable weight—which comes in at a hefty 54.6 grams—felt a little too bulky for high-impact activity.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Performance: Good for the essentials
 
  The Access Gen 5E performs all of the usual smartwatch essentials with ease. Day-to-day connectivity features include Bluetooth-enabled calling, smartphone notifications, social media alerts, weather and calendar updates, and the convenience of Google Assistant.
@@ -122,6 +122,13 @@ Lifewire / Yoona Wagener
 
  Without onboard GPS, the only way to measure distance is to use a tethered GPS connection with a smartphone. Acquiring a signal was generally fast, but unfortunately, the watch’s summary was more than a little off. Compared with a Garmin, the Access Gen 5E overshot by 1 mile, and the pace registered at about 90 seconds faster. However, for walking workouts, step count differed only slightly compared with a Garmin smartwatch and the iOS Health app.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Software: Friendliest to Android users
 
  As a[Wear OS](https://www.lifewire.com/best-tips-and-tricks-for-wear-os-4583030) device, it should be no surprise that the Access Gen 5E offers the most well-rounded experience to Android users. If that’s you, you’ll enjoy more seamless integration between your favorite[Google Play](https://www.lifewire.com/what-is-google-play-1616720) apps, whether for fitness or listening to music. And if you have more than one Wear OS device, you can pair both freely with the companion app. With an iPhone, I could pair only one device with the app, and Google Play connectivity was less than ideal.
@@ -131,10 +138,10 @@ Lifewire / Yoona Wagener
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/wOui4ekzG1ONLwrBgvw2GBdAZ3o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_05-cb3f4f64742c45c19c0dd82970916f73.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
@@ -142,6 +149,13 @@ Lifewire / Yoona Wagener
  I found that the built-in media player worked well for controlling music I played via Spotify or a podcast app on my phone. It automatically recognized whatever I was playing and brought media controls to the display.
 
  Regardless of your operating system, you’ll need a Google account to get this watch paired and activated and to take advantage of contactless pay through Google Pay. And if you’re married to Google Fit for health insights, you’ll need that app too.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Battery: Potential for multi-day longevity
 
@@ -152,13 +166,6 @@ Lifewire / Yoona Wagener
 Lifewire / Yoona Wagener
 
  Regardless of the mode you choose, the watch will automatically enter a time-only mode once the battery hits 9 percent. This thoughtful touch allows this device to function as a straightforward watch as well. When you charge up, the handy magnetic USB charging cable is easy to attach to the device and provides quick charging: just a little over an hour, maximum.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Price: Luxury style at a friendlier entry point
 
@@ -192,13 +199,6 @@ Lifewire / Yoona Wagener
 * [Garmin Venu](https://www.lifewire.com/garmin-venu-review-4843916)
 * [Mobvoi TicWatch Pro 4G LTE](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  Access Gen 5E MKGO
@@ -231,22 +231,24 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/reaking-the-mold-how-to-create-a-standout-youtube-channel-name-for-2024/"><u>[New] Breaking the Mold How to Create a Standout YouTube Channel Name for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-drone-purchasing-made-easy-a-step-by-step-buyers-guide/"><u>[Updated] 2024 Approved Drone Purchasing Made Easy A Step-by-Step Buyer’s Guide</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-inside-the-studio-how-magix-video-pro-x-simplifies-production/"><u>2024 Approved Inside the Studio How Magix Video Pro X Simplifies Production</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-leading-virtual-reality-goggles-makers/"><u>2024 Approved Leading Virtual Reality Goggles Makers</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-fix-when-apple-account-locked-from-apple-iphone-11-by-drfone-ios/"><u>How to Fix when Apple Account Locked From Apple iPhone 11?</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-audience-enchantment-setting-tips-for-streams/"><u>In 2024, Audience Enchantment Setting Tips for Streams</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-new-samsung-galaxy-s21-a-step-towards-simplicity/"><u>In-Depth Analysis of the New Samsung Galaxy S21 - A Step Towards Simplicity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-amazon-luna-smooth-performance-in-cloud-gaming-reviewed/"><u>In-Depth Look at Amazon Luna: Smooth Performance in Cloud Gaming Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/insightful-analysis-of-the-logitech-c615-webcam-where-excellence-meets-economy/"><u>Insightful Analysis of the Logitech C615 Webcam: Where Excellence Meets Economy</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-long-range-wireless-routers-of-2024-a-comprehensive-list/"><u>Leading Long Range Wireless Routers of 2024: A Comprehensive List</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/lenovo-p11-pro-reviewed-stunning-capabilities-hindered-by-some-drawbacks/"><u>Lenovo P11 Pro Reviewed - Stunning Capabilities Hindered by Some Drawbacks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/marvels-cinematic-crossover-a-thorough-breakdown-of-the-pros-and-cons-in-the-avengers/"><u>Marvel's Cinematic Crossover - A Thorough Breakdown of the Pros and Cons in 'The Avengers'</u></a></li>
-<li><a href="https://os-tips.techidaily.com/new-features-in-ios-174-exciting-updates-with-fresh-emojis-and-enhanced-podcast-support/"><u>New Features in iOS 17.4: Exciting Updates with Fresh Emojis & Enhanced Podcast Support!</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/optimized-marketing-strategies-through-smart-analytics-solutions/"><u>Optimized Marketing Strategies Through Smart Analytics Solutions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/precision-and-durability-in-every-detail-reviewing-the-stable-masterpiece-that-is-the-twelve-south-compass-pro/"><u>Precision and Durability in Every Detail: Reviewing the Stable Masterpiece That Is the Twelve South Compass Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/rediscovering-sound-with-lesser-known-brand-aria/"><u>Rediscovering Sound with Lesser-Known Brand Aria</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/top-tips-to-resolve-helldivers-2-pc-malfunctions-and-enjoy-uninterrupted-play/"><u>Top Tips to Resolve Helldivers 2 PC Malfunctions and Enjoy Uninterrupted Play</u></a></li>
+<li><a href="https://network-issues.techidaily.com/solved-err12-graphics-device-crashed-monster-hunter-world/"><u>[Solved] Err12 Graphics Device Crashed Monster Hunter World</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-top-8-fb-movie-extraction-tools/"><u>[Updated] 2024 Approved Top 8 FB Movie Extraction Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-your-freedom-awaits-explore-these-top-6-youtube-shortdowners/"><u>[Updated] In 2024, Your Freedom Awaits Explore These Top 6 YouTube Shortdowners</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-maintaining-confidentiality-with-professional-zoom-recordings/"><u>[Updated] Maintaining Confidentiality with Professional Zoom Recordings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-crafting-perfect-youtube-music-playlists-via-web-and-mobile-platforms/"><u>2024 Approved Crafting Perfect YouTube Music Playlists via Web & Mobile Platforms</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/akaso-ek7000-pro-4k-action-camera-review-great-quality-at-a-budget-friendly-price/"><u>AKASO EK7000 Pro 4K Action Camera Review: Great Quality At a Budget Friendly Price</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/all-about-the-dual-functionality-reviewing-netgears-c3700-modem-and-router-combo/"><u>All About the Dual-Functionality: Reviewing Netgear's C3700 Modem and Router Combo</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cutting-edge-urban-transportation-meets-style-unveiling-the-benefits-of-swagtrons-swagger-electric-scooter/"><u>Cutting-Edge Urban Transportation Meets Style: Unveiling the Benefits of Swagtron's Swagger Electric Scooter</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/djis-robomaster-s1-unveiled-an-engaging-battle-and-coding-adventure-for-young-enthusiasts/"><u>DJI's RoboMaster S1 Unveiled - An Engaging Battle and Coding Adventure for Young Enthusiasts!</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/dramatic-channel-reduction-fubotv-drops-19-key-discovery-networks/"><u>Dramatic Channel Reduction: FuboTV Drops 19 Key Discovery Networks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/engage-with-high-end-gear-dell-visuals-top-anc-audio-setup-and-exceptional-quality-webcam-capture/"><u>Engage With High-End Gear: Dell Visuals, Top ANC Audio Setup, and Exceptional Quality Webcam Capture</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-honor-x50i-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Honor X50i Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-google-nest-audio-vs-nest-mini-for-the-ideal-home-experience/"><u>In-Depth Review: Google Nest Audio Vs. Nest Mini for the Ideal Home Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/motorola-one-showdown-can-it-hold-its-own-against-the-iphone/"><u>Motorola One Showdown: Can It Hold Its Own Against the iPhone?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/navigating-filmoras-fcc-initiative-a-guide/"><u>Navigating Filmora's FCC Initiative A Guide</u></a></li>
+<li><a href="https://fox-that.techidaily.com/resolve-your-iphone-wake-up-struggles-alarm-not-sounding-off/"><u>Resolve Your iPhone Wake Up Struggles: Alarm Not Sounding Off</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tp-link-archer-ax6000-vs-nighthawk-ax12-which-wins-the-wifi-showdown/"><u>TP-Link Archer AX6000 Vs. Nighthawk AX12: Which Wins the WiFi Showdown?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-choosing-a-great-affordable-indoor-hdtv-antenna-featuring-1byone-digital-model/"><u>Ultimate Guide to Choosing a Great Affordable Indoor HDTV Antenna - Featuring 1Byone Digital Model</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-realme-narzo-n55-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Realme Narzo N55 Phone Network-Ready</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: See the World at a Distance with Superzoom - Canon's PowerShot SX70 HS
-date: 2024-09-29T11:01:31.588Z
-updated: 2024-10-01T17:52:16.991Z
+date: 2024-10-02T18:48:34.138Z
+updated: 2024-10-07T16:22:06.460Z
 categories:
   - BestProducts
 description: This Article Describes See the World at a Distance with Superzoom - Canon's PowerShot SX70 HS
@@ -43,13 +43,6 @@ Lifewire / Andy Zahn
 [View On Walmart $562](https://www.walmart.com/ip/Canon-PowerShot-SX70-HS-20-3MP-65x-Optical-Zoom-Digital-Point-Shoot-Camera/773178799?slfpid=3) [View On Adorama.com $699](https://www.adorama.com/icasx70.html) [View On B&H Photo Video $599](https://www.bhphotovideo.com/c/product/1435399-REG/canon%5F3071c001%5Fpowershot%5Fsx70%5Fhs%5Fdigital.html)
 
 4.3
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
@@ -99,35 +92,22 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
 
@@ -144,6 +124,13 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -189,6 +176,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -200,10 +194,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Big brand, big price tag**
@@ -228,18 +222,18 @@ Lifewire / Andy Zahn
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Panasonic Lumix DC-FZ80](https://www.lifewire.com/panasonic-lumix-dc-fz80-review-4691071)
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -275,24 +269,22 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-unseen-facts-instagram-reels-demystified-ten-points/"><u>[New] 2024 Approved The Unseen Facts Instagram Reels Demystified (Ten Points)</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-expert-analysis-of-zooms-best-audio-to-text-software-options-freesubscription/"><u>[New] In 2024, Expert Analysis of Zoom's Best Audio to Text Software Options (Free/Subscription)</u></a></li>
-<li><a href="https://win-studio.techidaily.com/efficient-methods-for-converting-large-quantities-of-wav-files-to-high-quality-flac-format/"><u>Efficient Methods for Converting Large Quantities of WAV Files to High-Quality FLAC Format</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/gratis-orf-to-jpeg-converter-en-linee-kostenloos-online-instelling-movavi/"><u>Gratis ORF-to-JPEG Converter En Linee - Kostenloos Online Instelling Movavi</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-does-dts-virtual-x-enhance-your-listening-pleasure/"><u>How Does DTS Virtual X Enhance Your Listening Pleasure?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-to-increase-ram-in-a-personal-computing-device/"><u>How to Increase RAM in a Personal Computing Device</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-lava-blaze-pro-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Lava Blaze Pro 5G Devices</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-change-country-on-app-store-for-iphone-8-plus-with-7-methods-by-drfone-ios/"><u>In 2024, How To Change Country on App Store for iPhone 8 Plus With 7 Methods</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/insider-tips-8-important-aspects-to-assess-when-shopping-for-a-tablet/"><u>Insider Tips: 8 Important Aspects to Assess When Shopping for a Tablet</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/insiders-look-at-the-speedster-dolly-electric-scooter-by-glion-luxury-meets-velocity-with-a-hefty-price-tag/"><u>Insider's Look at the Speedster Dolly Electric Scooter by Glion - Luxury Meets Velocity with a Hefty Price Tag</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/kobo-libra-vs-amazon-kindle-showdown-an-in-depth-book-reader-comparison/"><u>Kobo Libra Vs. Amazon Kindle Showdown: An In-Depth Book Reader Comparison</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/lenovos-ideapad-range-insights-into-functionality-and-elegant-construction/"><u>Lenovo's IdeaPad Range - Insights Into Functionality and Elegant Construction</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/practical-evaluation-of-the-acer-xfa240-prioritizing-features-over-appearance/"><u>Practical Evaluation of the Acer XFA240 - Prioritizing Features over Appearance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/precision-and-affordability-combined-in-yn560iv-flash-review/"><u>Precision and Affordability Combined in YN560IV Flash Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/professional-insight-comprehensive-review-of-the-xp-pen-artist-16-pro-digital-drawing-pad/"><u>Professional Insight: Comprehensive Review of the XP-Pen Artist 16 Pro Digital Drawing Pad</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionize-your-exercise-routine-with-fitbit-versa-3s-advanced-location-tracking-and-health-suite/"><u>Revolutionize Your Exercise Routine with Fitbit Versa 3'S Advanced Location Tracking & Health Suite</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-performantes-carte-sd-compatibles-gopro-votre-guide-ultime-pour-choisir/"><u>Top Performantes Carte SD Compatibles GoPro: Votre Guide Ultime Pour Choisir</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/top-ultra-short-timelapse-capture-methods-for-2024/"><u>Top Ultra-Short Timelapse Capture Methods for 2024</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-video-enhancement-software-upgrade-your-video-resolution-today-for-2024/"><u>Updated Video Enhancement Software Upgrade Your Video Resolution Today for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-scan-and-store-your-old-printed-photos/"><u>[New] How to Scan and Store Your Old Printed Photos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-digital-decibels-the-leading-youtube-voices/"><u>[New] In 2024, Digital Decibels The Leading YouTube Voices</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-restoring-lost-eyes-only-snapshots-on-snapchat/"><u>[New] In 2024, Restoring Lost Eyes-Only Snapshots on Snapchat</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-dissecting-reversed-photo-searches-in-the-virtual-cosmos-fb/"><u>[Updated] In 2024, Dissecting Reversed Photo Searches in the Virtual Cosmos (FB)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-youtube-unleashed-a-creators-guide-to-greatness/"><u>[Updated] In 2024, YouTube Unleashed A Creator's Guide to Greatness</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhance-your-gaming-experience-replace-your-old-tv-with-a-high-performance-monitor/"><u>Enhance Your Gaming Experience: Replace Your Old TV with a High-Performance Monitor</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhanced-amazon-prime-video-app-launches-with-refined-user-interface/"><u>Enhanced Amazon Prime Video App Launches with Refined User Interface</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/everything-you-want-to-know-about-1440p-and-its-impact-on-your-viewing-experience/"><u>Everything You Want To Know About 1440P and Its Impact on Your Viewing Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exclusive-deal-alert-enjoy-three-months-free-trial-on-apple-tvplus-with-a-limited-time-offer-at-just-599/"><u>Exclusive Deal Alert: Enjoy Three Months Free Trial on Apple TV+ with a Limited-Time Offer at Just $5.99!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-classic-fm-radio-nostalgia-with-siriusxms-unlimited-streaming-service/"><u>Experience Classic FM Radio Nostalgia with SiriusXM's Unlimited Streaming Service</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-next-level-sound-with-wiims-newest-ultra-streaming-boost-revitalize-your-classic-audio-gear/"><u>Experience Next-Level Sound with Wiim's Newest Ultra Streaming Boost: Revitalize Your Classic AUDIO Gear!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-real-savings-are-ad-supported-streaming-subscriptions-economical/"><u>Exploring the Real Savings: Are Ad-Supported Streaming Subscriptions Economical?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-youtubes-full-potential-five-must-have-features-that-could-persuade-me-to-upgrade/"><u>Exploring YouTube's Full Potential: Five Must-Have Features that Could Persuade Me to Upgrade</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-honor-play-8t-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Honor Play 8T Pattern Lock Screen</u></a></li>
+<li><a href="https://some-tips.techidaily.com/het-aanbod-van-de-grootste-video-editors-voor-windows-los-op-het-vergeleken-met-imovie/"><u>Het Aanbod Van De Grootste Video Editors Voor Windows, Los Op Het Vergeleken Met iMovie!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721453997872-improve-iphone-safari-speed-with-these-4-proven-tricks/"><u>Improve iPhone Safari Speed with These 4 Proven Tricks!</u></a></li>
+<li><a href="https://win-blog.techidaily.com/os-melhores-software-livres-para-gravacao-em-disco-no-windows-ranking-dos-6-maiores-para-versoes-10-8-e-7/"><u>Os Melhores Software Livres Para Gravação Em Disco No Windows: Ranking Dos 6 Maiores Para Versões 10, 8 E 7</u></a></li>
 </ul></div>
 

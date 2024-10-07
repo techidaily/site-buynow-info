@@ -1,7 +1,7 @@
 ---
 title: Exploring the Sturdiness of Sony DSC-W800 and Its Fair Pricing
-date: 2024-09-30T19:12:20.629Z
-updated: 2024-10-02T08:42:11.402Z
+date: 2024-10-06T17:37:10.541Z
+updated: 2024-10-07T17:26:23.199Z
 categories:
   - BestProducts
 description: This Article Describes Exploring the Sturdiness of Sony DSC-W800 and Its Fair Pricing
@@ -67,6 +67,19 @@ PHOTO: Amazon
 
 **TL;DR** : This SanDisk USB flash drive lives up to its "Extreme" moniker with its 256GB storage capacity and sleek aluminum metal casing. It's easily the sturdiest flash drive we've evaluated.
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Why We Recommend This
 
  Topping our list of USB flash drives is the SanDisk Extreme PRO. Its 256GB storage space is impressive, and its read and write (data transfer) speeds reach 420Mbps and 380Mbps, respectively.
@@ -86,10 +99,16 @@ PHOTO: Amazon
 ![SanDisk 256GB Extreme PRO USB 3.2 Solid State Flash Drive.](https://www.lifewire.com/thmb/VzaKxOdaMFqGHZPPFjBAiNP-s3Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/USB_SanDisk256GBExtremePROUSB3.2SolidStateFlashDrive-3517c6beda944a6eb980e748d694c880.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Raymond Prince
@@ -128,13 +147,6 @@ PHOTO: Amazon
 
 **TL;DR** : The Corsair Flash Survivor Stealth earns our second pick thanks to its adventurous spirit, waterproof rating, and rugged military-style aluminum casing. Oh, and its 1TB storage capacity is impressive too.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Why We Recommend This
 
  Resembling a mini flashlight, the Flash Survivor Stealth USB roars with a behemoth 1TB storage capacity. To put that into perspective, it equates to a whopping 209,000 5MB files, enough for a music library that even the most famous international DJ would need, so you're well covered. Other storage options (128GB and 256GB) exist as well.
@@ -144,6 +156,13 @@ PHOTO: Amazon
  It's also waterproof up to 200 meters, though we were in no hurry to submerge it with valuable data inside and find out if it was true.
 
 ![Kingston DataTraveler 70 256GB USB-C Flash Drive.](https://www.lifewire.com/thmb/6spSWh77t1fzmOyoTMN9i0PhDg0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/USB_KingstonDataTraveler70256GBUSB-CFlashDrive-06fc6657c36c4e7c80b44488c73e4b80.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Raymond Prince
 
@@ -188,13 +207,6 @@ PHOTO: Amazon
 
 ![Kingston DataTraveler 70 256GB USB-C Flash Drive.](https://www.lifewire.com/thmb/6spSWh77t1fzmOyoTMN9i0PhDg0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/USB_KingstonDataTraveler70256GBUSB-CFlashDrive-06fc6657c36c4e7c80b44488c73e4b80.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Raymond Prince
 
  We recommend this USB flash drive for anyone seeking a quick and affordable solution. However, if you require the highest storage capacity and fastest read and write speeds possible for a massive music library, stick with the SanDisk 256GB Extreme PRO USB 3.2 Solid State Flash Drive.
@@ -206,13 +218,6 @@ Lifewire / Raymond Prince
 ![The SanDisk Extreme PRO, Corsair Flash Survivor Stealth, and Kingston DataTraveler 70 USB drives.](https://www.lifewire.com/thmb/R0gpCBnrQFQJSKrMdtsqJ1CtoK4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/usb_drives-3e49e18e98274da79cb37d1e49fa99a2.jpg)
 
 Lifewire / Raymond Prince
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How We Test
 
@@ -241,6 +246,19 @@ Lifewire / Raymond Prince
  If you only care about fast transfers, try to get the fastest read and write speeds available. Aim for anything over 100 Mbps for read speed and above 30Mbps for writing speed. Remember, writing speed will almost always be slower than reading speed.
 
  Read our [USB Drive buying guide](https://www.lifewire.com/what-size-usb-flash-drive-do-i-need-2640421) for more information.
+
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Brands We Consider
 
@@ -289,21 +307,24 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-a-step-by-step-guide-on-applying-cc-rights-effectively/"><u>[New] A Step-by-Step Guide on Applying CC Rights Effectively</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-abletons-guide-to-softening-transition-endings/"><u>[New] Ableton's Guide to Softening Transition Endings</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-how-to-edit-youtube-videos-in-imovie-in-2024/"><u>[New] How to Edit YouTube Videos in iMovie, In 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-diversifying-audience-across-30plus-online-venues-for-2024/"><u>[Updated] Diversifying Audience Across 30+ Online Venues for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-streamlining-image-processes-with-polarrs-compreeved-tools/"><u>[Updated] Streamlining Image Processes with Polarr's Compreeved Tools</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-facebook-360-video-how-to-make-and-upload-360-video-to-facebook/"><u>2024 Approved Facebook 360 Video How to Make and Upload 360 Video to Facebook</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/android-dominance-top-10-moba-games-showcase/"><u>Android Dominance Top 10 MOBA Games Showcase</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-un65ru8000fxza-unveiling-smart-functionality-on-a-stunning-display-by-samsung/"><u>Exploring the UN65RU8000FXZA: Unveiling Smart Functionality on a Stunning Display by Samsung</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/for-operation-2-when-simplifying-terms-such-as-receptor-status-use-comparisons-like-just-like-some-people-need-different-kinds-of-glasses-depending-on-their37/"><u>For Operation 2, when Simplifying Terms Such as “Receptor Status” Use Comparisons Like “Just Like some People Need Different Kinds of Glasses Depending on Their Vision Needs.” Mention in Layman’s Terms at Least Once How Radiation Targets only the Bad Cells</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/fossils-sport-series-the-perfect-blend-of-economy-and-excellence-revealed/"><u>Fossil's Sport Series - The Perfect Blend of Economy and Excellence Revealed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/guide-preserving-pdf-previews-in-microsoft-word/"><u>Guide: Preserving PDF Previews in Microsoft Word</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-from-apple-iphone-se-by-drfone-ios/"><u>How to Fix Locked Apple ID from Apple iPhone SE</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-unboxing-the-lenovo-thinkpad-x1-titanium-yoga-a-2-in-1-revolution-for-devoted-thinkpad-users/"><u>In-Depth Analysis: Unboxing the Lenovo ThinkPad X1 Titanium Yoga – A 2-in-1 Revolution for Devoted ThinkPad Users</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-the-marketplace-with-apples-ipad-pro-11-a-must-read-2018-breakdown/"><u>Mastering the Marketplace with Apple's iPad Pro (11) - A Must-Read 2018 Breakdown</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-pc-potential-what-to-upgrade-first/"><u>Maximizing PC Potential: What to Upgrade First</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-how-to-easily-make-professional-looking-movies-and-slideshow/"><u>New In 2024, How to Easily Make Professional-Looking Movies and Slideshow</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-harnessing-the-power-of-filmora-for-youtube-video-promotions/"><u>[New] In 2024, Harnessing the Power of Filmora for YouTube Video Promotions</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-precise-techniques-for-shifting-macscreenshot-filetype/"><u>[Updated] 2024 Approved Precise Techniques for Shifting MacScreenshot Filetype</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-realme-c55-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Realme C55.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-galaxy-ford-f-150-rc-truck-a-look-at-an-automotive-icons-miniature-version/"><u>Comprehensive Review of the Galaxy Ford F-150 RC Truck - A Look at an Automotive Icon's Miniature Version</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-lenovo-chromebook-duet-a-steal-at-a-bargain-price-for-hybrid-devices/"><u>Evaluating the Lenovo Chromebook Duet: A Steal at a Bargain Price for Hybrid Devices</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/from-live-to-recording-maximizing-your-gaming-sessions-value/"><u>From Live to Recording Maximizing Your Gaming Sessions' Value</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-the-asus-zephyrus-g14-sets-new-standards-in-non-compromising-portable-gaming-systems/"><u>How the Asus Zephyrus G14 Sets New Standards in Non-Compromising Portable Gaming Systems</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-infinix-hot-40-pro-screen-sharing-drfone-by-drfone-android/"><u>How To Do Infinix Hot 40 Pro Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-update-your-geforce-rtx-2070-with-the-newest-driver-supporting-windows-7810-systems/"><u>How to Update Your Geforce RTX 2070 with the Newest Driver Supporting Windows 7/8/10 Systems</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-raw-images-to-stunning-photos-your-guide-to-iphone-photomosaic-creation/"><u>In 2024, From Raw Images to Stunning Photos Your Guide to iPhone Photomosaic Creation</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-art-of-space-arrangement-in-fostering-a-high-performing-team/"><u>In 2024, The Art of Space Arrangement in Fostering a High-Performing Team</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-the-ultimate-guide-to-using-the-onetastic-add-in-with-microsoft-onenote/"><u>In-Depth Analysis: The Ultimate Guide to Using the Onetastic Add-In with Microsoft OneNote</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-hisenses-50inch-4k-hdr-television-quality-visuals-without-breaking-the-bank/"><u>Review of Hisense's 50Inch 4K HDR Television - Quality Visuals without Breaking the Bank</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-amazon-fire-tv-cube-a-comprehensive-review-of-the-fastest-media-streamer-on-market/"><u>The Amazon Fire TV Cube: A Comprehensive Review of the Fastest Media Streamer on Market</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-fix-overcoming-call-reception-errors-on-your-samsung-galaxy-smartwatch/"><u>The Ultimate Fix: Overcoming Call Reception Errors on Your Samsung Galaxy Smartwatch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-verdict-on-samsungs-un65nu8000fxza-does-quality-justify-the-expense/"><u>The Verdict on Samsung's UN65NU8000FXZA - Does Quality Justify the Expense?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-choosing-the-ideal-portable-wi-fi-router-2024-edition/"><u>Ultimate Guide to Choosing the Ideal Portable Wi-Fi Router - 2024 Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-amazon-primes-true-worth-for-shoppers/"><u>Unlocking Amazon Prime’s True Worth for Shoppers</u></a></li>
 </ul></div>
 

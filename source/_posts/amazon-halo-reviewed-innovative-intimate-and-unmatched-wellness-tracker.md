@@ -1,7 +1,7 @@
 ---
 title: "Amazon Halo Reviewed: Innovative, Intimate, and Unmatched Wellness Tracker"
-date: 2024-09-28T19:18:08.479Z
-updated: 2024-10-02T02:29:03.721Z
+date: 2024-10-06T18:43:37.925Z
+updated: 2024-10-07T16:01:45.568Z
 categories:
   - BestProducts
 description: "This Article Describes Amazon Halo Reviewed: Innovative, Intimate, and Unmatched Wellness Tracker"
@@ -47,15 +47,28 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Garmin Vivosmart 4
 
 ![Garmin Vivosmart 4](https://www.lifewire.com/thmb/ll2Uv9bgkmIddyfa-EOFiFCtsyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Garmin-Vivosmart-4-Fitness-Tracker-1-0a7c6cef1af44b5c9acb1c657c292521.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -95,6 +108,13 @@ Lifewire / Erika Rawes
 
  The buckle doesn’t press into the skin or cause irritation, but the sides of the silicone band do leave indents on the wrist after long periods of wear. The Vivosmart 4 is waterproof, and you can wear it in the pool, wear it while showering, and in the rain without damaging the device. You really only have to take off the Vivosmart to charge the battery.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Body battery and stress monitoring**
 
  The Garmin Vivosmart 4 performs exceptionally well in some areas and mediocre in others, making it a decent device for runners or everyday users who want a device to track their general health and wellness, but a not such great device for fitness buffs who want seamless and accurate workout tracking.
@@ -115,6 +135,13 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software: Garmin Connect App**
 
  The Vivosmart 4 doesn’t have any hard buttons, but rather a monotone touchscreen that you double-tap on the bottom portion to awaken. You scroll up and down to navigate through the various functions. I’m not in love with the interface, which isn’t particularly intuitive or feature-rich. Although companion apps are important to any good fitness tracker, the Vivosmart 4 relies too heavily on its app. It doesn’t have built-in GPS either, so it’s more tethered to your phone than some other fitness trackers on the market.
@@ -126,10 +153,10 @@ Lifewire / Erika Rawes
 ![Garmin Vivosmart 4](https://www.lifewire.com/thmb/XmHmMYvuaOGE3gAGIsa_vChmpas=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivosmart-4-Fitness-Tracker-4-22ab906932be467bb2e3309e30555ab4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -140,29 +167,9 @@ Lifewire / Erika Rawes
 
  The battery charges using a clip-on charger. It took an average of 90 minutes to reach a full charge (from about 10% full).
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Reasonable**
 
  The Vivosmart 4 retails for $130, which is slightly high for this unit. You can find a refurbished version on Amazon for around $80, which is a more reasonable price.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Garmin Vivosmart 4 vs. Fitbit Charge 3**
 
@@ -173,13 +180,6 @@ Lifewire / Erika Rawes
 **A comfortable band with unique perks.**
 
  The Garmin Vivosmart 4 is a great option for anyone who wants to track their sleep, stress, energy, and cardio, but there are better options out there for weight training.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -221,21 +221,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-connecting-with-clarity-4-ways-to-share-stories/"><u>[New] Connecting with Clarity 4 Ways to Share Stories</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-total-review-demystifying-googles-podcast-app-for-2024/"><u>[New] Total Review Demystifying Google's Podcast App for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-secretive-approach-to-watching-insta-stories/"><u>[Updated] In 2024, Secretive Approach to Watching Insta-Stories</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-the-art-and-science-of-writing-smart-slug-lines/"><u>2024 Approved The Art and Science of Writing Smart Slug Lines</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-the-foundational-steps-to-your-distinctive-marketing-voice/"><u>2024 Approved The Foundational Steps to Your Distinctive Marketing Voice</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-easy-tutorial-for-activating-icloud-on-iphone-se-safe-and-legal-by-drfone-ios/"><u>In 2024, Easy Tutorial for Activating iCloud on iPhone SE Safe and Legal</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Motorola Edge+ (2023) | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-guide-to-improving-chromebook-tone-with-top-voice-extensions/"><u>In 2024, The Ultimate Guide to Improving Chromebook Tone with Top Voice Extensions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-communication-with-midland-gxt1000vp4-a-comprehensive-user-guide/"><u>Mastering Communication with Midland GXT1000VP4: A Comprehensive User Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-renewable-energy-the-most-efficient-power-inverters-of-2024-revealed/"><u>Mastering Renewable Energy: The Most Efficient Power Inverters of 2024 Revealed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/microsoft-surface-laptop-go-unveiled-the-portable-affordable-ultrabook-that-doesnt-compromise-performance/"><u>Microsoft Surface Laptop Go Unveiled: The Portable, Affordable Ultrabook That Doesn't Compromise Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reviewing-the-shortcomings-in-pioneer-bdr-xd05b-external-blu-ray-burner-design/"><u>Reviewing the Shortcomings in Pioneer BDR-XD05B External Blu-Ray Burner Design</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/runners-companion-garmin-forerunner/"><u>Runner's Companion: Garmin Forerunner</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sound-quality-upgrade-is-premium-worth-the-investment/"><u>Sound Quality Upgrade: Is Premium Worth the Investment?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-of-both-worlds-top-reviews-on-budget-friendly-and-quality-fossil-sports-apparel/"><u>The Best of Both Worlds: Top Reviews on Budget-Friendly & Quality Fossil Sports Apparel</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/things-you-should-know-when-unlocking-total-wireless-of-iphone-7-drfone-by-drfone-ios/"><u>Things You Should Know When Unlocking Total Wireless Of iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-audioarchive-compiler-download-playback-and-test/"><u>[New] AudioArchive Compiler Download, Playback & Test</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solved-sea-of-thieves-wont-launch/"><u>[Solved] Sea of Thieves Won't Launch</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unveiling-the-hidden-in-facebooks-off-activity-tracking/"><u>[Updated] 2024 Approved Unveiling the Hidden in Facebook's Off-Activity Tracking</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-learn-the-art-of-pairing-captions-with-visuals-for-tiktoks/"><u>[Updated] In 2024, Learn the Art of Pairing Captions with Visuals for TikToks</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-infuse-rhythms-into-your-whatsapp-story/"><u>[Updated] Infuse Rhythms Into Your WhatsApp Story</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1-master-the-art-of-3d-printing-with-hairspray-a-must-have-technique-unveiled/"><u>1. Master the Art of 3D Printing with Hairspray: A Must-Have Technique Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/advantages-and-disadvantages-why-gamers-should-consider-vpn-use/"><u>Advantages & Disadvantages: Why Gamers Should Consider VPN Use</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/diagnosing-silent-car-audio-systems-what-could-be-wrong-with-your-speakers/"><u>Diagnosing Silent Car Audio Systems: What Could Be Wrong with Your Speakers?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/effortless-facebook-video-streaming-with-fire-browser-plugins-firefox-edition-2023-for-2024/"><u>Effortless Facebook Video Streaming with Fire-Browser Plugins, Firefox Edition 2023 for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/essential-no-cost-html-editors-for-pcs-uncovering-the-top-8-picks/"><u>Essential No-Cost HTML Editors for PCs: Uncovering the Top 8 Picks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-this-weeks-tech-news-the-evolution-of-new-windows-laptops-and-behind-the-scenes-look-at-spotifys-future-plans/"><u>Inside This Week’s Tech News: The Evolution of New Windows Laptops and Behind-the-Scenes Look at Spotify's Future Plans</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-xbox-series-xs-performance-a-guide-to-clearing-extra-space/"><u>Maximizing Xbox Series X|S Performance: A Guide to Clearing Extra Space</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/save-on-entertainment-verizons-myhome-internet-now-offers-a-special-streaming-package/"><u>Save on Entertainment: Verizon's MyHome Internet Now Offers a Special Streaming Package</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/snapchat-soundscapes-full-playback-no-missed-beats/"><u>Snapchat Soundscapes Full Playback, No Missed Beats</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-future-of-gaming-unleashed-integration-of-mobile-device-ar-headset-and-cloud-services-into-a-revolutionary-hybrid-system/"><u>The Future of Gaming Unleashed: Integration of Mobile Device, AR Headset and Cloud Services Into a Revolutionary Hybrid System</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-great-debate-kindle-versus-nook-discovering-the-ultimate-reading-companion/"><u>The Great Debate: Kindle Versus Nook – Discovering the Ultimate Reading Companion</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unleashing-full-potential-in-depth-tp-link-re505x-range-extender-review-for-enhanced-connectivity/"><u>Unleashing Full Potential: In-Depth TP-Link RE505X Range Extender Review for Enhanced Connectivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlock-unlimited-savings-discover-your-new-doordash-dashpass-benefits/"><u>Unlock Unlimited Savings: Discover Your New DoorDash DashPass Benefits!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-purchasing-pc-games-from-microsoft-remains-a-superior-choice/"><u>Why Purchasing PC Games From Microsoft Remains a Superior Choice</u></a></li>
 </ul></div>
 

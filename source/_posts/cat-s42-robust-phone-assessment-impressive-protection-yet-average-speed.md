@@ -1,7 +1,7 @@
 ---
 title: "CAT S4^2 Robust Phone Assessment: Impressive Protection, Yet Average Speed"
-date: 2024-09-25T07:55:12.817Z
-updated: 2024-10-01T20:53:56.572Z
+date: 2024-10-02T16:56:10.771Z
+updated: 2024-10-07T16:17:11.625Z
 categories:
   - BestProducts
 description: "This Article Describes CAT S4^2 Robust Phone Assessment: Impressive Protection, Yet Average Speed"
@@ -41,13 +41,6 @@ Lifewire / Andrew Hayward
 [View On Amazon](https://www.amazon.com/dp/B08F5T3F9Y/?tag=lifewire-onsite-prod-20&ascsubtag=5193587%7Cn10531399cf62445bbb649a7878d1155511%7CB08F5T3F9Y) [View On Walmart](https://www.walmart.com/ip/651336662) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6429503.p)
 
 4.7
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Oculus Quest 2 Elite Strap with Battery and Carrying Case
 
@@ -104,13 +97,6 @@ Lifewire / Andrew Hayward
 
 ![Oculus Quest 2 Elite Strap With Battery and Carrying Case](https://www.lifewire.com/thmb/kePEj93uGIlmO7iyZMsHMaUpHEE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus_Quest_2_Elite_Strap_03-4d5ab74d783144e0aee262248d5cdb89.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
  Once it’s secured, simply plug the USB-C cable on the side of the Elite Strap into the Quest 2 visor, as this adds power from the battery pack into your total supply. Now you’ll charge the entire headset via the USB-C port beneath the dial on the Elite Strap, which provides power to both the visor and strap batteries.
@@ -126,13 +112,26 @@ Lifewire / Andrew Hayward
 ![Oculus Quest 2 Elite Strap With Battery and Carrying Case](https://www.lifewire.com/thmb/v5qFVd_vGEfVkRoTgyxHCnpNO7Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus_Quest_2_Elite_Strap_04-6b671f2308db4225b4f355d0abd12f2d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Battery: Double the uptime
 
@@ -144,13 +143,6 @@ Lifewire / Andrew Hayward
 
  Granted, there are DIY options out there for boosting the Quest 2’s battery life, including plugging in a portable power bank and either sticking it into your pocket or otherwise affixing it to your body or headset. Depending on the size of the power bank, you could get significantly more uptime from that kind of solution and at a lower cost—but that’s more hassle and it’s a less elegant solution than the official option here.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Price: Not cheap, but it’s worth it
 
  After spending $299 on a VR headset, some might bristle at spending another $49 for a different strap—or $129 for that strap, double the battery life, and a case. However, if the Quest 2’s standard strap isn’t meeting your needs, then the Elite Strap is well worth the extra cash.
@@ -160,6 +152,13 @@ Lifewire / Andrew Hayward
  Do you need the whole bundle with the battery pack and case, though? If you typically use the Quest 2 in short sessions and don’t mind plugging it in on a regular basis, then probably not. The battery_can_ be a major benefit, particularly if you find yourself sticking around in VR for longer time spans, but that’s not always the case for users. The Elite Strap, in my view, provides the greatest enhancement within this bundle.
 
 ![Oculus Quest 2 Elite Strap With Battery and Carrying Case](https://www.lifewire.com/thmb/edSGh2YZZ5OIkwkHbEJnwtUjfGc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus_Quest_2_Elite_Strap_05-e018715e02944614b51af8a2cb98f055.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -176,10 +175,10 @@ Lifewire / Andrew Hayward
  If your Oculus Quest 2 doesn’t quite fit right, pick up the Elite Strap. It’s a much better-designed strap that securely and comfortably keeps the VR headset in place during use, and is well worth the extra cash. True, you might grimace at the thought of spending more money on something that should’ve come with the standard headset, but the improved experience should ultimately outweigh that frustration. The bundle with the battery pack and carrying case adds further value and is worthwhile if you’re keen on longer play sessions or not needing to charge the headset as often, but the Elite Strap itself is the most essential add-on in this set.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -187,6 +186,13 @@ Lifewire / Andrew Hayward
 * [Oculus Quest 2](https://www.lifewire.com/oculus-quest-2-review-5092839)
 * [Oculus Rift Headset and Controllers](https://www.lifewire.com/oculus-rift-review-4690370)
 * [Oculus Go Standalone VR Headset](https://www.lifewire.com/oculus-go-vr-headset-review-4690298)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -216,18 +222,22 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-creating-impactful-youtube-thumbnails-and-ads-for-2024/"><u>[New] Creating Impactful YouTube Thumbnails & Ads for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-xiaomi-14-ultra-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Xiaomi 14 Ultra | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-motorola-moto-g73-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Motorola Moto G73 5G | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-heartfelt-thanks-otu-selection-at-your-fingertips/"><u>2024 Approved Heartfelt Thanks OTU Selection at Your Fingertips</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/high-staking-habitats-critical-commentary-for-2024/"><u>HIGH-STAKING HABITATS Critical Commentary for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubes-glamour-guild-comprehensive-style-compendium/"><u>In 2024, Youtube's Glamour Guild Comprehensive Style Compendium</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-motorola-mg7700-high-performance-unmatched/"><u>In-Depth Analysis of Motorola MG7700 - High Performance Unmatched</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-portable-and-economical-asus-vivobook-11/"><u>In-Depth Analysis of the Portable & Economical ASUS VivoBook 11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-insights-into-netgears-top-of-the-line-c7000-modem-a-superior-choice-for-seamless-connectivity/"><u>In-Depth Insights Into Netgear's Top-of-the-Line C7000 Modem: A Superior Choice for Seamless Connectivity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/inside-the-tp-link-archer-c80-an-affordable-speed-demon-under-100/"><u>Inside the TP-Link Archer C80: An Affordable Speed Demon Under $100</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/insights-into-4-key-benefits-of-the-walmartplus-program/"><u>Insights Into 4 Key Benefits of the Walmart+ Program</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/power-and-style-synergy-the-leading-windows-laptops-of-24/"><u>Power & Style Synergy: The Leading Windows Laptops of '24</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-infinix-gt-10-pro-by-drfone-android/"><u>Three Ways to Sim Unlock Infinix GT 10 Pro</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-best-screenshots-programs-ranked-1-8/"><u>[Updated] 2024 Approved Best Screenshots Programs Ranked #1-8</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-ultimate-gameplay-best-4k-hdmi-21-display-for-players-for-2024/"><u>[Updated] Ultimate Gameplay Best 4K (HDMI 2.1) Display for Players for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-streaming-showdown-twitch-versus-youtube-unveiled/"><u>2024 Approved Streaming Showdown Twitch Versus YouTube Unveiled</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/artificial-intelligence-explained-an-overview-of-associated-risks/"><u>Artificial Intelligence Explained: An Overview of Associated Risks</u></a></li>
+<li><a href="https://windows11.techidaily.com/enhance-click-rate-three-methods-for-mouse-double-click-tweaking/"><u>Enhance Click Rate: Three Methods for Mouse Double-Click Tweaking</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-into-the-superiority-of-djis-air-2s-quadcopter-a-thorough-review/"><u>Expert Insights Into the Superiority of DJI's Air 2S Quadcopter: A Thorough Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/galaxy-power-shift-is-the-new-s23-ultra-better-than-its-predecessor-the-s21/"><u>Galaxy Power Shift: Is The New S23 Ultra Better Than Its Predecessor, the S21?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-overcome-boredom-these-10-top-video-games-will-keep-your-mind-engaged/"><u>How to Overcome Boredom? These 10 Top Video Games Will Keep Your Mind Engaged</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-nokia-c12-plus-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Nokia C12 Plus to iPhone | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sonys-budget-friendly-gem-the-xbr65x850f-65-4k-television-in-depth-analysis/"><u>Sony's Budget-Friendly Gem: The XBR65X850F 65 4K Television In-Depth Analysis</u></a></li>
+<li><a href="https://blog-min.techidaily.com/techniques-simples-pour-transformer-un-fichier-vob-en-format-aiff-gratuitement-guide-detaille/"><u>Techniques Simples Pour Transformer Un Fichier VOB en Format AIFF Gratuitement - Guide Détaillé</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-6-artificial-intelligence-note-taking-solutions-for-enhanced-memorization/"><u>Top 6 Artificial Intelligence Note-Taking Solutions for Enhanced Memorization</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-8-leading-laptop-manufacturers-a-comprehensive-guide/"><u>Top 8 Leading Laptop Manufacturers : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-your-photos-today-with-the-nixplay-iris-advantage/"><u>Transform Your Photos Today With the Nixplay Iris Advantage</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/w15a-photo-display-marvels-and-minor-mishaps/"><u>W15A Photo Display: Marvels & Minor Mishaps</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/your-ultimate-shopping-list-for-high-quality-outer-bd-drive-units-the-best-picks-of-202n4/"><u>Your Ultimate Shopping List for High-Quality Outer BD Drive Units: The Best Picks of 202N4</u></a></li>
 </ul></div>
 

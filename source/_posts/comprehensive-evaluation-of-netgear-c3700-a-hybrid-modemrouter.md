@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Evaluation of Netgear C3700: A Hybrid Modem/Router"
-date: 2024-09-13T23:17:47.050Z
-updated: 2024-09-21T00:46:23.273Z
+date: 2024-10-04T17:48:02.649Z
+updated: 2024-10-07T16:17:35.475Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Evaluation of Netgear C3700: A Hybrid Modem/Router"
@@ -42,9 +42,23 @@ Lifewire / Bill Thomas
 
 3.4
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Netgear C3700 Cable Modem Router
 
 ![Netgear C3700](https://www.lifewire.com/thmb/CWSAqFXf9klr-Fs5mU-YkCpwF9Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-5-1-668cca140a8e4c1ba59c13f4f2a8d8ec.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Bill Thomas
 
@@ -70,6 +84,13 @@ Lifewire / Bill Thomas
 
  We got our hands on the Netgear C3700 for testing and put it through the wringer to see whether or not it’s worth your cash, and what kind of performance you can expect.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Small and inconspicuous
 
  With a device that packs[both a cable modem and a wireless router](https://www.lifewire.com/best-cable-modem-router-combos-to-buy-4082541) , you might expect the Netgear C3700 to be a bulky device, but that’s not the case. It’s actually quite small, measuring just 7.6 inches high and weighing a scant 0.77 pounds. This, combined with the low-key black finish and lack of external antennas means that it won’t stick out, no matter where you put it.
@@ -88,19 +109,6 @@ Lifewire / Bill Thomas
 
  Lifewire / Bill Thomas
 
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Setup: Nice and simple
 
  If you’ve ever set up a cable modem, then you’ll breeze through the setup on the C3700\. We just unplugged our existing cable modem, plugged all the cables into this new one, and waited for the lights to turn on. Then all we had to do was phone our ISP to activate it.
@@ -111,13 +119,6 @@ Lifewire / Bill Thomas
 
  We weren’t impressed with the wireless performance, but the wired performance surprised us.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Connectivity: Everything a small home needs
 
  The Netgear C3700 is a modem-router combo, which means, hypothetically, it’s the only networking device many people will need. On top of the two Gigabit[Ethernet](https://www.lifewire.com/what-is-an-ethernet-cable-817548) ports, you’re also getting dual antennas, which makes this a dual-band device (2.4GHz and 5.0GHz). It’s not the fastest wireless connection in the world, though—the Netgear C3700 is rated for N600 speeds, something we haven’t seen in a few years.
@@ -127,10 +128,10 @@ Lifewire / Bill Thomas
  There is also a USB 2.0 port around the back where you can plug in a hard drive or a printer for network access.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Network Performance: Great when wired, but wireless speeds lag
@@ -144,6 +145,19 @@ Lifewire / Bill Thomas
 ![Netgear C3700](https://www.lifewire.com/thmb/lPF7EXzNUljkXFySwthTmhwRbiY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-6-1c4a748dd9b644c39d8bd8c47180c74f.jpg)
 
  Lifewire / Bill Thomas
+
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Software: No frills
 
@@ -208,5 +222,24 @@ Lifewire / Bill Thomas
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-inside-the-world-of-screencasts-understanding-fundamental-principles-for-2024/"><u>[New] Inside the World of Screencasts Understanding Fundamental Principles for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-prime-zero-dollar-clip-maker-program/"><u>[New] Prime Zero-Dollar Clip Maker Program</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-quick-guide-to-twitter-videos-meet-aspect-ratio-criteria/"><u>[Updated] Quick Guide to Twitter Videos Meet Aspect Ratio Criteria</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-dystopian-dreams-comparable-games-to-grand-theft-auto-v/"><u>2024 Approved Dystopian Dreams Comparable Games To Grand Theft Auto V</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-a-list-featuring-the-top-smartwatches-on-the-market/"><u>2024'S A-List: Featuring the Top Smartwatches on the Market</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-finest-illustrator-tablets-choosing-the-right-tool-for-artists/"><u>2024'S Finest Illustrator Tablets: Choosing the Right Tool for Artists</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-most-effective-alternatives-to-microsoft-office-find-your-perfect-fit/"><u>2024'S Most Effective Alternatives to Microsoft Office – Find Your Perfect Fit</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-detailed-look-at-the-enhanced-performance-and-features-in-apples-latest-13-inch-macbook-air-with-m1-chip-2e20/"><u>A Detailed Look at the Enhanced Performance and Features in Apple's Latest 13-Inch MacBook Air with M1 Chip (2E20)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722715383802-amazfit-helio-ring-specs-release-timeline-and-price-breakdown-explained/"><u>Amazfit Helio Ring Specs, Release Timeline, and Price Breakdown Explained.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/compact-portable-tp-link-wr902ac-travel-wi-fi-router/"><u>Compact Portable TP-Link WR902AC Travel Wi-Fi Router</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On OnePlus Ace 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/expertise-amplified-10-must-know-canva-techniques/"><u>Expertise Amplified 10 Must-Know Canva Techniques</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722757747910-gaming-redefined-a-comprehensive-review-of-the-cost-effective-nintendo-switch-lite-handheld-console/"><u>Gaming Redefined: A Comprehensive Review of the Cost-Effective Nintendo Switch Lite Handheld Console.</u></a></li>
+<li><a href="https://program-issues.techidaily.com/maximizing-the-ascent-play-experience-solutions-for-increasing-fps-and-stutter-fixes/"><u>Maximizing The Ascent Play Experience: Solutions for Increasing FPS & Stutter Fixes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722614002009-nickwatch-now-available-in-the-us-the-perfect-way-to-watch-kids-choice-awards-live/"><u>NickWatch Now Available in the US - The Perfect Way to Watch Kids' Choice Awards Live!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722692646871-performance-excellence-with-the-clearstream-ehd-tv-antenna-functional-yet-not-pretty/"><u>Performance Excellence with the ClearStream eHD TV Antenna – Functional Yet Not Pretty!</u></a></li>
+<li><a href="https://driver-download.techidaily.com/resolving-lg-printer-software-compatibility-problems-on-windows-10-8-and-7/"><u>Resolving LG Printer Software Compatibility Problems on Windows 10, 8 & 7</u></a></li>
+</ul></div>
 

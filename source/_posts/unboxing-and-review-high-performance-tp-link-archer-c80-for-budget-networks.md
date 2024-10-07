@@ -1,7 +1,7 @@
 ---
 title: "Unboxing & Review: High-Performance TP-Link Archer C80 for Budget Networks"
-date: 2024-09-28T04:30:39.604Z
-updated: 2024-10-01T22:35:47.078Z
+date: 2024-10-04T16:00:28.549Z
+updated: 2024-10-07T17:34:42.261Z
 categories:
   - BestProducts
 description: "This Article Describes Unboxing & Review: High-Performance TP-Link Archer C80 for Budget Networks"
@@ -42,6 +42,13 @@ Lifewire / Danny Chadwick
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Apeman C450 Dash Cam
 
 ![Apeman C450 Dashcam](https://www.lifewire.com/thmb/qtPoWkWW4veIi00rgbPVt6Q4pu8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_HeroSquare2-c752b8527e31471e9018279dea42a8ca.jpg)
@@ -69,27 +76,7 @@ Lifewire / Danny Chadwick
 
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/wyf8r7L4gDINa5Etodv7VR7ogds=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_03-3a8b995526fe491b9634a885db40804a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Danny Chadwick
-
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Design: All the basics**
 
@@ -107,7 +94,21 @@ Lifewire / Danny Chadwick
 
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/A63ztrIxThbZlrb_lHJH3YL7778=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_02-6ef4e204d0bd452b9601ec468e5358bf.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Danny Chadwick
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: You’ll have to figure a lot of stuff out for yourself**
 
@@ -123,6 +124,13 @@ Lifewire / Danny Chadwick
 
  Your first time using the Apeman C450, you also have the option to set up a time and date stamp as well as a car identification number on your videos. This is a nice option to keep track of when a video was recorded, and which car it was recorded from if you have more than one camera in different vehicles.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Camera Quality: Acceptable for a budget device**
 
  You can set this dashcam to capture video in 1080p, 720p, and VGA resolution. That’s impressive for a camera this size, and Apeman puts 1080p Full HD front and center in their marketing materials. While it provides a good level of detail and clarity in the video, it’s worth noting that other dashcams out there can record in resolutions up to 1440p.
@@ -130,13 +138,6 @@ Lifewire / Danny Chadwick
  The camera also has the ability to record audio, but it’s an internal mic and not very directional so it picks up everything. When we tested it, we heard a lot of engine and wind noise while driving. Voices came through alright, but it’s not a high-quality recording and didn’t pick up anything happening outside the vehicle.
 
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/Hp7FvJ_BMgl0S2-Dsd-hd2qiQ7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_04-82d0af63043344a6b7b44863790050d7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
 
@@ -164,13 +165,6 @@ Lifewire / Danny Chadwick
 
  The defects of this dashcam can be forgiven pretty easily considering that it costs less than $50\. If you’re looking for a very inexpensive device, the Apeman C450 is a decent if somewhat flawed solution—it’s definitely not built as solidly and lacks the high resolution of its more expensive competitors, but if you are comfortable working around those shortcomings, this dashcam performs pretty well for the price.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Competition: Apeman C450 vs. Z-Edge Z3 Plus**
 
  We tested the Apeman C450 side by side with the Z-Edge Z3 Plus dashcam. The Z3 Plus is considerably more expensive, and while we found these two devices to be generally similar in form and function, we ultimately favored the Z3 Plus because it lacks the small annoyances that made the Apeman C450 frustrating.
@@ -186,10 +180,10 @@ Lifewire / Danny Chadwick
  Despite a poor-quality build and some design quirks, the Apeman C450 does its job as a dashcam. It has a discreet design, captures pretty good-quality video, and has important extra features like collision detection and a surveillance mode. If you can get past some of its foibles, it's definitely worth the price tag.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -229,24 +223,24 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-avoiding-the-crowd-stand-out-with-unique-youtube-persona/"><u>[New] In 2024, Avoiding the Crowd Stand Out with Unique YouTube Persona</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-the-complete-handbook-for-saving-movies-on-desktop-laptop-and-android/"><u>[Updated] 2024 Approved The Complete Handbook for Saving Movies on Desktop, Laptop & Android</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-instagram-to-tik-tok-a-social-pivot-blueprint-for-2024/"><u>[Updated] Instagram to Tik Tok - A Social Pivot Blueprint for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-transform-your-beats-with-free-dji-luts-for-minis-and-air-devices/"><u>2024 Approved Transform Your Beats with Free DJI LUTs for Minis & Air Devices</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-unveiling-hidden-potential-edit-wonders-on-snapchat-app/"><u>2024 Approved Unveiling Hidden Potential Edit Wonders on Snapchat App</u></a></li>
-<li><a href="https://windows11.techidaily.com/correcting-windows-update-failure-error-0x8024800c/"><u>Correcting Windows Update Failure (Error 0X8024800C)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expertly-selected-wireless-telephone-guides-best-of-2024/"><u>Expertly Selected Wireless Telephone Guides - Best of 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/explore-our-selection-of-top-17-inch-notebook-computers-a-comprehensive-review/"><u>Explore Our Selection of Top 17-Inch Notebook Computers : A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-logitech-c615-camera-balancing-cost-effectiveness-with-high-quality-video/"><u>Exploring the Logitech C615 Camera: Balancing Cost-Effectiveness with High-Quality Video</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-markets-finest-pc-companies/"><u>Exploring the Market's Finest PC Companies</u></a></li>
-<li><a href="https://media-tips.techidaily.com/how-to-guide-setting-up-miracast-technology-on-your-windows-pc-android-phone-iphone-and-ipad/"><u>How-To Guide: Setting Up Miracast Technology on Your Windows PC, Android Phone, iPhone & iPad</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/immersive-audio-with-sony-bravia-theater-unit-an-unexpected-delight-for-home-cinema-lovers/"><u>Immersive Audio with Sony Bravia Theater Unit – An Unexpected Delight for Home Cinema Lovers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-digital-dominance-youtubes-best-female-gamers/"><u>In 2024, Digital Dominance YouTube's Best Female Gamers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-the-ring-of-giants-reviewing-the-star-wars-and-ford-f-150-battle-in-miniature-form/"><u>In the Ring of Giants: Reviewing the Star Wars and Ford F-150 Battle in Miniature Form</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-insights-on-the-new-samsung-galaxy-tab-s6-features-including-s-pen-and-dex-mode/"><u>In-Depth Insights on the New Samsung Galaxy Tab S6 - Features Including S Pen & DeX Mode</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/inside-look-at-alienware-aurora-r7-does-the-cost-match-its-performance/"><u>Inside Look at Alienware Aurora R7 - Does the Cost Match Its Performance?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/knack-assessment-striking-individuality-in-an-otherwise-standard-gaming-experience/"><u>Knack Assessment: Striking Individuality in an Otherwise Standard Gaming Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/m1-chip-revolutionizes-apples-latest-2020-macbook-pro-13-exclusive-performance-overview/"><u>M1 Chip Revolutionizes Apple's Latest 2020 MacBook Pro 13 - Exclusive Performance Overview</u></a></li>
-<li><a href="https://extra-information.techidaily.com/smilesketcher-easy-to-use-digital-comedy-tool/"><u>SmileSketcher Easy-to-Use Digital Comedy Tool</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-snaptwit-sucker-snatch-social-media-vids-with-ease/"><u>[New] SnapTwit Sucker Snatch Social Media Vids with Ease</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-unlocking-full-potential-steam-and-your-switch-pro-controller/"><u>[Updated] 2024 Approved Unlocking Full Potential Steam and Your Switch Pro Controller</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-gamelog-analysts-guide/"><u>[Updated] GameLog Analyst's Guide</u></a></li>
+<li><a href="https://win-blog.techidaily.com/beat-pc-freezes-from-grounding-problems-with-these-top-solutions/"><u>Beat PC Freezes From Grounding Problems with These Top Solutions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-game-consoles-of-2024-a-comprehensive-review/"><u>Best Game Consoles of 2024: A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/black-hero9-exploring-the-summit-of-action-cameras/"><u>Black HERO9: Exploring the Summit of Action Cameras</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bloodborne-game-analysis-exploring-a-grim-and-gripping-universe/"><u>Bloodborne Game Analysis: Exploring a Grim and Gripping Universe</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-american-karaoke-experiences-less-than-150-for-non-stop-fun/"><u>Budget-Friendly American Karaoke Experiences – Less Than $150 for Non-Stop Fun</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-amazon-fire-hd-10-kids-tablet-evaluation-top-notch-kid-safety-features/"><u>Comprehensive Amazon Fire HD 10 Kids Tablet Evaluation: Top-Notch Kid Safety Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-premier-ergonomic-wrist-rest-options/"><u>Comprehensive Guide: Premier Ergonomic Wrist Rest Options</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-navigating-fongo-voip-solutions-in-canada/"><u>Comprehensive Review: Navigating Fongo VoIP Solutions in Canada</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/effective-recorder-selections-for-youtube-vloggers-for-2024/"><u>Cost-Effective Recorder Selections for YouTube Vloggers for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/evaluating-essential-speeds-to-optimize-your-computers-performance/"><u>Evaluating Essential Speeds to Optimize Your Computer's Performance</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-fundamentals-for-newcomers-on-screen-quality-measures/"><u>In 2024, Fundamentals for Newcomers on Screen Quality Measures</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-9-apple-iphone-15-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 9 Apple iPhone 15 Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-home-security-an-in-depth-look-at-the-superior-ring-doorbell-2/"><u>Mastering Home Security: An In-Depth Look at the Superior Ring Doorbell 2.</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/thrifty-tunes-how-students-can-enjoy-spotify-at-half-price-your-step-by-step-manual/"><u>Thrifty Tunes: How Students Can Enjoy Spotify at Half Price - Your Step-by-Step Manual</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-apps-and-online-tools-to-track-nokia-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Nokia Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-tier-oculus-quest-2-analysis-exceptional-virtual-reality-experience-with-incredible-value/"><u>Top-Tier Oculus Quest 2 Analysis: Exceptional Virtual Reality Experience with Incredible Value</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "TP-Link AV1300 Wi-Fi Repeater Assessment: Underwhelming Performance"
-date: 2024-09-15T22:48:33.626Z
-updated: 2024-09-21T03:36:02.798Z
+date: 2024-09-30T16:14:04.731Z
+updated: 2024-10-07T16:33:33.015Z
 categories:
   - BestProducts
 description: "This Article Describes TP-Link AV1300 Wi-Fi Repeater Assessment: Underwhelming Performance"
@@ -49,6 +49,13 @@ Lifewire / Jeremy Laukkonen
 
 ![TP-Link Archer A6 AC1200 Router](https://www.lifewire.com/thmb/eB886Wl9r3D8YMg227kYv9GRkJs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_HeroSquare-3758788658a244148a04b7346643557b.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
 [View On Amazon $45](https://www.amazon.com/dp/B07N1L5HX1?tag=lifewire-onsite-prod-20&ascsubtag=4846342%7Cndd707df741a44bb699bcdb4f97d36f3622%7CB07N1L5HX1)
@@ -81,6 +88,13 @@ Lifewire / Jeremy Laukkonen
 
 ![TP-Link Archer A6 AC1200](https://www.lifewire.com/thmb/eeaRHW4APuNCYThw1t-TVwYpmSI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_04-4739ffd6705348959e05e41ab9da2292.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
  The ports and power button are all found on the back of the unit in a fairly standard array, and you’ll find the indicator LEDs on top near the front edge. The positioning is good for desktop use, and it also leaves the indicators clearly visible when wall mounted.
@@ -88,10 +102,10 @@ Lifewire / Jeremy Laukkonen
  The Archer A6 doesn’t exactly stand out of the crowd, but it’s a definite improvement over the older C7 that I keep around for testing purposes.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Completely painless once you unwrap the antennas**
@@ -107,6 +121,13 @@ Lifewire / Jeremy Laukkonen
 ![TP-Link Archer A6 AC1200](https://www.lifewire.com/thmb/2zSHbpT2Rq4Ac-0-u73213g1rlk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_02-8fd53e1cd8284fd4a40091d7896fe8db.jpg)
 
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: Dual-band with MU-MIMO, but lacking in physical ports**
 
@@ -146,18 +167,18 @@ Lifewire / Jeremy Laukkonen
 
 ![TP-Link Archer A6 AC1200](https://www.lifewire.com/thmb/2qgk2j764OivVDjAgICPpQb-Xig=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_WirelessRouters_ArcherA6AC1200_03-7abb56dd933947dc892f8ec43ef36863.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 ## **Price: Good price for the features**
 
  With an MSRP of $50, the Archer A6 represents pretty decent value for the level of performance and the feature set it offers. You may want to step up to a more expensive unit if you have a big house or a lot of devices, and it is missing features like a USB port, but the Archer A6 is priced very well for what you get.
-
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **TP-Link Archer A6 vs. TP-Link Archer A7**
 
@@ -172,13 +193,6 @@ Lifewire / Jeremy Laukkonen
  **A great budget router that provides premium features.**
 
  The TP-Link Archer A6 is a great little budget-priced router that performs better than I expected it to. It’s important to stress that it’s an AC1200 router, and it’s only dual-band, so don’t expect it to do the job if you have dozens of data-hungry devices or an especially large house with a complicated internal setup. But if you just want an affordable router that performs well across about 1,400-1,600 square feet of space, this is a great option.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -214,5 +228,26 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-achieving-asmr-bliss-selecting-the-right-mic/"><u>[Updated] In 2024, Achieving ASMR Bliss Selecting the Right Mic</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-mastering-the-art-of-incorporating-youtube-in-slate-presentations/"><u>[Updated] In 2024, Mastering the Art of Incorporating YouTube in Slate Presentations</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-perfected-frames-select-software-and-websites-of-the-year-2023-for-2024/"><u>[Updated] Perfected Frames Select Software & Websites of the Year, 2023 for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boosting-wireless-connectivity-a-detailed-look-at-the-netgear-ac1200-ex6200-repeater/"><u>Boosting Wireless Connectivity: A Detailed Look at the Netgear AC1200 (EX6200) Repeater</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/choosing-the-right-console-here-are-5-important-points-you-shouldnt-ignore/"><u>Choosing the Right Console? Here Are 5 Important Points You Shouldn't Ignore</u></a></li>
+<li><a href="https://win-answers.techidaily.com/complete-guide-to-resolve-manor-lords-stalling-issues-in-pc-gaming/"><u>Complete Guide to Resolve Manor Lords Stalling Issues in PC Gaming</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cutting-edge-networking-storage-the-elite-selection-of-server-frames-and-housings-for-tech-enthusiasts-2024/"><u>Cutting-Edge Networking Storage: The Elite Selection of Server Frames and Housings for Tech Enthusiasts - 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-nonstop-fitness-monitoring-with-the-fitbit-inspire-hr-an-expert-review-guide/"><u>Experience Nonstop Fitness Monitoring with the Fitbit Inspire HR: An Expert Review Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/from-small-to-large-impact-evaluating-the-value-of-spyro-reignited-trilogy/"><u>From Small to Large Impact: Evaluating the Value of Spyro Reignited Trilogy</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-enhance-lenovo-ideapad-100-performance-windows-10-driver-downloads-and-tips/"><u>How to Enhance Lenovo IdeaPad 100 Performance: Windows 10 Driver Downloads & Tips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/m06-headphone-test-secure-and-swift-wireless-connectivity/"><u>M06 Headphone Test: Secure & Swift Wireless Connectivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-next-generation-with-netgear-nighthawk-ax8-router-range-extender-perfect-for-future-proof-networks/"><u>Reviewing the Next Generation with Netgear Nighthawk AX8 Router Range Extender: Perfect for Future-Proof Networks?</u></a></li>
+<li><a href="https://driver-install.techidaily.com/swift-thunderbolt-4-enhancement-for-macbooks/"><u>Swift Thunderbolt 4 Enhancement for MacBooks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-htc-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your HTC Phone Hassle-Free</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-affordable-4k-android-televisions-in-depth-analysis-of-the-caixun-75-inch-model/"><u>Top Affordable 4K Android Televisions: In-Depth Analysis of the Caixun 75-Inch Model</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/transform-your-ideas-into-engaging-presentations-via-chatgpt/"><u>Transform Your Ideas Into Engaging Presentations via ChatGPT</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-excellence-of-samsungs-newest-tablet-the-galaxy-tab-s5e-review/"><u>Unveiling the Excellence of Samsung's Newest Tablet - The Galaxy Tab S5e Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-positives-and-negatives-of-microsoft-teamswebex-for-remote-collaboration/"><u>Unveiling the Positives & Negatives of Microsoft Teams/Webex for Remote Collaboration</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unveiling-the-secrets-behind-meta-ai-comprehensive-insights/"><u>Unveiling the Secrets Behind Meta AI: Comprehensive Insights</u></a></li>
+</ul></div>
 

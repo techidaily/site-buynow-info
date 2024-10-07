@@ -1,7 +1,7 @@
 ---
 title: "Sony DSC-W800 Analysis: Performance That Keeps Up with Your Budget"
-date: 2024-09-29T01:43:33.379Z
-updated: 2024-10-02T07:57:29.125Z
+date: 2024-10-02T18:23:03.652Z
+updated: 2024-10-07T18:48:13.687Z
 categories:
   - BestProducts
 description: "This Article Describes Sony DSC-W800 Analysis: Performance That Keeps Up with Your Budget"
@@ -46,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/e1ce3f3e6442fac637b9a262af6a28dc4e5da35e5
 
 ![Blueear Bluetooth Beanie Hat](https://www.lifewire.com/thmb/AjDXKp_HcU3-156-Y8LLC7h-Ppc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4159779_HeroSquare-d9847be4cedf4a279be58a3ffe96bd06.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeffrey Daniel Chadwick
 
 [View On Amazon $20](https://www.amazon.com/dp/B00XL5UPP6?tag=lifewire-onsite-prod-20&ascsubtag=4774395%7Cnd41f1c076c6545559b4fa19e760871e519%7CB00XL5UPP6)
@@ -71,6 +78,13 @@ thumbnail: https://thmb.techidaily.com/e1ce3f3e6442fac637b9a262af6a28dc4e5da35e5
 
 ![Blueear Bluetooth Beanie Hat](https://www.lifewire.com/thmb/IcCCPdp0TK1sbRWzr9VsPydtSLY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4159779_05-73c2b4a42b6b43f48ac4d02283d02657.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeffrey Daniel Chadwick
 
 ## **Design: Simple and discreet**
@@ -91,21 +105,7 @@ thumbnail: https://thmb.techidaily.com/e1ce3f3e6442fac637b9a262af6a28dc4e5da35e5
 
 ![Blueear Bluetooth Beanie Hat](https://www.lifewire.com/thmb/3aVPDXCbn533gdsOOMrbCMHgUo8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4159779_02-39d07d95367d404e8e36d49ecd0f6aaa.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeffrey Daniel Chadwick
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Just like any other Bluetooth device**
 
@@ -117,13 +117,6 @@ thumbnail: https://thmb.techidaily.com/e1ce3f3e6442fac637b9a262af6a28dc4e5da35e5
 
 ![Blueear Bluetooth Beanie Hat](https://www.lifewire.com/thmb/vDgOpMTjzx4rXxlDNddSrWYNiDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4159779_06-ea3ea611fbf8423e9221af228b7c37e4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeffrey Daniel Chadwick
 
 ## **Controls: Awkward but easy**
@@ -131,10 +124,10 @@ thumbnail: https://thmb.techidaily.com/e1ce3f3e6442fac637b9a262af6a28dc4e5da35e5
  The control panel sewed into the band sits over your left ear. This is an odd place for it for right handed people, requiring them to reach across their torso and face to use it with their dominant hand. Nevertheless, the controls are easy and complete. Controls include volume, pause, play, previous and next track. It only takes a few minutes of using the cap to learn its controls effectively.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Battery Life: Good, but not as advertised**
@@ -144,13 +137,6 @@ thumbnail: https://thmb.techidaily.com/e1ce3f3e6442fac637b9a262af6a28dc4e5da35e5
  All of the small foibles of this Bluetooth beanie are forgivable because it’s not an expensive product.
 
  It takes a little more than an hour to fully charge this Bluetooth beanie. You can charge the speakers through a small hole in the fabric via an included USB charging cable. It doesn’t come with wall adapter, but if you don’t have one kicking around you can also plug it into a computer or other USB equipped device.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Comfort: Kinda scratchy, but you’ll get used to it**
 
@@ -164,6 +150,13 @@ thumbnail: https://thmb.techidaily.com/e1ce3f3e6442fac637b9a262af6a28dc4e5da35e5
 
  All of the small foibles of this Bluetooth beanie are forgivable because it’s not an expensive product. Depending on the color you get, expect to pay between $15 and $25, with grey being the most expensive.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Blueear Bluetooth Beanie Hat vs. Rotibox Bluetooth Beanie Hat**
 
  We tested this wireless beanie side by side with the Rotibox Bluetooth Beanie Hat and the two are about comparable in design and function. But the Rotibox is a good deal more comfortable, and it produces better sound. The best thing Blueear has going for it is that it’s the least expensive wireless music beanie we reviewed.
@@ -175,6 +168,13 @@ thumbnail: https://thmb.techidaily.com/e1ce3f3e6442fac637b9a262af6a28dc4e5da35e5
  **If you’re looking for a superior, comfortable winter beanie or a powerful audio experience, this is not the product for you.**
 
  However, if you’re interested in an average beanie and decent sound at a bargain basement price, it’s a good pick. It’s a fashionable beanie that goes well with your winter wardrobe, and the Bluetooth speakers provide enough utility to make it more than a novelty.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -205,24 +205,19 @@ thumbnail: https://thmb.techidaily.com/e1ce3f3e6442fac637b9a262af6a28dc4e5da35e5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-deep-dive-android-edition-of-adobe-lightroom-review/"><u>[New] Deep Dive Android Edition of Adobe Lightroom Review</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-emoji-tips-for-yt-comments-a-quick-guide/"><u>[Updated] In 2024, Emoji Tips for YT Comments A Quick Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-strategy-for-posting-srt-content-socially/"><u>[Updated] The Ultimate Strategy for Posting SRT Content Socially</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-xiaomi-redmi-13c-5g-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Xiaomi Redmi 13C 5G without App | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-realme-gt-5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Realme GT 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/alienware-aurora-r7-unleashed-striking-the-perfect-chord-between-expensive-gear-and-economic-pricing/"><u>Alienware Aurora R7 Unleashed: Striking the Perfect Chord Between Expensive Gear and Economic Pricing</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/choosing-the-perfect-playstation-or-xbox-for-gamers/"><u>Choosing the Perfect PlayStation or Xbox for Gamers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-bloodborne-overview-journeying-through-the-shadowy-universe/"><u>Comprehensive Bloodborne Overview: Journeying Through the Shadowy Universe</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-high-quality-huion-inspiroy-g10t-digital-drawing-tablet-performance-insights/"><u>Comprehensive Review of the High-Quality Huion Inspiroy G10T Digital Drawing Tablet - Performance Insights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/converting-windows-11-32-bit-to-its-64-bit-counterpart/"><u>Converting Windows 11 (32-Bit) to Its 64-Bit Counterpart</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/exploring-toms-hardware-a-comprehensive-guide/"><u>Exploring Tom's Hardware: A Comprehensive Guide</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-ready-for-a-seamless-gaming-experience-with-the-newest-geforce-rtx-2080-ti-driver-update/"><u>Get Ready for a Seamless Gaming Experience with the Newest GeForce RTX 2080 Ti Driver Update</u></a></li>
-<li><a href="https://win11.techidaily.com/how-to-quickly-fix-the-0x80071a90-windows-problem/"><u>How to Quickly Fix the 0X80071a90 Windows Problem</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-tether-your-android-as-a-webcam-on-windows-11-pcs/"><u>How to Tether Your Android as a Webcam on Windows 11 PCs</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-infinix-zero-5g-2023-turbo-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Infinix Zero 5G 2023 Turbo Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlocking-the-power-of-print-commands-for-stunning-edits-in-photoshop/"><u>Unlocking the Power of Print Commands for Stunning Edits in Photoshop</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-potential-of-chargetechs-mega-27000mah-battery-pack-a-detailed-assessment/"><u>Unveiling the Potential of ChargeTech's Mega 27000mAh Battery Pack: A Detailed Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-light-therapy-for-better-days-an-in-depth-look-at-the-ihome-zenergy-bedside-review/"><u>Unveiling the Power of Light Therapy for Better Days: An In-Depth Look at the IHome Zenergy Bedside Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/value-for-money-exploring-the-portable-and-affordable-features-of-the-surface-laptop-go/"><u>Value for Money? Exploring the Portable and Affordable Features of the Surface Laptop Go</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-hd-to-hyper-hd-the-eizo-monitor-revolution-with-cg318-4k/"><u>2024 Approved From HD to Hyper HD The EIZO Monitor Revolution with CG318-4K</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apples-m4-chip-released-a-closer-look-at-news-date-of-launch-and-full-specs/"><u>Apple's M4 Chip Released: A Closer Look at News, Date of Launch, and Full Specs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ar-5-glasses-evaluation-top-quality-augmented-reality-experience-for-less/"><u>AR-5 Glasses Evaluation - Top-Quality Augmented Reality Experience for Less!</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/convertisseur-gratuit-de-fichiers-wmv-au-format-flac-online/"><u>Convertisseur Gratuit De Fichiers WMV Au Format FLAC - Online</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevating-gaming-and-streaming-with-nvidia-shield-tv-pro-in-depth-performance-breakdown/"><u>Elevating Gaming and Streaming with Nvidia Shield TV Pro: In-Depth Performance Breakdown</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-best-of-both-worlds-with-blueears-bluetooth-enabled-fashionable-beanie-hat-audiophile-approved/"><u>Experience the Best of Both Worlds with Blueear's Bluetooth-Enabled Fashionable Beanie Hat - Audiophile Approved</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-oppo-a79-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Oppo A79 5G? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-indie-filmmakers-toolkit-top-7-low-cost-video-production-software/"><u>New 2024 Approved Indie Filmmakers Toolkit Top 7 Low-Cost Video Production Software</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-complete-review-of-mobvois-ticwatch-pro-4g-the-top-smartwatch-for-uninterrupted-internet-access/"><u>The Complete Review of Mobvoi's Ticwatch Pro 4G: The Top Smartwatch for Uninterrupted Internet Access</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-essential-review-is-the-dell-inspiron-3671-your-ideal-everyday-desktop-computer/"><u>The Essential Review: Is the Dell Inspiron 3671 Your Ideal Everyday Desktop Computer?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-motorola-moto-g23-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Motorola Moto G23 Device</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-honor-90-pro-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Honor 90 Pro Device</u></a></li>
 </ul></div>
 

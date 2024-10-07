@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Analysis of the Google Pixel Eax with 5G - An Economical Choice in Smartphones
-date: 2024-09-29T16:38:43.153Z
-updated: 2024-10-01T20:44:35.929Z
+date: 2024-10-05T17:55:05.792Z
+updated: 2024-10-07T18:50:51.748Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Analysis of the Google Pixel Eax with 5G - An Economical Choice in Smartphones
@@ -42,10 +42,10 @@ Lifewire / Jonno Hill
 4.4
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Clearstream ECLIPSE
@@ -76,10 +76,10 @@ Lifewire / Jonno Hill
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/AbdriPZwiRfd8iHxT9N5E6Ae2hk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_03-d434cf7b4c5f4f73b08c8c220fd0d43e.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
@@ -97,28 +97,28 @@ Lifewire / Jonno Hill
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Above average**
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Range: Fair to middling**
 
  Antenna’s Direct rates the ClearStream Eclipse Antenna for up to 35 miles of range, although I’ve seen reports of people getting good results from further, or having trouble from much closer. My apartment is well within the supported range, so my sentiments reflect its use in city settings more than suburbs or exurbs.
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
@@ -163,24 +163,24 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-info.techidaily.com/the-outer-worlds-blasting-through-a-fun-sci-fi-universe-with-engrossing-plot-points/"><u>'The Outer Worlds': Blasting Through a Fun Sci-Fi Universe with Engrossing Plot Points</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-the-role-of-gaming-in-e-commerce/"><u>[New] 2024 Approved The Role of Gaming in E-Commerce</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-transition-from-standard-to-intelligent-hdr-imaging/"><u>[New] 2024 Approved Transition From Standard to Intelligent HDR Imaging</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-unleash-the-potential-of-video-marketing-on-facebook/"><u>[New] 2024 Approved Unleash the Potential of Video Marketing on Facebook</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/2024s-leading-routers-with-advanced-parental-monitoring-features/"><u>2024'S Leading Routers with Advanced Parental Monitoring Features</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/adsense-profits-on-youtube-earnings-per-thousand-video-watchers/"><u>AdSense Profits on YouTube Earnings per Thousand Video Watchers</u></a></li>
-<li><a href="https://article-files.techidaily.com/audio-integration-into-visual-screens-via-apple-for-2024/"><u>Audio Integration Into Visual Screens via Apple for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/delete-gmail-account-withwithout-password-on-vivo-y100a-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Vivo Y100A</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/maximizing-meeting-efficiency-using-zoom-in-your-email-routine-with-gmail-for-2024/"><u>Maximizing Meeting Efficiency Using Zoom in Your Email Routine with Gmail for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/realtek-card-reader-driver-version-for-windows-11-download-here/"><u>Realtek Card Reader Driver Version for Windows 11 – Download Here</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-full-spectrum-of-apples-macos-versions-unveiled-a-detailed-exploration-guide/"><u>The Full Spectrum of Apple's macOS Versions Unveiled: A Detailed Exploration Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-sturdy-and-cost-effective-solution-to-holding-your-tablet-omoton-t1-reviewed/"><u>The Sturdy and Cost-Effective Solution to Holding Your Tablet - Omoton T1 Reviewed</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-ultimate-guide-to-instagram-video-campaigns-strategy-and-execution-for-2024/"><u>The Ultimate Guide to Instagram Video Campaigns Strategy and Execution for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-picks-the-ultimate-list-of-2024s-finest-17-inch-laptop-models/"><u>Top Picks: The Ultimate List of 2024'S Finest 17-Inch Laptop Models</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-ranked-value-pick-comprehensive-guide-to-fellowes-microban-wired-keyboard/"><u>Top-Ranked Value Pick - Comprehensive Guide to Fellowes Microban Wired Keyboard</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/transforming-your-workflow-a-review-of-the-102-inch-apple-ipad-7th-gen-ipados-the-game-changer-for-professionals/"><u>Transforming Your Workflow: A Review of the 10.2-Inch Apple iPad (7Th Gen) - IPadOS, The Game Changer for Professionals</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-selection-7-premier-platforms-for-watching-trailers-online/"><u>Ultimate Selection: 7 Premier Platforms for Watching Trailers Online</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-and-performance-of-the-latest-samsung-galaxy-s24-ultra-model/"><u>Unveiling the Power and Performance of the Latest Samsung Galaxy S24 Ultra Model</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/why-steam-deck-might-just-be-your-next-portable-game-console/"><u>Why Steam Deck Might Just Be Your Next Portable Game Console</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-how-to-shoot-slow-motion-video-on-iphone-for-2024/"><u>[New] How to Shoot Slow Motion Video on iPhone for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-next-evaluation-diverse-solutions-for-2024/"><u>[New] Next Evaluation Diverse Solutions for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-tap-into-the-funny-kapwing-for-meme-makers/"><u>[New] Tap Into the Funny Kapwing for Meme Makers</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-mac-screenshots-transforming-extensions-for-2024/"><u>[Updated] Mac Screenshots Transforming Extensions for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-vivo-y02t-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Vivo Y02T to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/50-greatest-virtual-scenes-for-online-meetings-for-2024/"><u>50 Greatest Virtual Scenes for Online Meetings for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-zoom-and-click-discovering-kodaks-fz53/"><u>Affordable Zoom & Click - Discovering Kodak's FZ53</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/android-call-history-recovery-recover-deleted-call-logs-from-samsung-galaxy-m34-5g-by-fonelab-android-recover-call-logs/"><u>Android Call History Recovery - recover deleted call logs from Samsung Galaxy M34 5G</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-testing-the-rca-video-doorbell-cameras-that-surpass-expectations/"><u>Comprehensive Testing: The RCA Video Doorbell Cameras That Surpass Expectations</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exclusive-insight-on-the-iphone-xs-max-from-apple-a-superior-device-or-just-expensive/"><u>Exclusive Insight on the iPhone XS Max From Apple: A Superior Device or Just Expensive?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-cost-vs-quality-with-tp-link-archer-c50-a-comprehensive-budget-router-assessment/"><u>Exploring the Cost Vs. Quality with TP-Link Archer C50: A Comprehensive Budget Router Assessment</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/generate-sharable-gifs-with-a-laugh-twist-giphy/"><u>Generate Sharable Gifs with a Laugh Twist, Giphy</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/kootek-portable-cooler-a-reliable-and-widely-applicable-choice/"><u>Kootek Portable Cooler: A Reliable and Widely-Applicable Choice</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/logitech-g533-audio-test-top-tier-wireless-game-headset/"><u>Logitech G533 Audio Test: Top-Tier Wireless Game Headset</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/master-your-electronics-knowledge-insights-from-toms-hardware-hub/"><u>Master Your Electronics Knowledge: Insights From Tom's Hardware Hub</u></a></li>
+<li><a href="https://howto.techidaily.com/play-store-stuck-on-downloading-of-zte-nubia-flip-5g-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of ZTE Nubia Flip 5G? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-owc-mercury-pro-exceptional-hard-drive-offering-industry-leading-speeds/"><u>Review of OWC Mercury Pro: Exceptional Hard Drive Offering Industry-Leading Speeds</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sealoc-55-inch-4k-outdoor-tv-a-comprehensive-review-and-guide/"><u>Sealoc 55-Inch 4K Outdoor TV: A Comprehensive Review and Guide.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/traverse-with-ease-a-critical-look-at-the-amazon-basics-foldable-tablet-stand/"><u>Traverse with Ease: A Critical Look at the Amazon Basics Foldable Tablet Stand</u></a></li>
 </ul></div>
 

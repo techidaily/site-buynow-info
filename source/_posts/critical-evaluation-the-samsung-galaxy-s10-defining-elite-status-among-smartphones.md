@@ -1,7 +1,7 @@
 ---
 title: "Critical Evaluation: The Samsung Galaxy S10 – Defining Elite Status Among Smartphones"
-date: 2024-09-24T16:17:58.323Z
-updated: 2024-10-02T10:00:20.031Z
+date: 2024-10-03T16:57:53.544Z
+updated: 2024-10-07T17:12:10.944Z
 categories:
   - BestProducts
 description: "This Article Describes Critical Evaluation: The Samsung Galaxy S10 – Defining Elite Status Among Smartphones"
@@ -43,13 +43,6 @@ Andrew Hayward / Lifewire
 [View On Amazon $239](https://www.amazon.com/dp/B099VMT8VZ?tag=lifewire-onsite-prod-20&ascsubtag=5092839%7Cnbdecb7d1285e4e25b1f1161a0c48733019%7CB099VMT8VZ) [View On Best Buy $200](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6473553.p) [View On Oculus](https://www.oculus.com/quest-2/?locale=en%5FUS)
 
 4.5
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Meta Quest 2
 
@@ -99,10 +92,10 @@ Andrew Hayward / Lifewire
  Andrew Hayward / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tracking and Controllers: Some improvements, some drawbacks
@@ -112,6 +105,13 @@ Andrew Hayward / Lifewire
  The Quest 2’s wireless, motion-sensing Oculus Touch controllers are identical in function to the original, but are a little heavier and have a larger surface with space to rest your thumb when not in use. That’s handy. Each has an analog stick and two face buttons, along with a trigger button and a grip button. Oculus also swapped out the magnetically-attached battery doors from the first Quest controllers—which would sometimes slide open when I used the original—for ones that simply click into place. That’s a win for function over form.
 
 ![Oculus Quest 2 ](https://www.lifewire.com/thmb/1aG6kdNHMuvnim8p8_i1RwH9QG8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-3-eec6cabc11db4ed9be5254aa2bc46ec1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Andrew Hayward / Lifewire
 
@@ -123,14 +123,14 @@ Andrew Hayward / Lifewire
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/gwWuuSfTzWNDoS45b-iG9qG32-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-4-27f169e7e71b4372a38e13332b7b1364.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Andrew Hayward / Lifewire
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Setup Process: You’ll need a phone… and Facebook
 
@@ -158,13 +158,6 @@ Andrew Hayward / Lifewire
 
  I felt the Quest 2’s enhancements more prominently in some games over others. Laser sword-swinging music game Beat Saber, for example, ran well on the first headset and isn’t that different here—just smoother and clearer-looking. But with the online battle royale shooter Population: One, the cleaner-looking textures and more fluid performance helped mitigate some of the light motion sickness I felt playing on the first Quest.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Sound Quality: Works fine without headphones
 
  Plugging in headphones delivers a more closed-off, immersive experience, but the Oculus Quest 2’s built-in speaker does a solid job of delivering audio and music. It does sound a tiny bit louder and fuller than the original Quest’s speaker, but not significantly so. Still, if you want to play without being fully shut-off from your surroundings, it works just fine.
@@ -176,6 +169,19 @@ Andrew Hayward / Lifewire
  That said, if you’re keen on longer-lasting experiences, Oculus sells a $129 version of the Elite Strap with a built-in battery pack that doubles the play time, or you can get a portable battery pack, plug it in, and stick it in your pocket during use. Lastly, you could just use a lengthy USB-C cable and plug yourself into a wall. If you’re doing room-scale VR games and apps with free movement, however, you’ll need something longer—like 10 feet or more. Otherwise, some seated apps and games will work just fine when you’re tethered to a nearby wall outlet.
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/Ns2S3DQVema5UEDDSO8n3N7SC_4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-7-0a0e40b6a3064fe7abc985f0900dbeff.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Andrew Hayward / Lifewire
 
@@ -194,6 +200,13 @@ Andrew Hayward / Lifewire
  Andrew Hayward / Lifewire
 
  The $299 edition of the headset comes with 64GB of internal storage and the $399 version nets you 256GB, with some of each tally taken up by system software and resources. Luckily, the games and apps themselves aren’t huge, typically weighing in between 1-4GB apiece, sometimes less, and they’re pretty quick to download again if you want to revisit something. The 64GB edition should provide enough space for most players, as you could probably comfortably have a dozen or more games installed, along with streaming media apps, but anyone who wants to have a robust VR library on hand at all times without waiting might consider spending the extra cash.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Games: A good, growing selection
 
@@ -215,20 +228,13 @@ Andrew Hayward / Lifewire
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/TDsFPvRGkhZaFzIaNnKRk1_xO4s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-8-Comparison-1b0c51b029da41389167e103a4c4843a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Andrew Hayward / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Oculus Quest 2 vs. PlayStation VR
@@ -252,10 +258,10 @@ Andrew Hayward / Lifewire
 * [Valve Index](https://www.lifewire.com/valve-index-review-4775604)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -289,21 +295,22 @@ Andrew Hayward / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-fb-hd-streaming-made-simple-instructions/"><u>[Updated] 2024 Approved FB HD Streaming Made Simple Instructions</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-hacks-to-dodge-digital-lessons-at-home/"><u>[Updated] 2024 Approved Hacks to Dodge Digital Lessons at Home</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-investment-icons-top-15-youtube-stock-gurus/"><u>[Updated] In 2024, Investment Icons Top 15 YouTube Stock Gurus</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-professional-vision-optimizing-video-lighting-techniques/"><u>[Updated] Professional Vision Optimizing Video Lighting Techniques</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/5-best-external-blu-ray-drives-for-enhanced-media-experience-2024/"><u>5 Best External Blu-Ray Drives for Enhanced Media Experience - 202^4</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/advance-windows-10-features-home-to-professional-shift/"><u>Advance Windows 10 Features: Home to Professional Shift</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/analog-wonders-with-no-cables-at-lp60xbt-insight/"><u>Analog Wonders with No Cables: AT-LP60XBT Insight</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apple-watch-vs-fitbit-a-detailed-comparison-of-series-9-and-charge-6-models/"><u>Apple Watch Vs. Fitbit: A Detailed Comparison of Series 9 and Charge 6 Models</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/avoiding-common-mistakes-when-buying-a-smart-tv/"><u>Avoiding Common Mistakes When Buying a Smart TV</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/compact-and-convenient-but-not-flawless-a-comprehensive-analysis-of-criacrs-bluetooth-fm-transmitter-cp24/"><u>Compact & Convenient, But Not Flawless - A Comprehensive Analysis of Criacr's Bluetooth FM Transmitter CP24</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/effortless-installation-brother-mfc-7360n-printer-software-for-windows-11-8-and-7/"><u>Effortless Installation: Brother MFC-7360N Printer Software for Windows 11, 8 & 7</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-essential-tips-for-quality-screencasting/"><u>In 2024, Essential Tips for Quality Screencasting</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-focusing-on-the-best-our-countdown-of-camera-lenses-1-10/"><u>In 2024, Focusing on the Best Our Countdown of Camera Lenses, #1-10</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/score-big-savings-250-off-on-the-compact-and-powerful-xgimi-mogo-2-pro-projector/"><u>Score Big Savings - $250 Off on the Compact & Powerful XGIMI MoGo 2 Pro Projector!</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-guide-to-youtube-earnings-across-devices-for-2024/"><u>The Ultimate Guide to YouTube Earnings Across Devices for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/virtually-hug-your-pets-petcubes-new-adventure-awaits/"><u>Virtually Hug Your Pets: Petcube's New Adventure Awaits</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-the-definitive-guide-to-du-recorders-capabilities/"><u>[New] In 2024, The Definitive Guide to Du Recorder's Capabilities</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-15-steps-towards-perfecting-your-educational-video-content-for-youtube-for-2024/"><u>[Updated] 15 Steps Towards Perfecting Your Educational Video Content for YouTube for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-blueprint-for-on-screen-dialogues/"><u>[Updated] The Blueprint for On-Screen Dialogues</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/before-you-buy-think-about-these-screen-specs/"><u>Before You Buy, Think About These Screen Specs</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/enhancing-online-user-experience-with-advanced-tracking-technology/"><u>Enhancing Online User Experience with Advanced Tracking Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-reviews-on-superior-cars-gps-trackers/"><u>Expert Reviews on Superior Cars' GPS Trackers</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/h264-h264-os-mac/"><u>H.264 튜토리얼: H264 비디오의 문화, 원자 OS와 MAC로 이동하는 방법</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-itel-p55-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Itel P55 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Lava Blaze 2? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/intelligent-highway-companion-unveiling-the-capabilities-of-the-ix-escort-radar-detector/"><u>Intelligent Highway Companion: Unveiling the Capabilities of the iX Escort Radar Detector</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/lenovo-tab-4-a-cost-effective-android-tablet-with-considerations/"><u>Lenovo Tab 4 - A Cost-Effective Android Tablet With Considerations</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/motorola-one-hyper-an-in-depth-review-of-an-exceptional-and-eye-catching-mid-range-smartphone/"><u>Motorola One Hyper: An In-Depth Review of an Exceptional and Eye-Catching Mid-Range Smartphone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionize-your-drive-the-intuitive-ix-escort-radar-detector-review/"><u>Revolutionize Your Drive: The Intuitive iX Escort Radar Detector Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-essential-guide-to-the-samsung-galaxy-watch-active-your-partner-in-wellness-and-activity-monitoring/"><u>The Essential Guide to the Samsung Galaxy Watch Active - Your Partner in Wellness and Activity Monitoring</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-truth-about-the-asus-rt-ac88u-a-comprehensive-product-review-for-gamers/"><u>The Truth About the Asus RT-AC88U - A Comprehensive Product Review for Gamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-confusion-a-comprehensive-look-at-the-pixel-slate-and-chromeos-mismatches/"><u>Unpacking the Confusion: A Comprehensive Look at the Pixel Slate and ChromeOS Mismatches</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-x90s-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo X90S Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
 </ul></div>
 

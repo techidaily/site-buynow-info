@@ -1,7 +1,7 @@
 ---
 title: "Expert Review: The Compact and Mighty Jaco SmartPro Digital Tire Pump"
-date: 2024-09-17T19:49:23.212Z
-updated: 2024-09-20T17:26:07.760Z
+date: 2024-09-30T16:52:00.866Z
+updated: 2024-10-07T17:09:36.610Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Review: The Compact and Mighty Jaco SmartPro Digital Tire Pump"
@@ -72,6 +72,13 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Flimsy and difficult to use**
 
  The first thing we noticed about the Docooler USB 2.0 12 Megapixel is how cheap it feels. The camera itself has a plastic, silver housing with a shiny silver focus ring on the end. It feels like it could break at any moment. The base is made of a transparent plastic, which is also available in blue and black. The plastic is so rigid that we expect it to break under regular use. Every time we adjusted the camera, the plastic creaked like a rusty door in a haunted house. Even in our short testing period, the joints started getting loose. We had to check several times just to make sure it wasn’t broken.
@@ -80,13 +87,20 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/a_8Gd66JN0RtfWzKKcRq95S8EmY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_6_Final_Horiz-1dd3a45479614483b0f4f5883f27094a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / James Huenink
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup process: Awkward to position**
@@ -106,20 +120,13 @@ Lifewire / James Huenink
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/BxI5asxQavdUO5cT3iIpSIqM9Mk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_10_Final_Horiz-8acc6be9290c439496f17a63684115ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / James Huenink
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Underwhelming performance in video and audio**
 
@@ -181,5 +188,22 @@ Lifewire / James Huenink
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-clips.techidaily.com/updated-the-pinnacle-collection-all-2023-twitter-videos-for-2024/"><u>[Updated] The Pinnacle Collection All 2023 Twitter Videos for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-infinix-note-30-vip-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Infinix Note 30 VIP</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ng-through-the-clutter-how-to-stream-top-notch-upside-down-content-on-youtube-for-2024/"><u>Cutting Through the Clutter How to Stream Top-Notch Upside-Down Content on Youtube for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/diy-airpod-repair-techniques-for-overcoming-failed-reset-attempts/"><u>DIY AirPod Repair Techniques for Overcoming Failed Reset Attempts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gamers-guide-to-2023-selecting-the-finest-steam-deck-games-from-a-pool-of-10/"><u>Gamer’s Guide to 2023: Selecting the Finest Steam Deck Games From a Pool of 10</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hd-pet-viewing-made-simple-with-petcubes-affordable-model/"><u>HD Pet Viewing Made Simple with Petcube's Affordable Model</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-a-thorough-analysis-elevating-video-recording-with-obs/"><u>In 2024, A Thorough Analysis Elevating Video Recording with OBS</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-unifying-zoom-meeting-dates-across-phone-tablet-and-computer/"><u>In 2024, Unifying Zoom Meeting Dates Across Phone, Tablet, and Computer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-print-tool-for-perfectly-edited-images-with-photoshop/"><u>In-Depth Analysis of the Print Tool for Perfectly Edited Images with Photoshop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-portable-tech-moko-all-in-one-wireless-keyboard-solution/"><u>Innovative Portable Tech: MoKo All-in-One Wireless Keyboard Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-the-sony-xbr65x850f-65-4k-tv-a-balance-of-cost-and-performance-reviewed/"><u>Inside the Sony XBR65X850F 65 4K TV: A Balance of Cost and Performance Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insightful-ambient-weather-ws-1002-wifi-outdoor-monitor-review-high-quality-meets-high-cost/"><u>Insightful Ambient Weather WS- 1002 WiFi Outdoor Monitor Review - High Quality Meets High Cost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/introducing-amazon-halo-the-revolutionary-yet-boldly-personal-health-gadget/"><u>Introducing Amazon Halo: The Revolutionary Yet Boldly Personal Health Gadget</u></a></li>
+<li><a href="https://app-tips.techidaily.com/the-roadmap-for-integrating-artificial-intelligence-in-businesses-intels-forecast-featuring-zdnet-report/"><u>The Roadmap for Integrating Artificial Intelligence in Businesses: Intel's Forecast [Featuring ZDNet Report]</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/wireless-methods-to-mirrorapple-iphone-6s-and-ipad-to-fire-stick-with-ease-drfone-by-drfone-ios/"><u>Wireless Methods to MirrorApple iPhone 6s & iPad to Fire Stick With Ease | Dr.fone</u></a></li>
+</ul></div>
 

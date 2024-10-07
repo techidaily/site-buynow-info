@@ -1,7 +1,7 @@
 ---
 title: "Expert Assessment: Huion Inspiroy G1# Drawing Tablet – Top-Tier Craftsmanship Meets Excellent Functionality"
-date: 2024-09-29T23:03:54.718Z
-updated: 2024-10-02T11:27:50.402Z
+date: 2024-10-02T18:32:16.211Z
+updated: 2024-10-07T18:14:25.406Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Assessment: Huion Inspiroy G1# Drawing Tablet – Top-Tier Craftsmanship Meets Excellent Functionality"
@@ -47,6 +47,13 @@ thumbnail: https://thmb.techidaily.com/cdf09465082716a317b2f16f4ef99338eb56d0b86
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
 [View On Steampowered.com](https://store.steampowered.com/app/464920/Surviving%5FMars/) [View On G2a.com](https://www.g2a.com/en-us/surviving-mars-first-colony-edition-steam-key-global-i10000147752001?)
@@ -66,13 +73,6 @@ thumbnail: https://thmb.techidaily.com/cdf09465082716a317b2f16f4ef99338eb56d0b86
 
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -80,6 +80,13 @@ thumbnail: https://thmb.techidaily.com/cdf09465082716a317b2f16f4ef99338eb56d0b86
  As for a real plotline, there isn’t really one—the only kind of plot in the game is the objective to colonize Mars. There are challenges which you can do if you’re feeling particularly adventurous, which is nice, but they’re not a real plotline, and only serve to give you a different angle to colonizing the planet.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -115,13 +122,6 @@ thumbnail: https://thmb.techidaily.com/cdf09465082716a317b2f16f4ef99338eb56d0b86
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
@@ -129,13 +129,20 @@ thumbnail: https://thmb.techidaily.com/cdf09465082716a317b2f16f4ef99338eb56d0b86
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Other city-building games**
 
@@ -148,19 +155,6 @@ thumbnail: https://thmb.techidaily.com/cdf09465082716a317b2f16f4ef99338eb56d0b86
  **A interesting new take on city-builders, if you can stomach the micromanagement.**
 
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
-
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -189,18 +183,21 @@ thumbnail: https://thmb.techidaily.com/cdf09465082716a317b2f16f4ef99338eb56d0b86
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-efficient-editing-techniques-mastering-video-cropping-and-exporting/"><u>[Updated] In 2024, Efficient Editing Techniques Mastering Video Cropping and Exporting</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-satire-software-studio/"><u>[Updated] Satire Software Studio</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-navigate-through-group-sharing-options-on-messenger/"><u>2024 Approved Navigate Through Group Sharing Options on Messenger</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Poco F5 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/master-the-art-of-vlogging-starting-kit-and-tools-for-2024/"><u>Master the Art of Vlogging Starting Kit & Tools for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/the-complete-process-of-logging-google-voice-calls/"><u>The Complete Process of Logging Google Voice Calls</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-amazonbasics-7-port-usb-30-hub-top-reviews-and-features/"><u>Ultimate Guide to AmazonBasics 7-Port USB 3.0 Hub - Top Reviews & Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-the-third-generation-apple-tv-4k-streamer/"><u>Unboxing and Testing the Third Generation Apple TV 4K Streamer</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unfolding-the-potential-and-pitfalls-of-the-new-lenovo-thinkpad-x1-fold-laptop/"><u>Unfolding the Potential and Pitfalls of the New Lenovo ThinkPad X1 Fold Laptop</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-cinema-magic-explore-the-best-websites-for-movie-trailers/"><u>Unveiling Cinema Magic: Explore the Best Websites for Movie Trailers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-visual-brilliance-of-the-49-inch-sony-xbr49x900f-4k-led-smart-television-expert-review/"><u>Unveiling the Visual Brilliance of the 49-Inch Sony XBR49X900F 4K LED Smart Television: Expert Review</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-solving-the-fcpx-crash-problem-top-solutions/"><u>Updated In 2024, Solving the FCPX Crash Problem Top Solutions</u></a></li>
-<li><a href="https://techidaily.com/use-device-manager-to-identify-missing-your-hardware-drivers-with-windows-device-manager-in-windows-10-and-7-by-drivereasy-guide/"><u>Use Device Manager to identify missing your hardware drivers with Windows Device Manager in Windows 10 & 7</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-must-have-3d-model-systems-in-animation/"><u>[New] Must-Have 3D Model Systems in Animation</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-how-to-make-every-snap-count-top-15-tips-and-tricks-for-2024/"><u>[Updated] How to Make Every Snap Count Top 15 Tips & Tricks for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-maximize-engagement-secrets-of-successful-youtube-seo/"><u>[Updated] Maximize Engagement Secrets of Successful YouTube SEO</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-screenshots-of-success-decoding-post-viewer-demographics/"><u>2024 Approved Screenshots of Success Decoding Post Viewer Demographics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-vivobook-11-insightful-review-small-form-factor-meets-big-savings-in-laptops/"><u>Asus VivoBook 11 Insightful Review: Small Form Factor Meets Big Savings in Laptops</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-outlook-and-gmail-determining-the-superior-choice-in-email-services/"><u>Comparing Outlook and Gmail: Determining the Superior Choice in Email Services</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-xiaomi-mi-smart-band-4-assessment-the-top-choice-for-cost-effective-health-tracking/"><u>Comprehensive Xiaomi Mi Smart Band 4 Assessment: The Top Choice for Cost-Effective Health Tracking</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/cyber-conundrum-explore-4-cutting-edge-online-puzzle-adventures/"><u>Cyber Conundrum: Explore 4 Cutting-Edge Online Puzzle Adventures</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-crafting-an-easy-to-use-youtube-subscription-tagline/"><u>In 2024, Crafting an Easy-to-Use YouTube Subscription Tagline</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-most-reliable-zero-price-online-photo-editors-guide/"><u>In 2024, The Most Reliable Zero-Price Online Photo Editors Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-acer-xfa240-where-quality-meets-utility/"><u>In-Depth Analysis of the Acer XFA240: Where Quality Meets Utility</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/iphone-13-revealed-a-thorough-evaluation-of-design-functionality-and-consumer-satisfaction/"><u>IPhone 13 Revealed: A Thorough Evaluation of Design, Functionality & Consumer Satisfaction</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolved-issues-with-resident-evil-village-game-starting-up/"><u>Resolved: Issues with Resident Evil Village Game Starting Up</u></a></li>
+<li><a href="https://fox-info.techidaily.com/starter-guide-to-motion-graphics-mastery-for-2024/"><u>Starter Guide to Motion Graphics Mastery for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-amazonbasics-flat-tv-antenna-watching-free-television-without-breaking-the-bank/"><u>Top Rated AmazonBasics Flat TV Antenna: Watching Free Television Without Breaking the Bank</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-your-drive-with-the-escort-ix-the-cutting-edge-ai-jammer-for-smart-drivers/"><u>Transform Your Drive with the Escort iX: The Cutting-Edge AI Jammer for Smart Drivers</u></a></li>
 </ul></div>
 

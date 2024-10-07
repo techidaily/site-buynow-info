@@ -1,7 +1,7 @@
 ---
 title: "Flexible and Convenient: The Universal MoKo Foldable Bluetooth Keyboard"
-date: 2024-09-28T18:50:10.884Z
-updated: 2024-10-02T04:33:42.289Z
+date: 2024-10-04T16:52:19.133Z
+updated: 2024-10-07T16:20:58.775Z
 categories:
   - BestProducts
 description: "This Article Describes Flexible and Convenient: The Universal MoKo Foldable Bluetooth Keyboard"
@@ -41,9 +41,29 @@ Lifewire / Danny Chadwick
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Z-Edge Z3 Plus Dashcam
 
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/sE7fZzxcPjZXohzroVqLVr5l4qs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
 
@@ -69,6 +89,13 @@ Lifewire / Danny Chadwick
  It has a couple of minor drawbacks, like only having one[choice for mounting](https://www.lifewire.com/best-car-gps-trackers-4158961) and a mere 20-minute battery life when not connected to power. But if you’re in the market for a dashcam, the Z3 Plus should be among the devices you’re considering.
 
  Lifewire / Danny Chadwick
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Small but solid**
 
@@ -118,19 +145,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Never failed**
 
  We tested the Z-Edge Z3 Plus on a six-hour road trip, and throughout the drive, the Z3 Plus nor the suction cup failed. So long as it was plugged into power, it functioned flawlessly.
@@ -139,29 +153,9 @@ Lifewire / Danny Chadwick
 
  We did experience one strange glitch at the end of our testing—a couple of minutes after we had boxed up the Z3 Plus and put it away, we noticed loud, rapid beeping coming from the box. We took the Z3 Plus back out and it was frozen on the power-up screen. We couldn’t get it to turn off (or stop beeping) until the battery died a few minutes later. The camera appeared to work fine after that and we weren’t able to replicate the problem, but it was something of an alarming glitch from such a new device.
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Fair price for a fair product**
 
  As of the time of this writing, you can pick up this dashcam from Z-Edge for between $120 and $140, which seems like a good value to us. Given its features, tools, and image quality, it’s a fair price for a useful and reliable device.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Z-Edge Z3 Plus vs. Apeman C450 Dash Camera**
 
@@ -180,10 +174,10 @@ Lifewire / Danny Chadwick
  The Z-Edge Z3 Plus is easy to set up, intuitive to use, captures clear video footage for a reasonable price. We would like to have seen a second mounting option to the suction cup and a longer-lasting battery, but those are minor quibbles in light of this device’s reliable performance.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -218,15 +212,19 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-content-creators-dilemrante-podcasts-vs-youtube-as-a-platform/"><u>[New] Content Creators' Dilemrante Podcasts Vs. YouTube as a Platform</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-uncover-the-best-12-flipscreen-vlogging-cameras-on-a-budget/"><u>[New] In 2024, Uncover the Best 12 Flipscreen Vlogging Cameras on a Budget</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-laptoppc-editors-steer-clear-of-inshot/"><u>[Updated] In 2024, Laptop/PC Editors Steer Clear of Inshot</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitter-sharing-guide-for-tiktok-content/"><u>[Updated] Twitter Sharing Guide for TikTok Content</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Honor Magic 6 Lite | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-lava-yuva-3-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Lava Yuva 3</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/master-list-outstanding-17-inch-laptops-that-rule-the-market/"><u>Master List: Outstanding 17-Inch Laptops That Rule the Market</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-wireless-coverage-an-in-depth-analysis-of-netgears-revolutionary-nighthawk-x6-wifi-mesh-system/"><u>Maximizing Wireless Coverage: An In-Depth Analysis of Netgear's Revolutionary Nighthawk X6 WiFi Mesh System</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/microsoft-surface-laptop-4-review-the-best-yet/"><u>Microsoft Surface Laptop 4 Review: The Best Yet</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/oneplus-nord-n100-analysis-a-top-choice-for-budget-conscious-shoppers/"><u>OnePlus Nord N100 Analysis - A Top Choice for Budget Conscious Shoppers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-key-methods-to-customize-song-speed-on-spotify/"><u>[New] Key Methods to Customize Song Speed on Spotify</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-perfecting-imovie-posts-on-vimeo-for-enhanced-viewership/"><u>[Updated] Perfecting iMovie Posts on Vimeo for Enhanced Viewership</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-understanding-vr-headsets-an-overview-for-2024/"><u>[Updated] Understanding VR Headsets An Overview for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/accelerated-email-checking-add-gmail-to-your-windows-side/"><u>Accelerated Email Checking: Add Gmail to Your Window's Side</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-heimvision-a80s-alarm-clock-with-sunrise-simulation-in-depth-review/"><u>Comprehensive HeimVision A80S Alarm Clock with Sunrise Simulation - In-Depth Review</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/download-youtube-snippets-with-perfection/"><u>Download YouTube Snippets with Perfection</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-the-powerhouse-features-inside-the-netgear-nighthawk-x6-extender/"><u>In-Depth Analysis: The Powerhouse Features Inside the Netgear Nighthawk X6 Extender</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Oppo A58 4G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-storm-tracker-apps-of-2024/"><u>The Best Storm Tracker Apps of 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-new-era-of-e-reading-a-detailed-review-of-the-2021-amazon-kindle-paperwhite-7th-gen/"><u>The New Era of E-Reading: A Detailed Review of the 2021 Amazon Kindle Paperwhite (7Th Gen)</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/top-10-video-screenshot-tools-reviewed/"><u>Top 10 Video Screenshot Tools Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tp-link-re305-wireless-extender-for-ac1200-networks-a-detailed-review/"><u>TP-Link RE305 Wireless Extender for AC1200 Networks - A Detailed Review</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-tips-for-playing-robocop-rogue-city-on-desktop-computers/"><u>Troubleshooting Tips for Playing RoboCop: Rogue City on Desktop Computers</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-destinations-for-procuring-phones-at-best-value/"><u>Ultimate Destinations for Procuring Phones at Best Value</u></a></li>
 </ul></div>
 

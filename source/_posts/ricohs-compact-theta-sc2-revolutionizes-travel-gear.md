@@ -1,7 +1,7 @@
 ---
 title: Ricoh's Compact Theta SC2 Revolutionizes Travel Gear
-date: 2024-09-08T17:31:48.610Z
-updated: 2024-09-15T21:45:46.210Z
+date: 2024-10-01T17:04:17.898Z
+updated: 2024-10-07T18:50:23.975Z
 categories:
   - BestProducts
 description: This Article Describes Ricoh's Compact Theta SC2 Revolutionizes Travel Gear
@@ -70,6 +70,13 @@ Lifewire / Zach Sweat
 
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/KBuJiu3GVH9R41cibSGIkcK_7hs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_04-9dedb800bd1340e19901349ee3ca3bda.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 ## **Setup Process: Preflight checklist**
@@ -92,7 +99,21 @@ Lifewire / Zach Sweat
 
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/O9MXEQGpCTKXA5qNcF6nXai8L2o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_03-90ad9c4205af48bcbd8fcc163c630a5a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Gameplay: As close as you can get to flying a plane in your home**
 
@@ -111,13 +132,6 @@ Lifewire / Zach Sweat
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/GF7rAjDnQ1m4Lngb7N3ShcMRA6U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_05-4039c04a1e16492e8b1c6024167e28f8.jpg)
 
  Lifewire / Zach Sweat
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Graphics: Breathtaking visuals, but subpar optimization**
 
@@ -141,13 +155,6 @@ Lifewire / Zach Sweat
 
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/vw51Z13aohls1Ebaej2J6l1z-0E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_02-ae4e2d16b4db412aaa3e933fd3dfc7ab.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 ## **Price: In line with modern games, but pricey DLC not included**
@@ -161,10 +168,10 @@ Lifewire / Zach Sweat
  One nice feature with X-Plane is that you do have the option to install mods. These free packs of user-generated content can really spice things up by providing custom aircraft and environments if you’re looking to add content without adding more money. They aren’t as numerous as the mod options for FSX, but they’re there if you want them.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **X-Plane 11 Global Flight Simulator vs. Microsoft Flight Simulator X**
@@ -184,6 +191,13 @@ Lifewire / Zach Sweat
  **The best current-gen flight simulator available now.**
 
  Without a doubt, X-Plane 11 is the best current-generation flight simulator you can buy. While there are some issues with optimization, if you’ve got the computer for it, the game is stunning and currently provides the best real-world experiences.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -216,5 +230,23 @@ Lifewire / Zach Sweat
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-premium-video-devices-direct-headset-screens/"><u>[New] Premium Video Devices Direct Headset Screens</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-why-does-my-photo-booth-video-keep-freezing/"><u>[New] Why Does My Photo Booth Video Keep Freezing?</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Xiaomi Redmi A2+ | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-usage-balancing-progress-and-security/"><u>ChatGPT Usage: Balancing Progress and Security</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/deciding-between-smart-voice-aids-alexa-or-google-assistant-for-your-needs/"><u>Deciding Between Smart Voice Aids: Alexa or Google Assistant for Your Needs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/dive-deep-into-safe-area-mode-and-dual-screen-on-apple-devices/"><u>Dive Deep Into Safe Area Mode and Dual Screen on Apple Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-the-unihertz-atom-xl-revolutionizes-the-phone-market-with-its-small-size-robustness-and-powerful-features/"><u>How the Unihertz Atom XL Revolutionizes the Phone Market With Its Small Size, Robustness and Powerful Features</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/install-hp-officejet-inkjet-574t-printer-driver-on-your-pc-supports-windows-11-10-and-8/"><u>Install HP Officejet Inkjet 574T Printer Driver on Your PC - Supports Windows 11, 10 & 8</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/leading-dvd-security-software-solutions-for-reliable-cloning-of-drm-protected-media/"><u>Leading DVD Security Software Solutions for Reliable Cloning of DRM-Protected Media</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/optimizing-welding-parameters-can-improve-efficiency-and-reduce-waste/"><u>Optimizing Welding Parameters Can Improve Efficiency and Reduce Waste.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/plug-and-play-perfection-the-singing-machine-sml385btbk-a-colorful-journey-into-hands-free-karaoke/"><u>Plug & Play Perfection: The Singing Machine SML385BTBK - A Colorful Journey Into Hands-Free Karaoke</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/resolving-blank-page-output-from-hp/"><u>Resolving Blank Page Output From HP</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-guide-to-repair-your-lenovos-malfunctioning-biometric-scanner/"><u>Step-by-Step Guide to Repair Your Lenovo's Malfunctioning Biometric Scanner</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-samsungs-4k-hdr10plus-star-qn55q60rafxza-smart-tv-review/"><u>The Ultimate Guide to Samsung's 4K HDR10+ Star, QN55Q60RAFXZA Smart TV Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-2024-long-distance-wireless-routers-buyers-guide/"><u>Top 2024 Long-Distance Wireless Routers: Buyer's Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-in-depth-analysis-of-the-smart-photo-editor-by-anthropics/"><u>Unveiling the Features: In-Depth Analysis of the Smart Photo Editor by Anthropics</u></a></li>
+</ul></div>
 

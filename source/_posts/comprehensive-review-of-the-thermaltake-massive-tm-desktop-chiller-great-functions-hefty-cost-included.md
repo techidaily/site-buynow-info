@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Review of the Thermaltake Massive TM Desktop Chiller: Great Functions, Hefty Cost Included"
-date: 2024-09-14T16:51:46.615Z
-updated: 2024-09-15T20:00:37.034Z
+date: 2024-10-06T17:30:21.999Z
+updated: 2024-10-07T18:25:37.407Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Review of the Thermaltake Massive TM Desktop Chiller: Great Functions, Hefty Cost Included"
@@ -42,6 +42,13 @@ Lifewire / Kelsey Simon
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Dying Light
 
 ![Dying Light](https://www.lifewire.com/thmb/YWkGikwP23JK119N4M7J22dAPJY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
@@ -71,20 +78,33 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Straight into the action**
 
  The first time you launch the game you'll be treated to an artistic video over the background of a news report. It explains the situation in Harran, the city where the game takes place. The game proper starts with a cut scene that shows you on a plane, about to parachute out. There’s no character creation here, although once you get a little further into the game, you’ll be able to pick your clothes.
 
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Plot: A character torn between obligation and friendship**
 
@@ -99,6 +119,13 @@ Harran is a whole different city at night.
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Gameplay: Parkour and zombies galore**
 
@@ -115,16 +142,10 @@ Harran is a whole different city at night.
 ![Dying Light](https://www.lifewire.com/thmb/YctEePpYKsIXQ5kU-hQ8w7o9CDo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-4-1edeaf05c6ba435e9b81e68a13831ac6.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -142,19 +163,6 @@ Harran is a whole different city at night.
 ## **Price: Worth the cost, especially with a friend**
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
-
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Other zombie and parkour games**
 
@@ -187,5 +195,26 @@ Harran is a whole different city at night.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-unparalleled-clarity-in-speech-interpretation-via-google-platform-for-2024/"><u>[New] Unparalleled Clarity in Speech Interpretation via Google Platform for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-epicurean-education-recipe-film-making/"><u>[Updated] 2024 Approved Epicurean Education Recipe Film-Making</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-vidmas-advantages-in-digital-video-recording-unpacked/"><u>[Updated] In 2024, Vidma’s Advantages in Digital Video Recording Unpacked</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-master-live-broadcasts-a-comprehensible-path-for-one-source-use/"><u>[Updated] Master LIVE Broadcasts A Comprehensible Path for One-Source Use</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-unlock-the-door-to-others-tiktok-lives-for-2024/"><u>[Updated] Unlock the Door to Others' TikTok Lives for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/achieving-video-greatness-on-tiktok-with-smart-use-of-pre-made-templates/"><u>Achieving Video Greatness on TikTok with Smart Use of Pre-Made Templates</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-tv-4k-immersive-ultra-hd-viewing-enhanced-by-siris-smart-handling-features-reviewed/"><u>Apple TV 4K - Immersive Ultra HD Viewing Enhanced by Siri's Smart Handling Features Reviewed!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boost-your-network-with-tp-link-re505x-a-detailed-wi-fi-range-extender-evaluation/"><u>Boost Your Network with TP-Link RE505X: A Detailed Wi-Fi Range Extender Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-top-blade-e-flite-mcx2-rtf-radio-controlled-helicopter-analysis/"><u>Comprehensive Guide: Top Blade E-Flite mCX2 RTF Radio Controlled Helicopter Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-bargain-streaming-device-roku-express-packed-with-content-low-cost/"><u>Discover the Bargain Streaming Device: Roku Express Packed with Content, Low-Cost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-unveiling-the-excellence-of-apples-newest-iphone-12-release/"><u>Expert Review: Unveiling the Excellence of Apple's Newest iPhone 12 Release</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/exploring-cutting-edge-technology-with-toms-gadgets-guide/"><u>Exploring Cutting-Edge Technology with Tom's Gadgets Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hisense-50-inch-4k-uhd-smart-led-tv-high-fidelity-visuals-affordable-price/"><u>Hisense 50-Inch 4K UHD Smart LED TV - High Fidelity Visuals, Affordable Price</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-vivo-y200-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Vivo Y200 Phone that is Locked?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-xiaomi-redmi-12-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Xiaomi Redmi 12 to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-lenovo-p11-pro-highlighting-its-advantages-and-limitations/"><u>In-Depth Look at the Lenovo P11 Pro: Highlighting Its Advantages and Limitations</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/keyboard-illumination-troubleshooting-for-macos-and-windows-operating-systems/"><u>Keyboard Illumination Troubleshooting for macOS and Windows Operating Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-petsafe-healthy-pet-automatic-feeder-an-in-depth-analysis-for-optimal-weight-control/"><u>The PetSafe Healthy Pet Automatic Feeder: An In-Depth Analysis for Optimal Weight Control</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-dell-g5-5090-a-budget-friendly-powerhouse-for-gamers-with-extensive-customization-options/"><u>Unboxing the Dell G5 5090 - A Budget-Friendly Powerhouse for Gamers with Extensive Customization Options</u></a></li>
+</ul></div>
 

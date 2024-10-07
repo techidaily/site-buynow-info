@@ -1,7 +1,7 @@
 ---
 title: Patek Fly 12'S Tripod Review - A Shape-Shifter Revealed
-date: 2024-09-19T03:35:59.248Z
-updated: 2024-09-20T23:14:15.463Z
+date: 2024-10-06T16:21:58.662Z
+updated: 2024-10-07T18:12:23.653Z
 categories:
   - BestProducts
 description: This Article Describes Patek Fly 12'S Tripod Review - A Shape-Shifter Revealed
@@ -42,6 +42,13 @@ Lifewire / Danny Chadwick
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Apeman C450 Dash Cam
 
 ![Apeman C450 Dashcam](https://www.lifewire.com/thmb/qtPoWkWW4veIi00rgbPVt6Q4pu8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_HeroSquare2-c752b8527e31471e9018279dea42a8ca.jpg)
@@ -71,6 +78,13 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: All the basics**
 
  The Apeman C450 has a three-inch screen that’s bright, detailed, and provides an at-a-glance view of the camera’s status. If it were much bigger, it would be both a distraction and dangerous visual obstruction.
@@ -86,6 +100,19 @@ Lifewire / Danny Chadwick
  This car camera stores video on a[MicroSD card](https://www.lifewire.com/move-apps-to-sd-card-on-android-4178982) . There isn’t one included, so you’ll have to buy one. And while Apeman claims that the maximum size is 32GB, we tried out a 64GB card and it worked just fine—we filled it up to capacity and didn’t notice any problems with the device or the footage.
 
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/A63ztrIxThbZlrb_lHJH3YL7778=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_02-6ef4e204d0bd452b9601ec468e5358bf.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
 
@@ -103,13 +130,6 @@ Lifewire / Danny Chadwick
 
  Your first time using the Apeman C450, you also have the option to set up a time and date stamp as well as a car identification number on your videos. This is a nice option to keep track of when a video was recorded, and which car it was recorded from if you have more than one camera in different vehicles.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Camera Quality: Acceptable for a budget device**
 
  You can set this dashcam to capture video in 1080p, 720p, and VGA resolution. That’s impressive for a camera this size, and Apeman puts 1080p Full HD front and center in their marketing materials. While it provides a good level of detail and clarity in the video, it’s worth noting that other dashcams out there can record in resolutions up to 1440p.
@@ -117,13 +137,6 @@ Lifewire / Danny Chadwick
  The camera also has the ability to record audio, but it’s an internal mic and not very directional so it picks up everything. When we tested it, we heard a lot of engine and wind noise while driving. Voices came through alright, but it’s not a high-quality recording and didn’t pick up anything happening outside the vehicle.
 
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/Hp7FvJ_BMgl0S2-Dsd-hd2qiQ7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_04-82d0af63043344a6b7b44863790050d7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
 
@@ -146,6 +159,13 @@ Lifewire / Danny Chadwick
  If you’re looking for a very inexpensive device, the Apeman C450 is a decent if somewhat flawed solution.
 
  One thing to note about this car dashboard camera is that the battery life is quite short. When we tested the Apeman C450, it powered down 28 minutes after we unplugged it. If you want continuous recording, it must be connected to power at all times.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Affordable even on a budget**
 
@@ -172,16 +192,10 @@ Lifewire / Danny Chadwick
 * [Anker Roav DashCam C1](https://www.lifewire.com/anker-roav-dashcam-c1-review-4773139)
 
 <!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -213,5 +227,26 @@ Lifewire / Danny Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/icro-videos-in-the-spotlight-who-wins-youtube-shorts-or-tiktok/"><u>[New] Micro-Videos in the Spotlight Who Wins, YouTube Shorts or TikTok?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-remedy-non-playing-youtube-tweet-clips/"><u>[Updated] 2024 Approved Remedy Non-Playing YouTube Tweet Clips</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-behind-every-like-unseen-factors-that-influence-viewer-reactions-for-2024/"><u>[Updated] Behind Every Like Unseen Factors That Influence Viewer Reactions for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-linkedin-plus-top-8-benefits/"><u>Evaluating LinkedIn Plus: Top 8 Benefits</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exceptionally-capable-ultra-portable-an-in-depth-look-at-the-performance-and-features-of-the-dell-xps-13-2-in-1-convertible-laptop/"><u>Exceptionally Capable, Ultra Portable: An In-Depth Look at the Performance and Features of the Dell XPS 13 2-in-1 Convertible Laptop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-the-third-generation-apple-tv-4k-is-it-worth-upgrading/"><u>Expert Analysis: The Third Generation Apple TV 4K - Is It Worth Upgrading?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-best-a-comprehensive-review-of-the-samsung-galaxy-s21-ultra/"><u>Exploring the Best: A Comprehensive Review of the Samsung Galaxy S21 Ultra</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-vivo-t2x-5g-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Vivo T2x 5G Device SIM</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-vivo-y27s-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Vivo Y27s? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insignia-ns-43df710na19-fire-tv-edition-review-alexa-and-ultra-hd-in-an-affordable-package/"><u>Insignia NS-43DF710NA19 Fire TV Edition Review: Alexa and Ultra HD in an Affordable Package</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/instructional-series-altering-the-auditory-component-of-digital-clips/"><u>Instructional Series Altering the Auditory Component of Digital Clips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-performance-trackers-a-curated-list-of-the-top-running-watches/"><u>Leading Performance Trackers: A Curated List of the Top Running Watches</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-server-rack-systems-and-enclosures-the-ultimate-guide-to-2024s-market-choices/"><u>Leading Server Rack Systems and Enclosures: The Ultimate Guide to 2024'S Market Choices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/master-your-gameplay-on-the-spacious-sleek-phillips-evnia-49-inch-oled-screen/"><u>Master Your Gameplay on the Spacious, Sleek Phillips Evnia 49-Inch OLED Screen</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-stem-skills-in-depth-look-at-the-makeblock-mbot-programmable-robot-kit-for-enthusiastic-makers/"><u>Mastering STEM Skills: In-Depth Look at the Makeblock MBot Programmable Robot Kit for Enthusiastic Makers</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-lost-data-from-infinix-smart-8-hd-by-fonelab-android-recover-data/"><u>Recover lost data from Infinix Smart 8 HD</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/snapshot-strategies-capturing-win10-gaming-excellence/"><u>Snapshot Strategies Capturing Win10 Gaming Excellence</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-10-password-cracking-tools-for-motorola-moto-g73-5g-by-drfone-android/"><u>Top 10 Password Cracking Tools For Motorola Moto G73 5G</u></a></li>
+</ul></div>
 

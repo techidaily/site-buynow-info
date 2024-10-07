@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Tascam CD-200BT: A Masterful Music Production Device with BLE"
-date: 2024-09-24T22:02:17.314Z
-updated: 2024-10-02T09:16:57.737Z
+date: 2024-10-05T17:18:59.014Z
+updated: 2024-10-07T18:26:00.527Z
 categories:
   - BestProducts
 description: "This Article Describes Unveiling the Tascam CD-200BT: A Masterful Music Production Device with BLE"
@@ -42,6 +42,19 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
@@ -67,13 +80,6 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -81,13 +87,6 @@ Lifewire / Erika Rawes
  It doesn’t come with a stand, but it does include 3M double-sided adhesives you can use to attach the antenna to walls or other surfaces. It also comes with a 10-foot long coax cable, which is removable. The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup: Relatively easy**
 
@@ -107,6 +106,13 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Range: 35 miles**
@@ -118,10 +124,10 @@ Lifewire / Erika Rawes
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Super affordable**
@@ -143,10 +149,10 @@ Lifewire / Erika Rawes
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -180,22 +186,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-step-by-step-craft-your-viral-story-in-online-videos/"><u>[Updated] 2024 Approved Step by Step, Craft Your Viral Story in Online Videos</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-efficient-vimeo-video-extraction-software/"><u>[Updated] Efficient Vimeo Video Extraction Software</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-the-easy-route-to-capturing-every-gameplay-moment/"><u>[Updated] The Easy Route to Capturing Every Gameplay Moment</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/wavogg-7/"><u>「無償でWAVからOGGへのデジタル音源変換 - 7つの人気ツールを紹介」</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/guiding-kids-in-the-age-of-ai-5-essential-practices-for-responsible-chatgpt-use/"><u>Guiding Kids in the Age of AI: 5 Essential Practices for Responsible ChatGPT Use</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-hide-the-live-updates-in-windows-11-a-comprehensive-tutorial/"><u>How to Hide the Live Updates in Windows 11: A Comprehensive Tutorial</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-free-photos-for-every-project-an-exclusive-list-of-top-12-online-sources/"><u>In 2024, Free Photos for Every Project - An Exclusive List of Top 12 Online Sources</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-poco-x5-pro-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Poco X5 Pro FRP</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/kidizoom-cam-series-joyful-exploration/"><u>Kidizoom Cam Series: Joyful Exploration</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/lenovo-tab-4-assessment-affordable-android-tablet-features-and-constraints/"><u>Lenovo Tab 4 Assessment: Affordable Android Tablet Features and Constraints</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastery-of-wi-fi-coverage-with-linksys-velop-an-in-depth-review-for-advanced-routers/"><u>Mastery of Wi-Fi Coverage with Linksys Velop - An In-Depth Review for Advanced Routers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-cities-swiftly-on-a-gotrax-gxl-v2-a-thorough-performance-assessment/"><u>Navigating Cities Swiftly on a Gotrax GXL V2 - A Thorough Performance Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-the-gray-zone-smith-vs-jones-dispute-sheds-light-on-environmental-and-ownership-rights-dilemma-through-historical-precedents/"><u>Navigating the Gray Zone: Smith Vs. Jones Dispute Sheds Light on Environmental and Ownership Rights Dilemma Through Historical Precedents</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionize-your-reading-habits-with-the-201n-kindle-oasis-a-deep-dive-review-for-enthusiasts/"><u>Revolutionize Your Reading Habits with the 201N Kindle Oasis: A Deep Dive Review for Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionizing-mobile-workstations-the-m1-chips-impact-on-the-latest-2021-ipad-pro-unveiled-in-this-review/"><u>Revolutionizing Mobile Workstations: The M1 Chip's Impact on the Latest 2021 iPad Pro Unveiled in This Review!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/roku-revolutionizes-audio-visual-integration/"><u>Roku Revolutionizes Audio-Visual Integration</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/ultimate-tutorial-mastering-video-editing-with-imovie-for-stunning-visuals/"><u>Ultimate Tutorial: Mastering Video Editing with iMovie for Stunning Visuals</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-dissecting-obs-technology-for-top-level-recording-for-2024/"><u>[Updated] Dissecting OBS Technology for Top-Level Recording for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/2023top5-windows-10/"><u>2023年度推薦：Top5 Windows 10 媒體撥放器免費下載清單</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-hearing-upgrade-the-activbuds-story/"><u>Affordable Hearing Upgrade: The ActivBuds Story</u></a></li>
+<li><a href="https://games-able.techidaily.com/avoid-closing-outdated-windows-fix-load-errors/"><u>Avoid Closing Outdated Windows - Fix Load Errors</u></a></li>
+<li><a href="https://fox-that.techidaily.com/bring-back-the-bass-expert-tips-for-resolving-iphone-audio-problems/"><u>Bring Back the Bass: Expert Tips for Resolving iPhone Audio Problems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cost-effective-apeman-c450-dash-cam-analysis-a-smart-choice-for-economical-shoppers/"><u>Cost-Effective Apeman C450 Dash Cam Analysis: A Smart Choice for Economical Shoppers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/digital-vs-print-the-ultimate-decision-guide/"><u>Digital Vs. Print: The Ultimate Decision Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fiscal-friendly-fluffy-filmmakers-examination/"><u>Fiscal Friendly Fluffy Filmmakers Examination</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/fixing-your-apple-watch-step-count-error-a-comprehensive-guide/"><u>Fixing Your Apple Watch Step Count Error - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/high-end-bluetooth-earphones-for-engaging-media/"><u>High-End Bluetooth Earphones for Engaging Media</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-11-pro-to-other-iphone-13-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 11 Pro to other iPhone 13 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Samsung Galaxy F34 5G | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-a54-5g-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy A54 5G Phone FRP Lock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-transition-windows-10-home-to-pro-edition/"><u>Navigating the Transition: Windows 10 Home to Pro Edition</u></a></li>
+<li><a href="https://games-able.techidaily.com/slide-into-retro-ios-meets-psp-gaming-charm/"><u>Slide Into Retro: IOS Meets PSP Gaming Charm</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/test-ride-the-simplified-mods-latest-addition-the-sidecar-e-bike/"><u>Test Ride the Simplified Mod's Latest Addition - The Sidecar E-Bike</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-powerful-capabilities-of-the-fitbit-charge-6-wearable-tracker/"><u>Unveiling the Powerful Capabilities of the Fitbit Charge 6 Wearable Tracker</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/vision-pro-analysis-worth-your-money-or-not/"><u>Vision Pro Analysis: Worth Your Money or Not?</u></a></li>
 </ul></div>
 

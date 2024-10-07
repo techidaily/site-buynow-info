@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of the HP OMEN Obelisk: Superior Performance Meets Affordability"
-date: 2024-09-20T03:38:34.056Z
-updated: 2024-09-20T17:18:16.159Z
+date: 2024-10-03T18:29:35.708Z
+updated: 2024-10-07T18:18:54.606Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis of the HP OMEN Obelisk: Superior Performance Meets Affordability"
@@ -67,7 +67,21 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/86PZ5XCiq91ihr7-8UNmM5io9pY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_4_Final_Horiz-bad356a5002b4156859dca672e8a8eb4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / James Huenink
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design:** **Flexible, foldable design**
 
@@ -83,13 +97,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Camera Quality: Quality camera with some autofocus troubles**
 
  The camera takes 1080p video and has a 2 MP sensor. We tested the webcam’s photo capabilities by taking a picture of some packaging. Color was well represented, but the autofocus was just a bit off. The image was just a bit blurry, and we couldn’t read the smaller words at all. This wasn’t a problem close up, but it made a bigger difference when people were far away.
@@ -101,6 +108,13 @@ Lifewire / James Huenink
  The video is 1080p, and looks it. Recorded video was detailed and the focus was sharp as long as the webcam only had one subject to follow, though it does suffer from some minor depth of field issues when multiple people are in frame.
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/Bko9Uk1HIIMt9aNgtBf9ATCy0AA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_14_Final_Horiz-4f1b9fe91b8c4229b17dbbe6afb81b8c.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / James Huenink
 
@@ -114,22 +128,15 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Inexpensive HD camera**
 
  The Logitech C615 costs $70 MSRP, but you can find it for about half that cost. Even at full price, it's a solid value. The thoughtful design, image quality, and microphone clarity easily justify the price tag.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Acquits itself well against the competition**
@@ -178,5 +185,26 @@ Lifewire / James Huenink
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-concealing-confidentiality-blurring-identity-in-recordings/"><u>[New] 2024 Approved Concealing Confidentiality Blurring Identity in Recordings</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-initiate-direct-camera-streaming-with-vlc/"><u>[New] In 2024, Initiate Direct Camera Streaming with VLC</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-laugh-out-loud-with-cartoon-face-tricks-in-snapchat/"><u>[New] Laugh Out Loud with Cartoon Face Tricks in Snapchat</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-fusion-of-analog-charm-and-digital-sophistication-unveiling-our-comprehensive-review-of-withings-move-smartwatches/"><u>A Fusion of Analog Charm & Digital Sophistication - Unveiling Our Comprehensive Review of Withings Move Smartwatches</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-the-lg-k92-5g-phone-why-the-premium-on-5g-may-not-be-justified/"><u>Assessing the LG K92 5G Phone: Why the Premium on 5G May Not Be Justified</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/battle-of-wrist-technology-comparing-features-between-the-apple-watch-series-9-and-fitbit-charge-6/"><u>Battle of Wrist Technology: Comparing Features Between the Apple Watch Series 9 and Fitbit Charge 6</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/behold-nikon-z7-the-mirrorless-photo-powerhouse-reviewed/"><u>Behold Nikon Z7: The Mirrorless Photo Powerhouse Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-digital-photo-frame-brookstones-choice/"><u>Best Digital Photo Frame - Brookstone's Choice</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-lihan-lhfm103n-bluetooth-fm-transmitter-for-car-audio-enthusiasts/"><u>Comprehensive Review of the LIHAN LHFM103n Bluetooth FM Transmitter for Car Audio Enthusiasts</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fix-internet-explorer-crashes-and-non-responsive-issues-with-these-simple-methods/"><u>Fix Internet Explorer Crashes and Non-Responsive Issues with These Simple Methods</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-address-excessive-resource-drain-in-phasmophobia-for-better-performance/"><u>How to Address Excessive Resource Drain in Phasmophobia for Better Performance</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Honor Magic 5? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-huawei-nova-y91-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Huawei Nova Y91</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/pureimagezone-premium-tool-to-remove-backgrounds-for-2024/"><u>PureImageZone Premium Tool to Remove Backgrounds for 2024</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-messages-back-from-lava-agni-2-5g-by-fonelab-android-recover-messages/"><u>Simple ways to get lost messages back from Lava Agni 2 5G</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-guide-to-freely-ripping-audio-from-dvds-with-high-fidelity/"><u>Ultimate Guide to Freely Ripping AUDIO From DVDs with High Fidelity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/user-experience-unpacked-a-complete-look-at-the-nook-glowlight-4/"><u>User Experience Unpacked: A Complete Look at the Nook GlowLight 4</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/visual-revamp-and-incredible-performance-diving-into-the-world-of-the-new-imac-powered-by-m1-processor/"><u>Visual Revamp and Incredible Performance: Diving Into the World of the New iMac Powered by M1 Processor</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/worth-the-upgrade-essential-reasons-to-opt-for-a-chatgpt-plus-account-now/"><u>Worth the Upgrade? Essential Reasons to Opt for a ChatGPT Plus Account Now!</u></a></li>
+</ul></div>
 
