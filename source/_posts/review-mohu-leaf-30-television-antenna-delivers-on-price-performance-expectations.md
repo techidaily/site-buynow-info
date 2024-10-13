@@ -1,7 +1,7 @@
 ---
 title: "Review: Mohu Leaf #30 Television Antenna Delivers on Price, Performance Expectations"
-date: 2024-09-12T19:57:09.848Z
-updated: 2024-09-15T18:34:37.216Z
+date: 2024-10-06T11:33:41.126Z
+updated: 2024-10-12T18:48:39.293Z
 categories:
   - BestProducts
 description: "This Article Describes Review: Mohu Leaf #30 Television Antenna Delivers on Price, Performance Expectations"
@@ -80,10 +80,10 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup: Easier than most**
@@ -93,6 +93,13 @@ Lifewire / Erika Rawes
  Once you connect the antenna’s cable to your TV, you’ll need to find the best placement. This is perhaps the most difficult part of the setup process. My test home is in a wooded area, and I found the best placement was near or directly on the window. However,[to improve your antenna’s reception](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) , it’s usually a good idea to place the antenna high up in a room close to the home’s exterior (and nearest to the transmitter towers) and to avoid obstacles like walls and tree cover.
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels**
 
@@ -112,6 +119,13 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
@@ -119,13 +133,6 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -138,10 +145,10 @@ Lifewire / Erika Rawes
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -173,5 +180,21 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-in-depth-analysis-the-finesse-of-obs-recording/"><u>[New] 2024 Approved In-Depth Analysis The Finesse of OBS Recording</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-ultimate-guide-to-efficient-mobile-video-management/"><u>[New] The Ultimate Guide to Efficient Mobile Video Management</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-adding-words-to-pictures-easy-photo-text-editing-tips/"><u>[Updated] Adding Words to Pictures Easy Photo Text Editing Tips</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-androids-5-prime-photo-tools-ultimate-editing-companion/"><u>2024 Approved Android's 5 Prime Photo Tools Ultimate Editing Companion</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-discovering-digital-dialogues-facebook-video-exchange/"><u>2024 Approved Discovering Digital Dialogues Facebook Video Exchange</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-tiny-titans-unveiling-the-power-of-unihertz-atom-xl/"><u>Comprehensive Review of the Tiny Titans: Unveiling the Power of Unihertz Atom XL</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/expert-review-the-cutting-edge-performance-and-extreme-curvature-of-aoc-agon-pro-ag456uczd-45-gaming-monitor-unveiled/"><u>Expert Review: The Cutting-Edge Performance & Extreme Curvature of AOC Agon PRO AG456UCZD 45 Gaming Monitor Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fujitsu-scansnap-ix1600-the-premier-choice-for-business-document-digitization-on-your-desktop/"><u>Fujitsu ScanSnap iX1600: The Premier Choice for Business Document Digitization on Your Desktop</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-hit-the-town-non-gta-games-that-offer-similar-joy/"><u>In 2024, Hit the Town Non-GTA Games That Offer Similar Joy</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-smile-sourcebook-event-specific-memetic-delights/"><u>In 2024, Smile Sourcebook Event-Specific Memetic Delights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-elite-lineup-of-ultra-fast-usb-drive-selections/"><u>The Elite Lineup of Ultra-Fast USB Drive Selections</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-elite-lineup-supreme-portable-game-consoles/"><u>Unveiling the Elite Lineup: Supreme Portable Game Consoles</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-beyond-adobe-the-top-10-video-editing-software-alternatives-to-premiere-elements-for-2024/"><u>Updated Beyond Adobe The Top 10 Video Editing Software Alternatives to Premiere Elements for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/vyncs-link-review-solid-tracker-with-confusing-subscription-plans/"><u>Vyncs Link Review: Solid Tracker With Confusing Subscription Plans</u></a></li>
+</ul></div>
 

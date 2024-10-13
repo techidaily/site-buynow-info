@@ -1,7 +1,7 @@
 ---
 title: "'Revolutionizing the Series Setting': An In-Depth Critique of 'Watch Dogs: Legion'."
-date: 2024-09-12T18:23:24.642Z
-updated: 2024-09-15T21:13:33.332Z
+date: 2024-10-06T06:18:57.475Z
+updated: 2024-10-13T03:49:40.599Z
 categories:
   - BestProducts
 description: "This Article Describes 'Revolutionizing the Series Setting': An In-Depth Critique of 'Watch Dogs: Legion'."
@@ -46,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/35d94d879f36ec99317b8846f11d26f9aaf2a40f8
 
 ![Watch Dogs: Legion](https://www.lifewire.com/thmb/Qr_SiCRONOchw7xBWly6nRwi4qM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Watch-Dogs-Legion-PC-1-4cb0288b78324a52bf9ccce096ab5218.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 [View On Amazon $53](https://www.amazon.com/Watch-Dogs-Legion-Standard-Digital/dp/B07SR1FMMC/?tag=lifewire-onsite-prod-20&ascsubtag=5085469%7Cn3b401040a24e4adbb87768f638d99c1a06%7CB07SR1FMMC) [View On Walmart $9](https://www.walmart.com/ip/Watch-Dogs-Legion-PlayStation-4-PlayStation-5/210835769?slfpid=3) [View On Best Buy $15](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fwatch-dogs-legion-standard-edition-playstation-4-playstation-5%2F6350606.p%3FskuId%3D6350606)
@@ -63,6 +70,13 @@ thumbnail: https://thmb.techidaily.com/35d94d879f36ec99317b8846f11d26f9aaf2a40f8
 * [Specs](https://www.lifewire.com/#toc-full-spec)
 
  Watch Dogs: Legion is the latest installment in Ubisoft’s[Watch Dogs](https://www.liveabout.com/watch-dogs-2-cheats-codes-and-walkthroughs-4773695) series, and you can literally play as any character you encounter in the open world. Although Watch Dogs: Legion released without online gameplay (it became available in December 2020), you can play the campaign mode on PC or[console](https://www.lifewire.com/best-gaming-consoles-4154610) right now. Is this game worth the time and monetary investment? I played Watch Dogs: Legion for 30 hours to find out, evaluating its story, gameplay, graphics, to see how it compares to other titles.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setting and Plot: Fun, but predictable**
 
@@ -88,13 +102,6 @@ thumbnail: https://thmb.techidaily.com/35d94d879f36ec99317b8846f11d26f9aaf2a40f8
 
  Watch Dogs: Legion looks incredible, with great draw distances, and an incredibly detailed world.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Gameplay: Cool character engine, redundant missions**
 
  Watch Dogs: Legion is an open world action-adventure game. I played on PC, and I used an[Xbox controller](https://www.lifewire.com/games-console-reviews-4102640) . The controls were tight, intuitive, and consistently responsive. It felt natural to run through the world, climb, and drive. I was especially impressed with the vehicles, as you can feel the difference when you’re driving a sports car versus when you’re driving a bus.
@@ -102,13 +109,6 @@ thumbnail: https://thmb.techidaily.com/35d94d879f36ec99317b8846f11d26f9aaf2a40f8
  Fighting is simple yet satisfying, with a dodge and counter system that feels realistic, and interesting finishing moves. Shooting feels pretty ok too— the aiming works well, and the duck and cover system feels natural. Cut scenes are very well done. They don’t feel arbitrarily thrown in, and they’re well integrated in the game engine. The main storyline takes around 20 hours, but it’ll take much longer if you play all the side missions.
 
 ![Watch Dogs: Legion character creation](https://www.lifewire.com/thmb/fT7PRS6tGlloKdqVFXl8H-TPrVY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-2-ed238e68324c450997c310f225ff57a6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -122,13 +122,6 @@ thumbnail: https://thmb.techidaily.com/35d94d879f36ec99317b8846f11d26f9aaf2a40f8
 
  Most missions wound up feeling pretty redundant, especially after playing for a while. I’d approach a building, hack cameras and set traps, send in the spider drones for some easy knockouts, then go in and complete the area. There were some fun missions along the main story which offered some variety, but most missions are best completed with stealth, which can slow down the game sometimes.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Graphics: Top notch**
 
  Watch Dogs: Legion looks incredible, with great draw distances, and an incredibly detailed world. Everything visually works, and I really enjoyed looking at the people and landmarks in the world.
@@ -136,6 +129,19 @@ thumbnail: https://thmb.techidaily.com/35d94d879f36ec99317b8846f11d26f9aaf2a40f8
  On PC, this game can easily eat a lot of[VRAM](https://www.lifewire.com/increase-vram-on-a-windows-pc-5072150) , as the Very High setting almost maxed out my PC at 1920x1080 (with an[Alienware Aurora R11](https://www.lifewire.com/alienware-aurora-r11-review-5075589) with an RTX 2060 graphics card). I could not run the game on ultra settings. On high, it looks great, running at a solid[60fps](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) .
 
 ![Watch Dogs: Legion mission](https://www.lifewire.com/thmb/K-AWpBjCaRJlrJ0G-xBMEG92pQo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-7-87aeabc18ddb4bca8252d33fcb1f20bf.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Erika Rawes / Lifewire
 
@@ -154,6 +160,13 @@ thumbnail: https://thmb.techidaily.com/35d94d879f36ec99317b8846f11d26f9aaf2a40f8
  Final Verdict: A good, but not great open world experience.
 
  Watch Dogs: Legion feels like a missed opportunity, with a “play as anyone” feature that’s cool, but not cool enough to compensate for the lack of novelty. The addition of online play may offer more replayability, but as of launch, there isn’t enough to keep us coming back.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -176,5 +189,20 @@ thumbnail: https://thmb.techidaily.com/35d94d879f36ec99317b8846f11d26f9aaf2a40f8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-clips.techidaily.com/updated-video-mastery-posting-on-snapchat-from-twitter-revealed/"><u>[Updated] Video Mastery Posting on Snapchat From Twitter Revealed</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-golden-text-in-3d-selecting-quality-online-sites/"><u>2024 Approved Golden Text in 3D Selecting Quality Online Sites</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ambient-weather-ws-1002-wifi-observer-review/"><u>Ambient Weather WS-1002-WIFI Observer Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-star-wars-squadrons-a-comprehensive-review-of-its-thrilling-dogfights-in-space/"><u>Exploring Star Wars: Squadrons - A Comprehensive Review of Its Thrilling Dogfights in Space</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/from-step-counting-to-notifications-a-thorough-evaluation-of-the-fitbit-versa-aster-a-pioneer-in-fitness-wearables-with-extra-functions/"><u>From Step Counting to Notifications - A Thorough Evaluation of the Fitbit Versa Aster, a Pioneer in Fitness Wearables with Extra Functions</u></a></li>
+<li><a href="https://change-location.techidaily.com/honor-90-gt-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor 90 GT Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-guide-for-iphone-15-lock-screen-drfone-by-drfone-ios/"><u>In 2024, Complete Guide For iPhone 15 Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-the-experts-blueprint-boosting-income-via-vimeo-advertising/"><u>In 2024, The Expert's Blueprint Boosting Income via Vimeo Advertising</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-xbox-series-s-portable-gaming-without-compromise/"><u>In-Depth Analysis of Xbox Series S: Portable Gaming without Compromise</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovo-ideapad-130s-evaluation-balancing-restricted-performance-with-unexpected-user-friendliness/"><u>Lenovo IdeaPad 130S Evaluation: Balancing Restricted Performance with Unexpected User-Friendliness</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/moto-g-power-evaluation-reliable-functionality-with-extraordinary-battery-life-explored/"><u>Moto G Power Evaluation: Reliable Functionality with Extraordinary Battery Life Explored</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/uncover-trends-in-tech-an-in-depth-look-with-toms-hardware/"><u>Uncover Trends in Tech: An In-Depth Look with Tom's Hardware</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-strengths-of-the-nokia-c3-review-going-beyond-ordinary-mid-range-smartphone-offerings/"><u>Unveiling the Strengths of the Nokia C3 Review: Going Beyond Ordinary Mid-Range Smartphone Offerings</u></a></li>
+</ul></div>
 

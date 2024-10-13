@@ -1,7 +1,7 @@
 ---
 title: Affordable TP-Link RE2n AC750 Wireless Range Extender - A Comprehensive Evaluation
-date: 2024-09-30T16:07:35.490Z
-updated: 2024-10-07T16:38:45.581Z
+date: 2024-10-08T18:12:13.010Z
+updated: 2024-10-13T11:18:18.646Z
 categories:
   - BestProducts
 description: This Article Describes Affordable TP-Link RE2n AC750 Wireless Range Extender - A Comprehensive Evaluation
@@ -41,6 +41,13 @@ Lifewire / Jonno Hill
 [View On Amazon $950](https://www.amazon.com/dp/B07SW895CZ?tag=lifewire-onsite-prod-20&ascsubtag=5072832%7Cnbfa2130ffdd54ba8b950c4ad0f0be8b007%7CB07SW895CZ) [View On Microsoft](https://www.microsoft.com/en-us/p/hp-omen-obelisk-gaming-desktop/8rqn7sf9phfz?activetab=pivot%3aoverviewtab)
 
 4
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## HP Omen Obelisk
 
@@ -101,10 +108,10 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance** :**Great components for gaming and productivity**
@@ -114,13 +121,6 @@ Lifewire / Jonno Hill
  The desktop scored an impressive 6,967 in the productivity-focused benchmarking application PCMark 10\. On the gaming front, the Omen managed a score of 10,740 in 3DMark’s Time Spy. In real-world use, this means more than 60fps at 4K in many popular titles like GTA V, but less than 60fps in others like Deus Ex: Mankind Divided. In other words, the Omen is mostly capable of 4K gameplay and is nearly always capable of 60+ fps in most common resolutions shy of 4K.
 
  The Omen comes equipped with a 1TB[NVMe SSD](https://www.lifewire.com/what-is-m2-833453) and 32GB of DDR4 2666 memory. This is definitely more RAM than games alone will call for, but it’s merely an adequate amount of RAM for some creative professionals working with more demanding software like Adobe After Effects. Keep in mind though, even those that don’t normally need a lot of RAM can still benefit from having more. Among other things, it gives you the luxury of keeping all of your browser tabs and background applications running without having to start juggling applications on and off, which can be helpful from a productivity standpoint.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Gaming** :**Great for the most demanding titles**
 
@@ -136,21 +136,7 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Network** :**Great speeds, but software that doesn’t do much**
 
@@ -159,10 +145,10 @@ Lifewire / Jonno Hill
  I made a point to try out the Network Booster software found in the OMEN Command Center and didn’t see anything tremendously useful, unfortunately. I tried setting the priority of Steam to “Low” and downloading a game, but the game still downloaded at my maximum internet speed. I took it one step further and toggled the “Block” option for Steam, and tried to resume the download, but Steam kept on downloading at the maximum speed. The software was successful in blocking Chrome when that option was switched on, however.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Just enough options**
@@ -175,6 +161,13 @@ Lifewire / Jonno Hill
 
  The option to overclock your system has you first run a nondescript benchmark, which produces a score with no reference point (to establish a baseline). While it’s nice to have the option, this really,_sincerely_ isn’t a system you want to be overclocking. The i9-9900K CPU already runs alarmingly hot, even with its pre-installed water cooling solution. There also isn’t enough room for anything beyond a 120mm AIO watercooler, and not nearly enough clearance for a popular air heatsink like the Noctua NH-D15.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Highly competitive**
 
  The HP OMEN Obelisk with the same specs as this one can be found for around $2,000, at least when it’s in stock. Despite a lot of flaws that I can point to a nit-pick about, the price is one of the main reasons I still consider the OMEN to be a solid deal. I went through the trouble of parting out a similar build on PCPartPicker, going as far as to cut corners where I usually wouldn’t, and still arrived at just under $1800 before tax.
@@ -184,6 +177,13 @@ Lifewire / Jonno Hill
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/J3cZUfrEy-ALtFpRbDRhw7FZI8M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-4-f78d504d7bd348eca19b7e65b4d10289.jpg)
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **HP OMEN Obelisk vs Corsair One Pro**
 
@@ -231,18 +231,22 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-diving-deep-into-screen-technologies-projection-vs-television-in-4k/"><u>[New] In 2024, Diving Deep Into Screen Technologies Projection vs Television in 4K</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-perfect-your-storytelling-with-these-6-reel-apps/"><u>[Updated] 2024 Approved Perfect Your Storytelling with These 6 Reel Apps</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-mood-matcher-auditory-selection-for-videos/"><u>2024 Approved Mood Matcher Auditory Selection for Videos</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/cambia-avi-a-formato-m4v-conversione-online-e-gratuita-con-movavi/"><u>Cambia AVI a Formato M4V: Conversione OnLine E Gratuita Con Movavi</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/generating-free-ai-powered-art-top-5-strategies/"><u>Generating Free AI-Powered Art: Top 5 Strategies</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/harness-the-power-of-storyremix-elevate-video-quality-for-windows-11-users/"><u>Harness the Power of StoryRemix Elevate Video Quality for Windows 11 Users</u></a></li>
-<li><a href="https://techtrends.techidaily.com/inside-scoop-on-quest-meta-3-lite-release-schedule-price-speculations-and-cutting-edge-specifications-revealed/"><u>Inside Scoop on Quest Meta 3 Lite: Release Schedule, Price Speculations, and Cutting-Edge Specifications Revealed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/norwegian-skills-surge-10-minute-mini-marathons/"><u>Norwegian Skills Surge, 10-Minute Mini-Marathons</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/performance-and-prowess-explored-a-thorough-review-of-hp-zbook-firefly-15-g8/"><u>Performance and Prowess Explored: A Thorough Review of HP ZBook Firefly 15 G8</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolved-fixes-for-steams-missing-files-access-issue/"><u>Resolved: Fixes for Steam's Missing Files Access Issue</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reviewing-the-unihertz-atom-xl-unveiling-the-strength-and-efficiency-of-this-tiny-tech-marvel/"><u>Reviewing the Unihertz Atom XL: Unveiling the Strength and Efficiency of This Tiny Tech Marvel</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/score-amazing-deals-on-oneplus-phones-for-prime-day-shopping/"><u>Score Amazing Deals on OnePlus Phones for Prime Day Shopping!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sound-strategy-comparative-review-of-apples-airpods-and-samsungs-buds-pro/"><u>Sound Strategy: Comparative Review of Apple's Airpods and Samsung's Buds Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-live-life-in-hd-with-panasonic-hx-a1-cam/"><u>[New] Live Life in HD with Panasonic HX-A1 Cam</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-gag-galore-a-treasury-of-no-cost-memes/"><u>[Updated] 2024 Approved Gag Galore A Treasury of No-Cost Memes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-compre-written-by-jane-doe-phd-in-cognitive-psychology-and-behavioral-science/"><u>[Updated] 2024 Approved The Compre Written By Jane Doe, PhD in Cognitive Psychology and Behavioral Science</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-perfect-your-one-source-livestream-a-practical-approach/"><u>[Updated] Perfect Your One-Source Livestream A Practical Approach</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-funny-frameworks-crafting-memes-with-ease/"><u>2024 Approved Funny Frameworks Crafting Memes with Ease</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/boosting-your-instagram-aesthetics-implementing-borders-on-photos/"><u>Boosting Your Instagram Aesthetics Implementing Borders on Photos</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-motorola-moto-g23-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Motorola Moto G23 to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-guide-on-how-to-change-your-apple-id-email-address-on-iphone-15-pro-drfone-by-drfone-ios/"><u>In 2024, Guide on How To Change Your Apple ID Email Address On iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-unpacking-the-enhanced-viewing-experience-on-the-new-nook-glowlight-plus-ebook-reader/"><u>In Depth: Unpacking the Enhanced Viewing Experience on the New Nook GlowLight Plus eBook Reader</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-the-netgear-nighthawk-ax8-your-key-to-advanced-home-connectivity-review-insights-on-this-mesh-system/"><u>Is the Netgear Nighthawk AX8 Your Key to Advanced Home Connectivity? Review Insights on This Mesh System</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/kobo-nia-book-reader-review-robust-contender-against-amazons-kindle/"><u>Kobo Nia Book Reader Review - Robust Contender Against Amazon's Kindle</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/next-level-performance-meets-artistic-flair-in-our-in-depth-look-at-the-m1-powered-imac/"><u>Next-Level Performance Meets Artistic Flair in Our In-Depth Look at the M1-Powered iMac</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/reality-check-how-effective-is-the-tp-link-avn1300-as-a-wi-fi-signal-amplifier/"><u>Reality Check: How Effective Is the TP-Link AVn1300 as a Wi-Fi Signal Amplifier?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/retro-chic-powershot-g9x2-for-your-travels/"><u>Retro Chic PowerShot G9X2 for Your Travels</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sci-fi-action-gaming-experience-in-the-outer-worlds-an-engaging-narrative-adventure/"><u>Sci-Fi Action Gaming Experience in 'The Outer Worlds': An Engaging Narrative Adventure</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-future-of-youth-learning-starts-here-discover-the-robomaster-s1-djiwartz-tank-drone-with-interactive-coding-features/"><u>The Future of Youth Learning Starts Here: Discover the RoboMaster S1 - DJI'wartz Tank Drone with Interactive Coding Features!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-unveiling-the-future-of-pc-gaming-with-dells-alienware-aurora-r9/"><u>The Ultimate Review: Unveiling the Future of PC Gaming with Dell's Alienware Aurora R9</u></a></li>
 </ul></div>
 

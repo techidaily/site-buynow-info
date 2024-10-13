@@ -1,7 +1,7 @@
 ---
 title: Experience Speed with the TP-Link Archer C80 - The Budget Wireless Router Reviewed
-date: 2024-10-03T18:22:18.097Z
-updated: 2024-10-07T16:48:24.894Z
+date: 2024-10-08T02:03:35.145Z
+updated: 2024-10-13T10:47:22.773Z
 categories:
   - BestProducts
 description: This Article Describes Experience Speed with the TP-Link Archer C80 - The Budget Wireless Router Reviewed
@@ -46,15 +46,22 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/o0LkMzwRLq9UDT8tBDJerDIsp8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -99,6 +106,13 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Network Performance: Fast speeds, No USB port**
 
  Although this is a low to mid-tier level device, I was quite impressed with its speed and performance. I live in a suburb about 20 minutes away from Raleigh, NC, and I have Spectrum as my internet service provider. The Wi-Fi speeds in my home max out at 400 Mbps. I have a smart box that sits in a utility closet where the router connects. I mounted the router on the wall in that closet, which has a solid door that acts as an immediate signal obstruction. In spite of the presence of this solid door, I was still able to get between 340 and 350 Mbps all throughout the entire downstairs (on the 5GHz band). On the 2.4GHz band, I could get up to 90Mbps all throughout the first floor and in my garage.
@@ -108,39 +122,19 @@ Lifewire / Erika Rawes
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Range: Even better than advertised**
 
  TP-Link advertises the C80 as a router for three-bedroom homes. However, that estimate understates the router’s range capabilities. My home is a two-story, 3,000 square-foot residence with five-bedrooms, and I was able to maintain a stable Wi-Fi connection in every corner. Every closet, bathroom, and bedroom got a steady signal, and I experienced no dead zones whatsoever. Even in the garage, front yard, and backyard, the signal remained strong. It was only when I attempted to use multiple gaming and streaming devices at one time that I experienced any sort of lag.
 
  Every closet, bathroom, and bedroom maintained a signal, and I experienced no dead zones whatsoever.
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: TP-Link Tether app**
 
@@ -152,14 +146,14 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Price: Around 100 bucks**
 
@@ -210,24 +204,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-from-tiktok-to-twitter-a-2023-blueprint/"><u>[New] 2024 Approved From TikTok to Twitter A 2023 Blueprint</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/5-top-android-ps2-game-simulators/"><u>5 Top Android PS2 Game Simulators</u></a></li>
-<li><a href="https://games-able.techidaily.com/cross-platform-play-connecting-ps4-to-pc-and-mac/"><u>Cross Platform Play: Connecting PS4 to PC & Mac</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/economical-desktop-encoder-software-guide-revealed-for-2024/"><u>Economical Desktop Encoder Software Guide Revealed for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-comprehensive-connectivity-with-tango-textcallvideo-at-no-cost/"><u>Experience Comprehensive Connectivity with Tango - Text/Call/Video at No Cost</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-brilliance-of-samsung-tv-un6lru8000fxza-smart-functionality-meets-stunning-design/"><u>Exploring the Brilliance of Samsung TV UN6LRU8000FXZA: Smart Functionality Meets Stunning Design</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-miles-morales-elevates-the-spider-verse-a-comprehensive-review/"><u>How Miles Morales Elevates the Spider-Verse: A Comprehensive Review</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-quick-guide-to-oppo-a56s-5g-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Oppo A56s 5G FRP Bypass Instantly</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/innovating-finance-how-frances-premier-bank-transforms-with-digitalization-using-abbyy-flexicapture-technology/"><u>Innovating Finance: How France's Premier Bank Transforms with Digitalization Using ABBYY FlexiCapture Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/inside-the-features-of-the-samsung-galaxy-tab-s7-the-ideal-tablet-for-android-enthusiasts/"><u>Inside the Features of the Samsung Galaxy Tab S7: The Ideal Tablet for Android Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-your-investment-the-benefits-of-choosing-a-fintie-case-for-macbook-pro-13/"><u>Maximizing Your Investment: The Benefits of Choosing a Fintie Case for MacBook Pro 13</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-the-features-a-users-perspective-on-the-msi-pro-mp161-e2-screen/"><u>Navigating the Features: A User's Perspective on the MSI PRO MP161 E2 Screen</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-nokia-150-2023-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Nokia 150 (2023) Phone? Unlock It Now</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolving-the-driver-power-state-failure-error-a-comprehensive-guide/"><u>Resolving the Driver Power State Failure Error: A Comprehensive Guide</u></a></li>
-<li><a href="https://howto.techidaily.com/solved-warning-camera-failed-on-samsung-galaxy-a15-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Samsung Galaxy A15 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/stylish-and-efficient-ride-comprehensive-swagtron-swagger-electric-scooter-assessment/"><u>Stylish and Efficient Ride: Comprehensive Swagtron Swagger Electric Scooter Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/subtract-5x-from-both-sides-to-get-rid-of-x-on-one-side-8x-5x-plus-3-5x-5x-6-which-simplifies-to-3x-plus-3-6/"><u>Subtract 5X From Both Sides to Get Rid of X on One Side: $8X - 5X + 3 = 5X - 5X - 6$, Which Simplifies to $3X + 3 = -6$</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-dilemma-of-affordability-in-the-microsoft-surface-go-review-more-than-just-your-ordinary-tablet/"><u>The Dilemma of Affordability in the Microsoft Surface Go Review: More Than Just Your Ordinary Tablet</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-navigating-screen-recording-on-your-hp-laptop-effortlessly/"><u>[New] 2024 Approved Navigating Screen Recording on Your HP Laptop Effortlessly</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-exploring-top-9-iphone-applications-for-adding-photo-water-marks/"><u>[New] Exploring Top 9 iPhone Applications for Adding Photo Water Marks</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-androidandios-the-best-free-overlay-imaging-tools-top-10/"><u>[New] In 2024, Android&iOS The Best FREE Overlay Imaging Tools (Top 10)</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-capture-your-gameplay-essential-webcams-for-twitch-enthusiasts/"><u>[Updated] 2024 Approved Capture Your Gameplay Essential Webcams For Twitch Enthusiasts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-6-most-watched-shorter-video-repositories/"><u>Elite 6 Most Watched Shorter Video Repositories</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-podcast-perfection-editing-techniques-in-garageband/"><u>In 2024, Podcast Perfection Editing Techniques in GarageBand</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-oppo-a59-5g-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Oppo A59 5G Screen | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-unveiling-the-smart-features-of-garmin-venu-for-around-the-clock-activity-monitoring/"><u>In-Depth Review: Unveiling the Smart Features of Garmin Venu for Around-the-Clock Activity Monitoring</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-apple-tv-4ks-stunning-uhd-experience-and-voice-navigation-comprehensive-2021-guide/"><u>Inside Apple TV 4K's Stunning UHD Experience & Voice Navigation - Comprehensive 2021 Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovo-ideapad/"><u>Lenovo IdeaPad</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/marvels-spider-man-rebooted-with-miles-morales-a-fresh-take-on-a-classic/"><u>Marvel's Spider-Man Rebooted with Miles Morales – A Fresh Take on a Classic</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nest-elevation-uplifting-your-virtual-abode-experience/"><u>Nest Elevation: Uplifting Your Virtual Abode Experience</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-pc-video-dubbing-made-easy-top-6-software-solutions/"><u>New In 2024, PC Video Dubbing Made Easy Top 6 Software Solutions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/push-one-button-and-go-discover-the-power-of-ion-audios-tailgater-plus-for-unmatched-bass/"><u>Push One Button and Go - Discover the Power of ION Audio's Tailgater Plus for Unmatched Bass</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-the-cutting-edge-apple-tv-4k-next-level-ultra-hd-streaming-and-smart-voice-navigation/"><u>Review of the Cutting-Edge Apple TV 4K : Next-Level Ultra HD Streaming and Smart Voice Navigation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/skagen-falster-groovy-classic-style-meets-cutting-edge-tech-an-in-depth-watch-review/"><u>Skagen Falster Groovy Classic Style Meets Cutting-Edge Tech: An In-Depth Watch Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/speed-test-of-the-tp-link-archer-c80-best-value-for-budget-friendly-wifi-routers/"><u>Speed Test of the TP-Link Archer C80: Best Value for Budget-Friendly WiFi Routers</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-art-of-digital-expression-your-guide-to-sharing-animated-messages-on-snapchat-for-2024/"><u>The Art of Digital Expression Your Guide to Sharing Animated Messages on Snapchat for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/al-masterclass-for-aspiring-filmmakers-on-youtube/"><u>Virtual Masterclass for Aspiring Filmmakers on YouTube</u></a></li>
 </ul></div>
 

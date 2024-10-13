@@ -1,7 +1,7 @@
 ---
 title: "BYB E430 LED Lamp Review: Premium Swing Arm Lamp"
-date: 2024-09-11T18:13:27.374Z
-updated: 2024-09-15T17:25:21.224Z
+date: 2024-10-05T16:42:31.204Z
+updated: 2024-10-13T10:48:19.802Z
 categories:
   - BestProducts
 description: "This Article Describes BYB E430 LED Lamp Review: Premium Swing Arm Lamp"
@@ -42,6 +42,13 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
@@ -67,6 +74,13 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -79,13 +93,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: Easier than most**
 
  Setting up the antenna is relatively intuitive. You just connect the antenna to the coaxial/antenna-in connection on your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) . The antenna has an easy-push connector, instead of a connector you have to twist onto the threading. This makes for easier setup because you don’t have to struggle behind your TV with trying to screw on the[coaxial cable](https://www.lifewire.com/coaxial-vs-optical-digital-cable-3134605) .
@@ -95,16 +102,10 @@ Lifewire / Erika Rawes
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels**
@@ -116,6 +117,13 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: Could be better**
 
@@ -142,13 +150,6 @@ Lifewire / Erika Rawes
 **Works great & looks even better.**
 
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -179,5 +180,24 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-engaging-audiences-perfecting-the-art-of-igtv-titles-and-summaries/"><u>[New] 2024 Approved Engaging Audiences Perfecting the Art of IGTV Titles & Summaries</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-master-level-editing-the-essence-of-smooth-transitions-in-inshot/"><u>[New] 2024 Approved Master Level Editing The Essence of Smooth Transitions in Inshot</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-unintended-self-appearance-fixes-for-video-calls-and-chats/"><u>[Updated] 2024 Approved Unintended Self-Appearance Fixes for Video Calls and Chats</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-itel-p55-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Itel P55 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-new-era-of-computing-the-impacts-and-performance-of-the-2020-apple-macbook-pro-m1-13-reviewed/"><u>A New Era of Computing: The Impacts & Performance of the 2020 Apple MacBook Pro (M1, 13) Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-quantum-leap-for-laptops-the-2020-apple-macbook-pro-with-m1-chip-comprehensive-review-and-verdict/"><u>A Quantum Leap for Laptops: The 2020 Apple MacBook Pro with M1 Chip – Comprehensive Review and Verdict</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-flight-experience-with-the-syma-x5c-remote-controlled-quadcopter-a-detailed-analysis/"><u>Affordable Flight Experience with the SYMA X5C Remote Controlled Quadcopter - A Detailed Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-netflixs-worthiness-with-five-key-points/"><u>Assessing Netflix's Worthiness with Five Key Points</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-motorola-moto-e13-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Motorola Moto E13 Phone Without Password?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-reviewing-cybernetic-tools-for-live-video-capture/"><u>In 2024, Reviewing Cybernetic Tools for Live Video Capture</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-xiaomi-redmi-note-12-5g-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Xiaomi Redmi Note 12 5G Android SIM Unlock APK</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-17-inch-laptop-picks-for-ultimate-performance/"><u>Top 17-Inch Laptop Picks for Ultimate Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-high-speed-cable-modems-your-ultimate-guide/"><u>Top Rated High-Speed Cable Modems : Your Ultimate Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-ergonomic-trackballs/"><u>Top-Rated Ergonomic Trackballs</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ultimate-guide-unlocking-the-secrets-of-professional-digital-photography-with-8-key-strategies/"><u>Ultimate Guide: Unlocking the Secrets of Professional Digital Photography with 8 Key Strategies</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-benefits-of-the-acer-chromebook-cuisine-such-as-grilled-salmon-or-roast-beef-for-desserts-fresh-berries-and-fruit-tarts-would-suit-the-theme-y74/"><u>Unveiling the Benefits of the Acer Chromebook Cuisine, Such as Grilled Salmon or Roast Beef. For Desserts, Fresh Berries and Fruit Tarts Would Suit the Theme. You Can Also Serve a Crisp White Wine Like Sauvignon Blanc to Complement the Fish Dishes.</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ways-to-deactivate-a-no-longer-required-linkedin-account-for-2024/"><u>Ways to Deactivate a No Longer Required LinkedIn Account for 2024</u></a></li>
+</ul></div>
 

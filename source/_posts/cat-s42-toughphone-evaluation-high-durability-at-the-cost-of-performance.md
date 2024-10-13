@@ -1,7 +1,7 @@
 ---
 title: "CAT S42 Toughphone Evaluation: High Durability at the Cost of Performance"
-date: 2024-09-10T20:17:57.857Z
-updated: 2024-09-15T18:19:00.321Z
+date: 2024-10-08T22:22:52.645Z
+updated: 2024-10-13T04:43:32.472Z
 categories:
   - BestProducts
 description: "This Article Describes CAT S42 Toughphone Evaluation: High Durability at the Cost of Performance"
@@ -44,9 +44,23 @@ thumbnail: https://thmb.techidaily.com/3bd086f6ddbea0000b61dea6630a396d485fdb4d6
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## M MOOCK Car Jump Starter
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/9HsjvcJhUjJuGMXLaAGh2B_0bAw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -83,13 +97,6 @@ thumbnail: https://thmb.techidaily.com/3bd086f6ddbea0000b61dea6630a396d485fdb4d6
 
  The accessory kit that comes with the unit is full-bodied. The main piece is the jump starter module which has the two jumper clamps coming off a plastic module that plugs into the unit. To charge the unit you can choose to use either a wall charger for home use or a power port charger for use within a running vehicle. Finally, a set of laptop port adapters and a short DC cable to use with them can be used to[charge your laptop](https://www.lifewire.com/overcharging-laptop-battery-causes-life-span-to-decrease-2378126) or similar device.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: It takes time to find a spot just right to set up for a jump**
 
  Positioning the MOOCK to jump start a car is a little more difficult than it needs to be. Plugging the jumper cable module into the unit and turning it on is the easy part. Due to the short length of the cables, however, it's difficult to get them connected while also keeping the unit secure in the engine bay. Thankfully once you find that Goldilocks spot, the terminal clamps are on the small side and easy to attach, even if the area around the clamping location is cramped.
@@ -97,6 +104,13 @@ thumbnail: https://thmb.techidaily.com/3bd086f6ddbea0000b61dea6630a396d485fdb4d6
  Lifewire / Tony Mitera
 
  To charge other devices there’s a lot less fuss involved. You simply need to plug the device into the USB or DC power port and turn the unit on. A Micro USB cable is provided, so if you have a device that uses a more modern charging port, you'll want to put an extra cable for it in the MOOCK case as well.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: A nice jolt of power to start even the most drained of vehicles**
 
@@ -137,10 +151,10 @@ A good choice with just a few nagging flaws.
  The M Moock 1000A Peak 18000mAh Car Jump Starter is a surprisingly solid choice in jump starters. It has few glaring flaws, and the ones that it does have (like the short cables) just make it marginally more difficult to use, as opposed to being true deal breakers. That said, there are other units available on the market that share some or all the same features but have fewer drawbacks. Overall, the unit's successful but flawed, yet very reliable when you need it most.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -171,5 +185,24 @@ A good choice with just a few nagging flaws.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-dividing-opinions-is-mirrorless-better-than-dslr-for-vids/"><u>[New] 2024 Approved Dividing Opinions Is Mirrorless Better than DSLR for Vids?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-master-the-art-of-time-extension-creating-stunningly-slow-mo-video-online/"><u>[New] 2024 Approved Master the Art of Time Extension Creating Stunningly Slow-Mo Video Online</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/he-ultimate-smartphone-filmmakers-handbook-for-youtube-thumbnails/"><u>[New] The Ultimate Smartphone Filmmaker's Handbook for YouTube Thumbnails</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-switching-on-windows-11s-adaptive-hdr-option/"><u>2024 Approved Switching On Windows 11'S Adaptive HDR Option</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/exploring-connectivity-a-thorough-review-of-netgears-c3700-cable-modem-and-router-combo/"><u>Exploring Connectivity: A Thorough Review of Netgear's C3700 Cable Modem & Router Combo</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-behind-the-scenes-choosing-ideal-winter-backdrops/"><u>In 2024, Behind the Scenes Choosing Ideal Winter Backdrops</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/photo-cartoony-kick-cross-platform-windows-and-mac-software/"><u>Photo Cartoony Kick Cross-Platform Windows & Mac Software</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/step-by-step-tutorial-on-switching-off-icloud-photo-library-without-losing-data/"><u>Step-by-Step Tutorial on Switching Off iCloud Photo Library Without Losing Data</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-real-deal-on-samsung-galaxy-budsplus-comprehensive-hand-testing-and-review/"><u>The Real Deal on Samsung Galaxy Buds+: Comprehensive Hand Testing and Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-your-images-with-ease-comprehensive-strategies-for-navigating-apples-preview-editor/"><u>Transform Your Images with Ease: Comprehensive Strategies for Navigating Apple's Preview Editor</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-buyers-guide-to-the-most-incredible-17-notebooks/"><u>Ultimate Buyer's Guide to the Most Incredible 17 Notebooks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-advancing-digital-frames-x15d/"><u>Ultimate Guide: Advancing Digital Frames - X15D</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-vehicle-decrypting-pioneers-of-tomorrow/"><u>Ultimate Vehicle Decrypting Pioneers of Tomorrow</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unbeatable-endurance-discovering-the-moto-g-powers-exceptional-battery-performance/"><u>Unbeatable Endurance: Discovering the Moto G Power's Exceptional Battery Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unraveling-the-benefits-and-user-experience-of-the-philips-hf3505-morning-sun-alarm-clock-review/"><u>Unraveling the Benefits and User Experience of the Philips HF3505 Morning Sun Alarm Clock Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-asus-bw-16d1x-u-review-when-style-meets-subtle-flaws-in-a-blu-ray-drive/"><u>Unveiling the Asus BW-16D1x-U Review: When Style Meets Subtle Flaws in a Blu-Ray Drive</u></a></li>
+</ul></div>
 

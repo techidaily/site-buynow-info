@@ -1,7 +1,7 @@
 ---
 title: Experience Unmatched Performance with the HP Omen Obelisk - A Comprehensive Review
-date: 2024-09-10T18:53:45.198Z
-updated: 2024-09-15T20:05:00.792Z
+date: 2024-10-06T07:35:01.947Z
+updated: 2024-10-12T18:56:06.381Z
 categories:
   - BestProducts
 description: This Article Describes Experience Unmatched Performance with the HP Omen Obelisk - A Comprehensive Review
@@ -43,6 +43,13 @@ Lifewire / Andrew Hayward
 [View On Amazon $120](https://www.amazon.com/dp/B01N5G5PG2?tag=lifewire-onsite-prod-20&ascsubtag=4779841%7Cn60af91831ac9464bb2875557b5307fe410%7CB01N5G5PG2) [View On Walmart $115](https://www.walmart.com/ip/200902257)
 
 4.5
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## ASUS Chromebook Flip C302CA-DHM4
 
@@ -103,13 +110,6 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/AFQh-ERthm-g0pAMcnQlyA2Rjgw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_bent_02-3dfd0720309d4d12beb5ae695a007aa1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 ## **Display: Small, but strong**
@@ -117,6 +117,13 @@ Lifewire / Andrew Hayward
  As mentioned, the Chromebook Flip’s 12.5-inch, 1080p screen is a little smaller than you’ll see on some rivals, but that doesn’t take away from its usability. It’s colorful and nicely vibrant, and text and graphics typically look crisp. It’s not one of the brightest screens we’ve seen, with a listed brightness of about 300 nits, but that’s pretty common amongst laptops. It’s a little dimmer than we’d like, admittedly. Visibility is impacted in direct sunlight, but in most situations, it’s hard to complain too much about this screen.
 
  It also acts like an extra-large tablet screen since it’s a touchscreen with 10 points of interaction. It felt just as responsive as any tablet we’ve used.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: It does what it can**
 
@@ -132,35 +139,36 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/7B1-43v0GHPcS2HESabWT97_XPQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_Keyboard_03-8bc37c7c2d0243bb8ed1fa10e338374f.jpg)
 
- Lifewire / Andrew Hayward
-
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Andrew Hayward
 
 ## **Audio: Sounds fine**
 
  The tiny speaker grates on the left and right side of the Chromebook Flip don’t look too promising, but the playback quality was better than expected. Music output isn’t big and bold, but it’s pretty clear and it can get loud without getting too muddled. Video playback via YouTube and Netflix was sometimes too quiet at full volume, however.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Network: No complaints here**
 
  The Chromebook Flip has dual-band Wi-Fi that can connect to both 2.4Ghz and 5Ghz networks, and we had no issues with either during our testing. We went online at a home network and a Starbucks Google network alike, and things were routinely speedy. On the home network, we saw speeds of about 33Mbps and upload speeds in excess of 10Mbps—essentially the same as we’ve seen with[other laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) and[smartphones](https://www.lifewire.com/best-smartphones-4043781) .
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery: Nearly a day’s worth**
 
@@ -172,14 +180,14 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/VR5Y-1tDILHowNSeA408pnLVtgg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_closed_04-bde5ec8f988c4bb49e4019f95cc47c31.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: It’s definitely different**
 
@@ -202,13 +210,6 @@ Lifewire / Andrew Hayward
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/NHrMPSrgOWsOuCEYg0M-STQUfsU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Air-v-Surface-Comparison-a255967a27e14762b5c2ad9c442df77f.jpg)
 
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Asus Chromebook Flip C302CA vs. Apple MacBook Air**
 
@@ -254,5 +255,17 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/new-top-5-methods-for-capturing-sound-in-windows-11/"><u>[New] Top 5 Methods for Capturing Sound in Windows 11</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-high-quality-360-cameras-for-youtube-and-facebook-coverage/"><u>[Updated] High-Quality 360° Cameras for YouTube & Facebook Coverage</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/effortless-dvd-creation-on-windows-nine-unlocking-two-straightforward-methods-for-successful-burning/"><u>Effortless DVD Creation on Windows Nine - Unlocking Two Straightforward Methods for Successful Burning!</u></a></li>
+<li><a href="https://video-capture.techidaily.com/mastering-video-privacy-techniques-for-obscuring-details/"><u>Mastering Video Privacy Techniques for Obscuring Details</u></a></li>
+<li><a href="https://win11.techidaily.com/quick-free-note-taking-tricks-for-windows-users/"><u>Quick, Free Note Taking Tricks for Windows Users</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-vivo-v29-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Vivo V29 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-showdown-uncompromising-quality-of-the-apple-ipad-air-2020-and-samsung-galaxy-tab-s7plus-side-by-side/"><u>The Ultimate Showdown: Uncompromising Quality of the Apple iPad Air (2020) and Samsung Galaxy Tab S7+ Side by Side</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-acer-discounts-on-amazon-prime-day-2024-shop-smart/"><u>Top Acer Discounts on Amazon Prime Day 2024 - Shop Smart!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-tier-performance-tested-a-detailed-overview-of-the-corsair-one-pro-for-gamers/"><u>Top-Tier Performance Tested: A Detailed Overview of the Corsair One Pro for Gamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-and-review-capturing-life-in-stunning-hd-with-the-logitech-c92amc/"><u>Ultimate Guide and Review: Capturing Life in Stunning HD with the Logitech C92amc</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unveiling the SYMA X5C R/C Quadcopter - An Expert Review of a Cost-Effective Flight Companion
-date: 2024-10-06T19:12:38.985Z
-updated: 2024-10-07T17:40:04.029Z
+date: 2024-10-05T16:04:32.983Z
+updated: 2024-10-12T19:35:37.569Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the SYMA X5C R/C Quadcopter - An Expert Review of a Cost-Effective Flight Companion
@@ -43,22 +43,21 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.9
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Jaco SmartPro Digital Tire Inflator Pump
 
 ![Jaco SmartPro Digital Tire Inflator](https://www.lifewire.com/thmb/fTLjCd9CqbSCdmXD-XxJjBhyfSw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/JacoTireInflator_HeroSquare-3363a32b2cad4c91b4662ed6f6a93ce1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
@@ -82,6 +81,13 @@ Lifewire / Jeffrey Daniel Chadwick
  The Jaco SmartPro Digital Tire Inflator is one of the most portable and convenient travel air compressors you can buy. Its intuitive design allows anyone to fill up a low tire easily. It also has additional safety features that allow you to be seen at night and, if necessary, signal that you’re in distress. And when you’re done with it, it’s easy to pack up and store. Tradeoffs for these benefits include a small[LCD display](https://www.lifewire.com/what-is-liquid-crystal-display-lcd-2625913) and a short air hose, but given its intended function, those are trivial concerns.
 
  Lifewire / Jeffrey Daniel Chadwick
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design and Features: Simple, compact, intuitive**
 
@@ -107,13 +113,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Up and running in less than three minutes**
 
  Jaco provides a brief, but informative user manual tucked in the carrying case. Despite how intuitive this pump is to use, you should take five minutes to read the whole thing. During testing, we timed how long it takes to get out of your driver’s seat, retrieve the pump from the trunk, connect it to power, attach it to an under-inflated tire, set the pressure and start the pump. On average, the whole process took about 1 minute, 30 seconds.
@@ -137,10 +136,10 @@ Lifewire / Jeffrey Daniel Chadwick
  That also shouldn’t be an issue because the pump automatically cycles down after 30 minutes of continuous use, and you’ll have to wait until it cools down to use it again. This shouldn't be a problem, since you can conceivably fill all four of your car’s tires in under 10 minutes. You’d have to inflate something exceptionally large to run this pump for that long.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: On the expensive end, but worth it for the peace of mind**
@@ -148,6 +147,13 @@ Lifewire / Jeffrey Daniel Chadwick
  With a list price of $90, this is the most expensive portable tire inflator we tested, but it’s typically on sale for half the price. That makes it more reasonable, especially if you need a portable compressor but are really tight on space. Or if you want to ensure maximum safety and visibility at night. But it certainly isn’t a budget model like the Audew Portable Air Compressor Pump.
 
  It’s impossible to predict how long a product will last after just a few days or using it, however, the warranty period is a good indicator of the long-term durability. Jaco offers a lifetime warranty on this compressor, so it should last a really long time, or at least until you forget it’s still under warranty.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Jaco SmartPro Digital Tire Inflator vs. Kensun Portable Tire Inflator**
 
@@ -187,24 +193,21 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/updated-demystifying-mac-audio-capture-via-audacity-for-2024/"><u>[Updated] Demystifying Mac Audio Capture via Audacity for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-simplified-guide-to-structuring-ad-copy-on-social-media/"><u>[Updated] Simplified Guide to Structuring Ad Copy on Social Media</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-tailoring-your-video-for-optimal-instagram-impact/"><u>[Updated] Tailoring Your Video for Optimal Instagram Impact</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/acemagic-x1-dual-screen-laptop-unveil-the-price-and-purchase-details-this-coming-month/"><u>AceMagic X1 Dual-Screen Laptop: Unveil the Price & Purchase Details This Coming Month!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-lamicall-s-stationary-for-tablets-a-study-in-practical-design/"><u>Comprehensive Review of the Lamicall S Stationary for Tablets: A Study in Practical Design</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-premier-karaoke-devices-dominating-202-continue/"><u>Discover the Premier Karaoke Devices Dominating 202 [Continue]</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/enhance-your-iphone-with-these-proven-must-buy-companions-and-gadgets/"><u>Enhance Your iPhone with These Proven Must-Buy Companions and Gadgets</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/flip-it-a-step-by-step-guide-to-rotating-clips-in-fcp/"><u>Flip It! A Step-by-Step Guide to Rotating Clips in FCP</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/game-review-how-marvels-spider-man-miles-morales-delivers-a-big-punch-in-small-measures/"><u>Game Review: How Marvel's Spider-Man: Miles Morales Delivers a Big Punch in Small Measures</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/get-your-hands-on-the-economical-ambient-weather-monitor-ws-2902a-by-osprey-a-full-product-breakdown/"><u>Get Your Hands on the Economical Ambient Weather Monitor WS-2902A by Osprey - A Full Product Breakdown</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-poco-x6-pro-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Poco X6 Pro Data? | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-5-proven-principles-to-skyrocket-your-online-presence-novice-style/"><u>In 2024, 5 Proven Principles to Skyrocket Your Online Presence, Novice Style</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-cumuluspro-desk-mat-for-ergonomic-support/"><u>In-Depth Analysis of the CumulusPRO Desk Mat for Ergonomic Support</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/netgear-orbi-range-extender-rbs5-model-50y-a-backyard-wifi-game-changer/"><u>Netgear Orbi Range Extender (RBS5#) Model 50Y - A Backyard WiFi Game Changer?</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-5-leading-whiteboard-animation-makers-for-stunning-hand-drawn-content/"><u>New 5 Leading Whiteboard Animation Makers for Stunning Hand-Drawn Content</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-apples-215-inch-4k-imac-the-perfect-blend-of-elegance-and-performance/"><u>Review of Apple's 21.5-Inch 4K iMac: The Perfect Blend of Elegance & Performance</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-ultimate-guide-to-unlocking-your-apple-iphone-se-2022-on-metropcs-by-drfone-ios/"><u>The Ultimate Guide to Unlocking Your Apple iPhone SE (2022) on MetroPCS</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-the-motorola-one-hyper-exceptional-performance-in-a-budget-friendly-mid-range-device/"><u>Unboxing the Motorola One Hyper: Exceptional Performance in a Budget-Friendly Mid-Range Device</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-top-10-free-online-video-loopers/"><u>Updated In 2024, Top 10 Free Online Video Loopers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-vlogs-to-viral-jake-pauls-online-empire-expansion/"><u>[Updated] From Vlogs to Viral Jake Paul’s Online Empire Expansion</u></a></li>
+<li><a href="https://program-issues.techidaily.com/conquer-game-stutters-for-smooth-playback-at-2024s-ultra-high-fps-levels/"><u>Conquer Game Stutters for Smooth Playback at 2024'S Ultra-High FPS Levels!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/high-quality-conversion-steps-to-convert-your-dvds-into-wmv-format-using-windows/"><u>High-Quality Conversion: Steps to Convert Your DVDs Into WMV Format Using Windows</u></a></li>
+<li><a href="https://extra-information.techidaily.com/how-to-leverage-slug-lines-in-articles/"><u>How to Leverage Slug Lines in Articles</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-overcome-the-update-error-dealing-with-windows-1ves-0x80240034-troubleshooting-guide/"><u>How to Overcome the Update Error: Dealing with Windows 1Ve's 0X80240034 Troubleshooting Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-charting-new-territory-after-magixs-acid-pro/"><u>In 2024, Charting New Territory After Magix's ACID Pro</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Honor Magic V2 | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlocking-iphone-6s-plus-passcode-without-a-computer-drfone-by-drfone-ios/"><u>In 2024, Unlocking iPhone 6s Plus Passcode without a Computer | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>In 2024, Ways to stop parent tracking your Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insightful-critique-on-the-functionality-of-rca-video-doorbell-camera/"><u>Insightful Critique on the Functionality of RCA Video Doorbell Camera</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ipad-pro-vs-microsoft-surface-pro-a-comprehensive-showdown/"><u>IPad Pro Vs. Microsoft Surface Pro: A Comprehensive Showdown</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/iphones-vs-android-phones-making-the-right-call-for-your-tech-needs/"><u>IPhones Vs. Android Phones: Making the Right Call for Your Tech Needs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/joint-configuration-impacts-the-strength-and-quality-of-the-weld/"><u>Joint Configuration Impacts the Strength and Quality of the Weld.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/key-points-to-ponder-when-choosing-your-next-printer-purchase/"><u>Key Points to Ponder When Choosing Your Next Printer Purchase</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovo-130s-review/"><u>Lenovo 130S Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/neewer-tt560-flash-speedlite-review/"><u>Neewer TT560 Flash Speedlite Review</u></a></li>
 </ul></div>
 

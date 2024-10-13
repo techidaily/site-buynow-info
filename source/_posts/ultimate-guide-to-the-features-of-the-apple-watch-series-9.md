@@ -1,7 +1,7 @@
 ---
 title: Ultimate Guide to the Features of the Apple Watch Series 9
-date: 2024-10-01T18:07:21.221Z
-updated: 2024-10-07T19:08:52.984Z
+date: 2024-10-09T18:36:55.832Z
+updated: 2024-10-13T08:01:12.236Z
 categories:
   - BestProducts
 description: This Article Describes Ultimate Guide to the Features of the Apple Watch Series 9
@@ -47,22 +47,15 @@ Lifewire / Emily Isaacs
 4.4
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -90,6 +83,13 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  One unique feature of the Sculpt we loved was the function switch. Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key. Options include refreshing the active page, navigating to the home page in web, opening up the computer’s settings, a play/pause button, switching between active windows, and increasing or decreasing volume.
@@ -108,13 +108,6 @@ Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
  Backlighting—we love it, but the Sculpt doesn’t have it. This is, in large part, thanks to its battery-powered design. It wouldn’t make a great deal of sense for the Sculpt to have backlighting since the two AAA[alkaline batteries](https://www.lifewire.com/best-aa-and-aaa-rechargeable-batteries-4134295) would drain significantly faster, but we sure did miss it. It’s important to note that our love of backlighting is also a matter of personal preference. If it’s important to you, you might want to consider a different model. If you can live without it, the Sculpt still has a lot to offer.
@@ -131,6 +124,19 @@ Lifewire / Emily Isaacs
 
  Lifewire / Emily Isaacs
 
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
  The Sculpt’s main competition is the Microsoft Surface Ergonomic Keyboard. It’s a split-style ergonomic keyboard that connects wirelessly to a PC. Instead of using plastic materials, the Surface has a higher quality build that is not only more comfortable but slightly more sound-absorbent as well. And, better yet, the Surface uses the fan-favorite Alcantara fabric, an Italian material with a suede-like feel to it, as part of its wrist pad which makes it incredibly comfortable. Its numpad is attached, however, and it doesn’t include a magnetic riser. If you prefer your wrist sitting at a raised, more neutral angle, or if you like the idea of a detached numpad, the Sculpt is the clear winner here.
@@ -143,13 +149,6 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  The Surface is a high-end keyboard, but that quality comes at a higher price. The Surface tends to retail for around $129, much more than the Sculpt which retails for around $80\. That said, it’s an upgrade in almost every way. If you’re on a budget, the Sculpt is a great option, but if you’re able to splurge, the Surface is our top pick for wireless ergonomic keyboards.
@@ -161,6 +160,13 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -192,20 +198,24 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-dive-into-social-media-streams-watching-facebook-live-on-roku/"><u>[New] 2024 Approved Dive Into Social Media Streams Watching Facebook Live on Roku</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-swiftly-mastering-the-art-of-smoothing-iphone-shots-four-methods/"><u>[New] Swiftly Mastering the Art of Smoothing iPhone Shots (Four Methods)</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-add-music-in-premiere-pro/"><u>2024 Approved How To Add Music In Premiere Pro?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/breaking-down-the-latest-advancements-in-dji-mavic-3-photo-drones/"><u>Breaking Down the Latest Advancements in DJI Mavic 3 Photo Drones</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/dealing-with-a-silent-iphone-heres-how-to-get-your-ringtone-back/"><u>Dealing with a Silent iPhone? Here’s How to Get Your Ringtone Back</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/demystifying-windows-memory-write-faults/"><u>Demystifying Windows Memory Write Faults</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dream-tv-mounting-on-walls-a-frugal-find/"><u>Dream TV Mounting on Walls: A Frugal Find</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/find-the-perfect-price-ultimate-guide-to-buying-roku-at-discounted-costs-during-prime-day/"><u>Find the Perfect Price: Ultimate Guide to Buying Roku at Discounted Costs During Prime Day</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/first-flight-fun-in-depth-review-of-the-syma-x5n-rc-quadcopter-model/"><u>First Flight Fun: In-Depth Review of the SYMA X5n RC Quadcopter Model</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-guide-on-unlocking-iphone-8-with-a-broken-screen-by-drfone-ios/"><u>In 2024, Complete Guide on Unlocking iPhone 8 with a Broken Screen?</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-expert-tips-capturing-high-quality-whatsapp-voice-transcripts/"><u>In 2024, Expert Tips Capturing High-Quality WhatsApp Voice Transcripts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/offworld-trading-company-review-cutthroat-economics-build-your-empire/"><u>Offworld Trading Company Review: Cutthroat Economics Build Your Empire</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/optimizing-class-engagement-with-visual-media-usage/"><u>Optimizing Class Engagement with Visual Media Usage</u></a></li>
-<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Lava Agni 2 5G? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-power-efficiency-and-duration-with-jabras-voice-speak-25/"><u>Unveiling Power, Efficiency & Duration with Jabra's Voice Speak 25</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-the-future-of-virtual-showrooms/"><u>[Updated] The Future of Virtual Showrooms</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-most-advanced-and-effective-police-body-cameras-reviewed/"><u>2024'S Most Advanced and Effective Police Body Cameras Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-cell-plan-picks-the-ultimate-guide/"><u>Affordable Cell Plan Picks: The Ultimate Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apples-more-practical-gem-unveiled-an-in-depth-review-of-the-iphone-se-2020/"><u>Apple's More Practical Gem Unveiled: An In-Depth Review of the iPhone SE (2020)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/balancing-performance-and-budget-in-game-computers/"><u>Balancing Performance and Budget in Game Computers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-50-4k-smart-led-tv-a-complete-analysis-of-the-hisense-50h8f-model/"><u>Budget-Friendly 50 4K Smart LED TV: A Complete Analysis of the Hisense 50H8F Model</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723014051615-fortnite-login-restrictions-heres-how-to-secure-your-rightful-entry-into-gameplay/"><u>Fortnite Login Restrictions? Here’s How to Secure Your Rightful Entry Into Gameplay!</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-rectify-unmovable-scrolling-in-excel-windows/"><u>How to Rectify Unmovable Scrolling in Excel (Windows)</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-6-plus-without-swiping-up-6-ways-drfone-by-drfone-ios/"><u>How To Unlock Apple iPhone 6 Plus Without Swiping Up? 6 Ways | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-oppo-find-x6-pro-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Oppo Find X6 Pro via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-channel-wrap-up-strategies-free-youtube-end-screens-tutorial/"><u>In 2024, Channel Wrap-Up Strategies - Free YouTube End Screens Tutorial</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-oppo-find-x7-ultra-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Oppo Find X7 Ultra? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/iphone-is-disabled-here-is-the-way-to-unlock-disabled-iphone-14-pro-by-drfone-ios/"><u>iPhone Is Disabled? Here Is The Way To Unlock Disabled iPhone 14 Pro</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-rated-outdoor-screen-projectors-comprehensive-reviews-and-testing-insights-techradar/"><u>Top-Rated Outdoor Screen Projectors: Comprehensive Reviews & Testing Insights | TechRadar</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-list-the-finest-mesh-wireless-networking-technology/"><u>Ultimate List: The Finest Mesh Wireless Networking Technology</u></a></li>
+<li><a href="https://win11.techidaily.com/unbinding-and-bypassing-resistant-print-spoolers-on-windows/"><u>Unbinding & Bypassing Resistant Print Spoolers on Windows</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-and-evaluating-the-best-big-screen-phone-the-definitive-samsung-galaxy-note-9-review/"><u>Unboxing and Evaluating the Best Big Screen Phone: The Definitive Samsung Galaxy Note 9 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-ultimate-guide-to-choosing-an-apple-airtag-a-savior-for-your-iphone/"><u>Unveiling The Ultimate Guide to Choosing an Apple AirTag: A Savior for Your iPhone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-the-samsung-qn55q60rafxza-is-leading-in-smart-tvs-with-4k-hdr10plus-technology-comprehensive-review/"><u>Why the Samsung QN55Q60RAFXZA Is Leading in Smart TVs with 4K HDR10+ Technology: Comprehensive Review</u></a></li>
 </ul></div>
 

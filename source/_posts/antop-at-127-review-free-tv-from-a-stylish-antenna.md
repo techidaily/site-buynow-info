@@ -1,7 +1,7 @@
 ---
 title: "Antop AT-127 Review: Free TV From A Stylish Antenna"
-date: 2024-10-02T18:59:04.362Z
-updated: 2024-10-07T17:34:03.530Z
+date: 2024-10-07T20:39:07.552Z
+updated: 2024-10-13T03:18:24.822Z
 categories:
   - BestProducts
 description: "This Article Describes Antop AT-127 Review: Free TV From A Stylish Antenna"
@@ -67,6 +67,13 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -77,13 +84,26 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup: Easier than most**
@@ -102,21 +122,7 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Range: Could be better**
 
@@ -132,14 +138,20 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -182,18 +194,22 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-step-by-step-recording-games-on-xbox-one/"><u>[New] Step-by-Step Recording Games on Xbox One</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-cutting-costs-with-smart-cloud-storage-choices-for-2024/"><u>[Updated] Cutting Costs with Smart Cloud Storage Choices for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-free-themes-for-dynamic-youtuber-profiles/"><u>[Updated] In 2024, Free Themes for Dynamic YouTuber Profiles</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apple-books-app-review/"><u>Apple Books App Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/choosing-your-next-game-pc-key-features-essential/"><u>Choosing Your Next Game PC: Key Features Essential</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-affordably-luxurious-moto-g-stylus-smartphone/"><u>Exploring the Affordably Luxurious Moto G Stylus Smartphone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/fixing-issues-with-iphone-speech-recognition-a-guide-to-5-common-troubleshooting-steps/"><u>Fixing Issues with iPhone Speech Recognition: A Guide to 5 Common Troubleshooting Steps</u></a></li>
-<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-huawei-p60-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Huawei P60 | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Motorola Edge 40 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-dare-to-differentiate-using-square-videos-for-social-media-standout/"><u>In 2024, Dare to Differentiate Using Square Videos for Social Media Standout</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mounting-dream-md2380-tv-wall-mount-review/"><u>Mounting Dream MD2380 TV Wall Mount Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-handheld-music-makers-for-on-the-go-2024/"><u>Top Handheld Music Makers for On-the-Go 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/vixias-value-for-money-with-modest-video-standards/"><u>VIXIA's Value for Money with Modest Video Standards</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-capture-every-skype-interaction-windows-and-os-x-style/"><u>[New] 2024 Approved Capture Every Skype Interaction Windows & OS X Style</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-mastering-the-art-of-freefire-a-gaming-youtubers-guide/"><u>[New] 2024 Approved Mastering the Art of FreeFire A Gaming Youtuber’s Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-step-by-step-guide-to-designing-impactful-imagery/"><u>[New] Step-by-Step Guide to Designing Impactful Imagery</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-easily-downgrade-system-sound-on-macwindows-devices/"><u>[Updated] 2024 Approved Easily Downgrade System Sound on Mac/Windows Devices</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-cyberpunk-2077-how-to-enable-gpu-usage-on-windows-11/"><u>Fixing CYBERPUNK 2077: How to Enable GPU Usage on Windows 11</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Vivo X Flip | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/monoprice-graphics-art-pen-display-review-affordable-quality-and-features/"><u>Monoprice Graphics Art Pen Display Review: Affordable Quality & Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nintendo-showdown-the-differences-between-switch-lite-and-switch-oled-revealed/"><u>Nintendo Showdown: The Differences Between Switch Lite and Switch OLED Revealed</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/obs-streaming-hitch-lets-tackle-that-troublesome-black-screen-issue/"><u>OBS Streaming Hitch? Let’s Tackle That Troublesome Black Screen Issue!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-tab-s3-does-it-hold-up-against-new-competitors/"><u>Samsung Galaxy Tab S3: Does It Hold Up Against New Competitors?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/say-hello-to-uninterrupted-connectivity-in-depth-review-on-the-amplifi-high-definition-mesh-wi-fi-system/"><u>Say Hello to Uninterrupted Connectivity! In Depth Review on the Amplifi High Definition Mesh Wi-Fi System.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/should-i-upgrade-to-windows-11/"><u>Should I Upgrade to Windows 11?</u></a></li>
+<li><a href="https://program-issues.techidaily.com/stop-the-blue-crash-comprehensive-fixes-for-helldivers-2-bsod-errors/"><u>Stop the Blue Crash: Comprehensive Fixes for HellDivers 2 BSOD Errors</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-complete-guide-to-choosing-the-right-portable-charger-zmi-powerpack-2000amperes-rated/"><u>The Complete Guide to Choosing the Right Portable Charger: ZMI PowerPack 20,00Amperes Rated!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-knack-analysis-innovative-protagonist-lost-in-a-derivative-quest/"><u>The Knack Analysis: Innovative Protagonist Lost in a Derivative Quest</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-a-dependable-portable-tire-filler-spotlight-on-kensun/"><u>The Ultimate Guide to Choosing a Dependable Portable Tire Filler: Spotlight on Kensun</u></a></li>
+<li><a href="https://techtrends.techidaily.com/transforma-tu-video-mp4-en-un-disco-de-dvd-rapidamente-guia-paso-a-paso-para-usuarios-de-windows-10/"><u>Transforma Tu Vídeo MP4 en Un Disco De DVD Rápidamente: Guía Paso-a-Paso Para Usuarios De Windows 10</u></a></li>
 </ul></div>
 

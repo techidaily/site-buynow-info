@@ -1,7 +1,7 @@
 ---
 title: Dive Into Images Like Never Before - Experience Canon's SX70 HS
-date: 2024-09-12T20:26:24.468Z
-updated: 2024-09-15T20:45:47.563Z
+date: 2024-10-06T10:38:23.276Z
+updated: 2024-10-13T00:01:26.108Z
 categories:
   - BestProducts
 description: This Article Describes Dive Into Images Like Never Before - Experience Canon's SX70 HS
@@ -44,9 +44,23 @@ Lifewire / Erika Rawes
 
 4
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## SEGA Yakuza: Like a Dragon
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/2HQ40tAW6PvhutMT0JyWvwFpbdI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_HeroSquare-ea84381e359846e6951c77b6f7e7c5a0.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -68,6 +82,13 @@ Lifewire / Erika Rawes
 
  The[best PC games](https://www.lifewire.com/best-pc-games-4147292) offer something unique that keeps you coming back for more. Yakuza: Like a Dragon takes the standard Yakuza formula and stands it on its head, moving the fighting system from real-time to turn-based and making this entry to the series feel like a true JRPG. I played Yakuza: Like a Dragon[on PC](https://www.lifewire.com/best-pc-games-4147292) to find out if these changes make this game better or worse. Should you play the new Yakuza or skip it? Read on to check out my full review of Yakuza: Like a Dragon.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Setting and Plot: A very long intro
 
  Yakuza: Like a Dragon places you in the shoes of Ichiban Kasuga, a young Yakuza upstart who was raised as an orphan in a Soap House by the owner and the women who worked there. Kasuga gets into a bit of trouble with a Yakuza family but is saved by Masumi Arakawa, the patriarch of the Arakawa family. Because of this, Kasuga pledges his life to Arakawa, promising to repay the debt.
@@ -82,6 +103,13 @@ Lifewire / Erika Rawes
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/_ksFqEWrm3B3MbfrBujuNtLpcXw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_03-37ca82f2a4cd42c4ad65f34e2ca63b68.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
  Once things open up, the story gets going in what can only be described as a true modern-day JRPG. It has many of the common tropes of a JRPG, like a party system that allows you to manage those who fight with you, turn-based combat, and a long sweeping epic filled with plenty of side quests.
@@ -91,6 +119,13 @@ Lifewire / Erika Rawes
  Yakuza: Like a Dragon is clearly inspired by games like Dragon Quest. So much so that eventually, and in a truly hilarious fashion, Kasuga begins having delusions of being a hero, and makes it his life's mission to become a hero who can save everyone around him. These delusions play out in a physical change that takes place over enemies during combat. Their eyes turn red, and their bodies change, but Kasuga is the only one who can see these changes.
 
  Overall, the story is interesting and engaging, with excellent voice acting and deep and interesting characters. There are plenty of opportunities to get to know the people who travel with you, and you come to care about the characters and their motivations. Yakuza: Like a Dragon is story-rich, and you won’t be disappointed at the amount of content to explore.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Gameplay: Fun, yet slow-paced at times
 
@@ -103,13 +138,6 @@ Lifewire / Erika Rawes
  Combat is handled with a turn-based system. During the fight, you have a menu of different selections, from regular attacks and items to defending and special attacks. This is where Yakuza: Like a Dragon really shines. The game provides you with a ton of options in the fight, and many of the moves are both over the top and quite funny. For instance, you can have a homeless teammate attack with a flock of pigeons, or maybe have your bartender attack with moves from her boxing fitness class.
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/ZvcwNcecc79umImvw53CUJlLvIc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_02-6396bcd8866c4a479331a02e160eb890.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -133,13 +161,6 @@ Lifewire / Erika Rawes
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/zrV5S3jL3_76G0PVgT1K_Ty6WWI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_04-e33b82262b344fecae27d668b3c92ba9-55ba8acb6d324eed81fbf5453e770db8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Erika Rawes
 
 ## Price: The typical $60
@@ -157,13 +178,6 @@ Lifewire / Erika Rawes
 **An entertaining and addictive JRPG.**
 
  A well-crafted masterpiece. Yakuza: Like a Dragon falls into the must-play category for anyone who loves a good story, JRPGs, or a wild game that will make you laugh. It’s definitely a departure from the rest of the series, but that contributes to a lot of the fun and uniqueness of the game.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -197,5 +211,24 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-content-platform-wars-direct-engagement-or-wider-distribution-twitch-vs-youtube/"><u>[New] Content Platform Wars Direct Engagement or Wider Distribution? – Twitch Vs YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-songsyncing-simplified-your-guide-to-turning-tamil-music-into-alerts/"><u>[Updated] SongSyncing Simplified Your Guide to Turning Tamil Music Into Alerts</u></a></li>
+<li><a href="https://network-issues.techidaily.com/boosting-speed-tackling-sluggish-wi-fi-on-win/"><u>Boosting Speed: Tackling Sluggish Wi-Fi on WIN</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-of-the-smart-ring-doorbell-plus-is-it-worth-it/"><u>Expert Review of the Smart Ring Doorbell Plus - Is It Worth It?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-marvels-spider-man-miles-morales-delivers-a-powerful-punch-in-a-concisely-crafted-world-review/"><u>How 'Marvel's Spider-Man: Miles Morales' Delivers a Powerful Punch in a Concisely Crafted World – Review</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-fix-msvcrt10dll-not-found-or-missing-errors/"><u>How to Fix Msvcrt10.dll Not Found or Missing Errors</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hp-omen-obelisk-unveiled-an-ultimate-gaming-desktop-with-outstanding-value-proposition/"><u>HP OMEN Obelisk Unveiled: An Ultimate Gaming Desktop with Outstanding Value Proposition</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-essential-ae-text-enhancers-guide/"><u>In 2024, Essential AE Text Enhancers Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-the-acurite-pro-01036m-simplistic-installation-rugged-frameworks-assessed/"><u>In-Depth Review of the AcuRite Pro 01036M: Simplistic Installation, Rugged Frameworks Assessed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-it-worth-it-a-comprehensive-review-of-microsofts-expensive-all-in-one-desktop-studio-2-edition/"><u>Is It Worth It? A Comprehensive Review of Microsoft's Expensive All-in-One Desktop - Studio 2 Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/microsoft-sculpt-ergonomic-keyboard-evaluation-exceptional-affordability-and-comfort/"><u>Microsoft Sculpt Ergonomic Keyboard Evaluation - Exceptional Affordability and Comfort</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/optimize-your-creativity-with-these-10-chromebook-stores/"><u>Optimize Your Creativity with These 10 Chromebook Stores</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/petcubes-value-proposition-for-budget-pet-owners/"><u>Petcube's Value Proposition for Budget Pet Owners</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/premier-picks-for-successful-online-studies-the-elite-educational-portals-with-quality-courses/"><u>Premier Picks for Successful Online Studies: The Elite Educational Portals with Quality Courses</u></a></li>
+<li><a href="https://windows11.techidaily.com/unlock-android-gameplay-on-windows-11-with-googles-platform/"><u>Unlock Android Gameplay on Windows 11 with Google's Platform</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-best-10-emoji-apps-to-emoji-yourself-make-an-emoji-of-yourself/"><u>Updated 2024 Approved Best 10 Emoji Apps to Emoji Yourself-Make an Emoji of Yourself</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-ditch-gopro-studio-top-video-editing-software-for-action-cameras/"><u>Updated Ditch GoPro Studio Top Video Editing Software for Action Cameras</u></a></li>
+</ul></div>
 

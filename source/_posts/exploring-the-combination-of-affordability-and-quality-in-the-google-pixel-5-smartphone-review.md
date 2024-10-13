@@ -1,7 +1,7 @@
 ---
 title: Exploring the Combination of Affordability and Quality in the Google Pixel 5 Smartphone Review
-date: 2024-10-06T16:26:34.968Z
-updated: 2024-10-07T17:26:36.796Z
+date: 2024-10-09T06:30:35.122Z
+updated: 2024-10-12T18:00:17.799Z
 categories:
   - BestProducts
 description: This Article Describes Exploring the Combination of Affordability and Quality in the Google Pixel 5 Smartphone Review
@@ -45,10 +45,10 @@ thumbnail: https://www.lifewire.com/thmb/gSrSCcDw9qBk9OZfXS8JTgrfVoQ=/400x300/fi
 3.6
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
@@ -132,13 +132,20 @@ thumbnail: https://www.lifewire.com/thmb/gSrSCcDw9qBk9OZfXS8JTgrfVoQ=/400x300/fi
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Audio Quality: Loud, but distorted**
 
@@ -161,10 +168,16 @@ thumbnail: https://www.lifewire.com/thmb/gSrSCcDw9qBk9OZfXS8JTgrfVoQ=/400x300/fi
  One last thing, your phone can also be used as a remote if you so choose. All you need to do is download the app and connect it to the TV. This works with both Android and iOS devices (thanks Google). While it’s not a good as the regular remote, it works fine enough if you’re too lazy to get up and find the standard remote.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Not bad for the size, but not the cheapest**
@@ -174,19 +187,6 @@ thumbnail: https://www.lifewire.com/thmb/gSrSCcDw9qBk9OZfXS8JTgrfVoQ=/400x300/fi
  On Sony’s website, the 65-inch model we tested here is listed at $1,300, the 75 at $2,300, and the 85 at a whopping $4,000\. Now these prices aren’t exactly accurate, especially since these are an older series. Typically you can find the 65-inch for about $1,100 or so. The other models are also heavily discounted depending on where you look, so definitely shop around. It’s likely that you can snag them for even less during sales.
 
  But how do these prices stack up against comparable TVs from competitors like LG or Samsung? Taking a quick look around online, you can easily save a few hundred dollars by going with a comparable LG TV, while Samsung was pretty closely matched with Sony. In the end, the price for the X850F series isn’t the best bang for your buck, but it ain’t bad either.
-
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Sony XBR65X850F vs. Samsung UN65RU8000**
 
@@ -207,10 +207,10 @@ thumbnail: https://www.lifewire.com/thmb/gSrSCcDw9qBk9OZfXS8JTgrfVoQ=/400x300/fi
  The X850F series is far from perfect, but the Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV and its family are more than capable of providing a pleasurable viewing experience for most people. Despite this, there are probably better options out there that can be had for even less.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -242,24 +242,21 @@ thumbnail: https://www.lifewire.com/thmb/gSrSCcDw9qBk9OZfXS8JTgrfVoQ=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-unlocking-recmasters-potential-in-screen-capture/"><u>[New] In 2024, Unlocking Recmaster's Potential in Screen Capture</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-navigating-snapchat-for-twitter-vids-distribution-for-2024/"><u>[New] Navigating Snapchat for Twitter Vids Distribution for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-pro-tips-transforming-mundane-footage-into-epic-gopro-time-lapses/"><u>[New] Pro Tips Transforming Mundane Footage Into Epic GoPro Time-Lapses</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-seamless-file-transition-youtube-to-mp4-high-definition-upgrade-included/"><u>[Updated] 2024 Approved Seamless File Transition YouTube to MP4, High-Definition Upgrade Included</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-re-enable-windows-photo-viewer-methods-for-win-11-users/"><u>2024 Approved Re-Enable Windows Photo Viewer - Methods for Win 11 Users</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/building-authority-in-education-10-tips-for-youtube-channel-creation-for-2024/"><u>Building Authority in Education 10 Tips for YouTube Channel Creation for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-apple-homepod-mini-evaluation-sound-quality-and-intelligent-assistant-features/"><u>Comprehensive Apple HomePod Mini Evaluation: Sound Quality & Intelligent Assistant Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-balancing-cost-against-performance-in-the-swagtron-swagboard-t1/"><u>Comprehensive Review: Balancing Cost Against Performance in the Swagtron Swagboard T1</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/decoding-chipset-technologies-for-pc-builders/"><u>Decoding Chipset Technologies for PC Builders</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dissecting-the-shortcomings-of-nikon-l340/"><u>Dissecting the Shortcomings of Nikon L340</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1722997302736-expert-fixes-for-when-grand-theft-auto-v-keeps-freezing-solved/"><u>Expert Fixes for When Grand Theft Auto V Keeps Freezing - Solved!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-unveiling-the-power-and-quality-of-the-samsung-qn55q60rafxza-smart-tv-with-hdr1nplus/"><u>Expert Review: Unveiling the Power and Quality of the Samsung QN55Q60RAFXZA Smart TV with HDR1n+</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-market-the-finest-netgear-routers-of-2024-for-enhanced-connectivity/"><u>Exploring the Market: The Finest NETGEAR Routers of 2024 for Enhanced Connectivity</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/from-capture-to-share-proven-methods-for-live-360-video-on-youtube/"><u>From Capture to Share Proven Methods for Live 360° Video on Youtube</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/gopros-high-end-black-camera-the-hero9-review/"><u>GoPro's High-End Black Camera - The HERO9 Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-serious-book-lovers-device-kobo-forma/"><u>In Depth Analysis of the Serious Book Lover's Device - Kobo Forma</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-kootekeb-pc-chiller-a-robust-all-in-one-choice-for-gamers-and-professionals/"><u>In-Depth Analysis of Kootek'eb PC Chiller: A Robust, All-in-One Choice for Gamers and Professionals</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/infusing-audio-from-yt-into-video-artistry/"><u>Infusing Audio From YT Into Video Artistry</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/what-lies-beneath-instagram-story-perceptions-for-2024/"><u>What Lies Beneath Instagram Story Perceptions for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/onetizing-video-how-much-does-a-single-streamer-earn-for-2024/"><u>[New] Monetizing Video How Much Does a Single Streamer Earn for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-maximizing-audience-reach-prime-dissemination-days/"><u>[Updated] In 2024, Maximizing Audience Reach Prime Dissemination Days</u></a></li>
+<li><a href="https://blog-min.techidaily.com/14-pro/"><u>14 Pro</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-comprehensive-guide-to-sierras-cloud-storage-navigation/"><u>2024 Approved Comprehensive Guide to Sierra’s Cloud Storage Navigation</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/discover-12-favorite-free-video-player-software-on-pctabletsmartphone/"><u>Discover 12 Favorite Free Video Player Software on PC/Tablet/Smartphone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-unmatched-performance-the-2021-review-of-apples-macbook-pro-16-inch-model/"><u>Experience Unmatched Performance: The 2021 Review of Apple's MacBook Pro 16-Inch Model</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-breakdown-and-critique-of-the-lenovo-yoga-a940-ultrabook-experience/"><u>Expert Breakdown and Critique of the Lenovo Yoga A940 Ultrabook Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-depths-of-narrative-and-setting-torment-tides-of-numenera-sci-fi-rpg-insights/"><u>Exploring the Depths of Narrative and Setting - 'Torment: Tides of Numenera' Sci-Fi RPG Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-ultimate-htpcs-of-2024-for-unmatched-cinema-experience-at-home/"><u>Exploring the Ultimate HTPCs of 2024 for Unmatched Cinema Experience at Home</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-acquainted-with-mods-cutting-edge-hassle-free-sidecar-electric-bicycle/"><u>Get Acquainted with Mod's Cutting-Edge, Hassle-Free Sidecar Electric Bicycle</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-on-apple-watch-or-apple-iphone-14-by-drfone-ios/"><u>How To Bypass Activation Lock On Apple Watch Or Apple iPhone 14?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Motorola Edge+ (2023) | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-how-to-live-stream-360-videos-on-facebook/"><u>In 2024, How to Live Stream 360 Videos on Facebook</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-mobvoi-ticwatch-pro-3s-long-lasting-battery-and-advanced-gps-features/"><u>In-Depth Analysis of Mobvoi TicWatch Pro 3'S Long-Lasting Battery and Advanced GPS Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-assessment-discovering-the-pinnacle-of-premium-smartphones-with-the-samsung-galaxy-s10/"><u>In-Depth Assessment: Discovering the Pinnacle of Premium Smartphones with the Samsung Galaxy S10</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-new-horizons-at-any-age-the-multilingual-advantage-in-your-40s-and-beyond/"><u>Unlock New Horizons at Any Age: The Multilingual Advantage in Your 40S and Beyond</u></a></li>
 </ul></div>
 

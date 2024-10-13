@@ -1,7 +1,7 @@
 ---
 title: "'Like A Dragon': Why Yakuza Fans and Newcomers Must Play This Epic RPG"
-date: 2024-10-06T16:18:58.800Z
-updated: 2024-10-07T19:03:29.443Z
+date: 2024-10-05T19:25:05.468Z
+updated: 2024-10-13T07:26:31.744Z
 categories:
   - BestProducts
 description: "This Article Describes 'Like A Dragon': Why Yakuza Fans and Newcomers Must Play This Epic RPG"
@@ -74,6 +74,19 @@ Lifewire / Erika Rawes
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/Mo4mMH944CddmYJTyCxtMRxK9-k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_05-e59c99ba9bd249e7a2241f532dd742dc.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
  A few years later, Kasuga is asked to confess to a murder that was really committed by one of the Captains in the family. Kasuga spends 18 years in prison for the crime, which brings us to modern day. Once out of prison, Kasuga finds he no longer has a place in the family due to some serious changes that have taken place while he was away. Kasuga is shot and left for dead in the Yokohama area of Isezaki Ijincho. From there, the game opens up as you try to rebuild everything that was lost and find out what happened.
@@ -81,13 +94,6 @@ Lifewire / Erika Rawes
  All of the aforementioned story takes place in what could be called the introductory stages of the game. The intro was incredibly slow and took around five to six hours. Finally, after the long intro, it felt like I was getting into the real meat where the world opens up. Even after the long preamble, I was still introduced to new items, concepts, and parts of the game. It felt like a lot of handholding, which was frustrating at times.
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/_ksFqEWrm3B3MbfrBujuNtLpcXw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_03-37ca82f2a4cd42c4ad65f34e2ca63b68.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -111,6 +117,13 @@ Lifewire / Erika Rawes
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/ZvcwNcecc79umImvw53CUJlLvIc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_02-6396bcd8866c4a479331a02e160eb890.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
  The moves are creative and fun to use. After selecting the attack, timed button presses may increase the attack’s effectiveness or provide you with bonus damage. When you need a true power attack, you can use your phone to call PoundMates, which is a special “Summoning” move that calls in an ally to do massive damage. There are tons of PoundMates in the game, from a diaper-wearing adult man to a poisonous lobster named Nancy, and calling these special attacks is part of what makes Yakuza fun to play.
@@ -122,16 +135,10 @@ Lifewire / Erika Rawes
  This[PC game](https://www.lifewire.com/pc-gaming-reviews-4689600) plays just like it should, and the controls are top-notch. Everything just works, which is a rare feat these days. You should be able to finish the main story in around 45 to 55 hours, depending on how fast you run through it, but I highly recommend taking your time and enjoying all the wonderful diversions available.
 
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Graphics: Excellent visuals
@@ -154,6 +161,13 @@ Lifewire / Erika Rawes
 
  The Legendary Hero edition costs $90, and it includes both previously listed sets, as well as the Crafting Mat, Stat Boost, Karaoke, and Ultimate Costume sets. These are all nice bonuses and can certainly add to the experience, but you will also find more than enough gameplay in the base game.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Yakuza: Like a Dragon vs. Dragon Quest Series
 
  It’s clear Yakuza: Like a Dragon draws some inspiration from the recent Dragon Quest, Dragon Quest XI. Both games feature turn-based combat, jobs working as roles, and a large sweeping and epic tale. Yakuza: Like a Dragon diverges in one major way, and that is not being afraid to innovate and push the limits of what a JRPG can be. Where Dragon Quest is the basic formula, Yakuza: Like a Dragon is what happens when a mad scientist gets a hold of that formula and creates something both crazy and brilliant.
@@ -165,10 +179,10 @@ Lifewire / Erika Rawes
  A well-crafted masterpiece. Yakuza: Like a Dragon falls into the must-play category for anyone who loves a good story, JRPGs, or a wild game that will make you laugh. It’s definitely a departure from the rest of the series, but that contributes to a lot of the fun and uniqueness of the game.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -176,19 +190,6 @@ Lifewire / Erika Rawes
 * [Cyberpunk 2077](https://www.lifewire.com/cyberpunk-2077-review-5113844)
 * [Godfall](https://www.lifewire.com/godfall-review-5095668)
 * [Torment: Tides of Numenera](https://www.lifewire.com/torment-tides-of-numenera-review-5077302)
-
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -218,28 +219,19 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-striking-visuals-that-move-us-top-20-instagram-photos/"><u>[New] Striking Visuals that Move Us Top 20 Instagram Photos</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-explore-template-treasures-to-craft-unique-corporate-emblems/"><u>[Updated] 2024 Approved Explore Template Treasures to Craft Unique Corporate Emblems</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-optimal-method-for-incorporating-linktree-in-tiktok-profiles/"><u>[Updated] Optimal Method for Incorporating Linktree in TikTok Profiles</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-crafting-excellence-essential-tips-for-ginger-island-life/"><u>2024 Approved Crafting Excellence Essential Tips for Ginger Island Life</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-fostering-fast-visual-storytelling-with-google-imagery/"><u>2024 Approved Fostering Fast Visual Storytelling with Google Imagery</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-gaming-with-the-nintendo-switch-lite-compact-and-portable-alternative-to-full-console/"><u>Affordable Gaming with the Nintendo Switch Lite: Compact and Portable Alternative to Full Console</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-ergohead-mat-assessment-excellence-in-standing-desk-cushioning/"><u>Comprehensive Ergohead Mat Assessment: Excellence in Standing Desk Cushioning</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/deciding-on-your-sound-compannion-differences-between-google-nest-audio-and-apple-homepod/"><u>Deciding on Your Sound Compannion: Differences Between Google Nest Audio and Apple HomePod</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discerning-consumers-choice-the-elite-selection-of-2024s-superior-external-drive-devices-httpsiimgurcomlbdzxqwpnghttpswwwamazoncom-httpsiimgurpectrum-optica55/"><u>Discerning Consumers' Choice: The Elite Selection of 2024'S Superior External Drive Devices [![](https://i.imgur.com/lBdZxQW.png)](https://www.amazon.com) [![](https://i.imgur.pectrum] Optical Drive - Best Buy</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/explore-underwater-realms-and-share-with-the-insta360-x2/"><u>Explore Underwater Realms & Share With the Insta360 X2</u></a></li>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<li><a href="https://win-amazing.techidaily.com/1722978747396-get-the-best-performance-how-to-downloadupgrade-your-amd-vega-drivers-today/"><u>Get the Best Performance - How to Download/Upgrade Your AMD Vega Drivers Today</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-lenovo-thinkphone-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Lenovo ThinkPhone Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Realme Narzo 60 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/leveraging-gpt-references-for-seamless-integration-into-custom-chatbot-experiences/"><u>Leveraging GPT References for Seamless Integration Into Custom Chatbot Experiences</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-picks-for-whole-house-wi-fi-in-depth-look-into-the-eero-pro-mesh-networking-solution/"><u>Top Picks for Whole House Wi-Fi - In-Depth Look Into the Eero Pro Mesh Networking Solution</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-best-practices-for-youtube-to-mpeg-format-switching/"><u>[New] In 2024, Best Practices for YouTube to MPEG Format Switching</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-delve-deep-into-immersive-videography-tips-for-editing-full-spherical-content-in-premierepro/"><u>[New] In 2024, Delve Deep Into Immersive Videography Tips for Editing Full Spherical Content in PremierePro</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-navigating-the-nuances-of-spotify-advertising-for-2024/"><u>[New] Navigating the Nuances of Spotify Advertising for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-17-transformative-metaverse-trials-explained/"><u>[Updated] 17 Transformative Metaverse Trials Explained</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-eye-appeal-the-top-3-ways-to-increase-instagram-visibility-for-2024/"><u>[Updated] Eye Appeal The Top 3 Ways to Increase Instagram Visibility for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-invert-colors-in-digital-photos/"><u>2024 Approved How to Invert Colors in Digital Photos?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-elite-consoles-for-gamers-find-your-perfect-match/"><u>2024'S Elite Consoles for Gamers: Find Your Perfect Match!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-premier-asus-networking-devices-a-comprehensive-guide/"><u>2024'S Premier ASUS Networking Devices: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-comprehensive-review-the-refreshed-look-of-amazons-echo-dot-gen-4/"><u>A Comprehensive Review: The Refreshed Look of Amazon's Echo Dot Gen 4</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722757720811-dive-into-the-depths-with-gopro-hero7-black-review/"><u>Dive Into the Depths with GoPro HERO7 Black Review</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-lava-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Lava Phone that is Locked?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722722667352-immersed-tube-tunnel-construction-is-used-for-underwater-crossings-and-involves-precise-placement-and-joining-of-prefabricated-sections/"><u>Immersed Tube Tunnel Construction Is Used for Underwater Crossings and Involves Precise Placement and Joining of Prefabricated Sections.</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/translate-live-videos-with-the-best-video-translator-for-2024/"><u>Translate Live Videos With The Best Video Translator for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-samsung-galaxy-f15-5g-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Samsung Galaxy F15 5G Offline? Troubleshooting Guide | Dr.fone</u></a></li>
 </ul></div>
 

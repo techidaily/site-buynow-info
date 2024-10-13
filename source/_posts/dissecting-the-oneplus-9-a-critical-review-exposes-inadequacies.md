@@ -1,7 +1,7 @@
 ---
 title: "Dissecting the OnePlus 9: A Critical Review Exposes Inadequacies"
-date: 2024-09-10T21:33:42.650Z
-updated: 2024-09-15T16:40:19.820Z
+date: 2024-10-07T03:22:18.732Z
+updated: 2024-10-13T01:17:37.354Z
 categories:
   - BestProducts
 description: "This Article Describes Dissecting the OnePlus 9: A Critical Review Exposes Inadequacies"
@@ -47,6 +47,19 @@ thumbnail: https://thmb.techidaily.com/3c9a0c6a221fee25e096fdddf37ef07f9a19a2323
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
 [View On Steampowered.com](https://store.steampowered.com/app/464920/Surviving%5FMars/) [View On G2a.com](https://www.g2a.com/en-us/surviving-mars-first-colony-edition-steam-key-global-i10000147752001?)
@@ -65,6 +78,13 @@ thumbnail: https://thmb.techidaily.com/3c9a0c6a221fee25e096fdddf37ef07f9a19a2323
  I’ve always been drawn to sandbox building games, from Roller Coaster Tycoon to[SimCity](https://www.lifewire.com/simcity-4-starting-new-city-840147) to Pharaoh. While I’ve built up great cities on earth, there is one place I haven’t been to: outer space. Surviving Mars fills this planet-sized hole.
 
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Plot: Lots of options**
 
@@ -90,6 +110,13 @@ thumbnail: https://thmb.techidaily.com/3c9a0c6a221fee25e096fdddf37ef07f9a19a2323
 
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
  The colonists also come with their own unique personality traits, from veganism to survivalist to alcoholic, so they all have their own service needs. You’ll have to factor this into your game as you build up your population. If someone doesn’t get their needs met, it can land them in the hospital, or worse, on a rocket back home. And don’t get me started on the chaos that erupts when humans start freezing during a cold spell or complain when they don’t have enough oxygen. The nerve of some colonists!
@@ -114,19 +141,6 @@ thumbnail: https://thmb.techidaily.com/3c9a0c6a221fee25e096fdddf37ef07f9a19a2323
 
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
 
 ## **Competition: Other city-building games**
@@ -142,10 +156,10 @@ thumbnail: https://thmb.techidaily.com/3c9a0c6a221fee25e096fdddf37ef07f9a19a2323
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -173,5 +187,20 @@ thumbnail: https://thmb.techidaily.com/3c9a0c6a221fee25e096fdddf37ef07f9a19a2323
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-starting-up-the-guide-to-youtube-fame-in-gaming-for-2024/"><u>[Updated] Starting Up The Guide to YouTube Fame in Gaming for 2024</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/automated-traffic-management-with-the-advanced-capabilities-of-cookiebot/"><u>Automated Traffic Management with the Advanced Capabilities of Cookiebot</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/complete-walkthrough-disabling-the-you-might-also-like-this-section-in-instagram/"><u>Complete Walkthrough: Disabling the 'You Might Also Like This' Section in Instagram</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/disable-screen-lock-on-oneplus-open-by-drfone-android-unlock-android-unlock/"><u>Disable screen lock on OnePlus Open</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experiencing-uncommon-fun-with-ddpais-innovative-mini-3-dashcam-a-review/"><u>Experiencing Uncommon Fun With DDpai's Innovative Mini 3 Dashcam - A Review!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-the-powerful-and-convenient-jaco-smartpro-tire-inflation-tool-reviewed/"><u>Expert Analysis: The Powerful and Convenient Jaco SmartPro Tire Inflation Tool Reviewed</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-honor-magic-6-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Honor Magic 6 FRP In 3 Different Ways</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-guide-to-adding-dynamic-captions-to-instagram-media/"><u>In 2024, Guide to Adding Dynamic Captions to Instagram Media</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-the-aphaca-bt69-the-ultimate-compact-bluetooth-fm-transmitter-for-your-vehicle/"><u>In-Depth Evaluation of the Aphaca BT69 - The Ultimate Compact Bluetooth FM Transmitter for Your Vehicle</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-the-clearstream-nv-hdtv-antenna-top-performance-meets-unappealing-appearance/"><u>Inside the ClearStream Nv HDTV Antenna - Top Performance Meets Unappealing Appearance</u></a></li>
+<li><a href="https://facebook.techidaily.com/refine-online-image-via-facebook-username-and-url-change/"><u>Refine Online Image via Facebook Username & URL Change</u></a></li>
+<li><a href="https://extra-information.techidaily.com/spectrumstreams-2024-worldwide-selection-at-fingertips/"><u>SpectrumStreams 2024 Worldwide Selection at Fingertips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-value-the-best-budget-friendly-4k-tv-on-the-market-hisense-50h8f-hdr-edition/"><u>Unveiling the Value: The Best Budget-Friendly 4K TV on the Market, Hisense 50H8F HDR Edition</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Michael Kors Access Gen 5E MKGO Timepiece: A Blend of Elegance and Ingenuity"
-date: 2024-10-05T16:02:36.563Z
-updated: 2024-10-07T17:13:04.522Z
+date: 2024-10-06T22:02:41.440Z
+updated: 2024-10-12T18:03:27.177Z
 categories:
   - BestProducts
 description: "This Article Describes Exploring the Michael Kors Access Gen 5E MKGO Timepiece: A Blend of Elegance and Ingenuity"
@@ -44,28 +44,15 @@ Lifewire / Rebecca Isaacs
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Sabrent Mini Travel USB Optical Mouse
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/XBAevViAWBKn-uqOn_jnTLrfwTw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_HeroSquare-6ae9d6d299054d748f84492b5c31f033.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -88,6 +75,13 @@ Lifewire / Rebecca Isaacs
 
  Working on the go can prove difficult on a laptop, especially when you need to work on heavy-hitting projects requiring precision. Travel mice, or portable computer mice that can be packed and unpacked on the go, can alleviate much of the proverbial headache of working on PC-heavy tasks. For those who prefer their mouse have a cable, the Sabrent fits the bill. Using high definition precision technology, the tiny, three-year-old mouse is designed for those who want convenience and extreme precision in their work.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Basic**
 
  The Sabrent was not designed for heavy gaming in mind; its design is so tiny at 3.2 x 1.5 inches (LW) that it fits into the cup of your palm with some room to spare. Unlike gaming mice, which can be complex, with a plethora of buttons/features, the all-black, 1.5-ounce mouse only has three buttons: the left (main) button, the wheel, and the right button. While this might turn off many users, in reality, it turns out to be of huge benefit. Thanks to its simplicity, ambidextrous users will appreciate its ability to swap between dominant hands.
@@ -97,13 +91,6 @@ Lifewire / Rebecca Isaacs
  It’s important to keep in mind that this is a wired, ergonomic mouse that relies on a USB port connection. So while it doesn’t require any batteries, it can be problematic if you need more than 25 inches the cable provides. The cable itself expands with a gentle pull of the cable from its own mini-port, and is easily retractable with a tug on each side of the cable. Just be careful when retracting it, as it is similar to a window shade in that it retracts with near-violent gusto.
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/E-UHv94vEiLyLkgwTG1qIFE6uvQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_04-76e4b475ca3f4449a746c22f3713f784.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -115,6 +102,13 @@ Lifewire / Rebecca Isaacs
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/mM3uSf3Y2pyayDyWJzP8_5uUya4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_05-04e025144b514674b109e77f79129d74.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
 ## **Performance: Precise, but mildly problematic**
@@ -125,6 +119,13 @@ Lifewire / Rebecca Isaacs
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/ZAK9csfHFEKVkNFSzE-Knbqabgs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_03-c6a7b875505642c69218c2c6c3449e50.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
  The buttons responded quickly and with ease as well. While the main and right buttons do click with some noise, the constant clacking won’t get on any nerves. The scroller isn’t loud, but it took us a couple rolls of the wheel before it shifted around without any resistance. This ultimately wasn’t a big deal, but it might need a little breaking in, so don’t give up on it straight away.
@@ -133,13 +134,6 @@ Lifewire / Rebecca Isaacs
 
  The cable length left something to be desired in a work PC, however. At 25 inches, it sounds like a dream come true, however, testing it on a standing desk where the PC tower is located further away from the keyboard and mouse we realized there was a problem. The length cable prevented us from shifting our grip on the mouse, and the tugging was a frustrating physical constraint. Laptop users won’t even notice the cable, but PC users may want to look for something a little more wireless.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Comfort: Too small**
 
  Because the mouse is so tiny, and barely fit into the palm of our hand, we constantly had to adjust our fingers to compensate for its size. Granted, we used the mouse for up to eight hours at a time in testing, and our muscles didn’t tire out and hands didn’t cramp, which was a testament to the ergonomic design. However, constantly having to shift our grip to press buttons and scroll was mildly annoying, especially when we were deeply engaged in work.
@@ -147,10 +141,16 @@ Lifewire / Rebecca Isaacs
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/h8ibsbPtDqgJOD0XgpZSD6FOXUU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_02-1331828bbc3f460baebd85cbd24d61e2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -200,22 +200,19 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-discovering-the-power-of-fraps-in-video-capture/"><u>[Updated] 2024 Approved Discovering the Power of Fraps in Video Capture</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-how-to-create-text-memes-with-meme-text-generator/"><u>[Updated] How to Create Text Memes with Meme Text Generator?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-techniques-for-enhancing-game-stream-videos-with-ai-portrait-technology/"><u>[Updated] Techniques for Enhancing Game Stream Videos with AI Portrait Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/caixun-4k-android-tv-75-inch-ec75e1a-review/"><u>Caixun 4K Android TV 75-Inch EC75E1A Review</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-oneplus-12-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for OnePlus 12</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-quality-audio-at-a-fractional-cost-senso-buds-review/"><u>Experience Quality Audio at a Fractional Cost: Senso Buds Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-amazon-fire-hd-10-kids-version-leading-safeguards-for-young-users-analyzed-and-compared/"><u>Expert Insights on the Amazon Fire HD 10 Kids Version: Leading Safeguards for Young Users Analyzed and Compared</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/explore-the-premier-online-classrooms-a-guide-to-quality-digital-schooling-options/"><u>Explore the Premier Online Classrooms: A Guide to Quality Digital Schooling Options</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/how-reliable-is-ai-in-crafting-personalized-safety-first-exercise-programs/"><u>How Reliable Is AI in Crafting Personalized, Safety-First Exercise Programs?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-12-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Redmi 12 Phone with Broken Screen</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-premium-on-linkedin-a-wise-investment-heres-why/"><u>Is Premium on LinkedIn a Wise Investment? Here's Why</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leverage-buysellads-for-profitable-and-targeted-blog-advertising-campaigns/"><u>Leverage BuySellAds for Profitable and Targeted Blog Advertising Campaigns</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/lighting-up-moments-exploring-the-aura-display-experience/"><u>Lighting Up Moments: Exploring the Aura Display Experience</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/mastering-the-secrets-of-openai-a-full-overview/"><u>Mastering the Secrets of OpenAI: A Full Overview</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reliable-monitoring-for-less-a-close-look-at-the-discreet-and-economical-rexing-v1-dashcam/"><u>Reliable Monitoring for Less: A Close Look at the Discreet and Economical Rexing V1 DashCam</u></a></li>
-<li><a href="https://win11.techidaily.com/resolving-no-login-issue-on-windows-1011-screens/"><u>Resolving No-Login Issue on Windows 10/11 Screens</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/the-updated-method-to-bypass-tecno-pova-5-pro-frp-by-drfone-android/"><u>The Updated Method to Bypass Tecno Pova 5 Pro FRP</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-refining-zoom-visuals-proactive-measures/"><u>[New] Refining Zoom Visuals Proactive Measures</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-leading-likes-best-insta-stories-filter-for-2024/"><u>[Updated] Leading Likes Best Insta Stories Filter for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-guide-to-digital-green-magic-comprecipate-free-lessons-from-4-masterful-channels/"><u>[Updated] The Ultimate Guide to Digital Green Magic Comprecipate Free Lessons From 4 Masterful Channels</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-integrating-your-day-job-with-passionate-online-content/"><u>2024 Approved Integrating Your Day Job with Passionate Online Content</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/essential-twitter-management-software-expert-recommendations/"><u>Essential Twitter Management Software – Expert Recommendations</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/how-to-control-your-netflix-video-flow-pc-and-mobile-for-2024/"><u>How to Control Your Netflix Video Flow PC & Mobile for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-5-video-editors-for-macos-sierra/"><u>In 2024, Top 5 Video Editors for macOS Sierra</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/linked-insight-merging-instagram-and-tiktok/"><u>Linked Insight Merging Instagram & TikTok</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/reviving-the-sound-a-guide-to-restoring-audio-on-non-functional-receivers/"><u>Reviving the Sound: A Guide to Restoring Audio on Non-Functional Receivers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tasty-chaos-unleashed-an-in-depth-overcooked-2-critique/"><u>Tasty Chaos Unleashed: An In-Depth Overcooked! 2 Critique</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-oculus-quest-2-a-user-friendly-and-outstanding-vr-headset-at-an-incredible-price-point/"><u>The Oculus Quest 2: A User-Friendly and Outstanding VR Headset at an Incredible Price Point</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-sony-xbr65x850f-65-an-unbiased-review-of-a-high-quality-fairly-priced-4k-tv-model/"><u>The Sony XBR65X850F 65” - An Unbiased Review of a High-Quality, Fairly Priced 4K TV Model</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-powerhouse-pc-dell-alienware-aurora-r9-review-the-ultimate-gaming-experience-redefined/"><u>Unboxing the Powerhouse PC: Dell Alienware Aurora R9 Review - The Ultimate Gaming Experience Redefined</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-capabilities-a-full-review-on-the-netgear-nighthawk-x6-wireless-range-extender/"><u>Unpacking the Capabilities: A Full Review on the Netgear Nighthawk X6 Wireless Range Extender</u></a></li>
 </ul></div>
 

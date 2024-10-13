@@ -1,7 +1,7 @@
 ---
 title: Samsung Galaxy Chromebook Pro Series - A Comprehensive Review
-date: 2024-09-09T21:33:32.293Z
-updated: 2024-09-15T21:04:17.195Z
+date: 2024-10-12T05:30:32.577Z
+updated: 2024-10-13T10:52:30.185Z
 categories:
   - BestProducts
 description: This Article Describes Samsung Galaxy Chromebook Pro Series - A Comprehensive Review
@@ -46,6 +46,13 @@ Lifewire / Jeremy Laukkonen
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Microsoft Xbox Series S
 
 ![Xbox Series S](https://www.lifewire.com/thmb/wlG_GrSmQPVex-VRt3ap4hsTP-s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
@@ -75,6 +82,13 @@ Lifewire / Jeremy Laukkonen
 
  This console is remarkably compact and has a surprisingly low price point. Gamers looking for a[4K UHD in HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) experience will need to pay a premium for the Series X, but the Xbox Series S offers an enticing alternative if you’re looking to save some money or haven’t yet made the jump to 4K.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Sleek and compact**
 
  The Xbox Series S is small, and it's almost impossible to oversell that point. I had seen pictures and videos of the console and the spec sheet, but I was still surprised at how compact this thing was when I unboxed it. It's smaller than the Xbox One S, and Microsoft bills it as "our smallest Xbox ever." That's especially noteworthy since Microsoft and Sony went exceptionally big with their flagship consoles, the Series X and PlayStation 5.
@@ -88,10 +102,10 @@ Lifewire / Jeremy Laukkonen
  Aside from the bold vent grill, the Series S doesn’t break any new ground regarding design choices. It has sturdy rubber feet on two sides, so you can lay it flat or stand it up on end, as has become more or less standard with home consoles. It feels pretty sturdy in both positions.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easier than ever before**
@@ -103,13 +117,6 @@ Lifewire / Jeremy Laukkonen
  I highly recommend setting up the Xbox Series S with the help of the Xbox app. It massively streamlines the process, makes it easier to connect to Wi-Fi since you don’t need to type out your password with the Xbox’s on-screen keyboard, and even pre-loads the Series S with settings from your old Xbox One if you had one.
 
  I ended up wiping the console back to factory settings a few times while I put it through its paces, so I also tried the traditional setup method after circling back. It’s similar to setting up an Xbox One; not that difficult or time-consuming, but the app option is better.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Rock solid 1440p gaming**
 
@@ -133,13 +140,6 @@ Lifewire / Jeremy Laukkonen
 
  Load times were negligible in each game I played, which I expected from a super-fast NVME SSD storage system. Some games had more noticeable load times than others, but not enough to disrupt gameplay.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Games: Microsoft still has an exclusivity problem**
 
  You won't have any shortage of games to play on the Xbox Series S, especially if you're a[Game Pass](https://www.lifewire.com/xbox-game-pass-4178809) subscriber. I predicted that the Series S would be the ultimate Game Pass machine at release, and that prediction has borne fruit in my home, at least.
@@ -155,6 +155,13 @@ Lifewire / Jeremy Laukkonen
  Other consoles, like the PlayStation 5 and Nintendo Switch, have games you can't get anywhere else, while the Xbox Series X|S has timed exclusives and console exclusives. That isn't a knock against Microsoft, as the availability of Xbox exclusives on the PC is fantastic for computer gamers. Still, it does put Xbox consoles in a tough spot compared to consoles from other manufacturers.
 
  Microsoft's $7.5B purchase of Bethesda's parent company, Zenimax, brought some hope of additional exclusives appearing in Microsoft's arsenal. (Bethesda is the publisher of Fallout, DOOM, Dishonored, Skyrim, Wolfenstein, The Elder Scrolls, and more.) However, the situation is murky as the company has yet to clarify which (if any) Bethesda titles will be exclusive to Xbox.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Storage: Disappointingly shallow, so bring your USB drive**
 
@@ -183,6 +190,13 @@ Lifewire / Jeremy Laukkonen
  When connected via Ethernet, the Series S reported 880Mbps down and 65Mbps up on the network status screen. That’s right on the money in terms of what I see directly at my Eero router. Actual download speeds topped out at 500Mbps and typically hung out between 270 and 320Mbps.
 
  The bottom line is that the Series S provided fairly unimpressive download speeds over Wi-Fi but tore it up when connected via Ethernet. You’ll want to connect this all-digital console via Ethernet to a fast internet connection.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software and User Interface: Familiar and cozy**
 
@@ -232,13 +246,6 @@ Lifewire / Jeremy Laukkonen
 
  The Xbox Series S might be a bit of a step back from the Xbox One X in performance, but the fact is that it’s a next-gen console that plays next-gen games with some impressive hardware and an unreal price tag. Gamers in search of the best graphics possible will want to look at the Xbox Series X instead, but gamers who haven’t yet made the 4K plunge, parents in need of an affordable console for their kids, or anyone looking to save money will all find something to like here.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 [Xbox Series X Review](https://www.lifewire.com/microsoft-xbox-series-x-review-one-power-packed-4k-console-5088039)
@@ -250,10 +257,16 @@ Lifewire / Jeremy Laukkonen
 [Nintendo Switch Lite Review](https://www.lifewire.com/nintendo-switch-lite-review-4788015)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -286,5 +299,22 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-top-20-moments-of-laughter-best-fb-jail-gems-for-a-sunny-outlook/"><u>[New] 2024 Approved Top 20 Moments of Laughter Best FB Jail Gems for a Sunny Outlook</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-live-stream-audio-effective-recording-methods-for-the-digital-age/"><u>[New] In 2024, Live Stream Audio Effective Recording Methods for the Digital Age</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-twitch-time-travel-retrieve-lost-broadcast-moments/"><u>[New] Twitch Time-Travel Retrieve Lost Broadcast Moments</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-samsung-galaxy-xcover-7-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Samsung Galaxy XCover 7? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-viair-88p-compact-compressor-immense-capabilities-meet-some-concerns/"><u>Comprehensive Analysis of Viair 88P Compact Compressor: Immense Capabilities Meet Some Concerns</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/detailed-analysis-of-the-sea-tech-external-blu-ray-drive-with-usb-interface-assessing-its-inconsistent-functionality/"><u>Detailed Analysis of the Sea Tech External Blu-Ray Drive with USB Interface: Assessing Its Inconsistent Functionality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insight-into-d-link-push256-powerline-networking-instant-plug-and-play-with-high-transfer-rates/"><u>Expert Insight Into D-Link Push256 Powerline Networking: Instant Plug-and-Play with High Transfer Rates</u></a></li>
+<li><a href="https://facebook.techidaily.com/financial-networking-fundamentals/"><u>Financial Networking Fundamentals</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fix-that-jittery-sound-experience-in-airpods-disable-head-tracking-functionality-now/"><u>Fix that Jittery Sound Experience in AirPods! Disable Head-Tracking Functionality Now!</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Motorola Moto G34 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-winegards-fl5500a-flatwave-antenna-worth-its-price-exploring-features-and-functionality-in-our-insightful-assessment/"><u>Is Winegard's FL5500A FlatWave Antenna Worth Its Price? Exploring Features and Functionality in Our Insightful Assessment</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-times-to-share-on-social-media-platforms/"><u>Key Times to Share on Social Media Platforms</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/master-wmp-techniques-for-efficient-cd-handling-and-recordings/"><u>Master WMP Techniques for Efficient CD Handling and Recordings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/thorough-review-of-winegards-fl55-00a-flatwave-antenna-strong-signal-but-high-cost/"><u>Thorough Review of Winegard's FL55 00A FlatWave Antenna - Strong Signal but High Cost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-6-iphone-security-the-ultimate-list-of-antivirus-applications/"><u>Top 6 iPhone Security: The Ultimate List of Antivirus Applications</u></a></li>
+</ul></div>
 

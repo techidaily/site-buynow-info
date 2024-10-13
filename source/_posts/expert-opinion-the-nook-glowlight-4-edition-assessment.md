@@ -1,7 +1,7 @@
 ---
 title: "Expert Opinion: The Nook Glowlight 4 Edition Assessment"
-date: 2024-09-13T19:25:47.054Z
-updated: 2024-09-15T18:52:47.071Z
+date: 2024-10-08T18:07:55.099Z
+updated: 2024-10-13T03:10:49.788Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Opinion: The Nook Glowlight 4 Edition Assessment"
@@ -43,6 +43,13 @@ Lifewire / Scott Gercken
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Pioneer BDR-XD05B Blu-ray Burner
 
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/nC_G9Nr8iQMb-lVdoUhQTXWP5lo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_HeroSquare-7488fe2dd07248ca99020859f82cefaf.jpg)
@@ -72,6 +79,13 @@ Lifewire / Scott Gercken
 
  Check out our buyers guide for more information on what you should look for in an optical drive.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Feels a little flimsy**
 
  The Pioneer BDR-XD05B[Blu-ray Burner](https://www.lifewire.com/best-desktop-blu-ray-drives-832423) is a sleek, small black drive. It’s a tiny 5.12” square by .5” tall with a black cover and a metal bottom. The clamshell case opens to 65 degrees, so it’s easy to slide a disc onto the spindle. The button to open the clamshell is on the front left of the drive, and there’s a blue LED indicator that lights up when the drive is plugged into a power source. The drive comes with an unusually shaped USB cord, with a male micro-B USB 3.0 on one side and two USB A male ends on the other. One is designed to power the drive and one is for data transfer. The back of the drive has both a micro-B USB 3.0 port and a DC power port as a second option for powering it. The Pioneer BDR-XD05B Blu-ray Burner’s look is minimalist, black with just a small gray Blu-ray logo on the top.
@@ -86,6 +100,13 @@ Lifewire / Scott Gercken
 
  Lifewire / Scott Gercken
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Some baffling software issues**
 
  The setup process for the Pioneer BDR-XD05B is both really easy and frustrating. The easy part is that we only needed to plug the USB cord into the right slots to get it running on the Macbook we used to test it. The frustrating part is that the included software only works on Windows computers. A major producer like Pioneer only including PC software is very frustrating.
@@ -96,14 +117,14 @@ Lifewire / Scott Gercken
 
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/xaXRYsi71hFhblhSiQT18pmQ2Mw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_02-5138fb74431a40c1b0cbb76c30bc6350.jpg)
 
- Lifewire / Scott Gercken
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Scott Gercken
 
 ## **Performance: Good for an inexpensive Blu-ray burner**
 
@@ -112,13 +133,6 @@ Lifewire / Scott Gercken
  Second, we made a backup copy of a 13.32 GB photos library using the MacOS native Blu-ray burning feature. It took 39 minutes to write the file onto a single-layer BD-R. There are a lot of Blu-ray burners that can both read and write much faster than this, but the Pioneer BDR-XD05B combines low cost with portability to make up for it.
 
  Noise was never a problem with this drive. Auto Quiet mode adjusts media discs to a slower speed so it’s quieter, and with both data and movie discs we didn’t notice any noise loud enough to be a bother.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Image Quality: Don’t watch Blu-rays on this drive**
 
@@ -130,6 +144,13 @@ Lifewire / Scott Gercken
 
  We think that the best reason to watch a Blu-ray isn’t the sharp[HD image](https://www.lifewire.com/what-you-need-to-see-hd-1847338) but the depth of sound this format can produce. But you don’t get any of that when you watch a Blu-ray using the Pioneer BDR-XD05B, because you have to watch it on a computer with computer speakers. It didn’t get any better when we connected the computer to the TV via HDMI—the sound remained flat and muddy.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software: Basic useful software**
 
  Like we wrote above, the included software was a mess to install, with windows popping up all over the place. The included software is called “CyberLink Media Suite 10.” It includes PowerDVD 14, Power2Go 8, and PowerDirector 14 LE. PowerDVD 14 is an app for playing Blu-rays and DVD’s on your[optical drive](https://www.lifewire.com/what-is-an-optical-disc-drive-2618157) . Power2Go 8 is a burning tool, and it has some system recovery tools, too. Powerdirector 14 LE is a movie editing app. All-in-all, this is a pretty useful, basic suite of software without anything that especially stands out. It gets the job done, and that’s what matters.
@@ -139,13 +160,6 @@ Lifewire / Scott Gercken
  With an MSRP of $100, the Pioneer BDR-XD05B is one of the least expensive Blu-ray burners on the market. You get what you pay for, though—that low price comes with slower read/write speeds and a flimsy design. Still, if you’re looking for a budget Blu-ray burner, this is a good one. If you’re a heavy user, look for something faster.
 
  With an MSRP of $100, The Pioneer BDR-XD05B is one of the least expensive Blu-ray burners on the market.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Performs well in this price range**
 
@@ -194,5 +208,26 @@ Lifewire / Scott Gercken
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-expert-methods-for-shushing-complaints-in-gmeet-sessions/"><u>[New] Expert Methods for Shushing Complaints in GMeet Sessions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-instantly-personalize-your-phones-from-tiktok-sounds-to-ringtones-for-2024/"><u>[New] Instantly Personalize Your Phones From TikTok Sounds to Ringtones for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-2023s-premier-action-cameras-on-motorcycle-gear-guide/"><u>[Updated] 2023'S Premier Action Cameras on Motorcycle Gear Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/amplify-your-shorts-impact-with-bespoke-thumbnails/"><u>Amplify Your Shorts' Impact with Bespoke Thumbnails</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1722988010055-gta-5-freezing-problems-discover-effective-fixes-and-get-back-to-high-octane-action/"><u>GTA 5 Freezing Problems? Discover Effective Fixes and Get Back to High-Octane Action</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/high-performance-windows-editing-tools-roundup-reviewed/"><u>High Performance Windows Editing Tools Roundup Reviewed</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-oppo-reno-10-5g-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Oppo Reno 10 5G FRP Without Computer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovos-tablet-marvel-the-p1u)r-exceptional-quality-meets-minor-issues-reviewed/"><u>Lenovo's Tablet Marvel, the P1^u>r: Exceptional Quality Meets Minor Issues Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nokia-72-review/"><u>Nokia 7.2 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/pro-tips-capturing-graphical-elements-and-preserving-them-as-image-files-from-word/"><u>Pro Tips: Capturing Graphical Elements and Preserving Them as Image Files From Word</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/quickrecorder-straightforward-screen-grabber/"><u>QuickRecorder - Straightforward Screen Grabber</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsungs-q60r-the-perfect-smart-4k-tv-for-gamers-reviewed/"><u>Samsung's Q60R: The Perfect Smart 4K TV for Gamers, Reviewed!</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/swiftly-resolve-slowness-issues-of-a-windows-printer/"><u>Swiftly Resolve Slowness Issues of a Windows Printer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-all-in-one-approach-to-wellness-evaluating-the-fitbit-versa-2s-dual-role-as-a-fitness-tracker-and-smartwatch-companer/"><u>The All-in-One Approach to Wellness: Evaluating the Fitbit Versa 2'S Dual Role as a Fitness Tracker and Smartwatch Companer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-leading-choices-for-premium-external-blu-ray-drives-best-picks/"><u>The Leading Choices for Premium External Blu-Ray Drives - Best Picks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-quirks-of-playback-solving-frozen-photobooth-videos-for-2024/"><u>The Quirks of Playback Solving Frozen Photobooth Videos for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-pixel-slates-experience-with-chromeos-dysfunction/"><u>Unpacking the Pixel Slate's Experience with ChromeOS Dysfunction</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-netgears-fastest-router-an-in-depth-review-of-the-rax120-model/"><u>Unveiling the Power of Netgear's Fastest Router: An In-Depth Review of the RAX120 Model</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-wonders-of-dash-by-wonder-workshop-a-game-changing-tech-playtime-companion/"><u>Unveiling the Wonders of Dash by Wonder Workshop: A Game-Changing Tech Playtime Companion</u></a></li>
+</ul></div>
 

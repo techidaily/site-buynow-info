@@ -1,7 +1,7 @@
 ---
 title: "The Lenovo Ideapad 320 Review: Where Style Meets Practicality with the Distinctive & Acclaimed Lenovo Keyboard Design"
-date: 2024-10-03T16:21:22.490Z
-updated: 2024-10-07T17:47:14.868Z
+date: 2024-10-10T17:28:39.414Z
+updated: 2024-10-13T13:06:30.016Z
 categories:
   - BestProducts
 description: "This Article Describes The Lenovo Ideapad 320 Review: Where Style Meets Practicality with the Distinctive & Acclaimed Lenovo Keyboard Design"
@@ -47,16 +47,22 @@ Lifewire / Emily Isaacs
 
 4.8
 
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Kinesis Freestyle2 Blue
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/wuNd6MsZiivoQ99Xm0JHB9iB4Rs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_HeroSquare-99f80025b0254cbebe67ed22575a90c5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -87,6 +93,13 @@ Lifewire / Emily Isaacs
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/C-YK_WPWu8Ujx1fwDLxvO6Epi-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_05-adcddc5fc05b415dbcd82396bc0ada77.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  The Kinesis Freestyle2 Blue for Mac breaks free of these norms by using a split, modular design that features two keyboard halves, one for each hand, connected via a 9 or 20-inch cable depending upon the chosen model. These pieces were designed with comfort in mind. They may be used separately or connected with a pivot tether at the top of the two halves. This allows you the opportunity to customize your setup and maximize your comfort, whether that’s by placing the halves closer together or further apart.
@@ -97,22 +110,35 @@ Lifewire / Emily Isaacs
 
  Clocking in at 2 pounds, it’s also lightweight which makes it easy to pack. Whether you’re commuting between the home and the office or you’re heading out of town for a vacation, it’s easy to break down and bring anywhere so long as there’s a flat surface to place it during use.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: For Apple products only**
 
  The Kinesis Freestyle2 Blue arrives with the two keyboard halves, the instructional pamphlet, and a six-foot USB charging cable. Designed for use with iPads,[iPhones](https://www.lifewire.com/iphone-and-ios-4781515) , and[Macs](https://www.lifewire.com/macs-4781332) , the setup process is quick and easy to complete. First, we flipped the switch on the right-hand side of the keyboard from the off position to the on position. Then, we flipped the keyboard over and pressed the connect button on the backside. We knew it was ready to begin pairing when the lights on the frontside began flashing blue.
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/XHY6Xe9cdaO1U6Uj0wDY6rROlcA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_04-7fad98b589454e0388ecf48afe425e8c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  From here, we followed the instructions in the provided instructional pamphlet and enabled Bluetooth on our iPad. After about a minute of scanning, the Kinesis KB800MB-BT keyboard appeared as an available device. We simply tapped to connect. From here, it prompted us to input a numeric code and press return. Once we’d done this, setup was complete.
+
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Features: Efficient hotkeys once you get used to them**
 
@@ -121,13 +147,6 @@ Lifewire / Emily Isaacs
  One pet peeve we had with the keyboard design was the Caps lock key. Instead of having a light on the button itself that glows when the function is enabled, this light is placed alongside the Bluetooth connectivity lights on the right-hand side of the keyboard. While this isn’t the end of the world by any means, it’s less intuitive since you need to retrain yourself on where to look to see if it’s enabled. Additionally, you should be aware that leaving this button on or using it frequently can lead to faster battery drain.
 
  Its split design is comfortable, following the natural arc of your fingers and hands as they rest upon its keys.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Battery: Plenty of juice so you’re never in a bind**
 
@@ -158,13 +177,6 @@ Lifewire / Emily Isaacs
  **An ideal keyboard for Apple users with its compact design, portability, and long-lasting battery.**
 
  The Kinesis Freestyle2 Blue for Mac is a compact, user-friendly ergonomic keyboard that takes comfort and customization to the next level for Apple users thanks to its split, modular design. Its extended battery life of up to 300 plus hours combined with its ability to connect to multiple iOS devices at a time is a game-changer, making it well worth the splurge.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -197,21 +209,24 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-reviewing-the-powerhouse-of-magixs-photo-toolkit/"><u>[New] In 2024, Reviewing the Powerhouse of MAGIX's Photo Toolkit</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-20-minutes-to-master-vrecorder-instalment/"><u>[Updated] 20 Minutes To Master VRecorder Instalment</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-cinema-kings-and-queens-iphones-leading-8-freepluspaid-watching-options/"><u>[Updated] Cinema Kings & Queens IPhone's Leading 8 FREE+Paid Watching Options</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-beginners-pathway-prime-video-game-editing-applications/"><u>2024 Approved Beginner's Pathway Prime Video Game Editing Applications</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-chart-your-course-to-youtube-riches-the-essential-500-threshold/"><u>2024 Approved Chart Your Course to Youtube Riches The Essential 500 Threshold</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-features-a-deep-dive-into-synologys-rt2600ac-wi-fi-router-long-range-and-parental-controls-included/"><u>Exploring the Features: A Deep Dive Into Synology's RT2600ac Wi-Fi Router - Long Range and Parental Controls Included</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-skagen-falster-2-sophisticated-competition-for-iphones/"><u>Exploring the Skagen Falster 2 - Sophisticated Competition for iPhones</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/first-impressions-diving-into-the-usability-of-mods-latest-sidecar-bike/"><u>First Impressions: Diving Into the Usability of Mod's Latest Sidecar Bike</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/hands-on-exploration-of-the-revolutionary-iphone-15-pro-from-apple-inc/"><u>Hands-On Exploration of the Revolutionary iPhone 15 Pro From Apple Inc.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/high-performance-and-robust-protection-a-deep-dive-into-the-asus-ac68u-rt-ac68u-5g-router-review/"><u>High Performance & Robust Protection: A Deep Dive Into the Asus AC68U (RT-AC68U) 5G Router Review</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-erase-an-apple-iphone-15-without-apple-id-password-by-drfone-ios/"><u>How To Erase an Apple iPhone 15 Without Apple ID Password?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-moto-g73-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on Moto G73 5G</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/hps-affordable-15-laptop-powered-by-amd-efficient-and-reliable-for-everyday-use/"><u>HP's Affordable 15'' Laptop Powered by AMD: Efficient and Reliable for Everyday Use?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-huawei-nova-y91-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Huawei Nova Y91 to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-map-my-ride-cycling-tracker/"><u>In-Depth Analysis of the Map My Ride Cycling Tracker</u></a></li>
-<li><a href="https://howto.techidaily.com/why-your-honor-90-gt-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Honor 90 GT Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-dominating-the-digital-space-from-5000-to-over-a-million-views/"><u>[New] Dominating the Digital Space From 5,000 to Over a Million Views</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-top-10-ways-to-procure-quality-photo-and-video-backgrounds/"><u>[New] In 2024, Top 10 Ways to Procure Quality Photo & Video Backgrounds</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-top-mac-mkv-players-compilation/"><u>[Updated] Top Mac MKV Players Compilation</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-rekindle-ambition-top-10-motivational-moments/"><u>2024 Approved Rekindle Ambition Top 10 Motivational Moments</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-highly-recommended-extended-mouse-pads-list-find-the-best-fit/"><u>2024'S Highly Recommended Extended Mouse Pads List – Find the Best Fit</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/acer-aspire-c27-sleek-design-meets-robust-performance-in-an-all-inclusive-desktop/"><u>Acer Aspire C27: Sleek Design Meets Robust Performance in an All-Inclusive Desktop</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Motorola Moto G73 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/al-dividends-the-creators-guide-to-monetization/"><u>Digital Dividends The Creator's Guide to Monetization</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722774985806-exploring-the-capabilities-a-thorough-analysis-of-the-docooler-usb-20-with-12-megapixels/"><u>Exploring the Capabilities: A Thorough Analysis of the Docooler USB 2.0 with 12 Megapixels!</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-apple-iphone-6-plus-location-by-mobile-number-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 6 Apps/Services to Trace Any Apple iPhone 6 Plus Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Realme GT 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722718389392-maintenance-requirements-may-be-higher-due-to-mechanical-wear-in-some-displacement-pump-types/"><u>Maintenance Requirements May Be Higher Due to Mechanical Wear in some Displacement Pump Types.</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-poco-x6-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Poco X6 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-heimvision-sunrise-alarm-clock-a80s-an-insight-into-its-light-therapy-capabilities/"><u>Unboxing the HeimVision Sunrise Alarm Clock A80S - An Insight Into Its Light Therapy Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-adventure-the-garmin-gpsmap-64st-review-for-ultimate-wilderness-tracking-and-mapping/"><u>Unlocking Adventure: The Garmin GPSMAP 64St Review for Ultimate Wilderness Tracking and Mapping</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-lenovo-tab-p11-pro-featuring-superior-qualities-amidst-some-flaws/"><u>Unveiling the Lenovo Tab P11 Pro: Featuring Superior Qualities Amidst Some Flaws</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-performance-of-netgears-orbi-rbs50y-for-spacious-yards-reviewed/"><u>Unveiling the Performance of Netgear's Orbi RBS50Y for Spacious Yards Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-the-lg-24lh4830-is-your-next-great-tv-choice-affordable-price-superior-performance/"><u>Why the LG 24LH4830 Is Your Next Great TV Choice - Affordable Price, Superior Performance</u></a></li>
+<li><a href="https://discover-help.techidaily.com/windows-11-refresh-image-creation-with-recimg-command/"><u>Windows 11 Refresh Image Creation with Recimg Command</u></a></li>
 </ul></div>
 

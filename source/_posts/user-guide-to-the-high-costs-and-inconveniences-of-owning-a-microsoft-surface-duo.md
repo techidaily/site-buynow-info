@@ -1,7 +1,7 @@
 ---
 title: User Guide to the High Costs & Inconveniences of Owning a Microsoft Surface Duo
-date: 2024-09-11T19:36:50.523Z
-updated: 2024-09-15T21:57:18.484Z
+date: 2024-10-10T12:36:31.073Z
+updated: 2024-10-13T04:22:57.203Z
 categories:
   - BestProducts
 description: This Article Describes User Guide to the High Costs & Inconveniences of Owning a Microsoft Surface Duo
@@ -70,6 +70,13 @@ Lifewire / Emily Isaacs
 
  You can tell Microsoft put a considerable amount of thought into the Sculpt Ergonomic Keyboard’s design. From the manta ray style folds, which keep shoulders and hands at a relaxed, comfortable angle, to the detached numpad and magnetized risers for increased customization options when you want them, the Sculpt is quite the package. As with anything new, it took a period of adjustment, but we found it relatively quick thanks to the intuitive, easy-to-use design.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Made for comfort**
 
  The Sculpt is an ergonomic keyboard with a split design akin to that of a manta ray. The two halves of the keyboard sweep outwards and downwards creating an empty, raised space in the center of its swoop design. Its keys vary in size, with those nearest to the split being slightly wider than those on the outer edges of the keyboard. It’s largely made with plastic and has a bit of a clacky sound as you type. The Sculpt employs a standard layout with a fabric wrist pad at the front for extra comfort. This intuitive, split design combined with the wrist pad help your wrists, hands, and shoulders sit at a neutral, natural angle in order to[alleviate repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) that frequent typists are prone to over time.
@@ -90,15 +97,22 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
@@ -115,26 +129,19 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
@@ -189,5 +196,20 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/updated-experts-pathway-navigating-fullscreen-realms-in-premiere-pro/"><u>[Updated] Expert's Pathway Navigating Fullscreen Realms in Premiere Pro</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-mastering-android-facetime-a-step-by-step-guide/"><u>[Updated] Mastering Android FaceTime A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/a-step-by-step-framework-for-engaging-fb-giving-campaigns/"><u>A Step-by-Step Framework for Engaging FB Giving Campaigns</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/affordable-10-raspberry-pi-5-pcie-expansion-board-revolutionizing-cost-effective-high-performance-data-management/"><u>Affordable $10 Raspberry Pi 5 PCIe Expansion Board: Revolutionizing Cost-Effective, High-Performance Data Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-methods-for-managing-page-followings/"><u>Effective Methods for Managing Page Followings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-ultimate-security-with-urban-armors-durable-macbook-pro-case-an-expert-review/"><u>Experience Ultimate Security with Urban Armor's Durable MacBook Pro Case - An Expert Review</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-innovative-approaches-to-elevate-your-obs-studio-workflow/"><u>In 2024, Innovative Approaches to Elevate Your OBS Studio Workflow</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ordered-universe-discover-how-to-binge-watch-x-men-movies-correctly/"><u>Ordered Universe: Discover How to Binge-Watch X-Men Movies Correctly</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/step-into-the-realm-of-adventure-with-yakuza-like-a-dragon-critics-choice-and-gamers-delight/"><u>Step Into the Realm of Adventure with Yakuza: Like a Dragon – Critics' Choice & Gamer's Delight</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-unparalleled-value-proposition-in-smart-pet-monitoring/"><u>The Unparalleled Value Proposition in Smart Pet Monitoring</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-8-solutions-to-get-your-iphone-out-of-headphones-trouble/"><u>Top 8 Solutions to Get Your iPhone Out of 'Headphones' Trouble</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-imperfections-of-cyberpunk-2077-an-ambitious-project-falling-short/"><u>Unveiling the Imperfections of Cyberpunk 2077: An Ambitious Project Falling Short</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Motorola Defy 2? | Dr.fone</u></a></li>
+</ul></div>
 

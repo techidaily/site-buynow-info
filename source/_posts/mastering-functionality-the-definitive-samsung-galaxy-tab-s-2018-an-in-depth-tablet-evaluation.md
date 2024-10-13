@@ -1,7 +1,7 @@
 ---
 title: "Mastering Functionality: The Definitive Samsung Galaxy Tab S 2018 - An In-Depth Tablet Evaluation"
-date: 2024-10-02T19:09:49.269Z
-updated: 2024-10-07T19:03:53.446Z
+date: 2024-10-09T16:31:32.507Z
+updated: 2024-10-13T09:47:33.525Z
 categories:
   - BestProducts
 description: "This Article Describes Mastering Functionality: The Definitive Samsung Galaxy Tab S 2018 - An In-Depth Tablet Evaluation"
@@ -43,10 +43,10 @@ Lifewire / Yoona Wagener
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Amazfit GTS Smartwatch
@@ -89,16 +89,16 @@ _We purchased the Amazfit GTS_   _so our reviewer could put it to the test. Keep
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/hMe1Ur0Wtt9LDIiSfC3zvE_5G7E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_02-0b1e98c2de40486b9fea116eb28ccd3c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
 
  I was unable to test this device’s 50-meter water resistance for swimming or other aquatic workouts, but I did wear it in the shower without experiencing any issue. The manufacturer does note, however, that this wearable isn’t safe for hot showers or other water sports such as scuba diving, diving, and high-speed water sports, generally.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Comfort: Easy to wear but not as user-friendly
 
@@ -115,16 +115,10 @@ Lifewire / Yoona Wagener
 ![Amazfit GTS](https://www.lifewire.com/thmb/BCJ0gqS-gzR_dq3WSGazLqPMNCk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_05-9f844a14ab734d9291e338b6fa2519da.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
@@ -142,13 +136,6 @@ Lifewire / Yoona Wagener
  This device is also capable of tracking sleep data in a relatively extensive way, complete with sleep phases, times awake when you fell asleep and woke up. The watch never failed to track data and as far as I could tell, sleep and wake times were accurate, but reading the data was a little less straightforward.
 
 ![Amazfit GTS](https://www.lifewire.com/thmb/lrymbZEsmkXZy1YnjpGE5QutCbA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazfit_GTS_Product_04-109baf1e43444eff9789d9c02e2b2e77.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -188,6 +175,13 @@ Lifewire / Yoona Wagener
 
  Spending between $100 to $130 for a style-conscious, band-style fitness tracker from heavy hitters such as[Fitbit](https://www.lifewire.com/what-is-fitbit-4176010) and Garmin could increase the tracking benefits considerably with extras like VO2 Max and SPO2 monitoring. For a little more (or less), gaining a user-friendly layout and companion app could be worth losing the Apple Watch aesthetic this device works hard to mirror.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Amazfit GTS vs. Garmin vivosmart 4
 
  While the Amazfit GTS sort of looks like an Apple Watch, it doesn’t really come close to performing like one. The Garmin vivosmart 4 is much more in line with what the GTS delivers. For $130, this band-style tracker offers a streamlined design with a few upscale touches like metal finishings and attractive band colors, but it also analyzes much more than the GTS does. It tracks stress, VO2 max, blood oxygen saturation, and measures what Garmin calls body battery, which keeps you attuned to energy levels throughout the day.
@@ -200,24 +194,18 @@ Lifewire / Yoona Wagener
 
  The Amazfit GTS is comfortable and stylish and performs the basic fitness tracking tasks relatively well, but the confusing ecosystem diminishes the polish. If you love the look of the Apple Watch, this is a budget-friendly look-alike. But if you want a strong balance between performance and looks, the Amazfit GTS may not deliver.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Apple Watch SE](https://www.lifewire.com/apple-watch-se-review-5088223)
 * [Fitbit Sense](https://www.lifewire.com/fitbit-sense-review-5085832)
 * [Garmin Vivomove HR](https://www.lifewire.com/garmin-vivomove-hr-review-4843913)
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -250,22 +238,17 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-unlocking-creativity-seamless-integration-of-title-and-caption-overlays-on-video-clips-via-microsoft-photos/"><u>[New] Unlocking Creativity Seamless Integration of Title & Caption Overlays on Video Clips via Microsoft Photos</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-how-to-remove-black-bars-from-youtube-videos/"><u>2024 Approved How to Remove Black Bars From YouTube Videos</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-the-petsafe-automatic-feeder-and-its-impact-on-your-pets-weight-control/"><u>Comprehensive Analysis: The PetSafe Automatic Feeder and Its Impact on Your Pet's Weight Control</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-the-sturdy-long-distance-detection-capabilities-of-unidens-r3-model/"><u>Comprehensive Review: The Sturdy, Long-Distance Detection Capabilities of Uniden's R3 Model</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/from-free-to-profitable-a-video-marketing-masterclass-for-vimeo/"><u>From Free to Profitable A Video Marketing Masterclass for Vimeo</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Xiaomi Civi 3 | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-depth-review-and-step-by-step-tutorials-for-powerdirector-for-2024/"><u>In-Depth Review & Step-by-Step Tutorials for PowerDirector for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/official-hp-wireless-and-ethernet-driver-downloads-for-various-windows-versions/"><u>Official HP Wireless and Ethernet Driver Downloads for Various Windows Versions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ourlinks-ultra-mini-usb-wi-fi-nano-adaptor-for-speedier-internet-connection-reliable-and-high-performance/"><u>Ourlink's Ultra Mini USB Wi-Fi Nano Adaptor for Speedier Internet Connection – Reliable & High-Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/secure-your-smartphone-the-six-premier-antivirus-solutions-for-ios-devices/"><u>Secure Your Smartphone: The Six Premier Antivirus Solutions for iOS Devices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/size-matters-examining-differences-in-google-nest-audio-and-nest-mini/"><u>Size Matters? Examining Differences in Google Nest Audio & Nest Mini</u></a></li>
-<li><a href="https://win-dash.techidaily.com/successful-guide-updating-and-downloading-d-link-driver-software-on-windows/"><u>Successful Guide: Updating & Downloading D-Link Driver Software on Windows</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/transforming-computing-the-comprehensive-review-of-imac-equipped-with-powerful-m1-chip/"><u>Transforming Computing: The Comprehensive Review of iMac Equipped with Powerful M1 Chip</u></a></li>
-<li><a href="https://network-issues.techidaily.com/troubleshooting-absence-of-wi-fi-adapter-on-windows-11/"><u>Troubleshooting: Absence of Wi-Fi Adapter on Windows 11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ufos-unveiled-in-a-new-light-an-aminy-take/"><u>Ufos Unveiled in a New Light: An Aminy Take</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unleashing-power-on-your-driveway-a-thorough-review-of-the-remote-control-galaxy-ford-f150/"><u>Unleashing Power on Your Driveway: A Thorough Review of the Remote Control Galaxy Ford F150</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-improved-brilliance-of-the-apple-watch-series-4/"><u>Unveiling the Improved Brilliance of the Apple Watch Series 4</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-enriching-the-instagram-experience-with-background-sounds/"><u>[Updated] 2024 Approved Enriching the Instagram Experience with Background Sounds</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-rx-memory-revamp/"><u>[Updated] 2024 Approved RX Memory Revamp</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-craft-humorous-memes-with-giphy/"><u>[Updated] Craft Humorous Memes with Giphy</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-cultivate-creativity-10-inspiration-boosting-videos-for-2024/"><u>[Updated] Cultivate Creativity 10 Inspiration-Boosting Videos for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-how-to-animate-and-make-your-own-effects-for-2024/"><u>[Updated] How to Animate and Make Your Own Effects for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1byone-digital-amplified-indoor-hd-tv-antenna-review/"><u>1Byone Digital Amplified Indoor HD TV Antenna Review</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-unlocking-full-hd-on-facebook-streams/"><u>2024 Approved Unlocking Full HD on Facebook Streams</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-feast-of-mayhem-exploring-every-bite-with-an-overcooked-2-review/"><u>A Feast of Mayhem: Exploring Every Bite with an Overcooked! 2 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722715383802-amazfit-helio-ring-specs-release-timeline-and-price-breakdown-explained/"><u>Amazfit Helio Ring Specs, Release Timeline, and Price Breakdown Explained.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722805972699-hero7-black-setting-new-standards-for-professional-action-cameras/"><u>HERO7 Black: Setting New Standards for Professional Action Cameras.</u></a></li>
+<li><a href="https://video-capture.techidaily.com/high-definition-wonderfox-video-transformation-suite-ultimate-hd-editing-and-conversion-solution/"><u>High-Definition WonderFox Video Transformation Suite - Ultimate HD Editing and Conversion Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722787216906-tcls-gamechanger-the-50s425-50-roku-smart-tv-2019-in-all-its-value-and-features-revealed/"><u>TCL's Gamechanger: The 50S425 50 Roku Smart TV (2019) in All Its Value and Features, Revealed!</u></a></li>
 </ul></div>
 

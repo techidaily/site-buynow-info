@@ -1,7 +1,7 @@
 ---
 title: "Revving Through Ruins: A Motorcyclist's Review of the Zombie World in 'Days Gone'"
-date: 2024-10-06T16:55:01.160Z
-updated: 2024-10-07T17:58:19.251Z
+date: 2024-10-07T05:13:56.361Z
+updated: 2024-10-12T22:12:43.467Z
 categories:
   - BestProducts
 description: "This Article Describes Revving Through Ruins: A Motorcyclist's Review of the Zombie World in 'Days Gone'"
@@ -44,22 +44,15 @@ thumbnail: https://thmb.techidaily.com/4ba28a3dd24936be14c010b9b472cc28e6164f2dd
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
@@ -104,10 +97,10 @@ thumbnail: https://thmb.techidaily.com/4ba28a3dd24936be14c010b9b472cc28e6164f2dd
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Plenty of power for all your needs**
@@ -127,10 +120,10 @@ thumbnail: https://thmb.techidaily.com/4ba28a3dd24936be14c010b9b472cc28e6164f2dd
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A ton of value for a tiny cost**
@@ -138,6 +131,13 @@ thumbnail: https://thmb.techidaily.com/4ba28a3dd24936be14c010b9b472cc28e6164f2dd
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
@@ -186,22 +186,21 @@ thumbnail: https://thmb.techidaily.com/4ba28a3dd24936be14c010b9b472cc28e6164f2dd
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-seamless-conversion-ideal-tweeter-video-solution-providers/"><u>[New] 2024 Approved Seamless Conversion Ideal Tweeter Video Solution Providers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-incorporating-spiritual-sounds-on-cellphones/"><u>[Updated] Incorporating Spiritual Sounds on Cellphones</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-jolly-video-recorder-critique-for-2024/"><u>[Updated] Jolly Video Recorder Critique for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-teachers-handbook-building-a-successful-youtube-channel-10-must-dos/"><u>[Updated] Teachers' Handbook Building a Successful YouTube Channel – 10 Must-Dos</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-furry-friends-watcher-reviews/"><u>Affordable Furry Friends Watcher Reviews</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/beyond-firetv-exploring-the-superior-features-of-the-newly-released-chromecast-with-google-tv/"><u>Beyond FireTV - Exploring the Superior Features of the Newly Released Chromecast with Google TV</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/canons-vintage-design-up-to-date-technology-the-g9x-mark-ii/"><u>Canon's Vintage Design, Up-to-Date Technology – The G9X Mark II</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-immersive-audio-visuals-with-the-huawei-mediapad-m5-an-in-depth-review/"><u>Experience Immersive Audio-Visuals with the Huawei MediaPad M5 - An In-Depth Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-lihan-lhfm1039-wireless-transmission-device-perfect-car-stereo-companion/"><u>Expert Analysis of Lihan LHFM1039 Wireless Transmission Device: Perfect Car Stereo Companion</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-overview-the-robust-performance-of-halo-bolts-portable-chargerjump-starter-evaluated/"><u>Expert Overview: The Robust Performance of Halo Bolt's Portable Charger/Jump Starter Evaluated</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-motorola-moto-g13-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Motorola Moto G13 to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-icloud-lock-on-your-apple-iphone-12-pro-and-ipad-by-drfone-ios/"><u>In 2024, How to fix iCloud lock on your Apple iPhone 12 Pro and iPad</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-8-must-play-apps-exclusively-on-google-play-pass/"><u>Top 8 Must-Play Apps Exclusively on Google Play Pass</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-leading-runners-watches/"><u>Ultimate Guide: Leading Runner's Watches</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/understanding-and-repairing-msodll-not-found-system-problems/"><u>Understanding and Repairing 'mso.dll Not Found' System Problems</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/upgrade-your-gaming-rigs-logitech-momo-steering-wheel-drivers-and-demo-for-pc-available-now/"><u>Upgrade Your Gaming Rigs - Logitech MOMO Steering Wheel Drivers & Demo for PC Available Now!</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/windows-11-users-overcome-your-spacebar-key-dysfunction-with-these-simple-steps/"><u>Windows 11 Users: Overcome Your Spacebar Key Dysfunction with These Simple Steps</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-top-5-high-quality-android-screen-recording-solutions/"><u>[New] In 2024, Top 5 High-Quality Android Screen Recording Solutions</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-coordinating-zoom-meetings-with-iphone-android-and-computer-timelines-for-2024/"><u>[Updated] Coordinating Zoom Meetings with iPhone, Android, and Computer Timelines for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-creating-a-professional-periscope-presence-for-2024/"><u>[Updated] Creating a Professional Periscope Presence for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-from-pitch-to-peak-steps-for-effective-adobe-audition-fades/"><u>2024 Approved From Pitch to Peak Steps for Effective Adobe Audition Fades</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/craft-your-cinematic-iphone-footage-creating-and-editing-slow-movement-sequences-for-2024/"><u>Craft Your Cinematic iPhone Footage Creating & Editing Slow Movement Sequences for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-best-selling-handheld-game-systems/"><u>Expert Picks: Best Selling Handheld Game Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-affordability-the-ultimate-review-of-vuebells-economical-video-doorbell-model/"><u>Exploring Affordability: The Ultimate Review of VueBell's Economical Video Doorbell Model</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your OnePlus Ace 2V | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-animationpros-complete-guide-24/"><u>In 2024, AnimationPros Complete Guide '24</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-amazons-luxe-kindle-oasis-exceptional-aesthetics-meet-hefty-bill/"><u>In-Depth Analysis of Amazon's Luxe Kindle Oasis: Exceptional Aesthetics Meet Hefty Bill</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-alcatels-joy-tab-2-premium-performance-at-a-bargain-price-with-lte/"><u>In-Depth Review of Alcatel's Joy Tab 2 – Premium Performance at a Bargain Price with LTE</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-capabilities-of-midland-lxt500vp3-radios-features-vs-actual-performance/"><u>Reviewing the Capabilities of Midland LXT500VP3 Radios – Features Vs. Actual Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionizing-home-safety-with-smart-tech-inside-review-on-ring-battery-doorbells/"><u>Revolutionizing Home Safety with Smart Tech: Inside Review on Ring Battery Doorbells</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/tech-enthusiast-acquires-early-access-to-zen-5-powered-ryzen-ebx-7-9700x-preparing-distribution-network-in-warehouses-ahead-of-official-release/"><u>Tech Enthusiast Acquires Early Access to Zen 5-Powered Ryzen Ebx 7 9700X — Preparing Distribution Network in Warehouses Ahead of Official Release</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-best-rtf-model-a-comprehensive-review-of-the-blade-e-flite-mcx2-rc-helicopter/"><u>Unveiling the Best RTF Model: A Comprehensive Review of the Blade E-Flite mCX^2 RC Helicopter</u></a></li>
+<li><a href="https://win-dash.techidaily.com/update-your-pc-with-the-newest-msi-b35b350-tomahorse-drivers-ideal-for-windows-11-and-7-systems/"><u>Update Your PC with the Newest MSI B35ˈB350 TOMAHORSE Drivers: Ideal for Windows 11 & 7 Systems</u></a></li>
 </ul></div>
 

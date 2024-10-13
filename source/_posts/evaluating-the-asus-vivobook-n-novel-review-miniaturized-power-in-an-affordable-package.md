@@ -1,7 +1,7 @@
 ---
 title: "Evaluating the Asus Vivobook N Novel Review: Miniaturized Power in an Affordable Package"
-date: 2024-10-01T18:01:35.313Z
-updated: 2024-10-07T16:47:39.564Z
+date: 2024-10-12T09:07:14.247Z
+updated: 2024-10-13T12:18:26.625Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating the Asus Vivobook N Novel Review: Miniaturized Power in an Affordable Package"
@@ -46,6 +46,13 @@ Lifewire / Jordan Provost
 
 ![Asus RT-AC88U Gaming Router](https://www.lifewire.com/thmb/zQBwlUOVfknw2K2XN5_SYt4oLt8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4038590-1-_1_V2-0b72aeeaf52f48d1b51615e1cae8abf2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jordan Provost
 
 [View On Amazon $87](https://www.amazon.com/dp/B016EWKQAQ?tag=lifewire-onsite-prod-20&ascsubtag=4589583%7Cnf4f8bd7b054949de973244bd45c544e510%7CB016EWKQAQ) [View On Walmart $219](https://www.walmart.com/ip/103206099) [View On Asus.com](https://shop.asus.com/us/90ig01z0-ba100v-rt-ac88u.html)
@@ -81,22 +88,15 @@ Lifewire / Jordan Provost
 
 ![Asus RT-AC88U Gaming Router](https://www.lifewire.com/thmb/tJSyhJYa8-MA9hCZoZxMCn1_GoI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4038590-1_6-3b7dfd6e10f84ca0a965905f4fbceb6c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jordan Provost
 
  We connected it to our 250 Mbps Xfinity connection, and within a few minutes, after updating the firmware, we were getting phenomenal speeds with little to no fiddling.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Connectivity: A dream come true for gamers
@@ -109,6 +109,13 @@ Lifewire / Jordan Provost
 
  The router also features a[USB 3.0 port](https://www.lifewire.com/what-is-usb-3-0-2626038) , so you can connect a printer or external hard drive for network access. What’s especially cool, however, is the native Time Machine support built into the Asus RT-AC88U’s back-end, making Mac backup a breeze—something we didn’t expect from a router explicitly marketed to gamers.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Software: Kicking it old school
 
  Unlike many other wireless routers in 2018, the Asus RT-AC88U doesn’t rely on smartphone apps to manage and set-up your network. Instead, you get a pretty traditional browser-based management portal. This might be off-putting to anyone that isn’t comfortable fiddling around with complex settings, but if you want to have that extra degree of control there’s a lot you can do to make your network run how you want.
@@ -118,10 +125,10 @@ Lifewire / Jordan Provost
 ![Asus RT-AC88U Gaming Router](https://www.lifewire.com/thmb/HIJ1YoiZU5EbjoLtmqEOszPEwQc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4038590-1_3-7da5546e1b544459a0a87a7b1698cb47.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
@@ -133,13 +140,6 @@ Lifewire / Jordan Provost
  The router is a dream come true for the power users out there, and is filled to the brim with software features.
 
  But, this router does more than_just_ cater to gamers. Built-in Time Machine functionality for Macs, simple cloud storage, and Alexa integration make this router appeal to everyone in your home, no matter what kind of tech they’re into. And, IFTTT integration (if this, then that) means that this router is a perfect fit in any smart home, allowing you to set up automated programs with a variety of smart devices.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Performance: High speed, no lag
 
@@ -167,6 +167,13 @@ Lifewire / Jordan Provost
 
  For smaller households, the features won’t really justify the price — not to mention the design that makes it hard to_not_ notice. These days, devices like the $129 Google Wifi make a lot more sense for the average consumer that doesn’t need heavy-duty networking. But if you do need a heavy duty router like the Asus RT-AC88U, $299 is a small price to pay for the quality of life improvement.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Asus RT-AC88U vs. Netgear Nighthawk Pro Gaming XR500
 
  The Asus RT-AC88U isn’t the only gaming router out there, in fact, there’s been a deluge of routers focused on gaming over the last few years. And, some premium gaming routers like the Netgear Nighthawk Pro Gaming XR500 give the Asus RT-AC88U a run for its money. But at $297, Netgear’s gaming router is about the same price, and it offers a more user-friendly software solution on top of similar MU-MIMO and QoS functionality. In fact, these two routers are so close together in a performance that picking the one that’s best for you will almost entirely depend on aesthetics.
@@ -178,13 +185,6 @@ Lifewire / Jordan Provost
 **One of the best routers for gaming.**
 
  Beyond jumping to a wireless mesh system, which brings problems of its own, this router offers some of the best performance you can ask for. It’s a great choice for anyone looking to squeeze out all the potential from their broadband connection.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -224,24 +224,17 @@ Lifewire / Jordan Provost
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-spotifys-top-10-viral-songs-for-2024/"><u>[Updated] Spotify’s Top 10 Viral Songs for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-essential-youtube-strategies-compiling-10-basic-yet-engaging-ideas-for-everyone/"><u>2024 Approved Essential YouTube Strategies Compiling 10 Basic Yet Engaging Ideas for Everyone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/best-alternatives-to-makemkv-avoid-the-not-working-error-when-converting-dvds-to-mkv-on-your-mac/"><u>Best Alternatives to MakeMKV: Avoid the 'Not Working' Error When Converting DVDs to MKV on Your Mac</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-contacts-files-on-honor-magic-v2-by-fonelab-android-recover-contacts/"><u>Complete guide for recovering contacts files on Honor Magic V2.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-and-assessment-of-anker-powercoreplus-26800b-portable-charger-and-cables-set/"><u>Comprehensive Guide & Assessment of Anker PowerCore+ 26800B Portable Charger and Cables Set</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-lenovo-ideapad-asterisk-320-a-perfect-blend-of-portability-and-iconic-keyboard-experience/"><u>Comprehensive Review: Lenovo Ideapad Asterisk 320 - A Perfect Blend of Portability and Iconic Keyboard Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-style-and-sweat-a-comprehensive-look-at-the-amazfit-gts-smartwatch/"><u>Evaluating Style & Sweat: A Comprehensive Look at the Amazfit GTS Smartwatch</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-testing-the-capabilities-of-the-garmin-forerunner-265-sportswatch/"><u>Expert Review: Testing the Capabilities of the Garmin Forerunner 265 Sportswatch</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/exploring-the-asus-rog-zephyrus-g1-6-can-its-top-notch-hardware-delivery-a-smooth-gaming-journey/"><u>Exploring the Asus ROG Zephyrus G1 6: Can Its Top-Notch Hardware Delivery a Smooth Gaming Journey?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-ace-the-art-of-online-fame-trending-on-youtube/"><u>In 2024, Ace the Art of Online Fame Trending on YouTube</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-flip-your-feed-hot-tiktok-challenges-you-should-master-top-10/"><u>In 2024, Flip Your Feed! Hot TikTok Challenges You Should Master (Top 10)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/iseebell-budget-friendly-video-doorbells-features-and-review-for-less-than-50/"><u>ISeeBell Budget-Friendly Video Doorbells - Features and Review for Less Than $50</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/jabras-next-step-in-business-audio-evolve2-reviewed/"><u>Jabra's Next Step in Business Audio - Evolve2 Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/masterpiece-in-progress-exploring-cyberpunk-2077s-successes-and-faults/"><u>Masterpiece in Progress? Exploring Cyberpunk 2077'S Successes & Faults</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-travel-companion-mokos-foldable-bluetooth-keyboard-for-all-your-typing-needs/"><u>The Ultimate Travel Companion: MoKo's Foldable Bluetooth Keyboard for All Your Typing Needs</u></a></li>
-<li><a href="https://some-skills.techidaily.com/ultimate-auditory-performances-for-2024/"><u>Ultimate Auditory Performances for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unraveling-sonys-nw-ws623-aesthetic-dilemmas/"><u>Unraveling Sony's NW-WS623 Aesthetic Dilemmas</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/visual-fluidity-the-art-of-applying-face-centered-motion-blur-with-picsart/"><u>Visual Fluidity The Art of Applying Face-Centered Motion Blur with Picsart</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/windows-10-brightness-control-glitches-solutions-for-a-fixed-display/"><u>Windows 10 Brightness Control Glitches: Solutions for a Fixed Display</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-livestream-perfection-selecting-your-go-to-platform/"><u>[New] Livestream Perfection Selecting Your Go-To Platform</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-music-management-made-simple-in-inshot-for-2024/"><u>[New] Music Management Made Simple in InShot for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-perfecting-live-footage-with-fbx-recorder/"><u>[Updated] 2024 Approved Perfecting Live Footage with FBX Recorder</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-fitbit-charge-6-wearable-tracker/"><u>Comprehensive Analysis: Fitbit Charge 6 Wearable Tracker</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-realme-12-proplus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-harmonizing-audio-with-visuals-in-the-webspace/"><u>In 2024, Harmonizing Audio with Visuals in the Webspace</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-mohu-blade-antenna-analysis-innovative-look-with-effective-indoors-reception/"><u>In-Depth Mohu Blade Antenna Analysis: Innovative Look with Effective Indoors Reception</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-the-macos-shift-from-previous-versions-to-catalina/"><u>Mastering the MacOS Shift From Previous Versions to Catalina</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/seamless-video-communication-in-whatsapp-web-for-laptops-and-desktops-for-2024/"><u>Seamless Video Communication in WhatsApp Web for Laptops and Desktops for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-strengths-of-apples-pocket-sized-marvel-ipad-mini-5/"><u>Unveiling the Strengths of Apple's Pocket-Sized Marvel, iPad Mini 5</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/update-your-intel-graphics-card-on-windows-1011-easy-driver-downloads-and-setup-guide/"><u>Update Your Intel Graphics Card on Windows 10/11: Easy Driver Downloads and Setup Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/yakuza-like-a-dragon-the-ultimate-rpg-experience-you-cant-miss/"><u>Yakuza: Like a Dragon - The Ultimate RPG Experience You Can't Miss</u></a></li>
 </ul></div>
 

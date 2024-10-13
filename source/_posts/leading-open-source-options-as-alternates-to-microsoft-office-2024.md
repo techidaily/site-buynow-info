@@ -1,7 +1,7 @@
 ---
 title: Leading Open-Source Options as Alternates to Microsoft Office 2024
-date: 2024-09-11T18:07:10.754Z
-updated: 2024-09-15T17:52:22.200Z
+date: 2024-10-12T01:04:29.681Z
+updated: 2024-10-12T20:20:36.691Z
 categories:
   - BestProducts
 description: This Article Describes Leading Open-Source Options as Alternates to Microsoft Office 2024
@@ -49,6 +49,13 @@ Lifewire / Matthew S. Smith
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/iXEfhVk6SvvDJJJVMnrbl8sG6hw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Microsoft-Surface-Laptop-4-1-6dfa98797a3d4223834c350422c3cb57.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
 
 [View On Amazon $382](https://www.amazon.com/dp/B08YWX4W7G?tag=lifewire-onsite-prod-20&ascsubtag=5181480%7Cn9a1b82f25e9b40b2a6b61c30f0b23e4916%7CB08YWX4W7G) [View On Walmart $595](https://www.walmart.com/ip/Microsoft-Surface-Laptop-4-13-5-Touch-Screen-AMD-Ryzen-5-Surface-Edition-8GB-Memory-256GB-Solid-State-Drive-Latest-Model-Platinum/785353210?slfpid=3) [View On Best Buy $600](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6455189.p)
@@ -86,6 +93,13 @@ Lifewire / Matthew S. Smith
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/LKKMWXF9Y9QgcLz3uT0B5mx2h-Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-6-d4eff9347d784715b769c5bc6a8d196e.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
 
  Microsoft’s minimalist aesthetic has aged well, too. Clean, sharp lines and expanses of smooth, matte metal define the laptop, providing a luxurious yet professional look. It’s easy to forget the Surface Laptop 4, though not a budget laptop, undercuts the more luxurious pricing of ThinkPad and Dell XPS models.
@@ -103,13 +117,6 @@ Lifewire / Matthew S. Smith
  Color performance is solid but not exceptional. The Surface Laptop 4 has a standard IPS panel and lacks special features, like[Apple’s True Tone](https://www.lifewire.com/what-is-true-tone-display-4048131) or[HDR support](https://www.lifewire.com/why-hdr-on-the-ios-youtube-app-matters-5087235) , to help it stand out. The gap between the Surface Laptop 4 and superior competitors is most noticeable in movies or other high-quality streaming content. Video often looks plain or dull on the Laptop 4.
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/R0s49jnCo3YtH06-VrsuVbmKx0c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-2-2ba46ec5877c4c809b945380501eaf44.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -131,23 +138,9 @@ Lifewire / Matthew S. Smith
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/MrzPvS6-5_LUBvEOlNjt4wv1BTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-3-e45e7bbc46054a69b2065cedce12519a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Matthew S. Smith
 
  Still, the Surface Laptop 4 can handle basic gaming needs. Titles like Minecraft and Fortnite are enjoyable at modest detail settings. Newer, demanding games like Metro Exodus are technically playable, but you’ll have to set detail to low and play at a reduced resolution. Even then, you may see hiccups and stutters while playing.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Productivity: A portable multitasking powerhouse
 
@@ -161,6 +154,13 @@ Lifewire / Matthew S. Smith
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/ZfUq7KgSBkLGGlcycJhWShrQqeg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-5-cc97b158ae2a4aad85a9527ff97d0a76.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
 
  The Surface Laptop 4’s touchpad is large, measuring four and a half inches wide by three inches deep. It’s responsive but doesn’t pick up unintended input. Multi-touch gestures work extremely well, helping you get the most out of[Windows’ underrated multitasking touchpad shortcuts](https://www.lifewire.com/how-to-use-windows-10-touchpad-gestures-4587314) .
@@ -171,18 +171,18 @@ Lifewire / Matthew S. Smith
 
  The speakers are[Dolby Atmos-certified](https://www.lifewire.com/dolby-atmos-cinema-to-home-theater-1847278) and, for once, this has meaning. Movies and TV shows sound great. Dialogue is clear and crisp, yet explosions are impactful. Crisp dialogue also translates to great performance in podcasts. Ramping up volume to maximum let me listen to a podcast while moving around my house, something that normally isn’t possible with a laptop.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Network: Great Wi-Fi, but can we get LTE?
 
  The Surface Laptop 4 supports[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) and[Bluetooth 5.0](https://www.lifewire.com/bluetooth-5-4160255) . Wi-Fi performance was strong in my testing. It can exceed speeds of 800Mbps near my Wi-Fi 6 router, which is true of nearly all compatible laptops. Performance remained great at range, hitting 103Mbps in a detached office. This easily defeats the Lenovo ThinkPad X1 Titanium Yoga, which hit only 40Mbps in the same situation.
 
  4G LTE cellular data is not available. That’s a bit disappointing, as LTE is available in some Surface Pro devices and in competitors like the ThinkPad X1 Titanium Yoga and HP Spectre x360 13t. Optional LTE would be a match for the Surface Laptop 4’s productivity-first design.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Camera: An okay webcam with Windows Hello
 
@@ -196,24 +196,18 @@ Lifewire / Matthew S. Smith
 
 ![Microsoft Surface Laptop 4](https://www.lifewire.com/thmb/mOdEoB5ucAztqgsA5IjD6moCN3w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft-Surface-Laptop-4-4-2b59b6b46693409a868e88392e980df1.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Matthew S. Smith
 
  Despite that, the Surface Laptop 4’s battery life is good for the category. I saw 7-9 hours of battery life while using the Surface Laptop 4 for web browsing, writing, and basic photo editing. It can outlast the Lenovo ThinkPad X1 Titanium Yoga, a 2-in-1 that’s similar in size and performance.
 
  You can drain the battery more quickly, however. I used the laptop for an hour-long session of heavier photo editing in GIMP and chewed through about 20 percent of the battery. This is a downside of the laptop’s fast six-core processor.
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Software: Keep It Stock
 
@@ -226,6 +220,13 @@ Lifewire / Matthew S. Smith
  Microsoft’s pricing feels spot-on. It’s expensive, but not so expensive that it’s unobtainable, and you get a lot for your money. Even the base Laptop 4, which I reviewed, has an acceptable amount of storage and RAM with a fast AMD processor.
 
  This is similar to Apple’s approach with the MacBook Air; even the base model is great. Dell’s XPS 13 is a different story. It starts at $1,000, but the base model has a lackluster Intel Core i3 processor. Upgrading to the Intel Core i5 sets you back another $100.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What’s New: A small, useful upgrade
 
@@ -252,6 +253,13 @@ Lifewire / Matthew S. Smith
  **One of the best Windows laptops you can get.**
 
  Microsoft’s Surface Laptop 4 is one of the best Windows laptops available today. Its design is attractive, yet functional, and it delivers great performance for the price. The Surface Laptop 4 can’t overcome Apple’s competing MacBooks, but it’s a great pick if you want to stick with Windows.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -291,5 +299,17 @@ Lifewire / Matthew S. Smith
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-unlock-potential-androidandioss-top-free-overlay-tools-guide/"><u>[New] In 2024, Unlock Potential Android&iOS's Top Free Overlay Tools Guide</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-voice-memos-inspectors-handbook/"><u>[Updated] 2024 Approved Voice Memos Inspector's Handbook</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/insight-into-youtubes-latest-income-and-rewards-for-2024/"><u>Insight Into YouTube's Latest Income and Rewards for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-guide-to-resolve-the-google-chrome-full-blackout-dilemma/"><u>Step-By-Step Guide to Resolve the Google Chrome Full Blackout Dilemma</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-can-netgears-1200-mbps-powerline-live-up-to-its-design/"><u>Unboxing and Testing: Can Netgear's 1200 Mbps Powerline Live Up to Its Design?</u></a></li>
+<li><a href="https://fox-place.techidaily.com/unlimited-free-ios-device-management-a-superior-replacement-for-apples-itunes/"><u>Unlimited Free iOS Device Management: A Superior Replacement for Apple's iTunes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-affordable-sound-quality-a-look-at-senso-buds/"><u>Unlocking Affordable Sound Quality: A Look at Senso Buds</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unlocking-the-purpose-and-function-of-facebooks-status-emoji/"><u>Unlocking the Purpose and Function of Facebook's Status Emoji</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-benefits-of-the-garmin-venu-smartwatch-a-pioneer-in-daily-health-and-performance-tracking/"><u>Unveiling the Benefits of the Garmin Venu Smartwatch - A Pioneer in Daily Health and Performance Tracking</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-pros-and-cons-of-the-google-pixel-6-through-our-thorough-review/"><u>Unveiling the Pros and Cons of the Google Pixel 6 Through Our Thorough Review</u></a></li>
+</ul></div>
 

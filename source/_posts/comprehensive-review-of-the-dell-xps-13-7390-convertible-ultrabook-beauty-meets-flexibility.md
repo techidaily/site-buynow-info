@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Review of the Dell XPS 13 7390 Convertible Ultrabook - Beauty Meets Flexibility
-date: 2024-09-11T20:20:11.100Z
-updated: 2024-09-15T17:03:19.483Z
+date: 2024-10-11T22:14:21.205Z
+updated: 2024-10-13T03:34:41.340Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Review of the Dell XPS 13 7390 Convertible Ultrabook - Beauty Meets Flexibility
@@ -44,9 +44,23 @@ Lifewire / Andrew Hayward
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## ASUS Chromebook Flip C302CA-DHM4
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/A6HRRNfYS6KrVqW-2K3fI0NN7EI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_HeroSquare-01d50171ef9c411f82467742bfad1126.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -77,6 +91,13 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/3Q2pRvweVt3Gf6RfBaAwQ15QBag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_bottom_04-1508a99e93e94312a9477c6ec5c15022.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 ## **Design and Features: It’s flippin’ nice**
@@ -97,27 +118,20 @@ Lifewire / Andrew Hayward
 
  The Chromebook Flip’s keyboard feels great in action. The one-piece chiclet keyboard has a scissor-style key design with 1.4mm of travel, which gives it a more satisfying feel than the latest MacBooks’ keys (which have very little travel), and the keys are responsive and not especially loud in usage. It’s also brightly backlit, which isn’t always the case with Chromebooks. The touchpad below is nicely sized and wider than some we’ve seen, although not nearly as large as Apple’s luxurious trackpads of late.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: No sweat whatsoever**
 
  Setting up a Chromebook is incredibly easy. Just power it on (the button is on the left side), connect to a network, accept the terms of service and choose from any options that you’re prompted to, and then plug in your Google account info. If you do already have a Google account, then any bookmarks, Chrome extensions, and apps will automatically be added. If you don’t have a Google account, then you’ll need to sign up for one to use the Chromebook. In any case, this whole process shouldn’t take more than a matter of minutes to complete.
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/AFQh-ERthm-g0pAMcnQlyA2Rjgw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_bent_02-3dfd0720309d4d12beb5ae695a007aa1.jpg)
 
- Lifewire / Andrew Hayward
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Andrew Hayward
 
 ## **Display: Small, but strong**
 
@@ -141,13 +155,6 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Audio: Sounds fine**
 
  The tiny speaker grates on the left and right side of the Chromebook Flip don’t look too promising, but the playback quality was better than expected. Music output isn’t big and bold, but it’s pretty clear and it can get loud without getting too muddled. Video playback via YouTube and Netflix was sometimes too quiet at full volume, however.
@@ -166,13 +173,6 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/VR5Y-1tDILHowNSeA408pnLVtgg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_closed_04-bde5ec8f988c4bb49e4019f95cc47c31.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 ## **Software: It’s definitely different**
@@ -187,6 +187,13 @@ Lifewire / Andrew Hayward
 
  Luckily, the Chromebook’s reputation as an online-only device isn’t true. For example, Google Docs can be used offline, you can view and edit photos, watch locally-stored media, and play games that don’t require an online connection. It’s really not that different in approach to other PCs, but the overall feel and flow of the experience varies in some key ways.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: It feels like a steal**
 
  Here’s where the Asus Chromebook Flip really makes its biggest impact. As mentioned, it’s a capable computer for most everyday tasks, it has a very good screen, and the battery life is stellar. Best of all, it’s priced at $499, although you can find it for a little bit less (we’re seeing it around $400-450 lately). There are cheaper Chromebooks out there that skimp on features and functionality, such as skipping the convertible hinge or touch functionality, or using a lower-end processor. You can spend a lot less and still get a solid laptop.
@@ -194,19 +201,6 @@ Lifewire / Andrew Hayward
  But the Chromebook Flip offers an ideal middle ground between quality and price in the Chromebook department—and compared to rival laptops like the MacBook Air or Microsoft Surface Laptop 2, you’ll save a huge amount of money while still being able to complete a wide array of tasks.
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/NHrMPSrgOWsOuCEYg0M-STQUfsU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Air-v-Surface-Comparison-a255967a27e14762b5c2ad9c442df77f.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -223,6 +217,13 @@ Lifewire / Andrew Hayward
  **It’s an excellent, affordable laptop.**
 
  Just as the recent crop of cheap, strong mid-range phones has made many flagship smartphones seem excessive and unnecessary, the Asus Chromebook Flip C302CA does much the same for laptops. This is a seriously impressive and versatile notebook without any major deficiencies, and it’s priced at just $499—less than half the price of the cheapest Apple laptop right now.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -254,5 +255,18 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-flawless-free-android-snapmaker-for-2024/"><u>[Updated] Flawless Free Android SnapMaker for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-classic-console-charisma-best-ps1-emulation-tools-reviewed/"><u>[Updated] In 2024, Classic Console Charisma - Best PS1 Emulation Tools Reviewed</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-saving-the-best-from-fb-in-high-definition-for-2024/"><u>[Updated] Saving the Best From FB in High Definition for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-ipod-touch-7th-generation-smart-stop-gap/"><u>Exploring the iPod Touch 7Th Generation: Smart Stop-Gap</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-vivo-x90s-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Vivo X90S</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-budget-wifi-solution-in-depth-look-at-the-tp-link-archer-a9/"><u>The Best Budget WiFi Solution: In Depth Look at the TP-Link Archer A9</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ergodriven-topo-assessment-how-this-standing-mat-elevates-anti-fatigue-for-office-users/"><u>The Ergodriven Topo Assessment: How This Standing Mat Elevates Anti-Fatigue for Office Users</u></a></li>
+<li><a href="https://win-blog.techidaily.com/the-road-to-smooth-playing-navigating-past-fifa-21s-launch-glitches/"><u>The Road to Smooth Playing: Navigating Past FIFA 21'S Launch Glitches</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-15-apps-to-hack-wifi-password-on-samsung-galaxy-f14-5g-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Samsung Galaxy F14 5G</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-document-and-image-scanner-models/"><u>Top-Rated Document & Image Scanner Models</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-your-console-adventures-with-the-acclaimed-asus-vg245h-monitor/"><u>Transform Your Console Adventures with The Acclaimed Asus VG245H Monitor</u></a></li>
+</ul></div>
 

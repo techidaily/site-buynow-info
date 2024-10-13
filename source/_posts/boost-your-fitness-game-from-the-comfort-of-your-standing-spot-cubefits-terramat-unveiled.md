@@ -1,7 +1,7 @@
 ---
 title: Boost Your Fitness Game From the Comfort of Your Standing Spot - CubeFit's TerraMat Unveiled
-date: 2024-09-11T16:29:39.245Z
-updated: 2024-09-15T18:22:20.122Z
+date: 2024-10-08T07:45:57.243Z
+updated: 2024-10-13T08:15:31.415Z
 categories:
   - BestProducts
 description: This Article Describes Boost Your Fitness Game From the Comfort of Your Standing Spot - CubeFit's TerraMat Unveiled
@@ -73,18 +73,18 @@ Lifewire / Rebecca Isaacs
 
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/tSFIFAR8G-C5W7DBBLPJ5GiE3EM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_03-8842478b07bd4585ba7f1843afcd29dc.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
 
  Despite this mesh exterior, the M9 chair is incredibly sleek and modern and adds style to any modern gaming setup. This is not only because of the mesh support but the rest of the chair is upholstered in beautiful, smooth leather. The logo on the headrest stands out, but it’s not really a detriment to the overall design of the chair.
 
  At 56 x 26 x 22.75 inches (HWD), the chair has a wide seat for spreading out and comes with an optional headrest. Even the wheels are prepped for hours of gameplay and come with a locking feature to ensure stability.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Comfort: It’s all in the ergonomics
 
@@ -97,10 +97,10 @@ Lifewire / Rebecca Isaacs
 ![Mavix M9 Gaming Chair headrest ](https://www.lifewire.com/thmb/dk-8es8V-f2VzVltDiUNw0nCs2o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_02-acc7e137bc7a4b25837fbbe065ac1416.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
@@ -117,6 +117,13 @@ Lifewire / Rebecca Isaacs
 
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/WWvjEhKERcoOvm-8u1GtzfLuV7M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_05-91c5a721612e45cbbdc432ec9ab67e4b.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
 
  And even better, if you decide that a nap is in order but you’d prefer not to move, you can invoke the M9’s Extended Recline, which allows the chair to recline up to 127 degrees. If you’re feeling a nap, it’s great. Personally, using the entirety of the 127 degrees made me a little nervous, but the good news is that the degree recline is also adjustable.
@@ -126,16 +133,10 @@ Lifewire / Rebecca Isaacs
  Only want to go back a few degrees? You can adjust that thanks to the levers underneath the chair seat. This feature also helped relieve my back when I started feeling like I’d been sitting in the chair too long. It’s a great, relaxing addition.
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Price: Hits the wallet hard
@@ -145,6 +146,13 @@ Lifewire / Rebecca Isaacs
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/_eJYTViir2syGINJQq7Fxl1ofHQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_04-d42bbf02273f4d0aa7c25351b201dc2c.jpg)
 
 Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Mavix M9 vs. XChair X4 Chair
 
@@ -189,5 +197,20 @@ Lifewire / Rebecca Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/updated-unveiling-the-hidden-accessing-youtube-video-comments/"><u>[Updated] Unveiling the Hidden Accessing YouTube Video Comments</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-guide-making-your-gifs-into-stickers-via-discordwhatsapp/"><u>2024 Approved The Ultimate Guide Making Your GIFs Into Stickers via Discord/WhatsApp</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-unlock-icloud-account-without-password-on-iphone-12-pro-max-by-drfone-ios/"><u>3 Effective Ways to Unlock iCloud Account Without Password On iPhone 12 Pro Max</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/elevate-engagement-mastering-the-art-of-looped-videos-for-ig-for-2024/"><u>Elevate Engagement Mastering the Art of Looped Videos for IG for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/experience-seamless-file-retrieval-stellar-releases-redesigned-user-friendly-data-rescue-application/"><u>Experience Seamless File Retrieval: Stellar Releases Redesigned, User-Friendly Data Rescue Application</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/expert-insights-efficiently-adding-subtitles-to-vimeo-videos-for-2024/"><u>Expert Insights Efficiently Adding Subtitles to Vimeo Videos for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mastering-media-formats-a-guide-to-changing-xej-videos-into-mp4wmv-via-expression-encoder/"><u>Mastering Media Formats: A Guide to Changing XEJ Videos Into MP4/WMV via Expression Encoder</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722868583681-neo-qled-and-oled-technology-compared-know-your-choices/"><u>Neo QLED and OLED Technology Compared – Know Your Choices!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-the-blueear-bluetooth-hat-combining-style-and-sound-in-one-chic-accessory/"><u>Review of the Blueear Bluetooth Hat: Combining Style and Sound in One Chic Accessory</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionize-your-reading-habits-with-the-all-new-7th-generation-kindle-paperwhite-an-in-depth-bookworms-perspective/"><u>Revolutionize Your Reading Habits with The All-New 7Th Generation Kindle Paperwhite: An In-Depth Bookworm's Perspective</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/smart-photo-editor-by-anthropics-software-review/"><u>Smart Photo Editor by Anthropics - Software Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tcl-50s425-50-roku-smart-tv-review-201n-excelling-in-value-and-quality/"><u>TCL 50S425 50 Roku Smart TV Review (201N): Excelling in Value and Quality</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-lava-blaze-pro-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Lava Blaze Pro 5G without Him Knowing | Dr.fone</u></a></li>
+</ul></div>
 

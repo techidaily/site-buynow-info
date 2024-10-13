@@ -1,7 +1,7 @@
 ---
 title: "The Midland LXT500VP3 Reviewed: An Array of Capabilities Marred by Subpar Functionality"
-date: 2024-10-02T17:56:27.812Z
-updated: 2024-10-07T16:22:18.889Z
+date: 2024-10-07T23:53:49.757Z
+updated: 2024-10-12T20:08:22.541Z
 categories:
   - BestProducts
 description: "This Article Describes The Midland LXT500VP3 Reviewed: An Array of Capabilities Marred by Subpar Functionality"
@@ -44,6 +44,13 @@ Lifewire / Rebecca Isaacs
 
 4
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 7 Days to Die
 
 ![7 Days to Die](https://www.lifewire.com/thmb/mKaiRcg5xaWaOPRj0Ph1dRjUbSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4164252-1-e8b8c3eb31dd46e8a63e8e40a5a9d04b.jpg)
@@ -75,10 +82,10 @@ Lifewire / Rebecca Isaacs
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easy thanks to Steam**
@@ -88,13 +95,6 @@ Lifewire / Rebecca Isaacs
  One of the nicest aspects about 7 Days is that when you boot up a game, and even after, you have a plethora of options to customize gameplay. Do you want Scavenger (easiest setting) or do you want to play on the hardest settings in which the game actually tells you, “You’re one bad mother!”? Do you want the 24-hour cycle to span 30 minutes or two hours of real time? Do you want zombies to sprint at night? How many zombies do you want in your day 7 horde? These are all great options for creating unique and challenging gameplay.
 
 ![7 Days to Die](https://www.lifewire.com/thmb/Eq0YCIdbj82yj3lOCWEdZS7jX6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-4-341174c3997543728bd2b024c6e2a309.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -113,6 +113,13 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/U2XChOqkiQvFhP69V0cQ5mYcYME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-3-d19d9b4d19734cffb022d6e0db90382e.jpg)
 
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Gameplay: Could be better, but solid overall**
 
@@ -136,13 +143,6 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Graphics: Outdated, but detailed on optimal**
 
  For a game that was released in 2013 originally, the graphics could be a little better, even if you play on optimal settings. Back in the day, we played on lower settings rather than splurge on a fancy graphics card. If you play on the lower settings, it’s cringeworthy, though not as cringeworthy as the Witcher 3’s lowest settings.
@@ -150,6 +150,13 @@ Lifewire / Rebecca Isaacs
  7 Days has a decent 3D graphics system that they’ve definitely improved as the alpha updates have been released. As a consequence, the minimum requirements have also increased. Those who play on minimum settings may want to take note of that. While we hope they’ll improve these over the next alpha updates, we are taking the graphics as they are at the time of this review, and right now, while they’re detailed on optimal settings, they could be better.
 
  Because the graphics are a rather mixed bag, the frames per second (fps) can vary dramatically. We experienced drops as low as 18 fps when playing. When surrounded by a horde, that can cost you your life.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Platform: It’s complicated**
 
@@ -160,6 +167,13 @@ Lifewire / Rebecca Isaacs
 ## **Price: Average for an alpha game**
 
  At around $25, 7 Days isn’t the most expensive zombie game on the market. However, it is the most expensive alpha zombie game out there. Because you can purchase it on[Steam](https://www.lifewire.com/what-is-steam-4177380) or Humble Bumble, we recommend waiting for a Steam sale and getting it for a discount, especially since it’s still in progress. This way, if you decide you don’t like it in the future, you aren’t out the full price.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Other sandbox shooters**
 
@@ -173,25 +187,11 @@ Lifewire / Rebecca Isaacs
 
  Despite flaws in graphics, there’s a lot to love about 7 Days to Die. The challenging skill tree system and dangerous intelligent zombies add an element that’s not typically found in zombie shooters. If you want a game to commit to for hours on end, building bases and exploring dungeon-like homes while slaying zombie cheerleaders, then 7 Days to Die could be a fun way to ease some stress after a long day of work.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * The Last of Us Remastered
 * [Days Gone](https://www.lifewire.com/days-gone-review-4778364)
 * [Dying Light](https://www.lifewire.com/dying-light-review-4778324)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -220,20 +220,22 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-inside-obs-alternatives-for-professional-streamers/"><u>[New] Inside OBS Alternatives for Professional Streamers</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-become-a-video-quality-guru-with-vce-22-knowledge/"><u>[Updated] In 2024, Become a Video Quality Guru with VCE 2.2 Knowledge</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-instant-audience-expansion-with-these-channel-upgrades-for-2024/"><u>[Updated] Instant Audience Expansion with These Channel Upgrades for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/a-quick-primer-on-langchain-llm-tech/"><u>A Quick Primer on LangChain LLM Tech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultivating-global-understanding-pathways-to-successful-communication/"><u>Cultivating Global Understanding: Pathways to Successful Communication</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-americas-best-value-singing-rooms-karaoke-nights-for-150-or-less/"><u>Discover America's Best Value Singing Rooms: Karaoke Nights For $150 or Less</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/economical-studiolightkit-unveiled/"><u>Economical StudioLightkit Unveiled</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/explore-the-syma-s111g-remote-controlled-copter-great-deals-and-indoor-adventures/"><u>Explore the Syma S111G Remote Controlled Copter: Great Deals and Indoor Adventures</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-enhanced-features-of-wasteland-2-directors-cut-a-gripping-tbrpg-evaluation/"><u>Exploring the Enhanced Features of Wasteland 2 Director’s Cut - A Gripping TBRPG Evaluation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-pinnacle-of-innovation-an-insightful-review-of-the-iphone-xs-max-by-apple/"><u>Exploring the Pinnacle of Innovation: An Insightful Review of the iPhone XS Max by Apple</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/fitbit-charge-3-a-reliable-tracker-or-overrated-gadget-find-out-in-this-comprehensive-review/"><u>Fitbit Charge 3: A Reliable Tracker or Overrated Gadget? Find Out in This Comprehensive Review</u></a></li>
-<li><a href="https://media-tips.techidaily.com/gratis-herunterladbare-dvd-player-programme-fur-windows-11-und-macos-beste-optionen-finden/"><u>Gratis Herunterladbare DVD-Player-Programme Für Windows 11 Und macOS – Beste Optionen Finden</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-affordable-quality-stack-up-in-the-logiteche-c615-webcam-review/"><u>How Affordable Quality Stack Up in the Logiteche C615 Webcam Review</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupted-pdf-v20-file-when-manual-method-fails-stellar-by-stellar-guide/"><u>How to repair corrupted PDF v2.0 file when manual method fails | Stellar</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-nokia-c12-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Nokia C12 Location | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ssential-video-editing-apps-for-youtube-creators-for-2024/"><u>[New] Essential Video Editing Apps for YouTube Creators for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-echo-of-past-interactions-unraveling-your-facebook-history/"><u>[New] The Echo of Past Interactions Unraveling Your Facebook History</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/aerial-device-typologies/"><u>Aerial Device Typologies</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-beginners-guide-to-the-syma-x5c-remotely-piloted-quadcopter/"><u>Affordable Beginner's Guide to the SYMA X5C Remotely Piloted Quadcopter</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-entertainment-comprehensive-review-of-the-75-inch-caixun-4k-smart-tv/"><u>Affordable Entertainment: Comprehensive Review of the 75-Inch Caixun 4K Smart TV</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/award-winning-connectivity-in-depth-analysis-of-the-open-source-linksys-wrt3200acm-router/"><u>Award-Winning Connectivity: In-Depth Analysis of the Open Source Linksys WRT3200ACM Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/battery-powered-wireless-nest-doorbell-a-comprehensive-evaluation/"><u>Battery-Powered Wireless Nest Doorbell: A Comprehensive Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bdr-xs06-blu-ray-burner-unveiled-a-comprehensive-guide-to-its-mobility-and-efficiency/"><u>BDR-XS06 Blu-Ray Burner Unveiled: A Comprehensive Guide to Its Mobility & Efficiency</u></a></li>
+<li><a href="https://win-able.techidaily.com/beat-launch-errors-in-division-2-with-these-proven-techniques/"><u>Beat Launch Errors in Division 2 with These Proven Techniques</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/elevate-your-content-game-with-extended-instagram-videos-for-2024/"><u>Elevate Your Content Game with Extended Instagram Videos for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/experience-uninterrupted-gaming-with-our-fixed-guide-on-life-is-strange-true-colors-crash-problems/"><u>Experience Uninterrupted Gaming with Our Fixed Guide on Life Is Strange: True Colors Crash Problems</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-an-airtag-from-your-apple-id-account-from-iphone-15-pro-max-by-drfone-ios/"><u>In 2024, How to Remove an AirTag from Your Apple ID Account From iPhone 15 Pro Max?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-precision-in-memory-keeping-organizing-photos-on-iphone-and-uploading-to-icloud/"><u>In 2024, Precision in Memory Keeping Organizing Photos on iPhone and Uploading to iCloud</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-premier-collection-11-complimentary-mobile-audio-modification-tools-for-both-ios-and-android/"><u>In 2024, Premier Collection 11 Complimentary Mobile Audio Modification Tools for Both iOS and Android</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-differences-in-depth-analysis-of-ipad-versus-ipad-air/"><u>Unveiling Differences: In-Depth Analysis of iPad Versus iPad Air</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/user-guide-to-the-cost-effective-amazonbasics-6-sheets-cross-cut-destroyer/"><u>User Guide to the Cost-Effective AmazonBasics 6-Sheets Cross Cut Destroyer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/versatile-cameras-at-affordable-prices-fz80-example/"><u>Versatile Cameras at Affordable Prices - FZ80 Example</u></a></li>
 </ul></div>
 

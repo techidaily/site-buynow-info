@@ -1,7 +1,7 @@
 ---
 title: "Functionality at Its Best: Unboxing the Acer XFA240 Monitor Review"
-date: 2024-10-03T17:40:08.371Z
-updated: 2024-10-07T17:57:57.113Z
+date: 2024-10-08T07:49:58.978Z
+updated: 2024-10-13T01:39:39.605Z
 categories:
   - BestProducts
 description: "This Article Describes Functionality at Its Best: Unboxing the Acer XFA240 Monitor Review"
@@ -76,10 +76,10 @@ Lifewire / Jeremy Laukkonen
  This console is remarkably compact and has a surprisingly low price point. Gamers looking for a[4K UHD in HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) experience will need to pay a premium for the Series X, but the Xbox Series S offers an enticing alternative if you’re looking to save some money or haven’t yet made the jump to 4K.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Sleek and compact**
@@ -93,13 +93,6 @@ Lifewire / Jeremy Laukkonen
  The overall form factor of the Series S is similar to the Xbox One S, but the Series S lacks an optical drive and includes a massive circular vent on one side. This striking design choice has drawn comparisons to a speaker and a washing machine. It also bears a passing resemblance to Microsoft’s[adaptive controller](https://www.lifewire.com/what-is-the-xbox-adaptive-controller-4707753) , which is boxy, white, and features two large black circular pads. This aesthetic might not be for everyone, but I like how it stands next to my television.
 
  Aside from the bold vent grill, the Series S doesn’t break any new ground regarding design choices. It has sturdy rubber feet on two sides, so you can lay it flat or stand it up on end, as has become more or less standard with home consoles. It feels pretty sturdy in both positions.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Easier than ever before**
 
@@ -133,6 +126,13 @@ Lifewire / Jeremy Laukkonen
 
  Load times were negligible in each game I played, which I expected from a super-fast NVME SSD storage system. Some games had more noticeable load times than others, but not enough to disrupt gameplay.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Games: Microsoft still has an exclusivity problem**
 
  You won't have any shortage of games to play on the Xbox Series S, especially if you're a[Game Pass](https://www.lifewire.com/xbox-game-pass-4178809) subscriber. I predicted that the Series S would be the ultimate Game Pass machine at release, and that prediction has borne fruit in my home, at least.
@@ -163,24 +163,18 @@ Lifewire / Jeremy Laukkonen
 
  So if you go with an external USB drive, you'll only be able to play Xbox One, Xbox 360, and original Xbox games stored on it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Internet Connectivity: Fast when wired, but Wi-Fi is a mixed bag**
 
  With all those massive games and the fact that the Series S is a digital-only console, you will spend a lot of time downloading. The Series S has built-in Wi-Fi and an Ethernet port, so you have options, but a wired connection is the way to go here.
 
 ![Xbox Series S](https://www.lifewire.com/thmb/_GSxQvNgtJMhoyNl62qlg671Qvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2-25991056c5c2486695923f7c1b61c7b5.JPG)
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -195,13 +189,6 @@ Lifewire / Jeremy Laukkonen
  Microsoft isn’t looking to rock the boat with the Xbox Series X|S in terms of the user interface. If you’ve used an Xbox One, you’ll find the Xbox Series X|S user interface strangely familiar. The dashboard looks almost the same, and the guide functions as expected. There are a few upgrades and changes here and there, but this is nothing like the massive change between the Xbox 360 dashboard and the Xbox One dashboard.
 
  An overhaul of the dashboard is currently in the works, and we expect it to arrive in 2023.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Controller: Iteration more than innovation**
 
@@ -221,6 +208,13 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Jaw-droppingly low**
 
  Pardon me for burying the lede, but the price of the Xbox Series S is the actual headline here. The Series S has an astoundingly low MSRP of just $299\. Additionally, you can buy one by paying just $24.99 per month for two years, including access to Game Pass Ultimate.
@@ -230,13 +224,6 @@ Lifewire / Jeremy Laukkonen
  One nice thing about the Xbox Series X|S is that when you buy a new console, you typically have a bunch of add-ons to worry about that drive the price up. For example, you might have to purchase several controllers to support multiplayer, which adds up to $60 or more per controller. Since the Series S supports most Xbox One peripherals, owners don’t have to worry about the added expense of buying extra controllers.
 
  One expense you may need to budget is a high-speed USB 3.1 drive. The console is perfectly usable without an external drive, but expect to uninstall games regularly to make more space if you limit yourself to the onboard storage.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Xbox Series S vs. PS5 Digital**
 
@@ -253,10 +240,10 @@ Lifewire / Jeremy Laukkonen
  The Xbox Series S might be a bit of a step back from the Xbox One X in performance, but the fact is that it’s a next-gen console that plays next-gen games with some impressive hardware and an unreal price tag. Gamers in search of the best graphics possible will want to look at the Xbox Series X instead, but gamers who haven’t yet made the 4K plunge, parents in need of an affordable console for their kids, or anyone looking to save money will all find something to like here.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -268,6 +255,13 @@ Lifewire / Jeremy Laukkonen
 [Nintendo Switch Review](https://www.lifewire.com/nintendo-switch-review-4707563)
 
 [Nintendo Switch Lite Review](https://www.lifewire.com/nintendo-switch-lite-review-4788015)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -301,21 +295,24 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-comprehensive-list-of-non-udemy-e-learning-success-stories/"><u>[New] In 2024, Comprehensive List of Non-Udemy E-Learning Success Stories</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-dynamic-palette-skills-in-color-adjustment-for-2024/"><u>[Updated] Dynamic Palette Skills in Color Adjustment for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-imagemagick-studio-walkthrough-for-2024/"><u>[Updated] ImageMagick Studio Walkthrough for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-convert-srt-free-top-10-web-subtitle-services/"><u>2024 Approved Convert SRT Free Top 10 Web Subtitle Services</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-infinix-smart-7-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Infinix Smart 7? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/common-drain-amplifier-also-known-as-a-source-follower/"><u>Common Drain Amplifier (Also Known as a Source Follower)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-recommendations-top-rated-wireless-gadgets-for-savvy-travelers/"><u>Expert Recommendations: Top-Rated Wireless Gadgets for Savvy Travelers</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Motorola Moto G23? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/masterpiece-creation-with-the-huion-inspiroy-g10-t-series-tablet-a-comprehensive-examination-of-its-unmatched-performance-and-durable-design/"><u>Masterpiece Creation with the Huion Inspiroy G10 T-Series Tablet - A Comprehensive Examination of Its Unmatched Performance and Durable Design</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/must-have-iphone-extras-that-will-transform-your-user-experience/"><u>Must-Have iPhone Extras That Will Transform Your User Experience</u></a></li>
-<li><a href="https://network-issues.techidaily.com/nvidia-drivers-crashed-now-operational/"><u>Nvidia Drivers Crashed, Now Operational</u></a></li>
-<li><a href="https://common-error.techidaily.com/reboot-required-for-next-game-start/"><u>Reboot Required for Next Game Start</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/rediscovering-elegance-in-functionality-with-samsung-galaxy-s21-a-strategic-retreat/"><u>Rediscovering Elegance in Functionality with Samsung Galaxy S21: A Strategic Retreat?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sony-pulse-3d-wireless-headset-review/"><u>Sony Pulse 3D Wireless Headset Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-travellers-dream-a-comprehensive-review-of-lg-gram-17s-stellar-performance-and-weightless-design/"><u>The Traveller's Dream: A Comprehensive Review of LG Gram 17’S Stellar Performance and Weightless Design</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-from-iphone-xs-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives From iPhone XS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-can-youtube-sub4sub-really-enhance-viewing-experience-for-2024/"><u>[New] Can YouTube Sub4Sub Really Enhance Viewing Experience for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-best-hd-visual-recorders-available-for-2024/"><u>[Updated] Best HD Visual Recorders Available for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/comcast-xfinity-vs-tivo-which-dvr-reigns-supreme-for-2024/"><u>Comcast Xfinity vs TiVo Which DVR Reigns Supreme for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/decoding-the-mysteries-of-vlcs-hidden-tools/"><u>Decoding the Mysteries of VLC's Hidden Tools</u></a></li>
+<li><a href="https://win11.techidaily.com/exclude-non-critical-windows-suggestions-and-tips/"><u>Exclude Non-Critical Windows Suggestions and Tips</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/how-does-handbrake-eliminate-drm-on-dvds-step-by-step-removal-guide/"><u>How Does Handbrake Eliminate DRM on DVDs? Step-by-Step Removal Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Oppo K11 5G | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-from-iphone-13-mini-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock From iPhone 13 mini?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/install-realtek-card-reader-drivers-fast-optimal-compatibility-with-windows-11/"><u>Install RealTek Card Reader Drivers Fast: Optimal Compatibility with Windows 11!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-your-outdoor-entertainment-the-ultimate-ion-audio-tailgater-plus-review-with-bass-boost-feature/"><u>Maximizing Your Outdoor Entertainment: The Ultimate Ion Audio Tailgater Plus Review with Bass Boost Feature</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/minecraft-skins-reimagined-an-expert-review-of-the-enchanting-campfire-tales-collection/"><u>Minecraft Skins Reimagined: An Expert Review of the Enchanting Campfire Tales Collection</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigate-the-internet-with-ease-using-the-cost-effective-lenovo-tab-m1-0-hd-2020-a-detailed-review/"><u>Navigate the Internet with Ease Using the Cost-Effective Lenovo Tab M1 0 HD (2020) - A Detailed Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nickwatch-launches-across-the-united-states-amidst-exciting-kids-choice-event/"><u>NickWatch Launches Across the United States Amidst Exciting Kids' Choice Event</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-sealocs-55-4k-outdoor-television-perfect-for-coastal-living/"><u>Review of Sealoc's 55 4K Outdoor Television - Perfect for Coastal Living!</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegram-gains-momentum-when-facebook-disappears-for-hours/"><u>Telegram Gains Momentum When Facebook Disappears for Hours</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-acer-xfa240-examined-functionality-forges-ahead-of-form/"><u>The Acer XFA240 Examined: Functionality Forges Ahead of Form</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-comprehensive-breakdown-of-samsung-gear-s3-frontiers-rich-array-of-smartwatch-capabilities/"><u>The Comprehensive Breakdown of Samsung Gear S3 Frontier's Rich Array of Smartwatch Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-keyboard-support-pads-the-ultimate-list/"><u>Top-Rated Keyboard Support Pads - The Ultimate List</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unexpected-insights-on-the-universe-from-an-analytical-mind-aminys-review/"><u>Unexpected Insights on the Universe From an Analytical Mind - Aminy's Review</u></a></li>
 </ul></div>
 

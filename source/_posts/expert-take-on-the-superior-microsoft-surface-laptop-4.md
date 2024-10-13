@@ -1,7 +1,7 @@
 ---
 title: Expert Take on the Superior Microsoft Surface Laptop 4
-date: 2024-09-09T17:32:39.316Z
-updated: 2024-09-15T18:21:20.028Z
+date: 2024-10-09T19:17:21.234Z
+updated: 2024-10-13T05:22:30.768Z
 categories:
   - BestProducts
 description: This Article Describes Expert Take on the Superior Microsoft Surface Laptop 4
@@ -70,6 +70,13 @@ Lifewire / Emily Isaacs
 
  You can tell Microsoft put a considerable amount of thought into the Sculpt Ergonomic Keyboard’s design. From the manta ray style folds, which keep shoulders and hands at a relaxed, comfortable angle, to the detached numpad and magnetized risers for increased customization options when you want them, the Sculpt is quite the package. As with anything new, it took a period of adjustment, but we found it relatively quick thanks to the intuitive, easy-to-use design.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Made for comfort**
 
  The Sculpt is an ergonomic keyboard with a split design akin to that of a manta ray. The two halves of the keyboard sweep outwards and downwards creating an empty, raised space in the center of its swoop design. Its keys vary in size, with those nearest to the split being slightly wider than those on the outer edges of the keyboard. It’s largely made with plastic and has a bit of a clacky sound as you type. The Sculpt employs a standard layout with a fabric wrist pad at the front for extra comfort. This intuitive, split design combined with the wrist pad help your wrists, hands, and shoulders sit at a neutral, natural angle in order to[alleviate repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) that frequent typists are prone to over time.
@@ -85,10 +92,10 @@ Lifewire / Emily Isaacs
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Batteries required**
@@ -117,6 +124,13 @@ Lifewire / Emily Isaacs
 
  Lifewire / Emily Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
  The Sculpt’s main competition is the Microsoft Surface Ergonomic Keyboard. It’s a split-style ergonomic keyboard that connects wirelessly to a PC. Instead of using plastic materials, the Surface has a higher quality build that is not only more comfortable but slightly more sound-absorbent as well. And, better yet, the Surface uses the fan-favorite Alcantara fabric, an Italian material with a suede-like feel to it, as part of its wrist pad which makes it incredibly comfortable. Its numpad is attached, however, and it doesn’t include a magnetic riser. If you prefer your wrist sitting at a raised, more neutral angle, or if you like the idea of a detached numpad, the Sculpt is the clear winner here.
@@ -128,13 +142,6 @@ Lifewire / Emily Isaacs
 [Microsoft Surface Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-surface-ergonomic-keyboard-review-4780282)
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -149,10 +156,10 @@ Lifewire / Emily Isaacs
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -183,5 +190,24 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-mastering-rapid-playback-in-spotify-safe-practices-revealed/"><u>[Updated] In 2024, Mastering Rapid Playback in Spotify Safe Practices Revealed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-achieve-a-millennium-of-subscriber-milestones/"><u>2024 Approved Achieve a Millennium of Subscriber Milestones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-omnicharge-omni-20-your-ultimate-compact-mobile-charger/"><u>Comprehensive Analysis of the Omnicharge Omni 20 - Your Ultimate Compact Mobile Charger</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-the-aphaca-bt69-top-rated-bluetooth-car-fm-transmitter/"><u>Comprehensive Guide to the Aphaca BT69 - Top Rated Bluetooth Car FM Transmitter</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-the-performance-of-12-megapixel-docooler-usb-20-expert-insights-and-truths/"><u>Decoding the Performance of 12 Megapixel Docooler USB 2.0: Expert Insights and Truths</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-finest-websites-selling-modern-televisions/"><u>Discover the Finest Websites Selling Modern Televisions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevating-ancs-marshall-aesthetics-and-rhythms-enhanced/"><u>Elevating ANC's Marshall - Aesthetics & Rhythms Enhanced</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-applecareplus-are-the-advantages-enough-to-justify-it/"><u>Evaluating AppleCare+ - Are The Advantages Enough to Justify It?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expanding-your-nes-classic-library-a-guide-to-adding-new-titles/"><u>Expanding Your NES Classic Library: A Guide to Adding New Titles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-unmatched-reliability-the-upgraded-nighthawk-x6s-wireless-range-extender-by-netgear/"><u>Experience Unmatched Reliability - The Upgraded Nighthawk X6S Wireless Range Extender by Netgear</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-12-pro-to-other-iphone-15-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 12 Pro To Other iPhone 15 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-htc-u23-pro-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from HTC U23 Pro Devices</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-zte-blade-a73-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock ZTE Blade A73 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/latest-msi-bluetooth-drivers-compatible-with-windows-11-and-windows-10-download-now/"><u>Latest MSI Bluetooth Drivers Compatible with Windows 11 & Windows 10 - Download Now</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/quick-guide-youtube-soundtracks-to-mp3-for-macos-2shift/"><u>Quick Guide YouTube Soundtracks to MP3 for MacOS 2Shift</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/what-is-a-watermark-how-to-watermark-your-facebook-photosvideos/"><u>What Is a Watermark? How to Watermark Your Facebook Photos/Videos</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Elevate Your Digital Sketches with the XP-Pen Artist 16 Pro: An In-Depth Analysis"
-date: 2024-09-09T17:08:59.877Z
-updated: 2024-09-15T16:58:54.810Z
+date: 2024-10-07T08:20:34.597Z
+updated: 2024-10-13T04:37:55.226Z
 categories:
   - BestProducts
 description: "This Article Describes Elevate Your Digital Sketches with the XP-Pen Artist 16 Pro: An In-Depth Analysis"
@@ -68,6 +68,13 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer C80 is an affordable[long range router](https://www.lifewire.com/best-long-range-routers-4122554) that should be ideal for medium-sized homes. With 3x3[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , parental controls, and remote control using TP-Link’s Tether app, the Archer C80 has a few admirable features for a router under $100, but it also lacks some of the things we’ve come to expect in a router in this price range (like smart assistant compatibility and no USB port). I tested the TP-Link Archer C80 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment when compared to other budget routers on the market.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Basic, but effective**
 
  The Archer C80 is an exceptionally small router, with a body that measures only 4.6 inches tall, 8.5 inches wide, and 1.26 inches in depth. Since its body is smaller than a paperback book, the router can sit inconspicuously on a table or desk. It also has two keyhole mounts on the back for mounting on a wall.
@@ -75,6 +82,13 @@ Lifewire / Erika Rawes
  The matte black color scheme allows it to blend in with other devices, so you’ll barely notice it on a desk or workstation. The surface is textured, with recesses to hide the venting. The texturing is both a blessing and a curse because it causes the C80 to collect a little extra dust, but it also hides fingerprints and smudges.
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/Ep4Dk2l5q44AgM0S3cs9My3AE3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_03-a367c45b39474785856cb986e82c88dc.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -100,26 +114,33 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: Even better than advertised**
 
  TP-Link advertises the C80 as a router for three-bedroom homes. However, that estimate understates the router’s range capabilities. My home is a two-story, 3,000 square-foot residence with five-bedrooms, and I was able to maintain a stable Wi-Fi connection in every corner. Every closet, bathroom, and bedroom got a steady signal, and I experienced no dead zones whatsoever. Even in the garage, front yard, and backyard, the signal remained strong. It was only when I attempted to use multiple gaming and streaming devices at one time that I experienced any sort of lag.
 
  Every closet, bathroom, and bedroom maintained a signal, and I experienced no dead zones whatsoever.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: TP-Link Tether app**
 
@@ -130,13 +151,6 @@ Lifewire / Erika Rawes
  If you want to control more advanced features, like NAT forwarding, DHCP servers, and IPv6, you’ll need to use the web management tool. The web management tool also provides more extensive parental control features, letting you filter out content by keywords (instead of just blocking websites). The web tool has a user-friendly interface, but it’s not as convenient as using the Tether app.
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/K7t4mxXXwGR4rJTa20ITT7J74sk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_Tether_App_02-e29468aacf8f426981080a8914426619.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -155,16 +169,10 @@ Lifewire / Erika Rawes
  Even though it lacks a USB port, the Archer C80 puts out impressive speeds over a long range in homes with light to medium networking capacity. For homes that have several people streaming, gaming, and working on cloud applications, they’ll want something more high octane.
 
 <!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -200,5 +208,21 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-affordable-youtube-intro-designs-and-templates-for-2024/"><u>[New] Affordable YouTube Intro Designs and Templates for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-sharpening-your-zoom-images-for-professional-conferencing/"><u>[New] In 2024, Sharpening Your Zoom Images for Professional Conferencing</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-transformative-pfps-that-define-your-tiktok-identity-for-2024/"><u>[New] Transformative PFPs that Define Your TikTok Identity for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-next-level-gaming-premium-vr-players-reviewed/"><u>[Updated] Next-Level Gaming Premium VR Players Reviewed</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-combine-and-rotate-the-ultimate-guide-to-multimedia-editing-android/"><u>2024 Approved Combine & Rotate The Ultimate Guide to Multimedia Editing (Android)</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/embracing-the-night-pre-pro-fades-for-2024/"><u>Embracing the Night Pre-Pro Fades for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/imac-m1-analysis-how-apple-redefines-desktop-computing-experience/"><u>IMac M1 Analysis: How Apple Redefines Desktop Computing Experience</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-samsung-galaxy-s23-ultra-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Samsung Galaxy S23 Ultra Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://extra-support.techidaily.com/laughter-lab-free-comic-creation-at-the-gateway-for-2024/"><u>Laughter Lab Free Comic Creation at the Gateway for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/simplifying-mornings-detailed-review-of-the-essential-philips-hf3505-light-awakening-alarm-clock/"><u>Simplifying Mornings: Detailed Review of the Essential Philips HF3505 Light Awakening Alarm Clock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-guide-to-choosing-a-first-mobile-device-spotlight-on-nokia-31/"><u>The Definitive Guide to Choosing a First Mobile Device - Spotlight on Nokia 3.1</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-midland-lxt500vp3-reviewed-an-array-of-capabilities-marred-by-subpar-functionality/"><u>The Midland LXT500VP3 Reviewed: An Array of Capabilities Marred by Subpar Functionality</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-the-tape-youtube-video-rotation-techniques-unveiled-for-2024/"><u>Twisting the Tape YouTube Video Rotation Techniques Unveiled for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/weighing-the-drawbacks-and-benefits-of-new-windows-versions/"><u>Weighing the Drawbacks and Benefits of New Windows Versions</u></a></li>
+</ul></div>
 

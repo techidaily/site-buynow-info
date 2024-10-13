@@ -1,7 +1,7 @@
 ---
 title: Expert Analysis of the Battery Version Google Wireless Nest Doorbells
-date: 2024-09-11T20:37:23.200Z
-updated: 2024-09-15T17:21:53.569Z
+date: 2024-10-08T09:17:12.357Z
+updated: 2024-10-13T05:58:10.416Z
 categories:
   - BestProducts
 description: This Article Describes Expert Analysis of the Battery Version Google Wireless Nest Doorbells
@@ -50,6 +50,19 @@ Lifewire / Emily Isaacs
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/R-TJH8gjH_22LNpYu9lLA2lDwyg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_HeroSquare-bca4a6a05ceb40108462ddaf4575d3ed.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Emily Isaacs
 
 [View On Amazon $78](https://www.amazon.com/Fellowes-Microban-Split-Design-Keyboard/dp/B0002CE0XO?tag=lifewire-onsite-prod-20&ascsubtag=4780294%7Cn668ce44e90054ecb91b1dbd3aca2275805%7CB0002CE0XO) [View On Walmart $78](https://www.walmart.com/ip/Fellowes-FEL98915-Split-Design-Ergonomic-Keyboard-with-Microban-1-Black/10363789) [View On Staples](https://www.staples.com/Fellowes-98915-Microban-Split-Design-Corded-Keyboard/product%5F806284)
@@ -71,6 +84,13 @@ Lifewire / Emily Isaacs
 
  The Fellowes Microban Split Design Wired Keyboard is one of several Fellowes’ products geared towards businesses, thanks to its comfortable, ergonomic design and budget-friendly pricing. The inclusion of Microban antimicrobial protection technology, designed to prolong the life of your computer hardware by preventing damaging microbes from building up over time and causing deterioration, is an added bonus for the price. We tested this keyboard for over a week so read on to see what we discovered.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Cleaner than the rest**
 
  Ergonomic keyboards are designed to encourage natural, neutral movements that put less strain on wrists and shoulders,[preventing repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) over time. This is especially important for people who spend large portions of their day in a home or office setting tethered to their computer.
@@ -87,13 +107,6 @@ Lifewire / Emily Isaacs
 
  Unlike competitor models which often use a mix of fabric, plastics, and in some instances, metals, the entirety of this keyboard is plastic—even down to the[wrist pad](https://www.lifewire.com/best-keyboard-wrist-rests-4172684) . While we did wish that the wrist pad was made of a more comfortable material, it wasn’t uncomfortable during use. Plus, a different material would likely impact the keyboard’s longevity, since the Microban antimicrobial coating needs to be put on an acrylic, non-porous surface in order to protect against common bacteria, yeasts, molds, and fungi.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Plug and play**
 
  The keyboard doesn’t arrive with much. It comes in a mid-size box with the keyboard itself and an accessory pamphlet that addresses some frequently asked questions regarding Microban technology. Setting up is quite easy. It’s a plug and play device, which means that when the keyboard is connected to the computer, the computer will recognize the device is there and you can begin using it immediately.
@@ -106,13 +119,6 @@ Lifewire / Emily Isaacs
 
  The Fellowes features seven hotkeys for multimedia playback. These keys are located along the top of the keyboard and offer such functionality as mute, volume up, volume down, sleep, email, search, and one-touch internet access. We were disappointed that it didn’t include hotkeys for pausing, skipping forward, or skipping backward in multimedia.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Connectivity: A wired connection for reliability**
 
  The Fellowes connects to a PC via a USB cord. We couldn’t help but appreciate the simplicity of this design choice, especially as more and more companies are looking for ways to cut cords. Cutting down on cables is great when it makes sense, but the corded connection here allows for a dependable product, since you never have to worry about a low battery, and also means that the keyboard is more reliable for[faster typists](https://www.lifewire.com/typing-speed-tests-1356663) . It’s equipped with a 16-character buffer, which means that it can hold onto that many typed characters before they’re processed. This is useful if you type faster than conventional keyboards can keep up with, making it less likely for you to lose a stroke.
@@ -120,10 +126,10 @@ Lifewire / Emily Isaacs
  It’s equipped with a 16-character buffer, which means that it can hold onto that many typed characters before they’re processed.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A budget-friendly ergonomic keyboard**
@@ -154,6 +160,13 @@ Lifewire / Emily Isaacs
 
  The Fellowes Microban Split Design Wired Keyboard is a good, albeit bulky, ergonomic keyboard designed to last. Its antimicrobial protection not only keeps germs, fungi, and bacteria at bay, but ensures the keyboard won’t deteriorate over time. While it may not be our first pick for home use, it’s a great choice if you’re on a budget or are an office working facing down cold and flu season.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Microban Split Design Keyboard
@@ -179,5 +192,19 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-daily-vlogging-ideas-what-to-talk-about-while-vlogging/"><u>[New] Daily Vlogging Ideas What to Talk About While Vlogging?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-laugh-loom-robotic-deadlines/"><u>[Updated] Laugh Loom Robotic Deadlines</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-the-ultimate-guide-obs-streams-to-facebook-success-for-2024/"><u>[Updated] The Ultimate Guide OBS Streams to Facebook Success for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-user-friendly-steps-for-storing-google-voice-conversations/"><u>[Updated] User-Friendly Steps for Storing Google Voice Conversations</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-from-conceptualization-to-connection-stream-your-video-now/"><u>2024 Approved From Conceptualization to Connection Stream Your Video Now</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/efi4/"><u>EFI分割領域が見つからない？復元に必要な4ステップガイド</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-top-uninterruptible-power-supplies-to-secure-your-tech/"><u>Expert Picks: Top Uninterruptible Power Supplies to Secure Your Tech</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/guide-on-mass-converting-8svx-files-into-high-quality-mp3s/"><u>Guide on Mass-Converting .8SVX Files Into High-Quality MP3s</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/happy-paws-abroad-petcubes-second-adventure/"><u>Happy Paws Abroad: Petcube's Second Adventure</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/head-to-head-battle-which-is-better-switch-lite-or-switch-oled/"><u>Head-to-Head Battle: Which Is Better, Switch Lite or Switch OLED?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hunt-for-unbeatable-roku-offers-during-amazons-annual-prime-shopping-event/"><u>Hunt for Unbeatable Roku Offers During Amazon's Annual Prime Shopping Event</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-harmonizing-sound-dynamics-in-ableton/"><u>In 2024, Harmonizing Sound Dynamics in Ableton</u></a></li>
+</ul></div>
 

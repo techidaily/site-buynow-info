@@ -1,7 +1,7 @@
 ---
 title: Filler Materials Should Be Chosen Based on Their Compatibility with Base Metals in Terms of Composition, Mechanical Properties, and Thermal Behavior.
-date: 2024-10-06T17:30:52.182Z
-updated: 2024-10-07T16:44:17.864Z
+date: 2024-10-08T05:49:59.563Z
+updated: 2024-10-12T21:26:14.224Z
 categories:
   - BestProducts
 description: This Article Describes Filler Materials Should Be Chosen Based on Their Compatibility with Base Metals in Terms of Composition, Mechanical Properties, and Thermal Behavior.
@@ -46,19 +46,6 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
 [View On Amazon $17](https://www.amazon.com/dp/B01L8M215A?tag=lifewire-onsite-prod-20&ascsubtag=5193471%7Cn3d06d6a443e14152b7728753066731b712%7CB01L8M215A)
@@ -81,13 +68,6 @@ Lifewire / Andrew Hayward
 
  The TopMate C302 is a strong example of the latter. It’s affordable and solidly effective, but the plastic design feels a bit flimsy. I wouldn’t bet on it lasting for the long haul without gentle handling, but given the price, you might not worry about it too much.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design: Light and a little flimsy
 
  The C302 measures just over 14 inches wide and is designed for laptops with screens up to 15.6 inches diagonal. It’s primarily made of lightweight plastic, with a thin metal grate on the top above the two 4.9-inch fans to help dissipate heat.
@@ -97,10 +77,10 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3qjwZzxQ2KVhmQJOdD2R9jBegvI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_03-ed7074949b6f4e4794ce30be2d582058.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
@@ -113,6 +93,13 @@ Lifewire / Andrew Hayward
 
  The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Setup Process: Plug and play
 
  The C302 is a purely plug-and-play accessory with no flashy perks or settings to deal with, nor any need for software on your computer. Simply place it under your laptop, adjust the feet and holding nubs as desired, and plug the USB port into your computer to power on the pad. The fans will then activate and run at the only available speed, and you can unplug it when you’re done or don’t need it anymore.
@@ -120,20 +107,13 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Performance: It makes a difference
 
@@ -155,11 +135,25 @@ Lifewire / Andrew Hayward
 
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: It’s very affordable
 
  At $30, this is one of the most affordable laptop cooling pads on the market right now. While results varied across multiple tests and games/apps, the C302 was pretty well in line with some of the pricier options I tested. It feels a little flimsy and doesn’t have any premium features, but the C302 is a very good entry-level option.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -207,22 +201,15 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-auditory-aesthetics-incorporating-youtube-music-into-videos/"><u>[New] Auditory Aesthetics Incorporating YouTube Music Into Videos</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-perfect-your-unboxing-game-8-tips-from-experts/"><u>[New] Perfect Your Unboxing Game 8 Tips From Experts</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-the-ultimate-journey-in-sky-high-4k-clarity/"><u>[Updated] In 2024, The Ultimate Journey in Sky High 4K Clarity</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-optimal-activities-coexisting-with-listening-podcasts-for-2024/"><u>[Updated] Optimal Activities Coexisting with Listening Podcasts for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-guide-to-vr-fitness-treadmills/"><u>[Updated] The Ultimate Guide to VR Fitness Treadmills</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-unbeatable-mobilized-game-slowdowns/"><u>2024 Approved Unbeatable Mobilized Game Slowdowns</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/experience-the-best-of-ai-discover-why-chatgpt-plus-remains-ideal-even-as-gpt-n-goes-gratis/"><u>Experience the Best of AI: Discover Why ChatGPT Plus Remains Ideal Even as GPT-N Goes Gratis!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/get-more-bang-for-your-buck-an-in-depth-look-into-the-arcshell-ar-5s-remarkable-capabilities-at-a-bargain-price/"><u>Get More Bang for Your Buck: An In-Depth Look Into the ArcShell AR-5's Remarkable Capabilities at a Bargain Price</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-lock-on-your-apple-iphone-6-plus-and-ipad-by-drfone-ios/"><u>How to Unlock iCloud lock on your Apple iPhone 6 Plus and iPad?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-the-expense-worth-it-for-apples-ultimate-earbud/"><u>Is the Expense Worth It for Apple's Ultimate Earbud?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/save-big-on-your-phone-bill-with-these-top-7-inexpensive-cell-plans/"><u>Save Big on Your Phone Bill with These Top 7 Inexpensive Cell Plans</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/selecting-supreme-keyboard-wrist-supports-the-best-picks-for-a-healthy-2024/"><u>Selecting Supreme Keyboard Wrist Supports - The Best Picks for a Healthy 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tech-marvel-showcase-high-end-dell-screen-display-immersive-noise-cancelling-headset-and-next-gen-web-camera-performance/"><u>Tech Marvel Showcase: High-End Dell Screen Display, Immersive Noise Cancelling Headset, and Next-Gen Web Camera Performance</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/telehealth-advancements-with-vr-integrations/"><u>Telehealth Advancements with VR Integrations</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-6-iphone-antivirus-programs-for-optimal-mobile-security/"><u>Top 6 iPhone Antivirus Programs for Optimal Mobile Security</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-essential-iphone-add-ons-the-ultimate-shopping-guide/"><u>Top Essential iPhone Add-Ons: The Ultimate Shopping Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-roku-or-fire-tv-stick-which-one-wins-in-the-smart-streaming-showdown/"><u>Top Roku or Fire TV Stick: Which One Wins in the Smart Streaming Showdown?</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-unlocking-your-custom-tiktok-identifier-key-for-2024/"><u>[New] Unlocking Your Custom TikTok Identifier Key for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-revolutionize-your-snaps-with-innovative-boomerang-tactics/"><u>[Updated] Revolutionize Your Snaps with Innovative Boomerang Tactics</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-the-dilemma-how-do-we-ensure-ai-acts-with-human-values/"><u>Exploring the Dilemma: How Do We Ensure AI Acts with Human Values?</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-obs-clash-livestream-prodigies/"><u>In 2024, OBS Clash - LiveStream Prodigies</u></a></li>
+<li><a href="https://common-error.techidaily.com/print-screen-key-malfunction-in-windows-1110-solutions-that-work/"><u>Print Screen Key Malfunction in Windows 11/10 – Solutions That Work!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/smart-trip-saver-s55-review-affordable-advanced-vehicle-safety-gadget-unveiled-on-escortpassport/"><u>Smart Trip Saver: S55 Review - Affordable Advanced Vehicle Safety Gadget Unveiled on Escortpassport</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solving-the-issue-steps-when-humans-cannot-launch-happens/"><u>Solving the Issue: Steps When 'Humans Cannot Launch' Happens</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stateless-address-autoconfiguration-in-ipv6-can-introduce-privacy-and-prediction-issues-if-additional-security-measures-are-not-applied/"><u>Stateless Address Autoconfiguration in IPv6 Can Introduce Privacy and Prediction Issues if Additional Security Measures Are Not Applied</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-alluring-world-of-affordable-wearables-in-depth-review-of-the-beantee-bitwatch-s1-plus-smartwatch/"><u>The Alluring World of Affordable Wearables: In-Depth Review of the Beantee Bitwatch S1 Plus Smartwatch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-xiaomi-mi-smart-band-4-a-superior-option-for-fitness-enthusiasts-on-a-budget/"><u>The Ultimate Guide to Xiaomi Mi Smart Band 4 – A Superior Option for Fitness Enthusiasts on a Budget</u></a></li>
 </ul></div>
 

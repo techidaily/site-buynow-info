@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Questions Before a Big TV Buy
-date: 2024-10-03T18:52:44.331Z
-updated: 2024-10-07T16:00:29.341Z
+date: 2024-10-08T01:14:36.916Z
+updated: 2024-10-13T09:18:47.859Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Questions Before a Big TV Buy
@@ -76,10 +76,10 @@ Lifewire / Jeremy Laukkonen
  This console is remarkably compact and has a surprisingly low price point. Gamers looking for a[4K UHD in HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) experience will need to pay a premium for the Series X, but the Xbox Series S offers an enticing alternative if you’re looking to save some money or haven’t yet made the jump to 4K.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Sleek and compact**
@@ -88,25 +88,11 @@ Lifewire / Jeremy Laukkonen
 
 ![Xbox Series S](https://www.lifewire.com/thmb/3-mUIkkRYilM5F2tvCYMPXtW1Ew=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1-04d996bcdfbb489d84e8945e4c475713.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
  The overall form factor of the Series S is similar to the Xbox One S, but the Series S lacks an optical drive and includes a massive circular vent on one side. This striking design choice has drawn comparisons to a speaker and a washing machine. It also bears a passing resemblance to Microsoft’s[adaptive controller](https://www.lifewire.com/what-is-the-xbox-adaptive-controller-4707753) , which is boxy, white, and features two large black circular pads. This aesthetic might not be for everyone, but I like how it stands next to my television.
 
  Aside from the bold vent grill, the Series S doesn’t break any new ground regarding design choices. It has sturdy rubber feet on two sides, so you can lay it flat or stand it up on end, as has become more or less standard with home consoles. It feels pretty sturdy in both positions.
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Easier than ever before**
 
@@ -156,6 +142,13 @@ Lifewire / Jeremy Laukkonen
 
  Microsoft's $7.5B purchase of Bethesda's parent company, Zenimax, brought some hope of additional exclusives appearing in Microsoft's arsenal. (Bethesda is the publisher of Fallout, DOOM, Dishonored, Skyrim, Wolfenstein, The Elder Scrolls, and more.) However, the situation is murky as the company has yet to clarify which (if any) Bethesda titles will be exclusive to Xbox.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Storage: Disappointingly shallow, so bring your USB drive**
 
  The biggest problem with the Xbox Series S is the lack of storage. Unlike the Series X, which packs in a 1TB drive, the Series S only offers 512GB of space. That's an extremely shallow pool to swim in when dealing with an all-digital console, as you have to download every game you play.
@@ -177,10 +170,10 @@ Lifewire / Jeremy Laukkonen
 ![Xbox Series S](https://www.lifewire.com/thmb/_GSxQvNgtJMhoyNl62qlg671Qvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2-25991056c5c2486695923f7c1b61c7b5.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
@@ -196,13 +189,6 @@ Lifewire / Jeremy Laukkonen
  Microsoft isn’t looking to rock the boat with the Xbox Series X|S in terms of the user interface. If you’ve used an Xbox One, you’ll find the Xbox Series X|S user interface strangely familiar. The dashboard looks almost the same, and the guide functions as expected. There are a few upgrades and changes here and there, but this is nothing like the massive change between the Xbox 360 dashboard and the Xbox One dashboard.
 
  An overhaul of the dashboard is currently in the works, and we expect it to arrive in 2023.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Controller: Iteration more than innovation**
 
@@ -221,10 +207,10 @@ Lifewire / Jeremy Laukkonen
 ![Xbox Series S](https://www.lifewire.com/thmb/MZdEnnFWPzhGzv_P5GO8byAY5qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3-dd9458b294e74205acad2ff6fee33913.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
@@ -239,6 +225,13 @@ Lifewire / Jeremy Laukkonen
 
  One expense you may need to budget is a high-speed USB 3.1 drive. The console is perfectly usable without an external drive, but expect to uninstall games regularly to make more space if you limit yourself to the onboard storage.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Xbox Series S vs. PS5 Digital**
 
  This comparison is a bit of an unfair fight because Microsoft and Sony took entirely different approaches when designing their lower-priced console options. Microsoft cut back on hardware to offer an incredibly low price point, while Sony removed the optical drive. The result is that the PS5 Digital blows the Xbox Series S out of the water in terms of graphics and performance, but they aren’t even in the same time zone in terms of price.
@@ -252,6 +245,13 @@ Lifewire / Jeremy Laukkonen
  **An affordable alternative for those without a 4K television.**
 
  The Xbox Series S might be a bit of a step back from the Xbox One X in performance, but the fact is that it’s a next-gen console that plays next-gen games with some impressive hardware and an unreal price tag. Gamers in search of the best graphics possible will want to look at the Xbox Series X instead, but gamers who haven’t yet made the 4K plunge, parents in need of an affordable console for their kids, or anyone looking to save money will all find something to like here.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -295,22 +295,20 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-apex-titles-for-hd-video-recording-technologies/"><u>[New] In 2024, Apex Titles for HD Video Recording Technologies</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-harnessing-the-power-of-stories-in-fb-networks/"><u>[New] In 2024, Harnessing the Power of Stories in FB Networks</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-photoshop-guide-to-text-becoming-3d/"><u>[New] The Ultimate Photoshop Guide to Text Becoming 3D</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-accelerating-your-ascension-to-instagram-a-list-status-our-fast-track-guide-of-15-must-try-strategies/"><u>[Updated] In 2024, Accelerating Your Ascension to Instagram A-List Status Our Fast Track Guide of 15 Must-Try Strategies</u></a></li>
-<li><a href="https://program-issues.techidaily.com/breaking-the-silence-in-the-commonwealth-comprehensive-guide-to-repairing-fallout-4s-audio-issues-on-your-computer/"><u>Breaking The Silence in the Commonwealth: Comprehensive Guide to Repairing Fallout 4'S Audio Issues on Your Computer</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-upsides-and-downsides-of-implementing-microsofts-webex-in-your-business-operations/"><u>Evaluating the Upsides & Downsides of Implementing Microsoft's Webex in Your Business Operations</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-a-sturdy-cost-effective-solution-with-the-omoton-t1-tablet-stand/"><u>Experience a Sturdy, Cost-Effective Solution with the Omoton T1 Tablet Stand</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-features-of-asus-bw-16d1x-u-blu-ray-drive-a-stylish-yet-quirky-device/"><u>Exploring the Features of Asus BW-16D1X-U Blu-Ray Drive: A Stylish Yet Quirky Device</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/find-the-ultimate-bargains-for-apple-gadgets-this-prime-day/"><u>Find the Ultimate Bargains for Apple Gadgets This Prime Day</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/get-your-channels-for-free-with-amazonbasics-flat-antenna-the-budget-solution/"><u>Get Your Channels for Free with AmazonBasics Flat Antenna - The Budget Solution</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/head-to-head-comparison-the-differences-between-nintendo-switch-lite-and-nintendo-switch-oled/"><u>Head-to-Head Comparison: The Differences Between Nintendo Switch Lite and Nintendo Switch OLED</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ideal-iphone-picks-to-level-up-your-gaming-sessions/"><u>Ideal iPhone Picks to Level Up Your Gaming Sessions</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-samsung-galaxy-f04-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Samsung Galaxy F04 via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-digital-cinematographer-hub/"><u>In 2024, Digital Cinematographer Hub</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-amazon-luna-assessment-exceptionally-seamless-gaming-experience/"><u>In-Depth Amazon Luna Assessment: Exceptionally Seamless Gaming Experience</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/printer-reboot-no-more-error-after-windows-10-patch/"><u>Printer Reboot, No More Error After Windows 10 Patch</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/silent-blades-and-righteous-honor-your-next-game-adventure-awaits-in-2024/"><u>Silent Blades & Righteous Honor Your Next Game Adventure Awaits, In 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2023-how-to-check-tiktok-video-copyright-before-uploading-in-2024/"><u>[New] 2023 | How to Check Tiktok Video Copyright Before Uploading, In 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unlock-customized-soundscape-in-ps4ps5-games/"><u>[New] Unlock Customized Soundscape in PS4/PS5 Games</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-cam-showdown-spectacle-ultimate-legendary-sj6-meets-yis-visionary-4k/"><u>[Updated] Cam Showdown Spectacle Ultimate Legendary SJ6 Meets Yi's Visionary 4K</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-top-10-webcam-applications-in-windows-a-comprehensive-list/"><u>[Updated] Top 10 Webcam Applications in Windows A Comprehensive List</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dissecting-the-delightfully-chaotic-world-of-overcooked-2/"><u>Dissecting the Delightfully Chaotic World of Overcooked 2</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/effective-temperature-regulation-with-kooteks-laptop-cooler-an-in-depth-product-review/"><u>Effective Temperature Regulation with Kootek's Laptop Cooler - An In-Depth Product Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevating-your-pc-experience-from-windows-10-to-11/"><u>Elevating Your PC Experience: From Windows 10 To 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-cost-effective-apeman-c450-a-complete-guide-to-your-next-dash-cam-purchase/"><u>Evaluating the Cost-Effective Apeman C450: A Complete Guide to Your Next Dash Cam Purchase</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-netgears-powerline-with-1200-mbps-is-the-bulky-look-worth-it-for-high-speed-internet/"><u>Expert Analysis: Netgear's Powerline with 1200 Mbps – Is the Bulky Look Worth It for High-Speed Internet?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-expensive-and-exquisite-glion-dolly-high-speed-electric-scooter/"><u>Expert Insights on the Expensive & Exquisite Glion Dolly High-Speed Electric Scooter</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-recommendations-the-ideal-accessories-every-iphone-owner-needs/"><u>Expert Recommendations: The Ideal Accessories Every iPhone Owner Needs</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-itel-a70-by-drfone-android/"><u>In 2024, How to Bypass FRP on Itel A70?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Samsung Galaxy F04 | Dr.fone</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/new-2024-approved-top-6-mickey-mouse-voice-generators/"><u>New 2024 Approved Top 6 Mickey Mouse Voice Generators</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-efficient-way-to-grab-all-episodes-on-your-idevice/"><u>The Efficient Way to Grab All Episodes on Your iDevice</u></a></li>
 </ul></div>
 

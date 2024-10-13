@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Midland LXT50eV3 Assessment: High-Tech, Functional Handheld Radios Underwhelming in Performance"
-date: 2024-10-02T16:55:27.420Z
-updated: 2024-10-07T19:08:03.886Z
+date: 2024-10-10T20:08:41.325Z
+updated: 2024-10-12T23:23:04.918Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Midland LXT50eV3 Assessment: High-Tech, Functional Handheld Radios Underwhelming in Performance"
@@ -48,13 +48,6 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/aMRk3dxCpK74Zcn9NCYLlSncVTA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_HeroSquare-05a827c48b274d8e9ccd0070e770f4d4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Erika Rawes
 
 [View On EBay](https://www.ebay.com/p/10031751045) [View On B&H Photo Video $90](https://www.bhphotovideo.com/c/product/1468480-REG/tp%5Flink%5Farcher%5Fa9%5Fac1900%5Fwireless.html)
@@ -75,6 +68,13 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer A9 is one of the brand’s[more popular routers](https://www.lifewire.com/best-long-range-routers-4122554) because of the features it offers at a low price point. With technologies like[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) compatibility and[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , the Archer A9 should be convenient and project a Wi-Fi signal over a long range. These days, with more and more households containing home offices, multiple streaming devices, and several smart home products, how does the Archer A9 hold up? I tested the TP-Link Archer A9 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Basic, but clever**
 
  There’s nothing striking about the design of the Archer A9\. It’s gloss black, with indicator lights on the front and the ports, power switch, WPS button, and antennas located in the back. The gloss finish fingerprints and smudges easily, so I would have rather seen a matte finish, but the A9 has an intelligent design otherwise. The branding is small—not tacky or obtrusive—and the A9’s venting is cleverly designed. Instead of just having vent holes conspicuously covering the device, it has recesses that segment the router into three portions and hide the venting. The venting recesses look purposeful, and they enhance A9’s aesthetic instead of taking away from the design.
@@ -84,13 +84,6 @@ Lifewire / Erika Rawes
  You can place the Archer A9 flat on a table or desk, or you can use the two mounting holes on the back of the router to hang the A9 on a wall. I have a smart box in a closet in my home, so I hung the router near that smart box and hid it in the closet.
 
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/GZA_WscJ6ZMkjJEY-JNFoGWW54c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_05-f0a147fb3abe4825a663bc12ac51629e.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -110,21 +103,7 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/FTFFrgOH8v5VhGXgjmzgjTUMPNA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_03-ec9553f0029b4f2fba363745ab7b9778.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Network Performance: Not bad**
 
@@ -132,20 +111,27 @@ Lifewire / Erika Rawes
 
  In the same room as the router, speeds were excellent (naturally), getting up to 352 Mbps on the 5 Ghz band and 76 Mbps on the 2.4 Ghz band. I traveled upstairs, and speeds clocked in at a respectable 124 Mbps on the 5Ghz band and 36 Mbps over 2.4 Ghz. The signal remained strong almost everywhere in my two-level home, even in areas like closets, and many other places that could conceivably be Wi-Fi dead zones. However, I experienced a few slow zones in my garage, and in a guest room located on the opposite side of the home. I also experienced a spotty connection in the yard. The signal degraded significantly around the home’s exterior, so if you like to use your devices outside, you’ll want to invest in a[Wi-Fi extender](https://www.lifewire.com/best-wifi-extenders-4043312) , or go with a different router entirely.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Range: Around 2,000 square feet (give or take)**
 
  I didn’t see an exact range for the Archer A9 in the spec sheet, but I was able to get coverage in just about every area of my 3,000 square foot home. This is not to say the range is 3,000 square feet, as several factors like the type and number of devices you have, wall thickness, obstructions, your ISP, and other factors can all impact the signal quality and range. Generally speaking, it’s safe to say the A9 could probably cover at least a 2,000 square foot house.
 
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/yosOFzPzSpoghULMfbOuUFI5_E0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_06-94b9a314d8d24a37a7b4c90c7962e8a4.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Software: Tether app**
 
@@ -163,6 +149,13 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer A9](https://www.lifewire.com/thmb/OshgKkDe7GvQPFAb_AgVDAYTF_4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_A9_04-65a3ae04454e40c3865f1d426bcb36db.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **TP-Link Archer A9 vs. Netgear AC2300 Nighthawk Smart Wi-Fi Router**
@@ -174,6 +167,13 @@ Lifewire / Erika Rawes
  **A capable long-range router for those with average to moderate networking demands.**
 
  The TP-Link Archer A9 is an ideal router for a household with an average number of devices, but homes full of gamers or home office workers may want something a little more robust.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -210,21 +210,22 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-boosting-bank-balance-crafting-commercial-video-content/"><u>[New] In 2024, Boosting Bank Balance Crafting Commercial Video Content</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-art-of-collaborative-marketing-on-youtube/"><u>[Updated] 2024 Approved The Art of Collaborative Marketing on YouTube</u></a></li>
-<li><a href="https://article-posts.techidaily.com/10-indispensable-fcp-enhancing-plugins/"><u>10 Indispensable FCP-Enhancing Plugins</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apple-homepod-mini-review-music-siri-and-more/"><u>Apple HomePod Mini Review: Music, Siri, and More</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/breaking-down-the-lenovo-thinkpad-x1-nano-the-revolutionary-leap-in-ultra-thin-computing/"><u>Breaking Down the Lenovo ThinkPad X1 Nano - The Revolutionary Leap in Ultra-Thin Computing</u></a></li>
-<li><a href="https://win-blog.techidaily.com/diagnose-and-repair-star-wars-jedi-fallen-order-launch-glitch-on-pc/"><u>Diagnose & Repair Star Wars Jedi: Fallen Order Launch Glitch on PC</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-asus-rog-gt-ac5300-crafted-with-gamers-and-tech-enthusiasts-in-mind/"><u>Expert Insights on Asus ROG GT-AC5300: Crafted with Gamers and Tech Enthusiasts in Mind</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-adventure-uncovering-joyful-experiences-in-pokemon-platinum/"><u>Exploring Adventure: Uncovering Joyful Experiences in Pokemon Platinum</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-master-movie-making-a-step-by-step-guide-to-pro-level-videos/"><u>In 2024, Master Movie Making A Step-by-Step Guide to Pro-Level Videos</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/in-2024-the-most-popular-online-video-editors-for-chromebook-users/"><u>In 2024, The Most Popular Online Video Editors for Chromebook Users</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-wi-fi-expansion-devices-2024-edition/"><u>Leading Wi-Fi Expansion Devices: 2024 Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-educational-websites-a-guide-to-premier-online-learning-experiences/"><u>Navigating Educational Websites: A Guide to Premier Online Learning Experiences</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/pure-entertainment-kids-fun-games-roundup-for-2024/"><u>Pure Entertainment Kids' Fun Games Roundup for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/resolved-fixes-for-internet-explorer-cant-show-website/"><u>Resolved: Fixes for 'Internet Explorer Can't Show Website'</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unleashing-power-and-efficiency-the-all-new-202n-macbook-pro-with-the-m1-processor-reviewed/"><u>Unleashing Power and Efficiency: The All-New 202N MacBook Pro with the M1 Processor Reviewed!</u></a></li>
-<li><a href="https://win-blog.techidaily.com/1723000195964-xcom-2-no-longer-crashes-on-windows-solution-found/"><u>XCOM 2 No Longer Crashes on Windows – Solution Found</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/op-screen-recorders-for-live-broadcasts-on-youtube-for-2024/"><u>[New] Top Screen Recorders for Live Broadcasts on YouTube for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-top-editors-choice-best-windows-11-tools-guide/"><u>2024 Approved Top Editors' Choice Best Windows 11 Tools Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-xiaomi-redmi-note-13-5g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Xiaomi Redmi Note 13 5G to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/economical-entry-model-assessment-of-syma-x5c-remote-control-drone/"><u>Economical Entry Model Assessment of SYMA X5C Remote Control Drone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-installation-of-updated-hp-deskjet-ink-advantage-3050a-printer-drivers-on-windows-no-cost/"><u>Effortless Installation of Updated HP Deskjet Ink Advantage 3050A Printer Drivers on Windows - No Cost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-world-of-digital-reading-with-the-highly-rated-kobo-forma-reviewed-here/"><u>Exploring the World of Digital Reading with the Highly Rated Kobo Forma Reviewed Here</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-xiaomi-13-ultra-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Xiaomi 13 Ultra to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-motorola-mg7700-high-performance-unmatched/"><u>In-Depth Analysis of Motorola MG7700 - High Performance Unmatched</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-portable-and-economical-asus-vivobook-11/"><u>In-Depth Analysis of the Portable & Economical ASUS VivoBook 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-insights-into-netgears-top-of-the-line-c7000-modem-a-superior-choice-for-seamless-connectivity/"><u>In-Depth Insights Into Netgear's Top-of-the-Line C7000 Modem: A Superior Choice for Seamless Connectivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-the-tp-link-archer-c80-an-affordable-speed-demon-under-100/"><u>Inside the TP-Link Archer C80: An Affordable Speed Demon Under $100</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insights-into-4-key-benefits-of-the-walmartplus-program/"><u>Insights Into 4 Key Benefits of the Walmart+ Program</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-it-possible-to-add-extra-memory-to-a-portable-computer/"><u>Is It Possible To Add Extra Memory to a Portable Computer?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/mastering-photo-background-removal-techniques/"><u>Mastering Photo Background Removal Techniques</u></a></li>
+<li><a href="https://fox-access.techidaily.com/navigating-the-world-of-giant-file-movement-between-iphone-and-macos/"><u>Navigating the World of Giant File Movement Between iPhone and macOS</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-pairings-brazilian-vs-european-portuguese/"><u>Pronunciation Pairings: Brazilian Vs. European Portuguese</u></a></li>
+<li><a href="https://games-able.techidaily.com/reclaiming-your-gaming-experience-via-steam-remote-on-windows/"><u>Reclaiming Your Gaming Experience via Steam Remote on Windows</u></a></li>
 </ul></div>
 

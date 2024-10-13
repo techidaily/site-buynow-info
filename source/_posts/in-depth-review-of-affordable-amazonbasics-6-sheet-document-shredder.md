@@ -1,7 +1,7 @@
 ---
 title: In-Depth Review of Affordable AmazonBasics 6-Sheet Document Shredder
-date: 2024-09-11T17:59:17.334Z
-updated: 2024-09-15T22:09:56.816Z
+date: 2024-10-10T08:49:33.153Z
+updated: 2024-10-12T20:48:55.741Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Review of Affordable AmazonBasics 6-Sheet Document Shredder
@@ -41,6 +41,19 @@ Lifewire / Erika Rawes
 [View On Amazon](https://www.amazon.com/dp/B075ZQXB26/?tag=lifewire-onsite-prod-20&ascsubtag=4845569%7Cn4bcb8b1996c24cd3b14f62e195599b0615%7CB075ZQXB26)
 
 4.2
+
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## AmazonBasics Ultra-Thin Antenna
 
@@ -93,13 +106,20 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: 35 miles**
@@ -110,13 +130,6 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
@@ -124,16 +137,10 @@ Lifewire / Erika Rawes
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -177,5 +184,20 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/updated-transform-your-youtube-routine-control-over-video-delivery-speeds/"><u>[Updated] Transform Your YouTube Routine Control Over Video Delivery Speeds</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-quick-fix-guide-adding-a-flip-tone-to-your-pcs-vocal-array/"><u>2024 Approved Quick-Fix Guide Adding a Flip Tone to Your PC's Vocal Array</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-xiaomi-redmi-note-13-proplus-5g-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Xiaomi Redmi Note 13 Pro+ 5G.</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-platform-pick-go-live-with-obs-or-twitch-studio/"><u>In 2024, Platform Pick Go Live with OBS or Twitch Studio</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/quick-guide-how-to-replicate-a-windows-nine-setup-on-several-machines-in-just-3-easy-steps/"><u>Quick Guide: How to Replicate a Windows Nine Setup on Several Machines in Just 3 Easy Steps</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reimagining-mobile-computing-power-the-incredible-desktop-performance-of-the-2-groovy-new-ipad-pro-m1-2021-reviewed/"><u>Reimagining Mobile Computing Power - The Incredible Desktop Performance of the 2 Groovy New iPad Pro (M1, 2021) Reviewed</u></a></li>
+<li><a href="https://driver-install.techidaily.com/revamp-win-7-setup-update-new-gaming-mouse-quickly/"><u>Revamp Win 7 Setup - Update New Gaming Mouse Quickly</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/take-flight-with-djis-robomaster-s1-a-thrilling-tank-drone-experience-that-boosts-coding-skills-and-offers-strategic-battles/"><u>Take Flight with DJI's RoboMaster S1 - A Thrilling Tank Drone Experience that Boosts Coding Skills and Offers Strategic Battles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-elegant-functionality-of-samsung-galaxy-watch5-unveiled-traditional-charm-combined-with-latest-advancements-overview/"><u>The Elegant Functionality of Samsung Galaxy Watch5 Unveiled: Traditional Charm Combined with Latest Advancements Overview</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-asus-router-models-in-2/"><u>Top-Rated Asus Router Models in 2</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-features-of-the-apple-watch-series-9/"><u>Ultimate Guide to the Features of the Apple Watch Series 9</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-syma-x5c-rc-quadcopter-an-expert-review-of-a-cost-effective-flight-companion/"><u>Unveiling the SYMA X5C R/C Quadcopter - An Expert Review of a Cost-Effective Flight Companion</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Demon's Souls Remake: Enhanced Visuals Retain the Classic Experience"
-date: 2024-09-12T16:31:23.316Z
-updated: 2024-09-15T21:44:30.442Z
+date: 2024-10-07T06:53:13.975Z
+updated: 2024-10-13T07:14:01.204Z
 categories:
   - BestProducts
 description: "This Article Describes Demon's Souls Remake: Enhanced Visuals Retain the Classic Experience"
@@ -43,6 +43,13 @@ Lifewire / Erika Rawes
 [View On Amazon](https://www.amazon.com/dp/B0883VX67Y/?tag=lifewire-onsite-prod-20&ascsubtag=5118337%7Cn65397a42bddb43c7b820823d2a25aca405%7CB0883VX67Y) [View On Walmart](https://www.walmart.com/ip/839348316) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6413107.p)
 
 4
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## SEGA Yakuza: Like a Dragon
 
@@ -114,13 +121,6 @@ Lifewire / Erika Rawes
 
  This[PC game](https://www.lifewire.com/pc-gaming-reviews-4689600) plays just like it should, and the controls are top-notch. Everything just works, which is a rare feat these days. You should be able to finish the main story in around 45 to 55 hours, depending on how fast you run through it, but I highly recommend taking your time and enjoying all the wonderful diversions available.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Graphics: Excellent visuals
 
  The graphics and visuals are impressive. Details are accurate and in the right places. Food looks so realistic (and delicious), and there were some moments where I could even see the pores on a person's skin during cinematics.
@@ -135,6 +135,13 @@ Lifewire / Erika Rawes
 
 Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: The typical $60
 
  The base version of Yakuza: Like a Dragon comes in at $60 like most new titles. The price is reasonable for the amount of gameplay. However, you have two other purchase options as well. The Hero Edition, which costs $70, includes the Job Set and the Management Mode set and features two extra jobs and three sets of Management mode employees.
@@ -142,10 +149,10 @@ Lifewire / Erika Rawes
  The Legendary Hero edition costs $90, and it includes both previously listed sets, as well as the Crafting Mat, Stat Boost, Karaoke, and Ultimate Costume sets. These are all nice bonuses and can certainly add to the experience, but you will also find more than enough gameplay in the base game.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Yakuza: Like a Dragon vs. Dragon Quest Series
@@ -158,6 +165,19 @@ Lifewire / Erika Rawes
 
  A well-crafted masterpiece. Yakuza: Like a Dragon falls into the must-play category for anyone who loves a good story, JRPGs, or a wild game that will make you laugh. It’s definitely a departure from the rest of the series, but that contributes to a lot of the fun and uniqueness of the game.
 
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Cyberpunk 2077](https://www.lifewire.com/cyberpunk-2077-review-5113844)
@@ -165,10 +185,10 @@ Lifewire / Erika Rawes
 * [Torment: Tides of Numenera](https://www.lifewire.com/torment-tides-of-numenera-review-5077302)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -197,5 +217,20 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-how-to-live-stream-360-videos-on-facebook/"><u>[New] 2024 Approved How to Live Stream 360 Videos on Facebook</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-quick-launch-lines-a-practical-roadmap-for-product-review-channel-founders/"><u>[New] Quick Launch Lines A Practical Roadmap for Product Review Channel Founders</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-top-5-virtual-realities-samsung-gear-vr-game-hits/"><u>[Updated] 2024 Approved Top 5 Virtual Realities - Samsung Gear VR Game Hits</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-reducing-inertia-induced-jello-in-uav-videos/"><u>[Updated] Reducing Inertia-Induced Jello in UAV Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-syma-s111g-rc-helicopter-comprehensive-indoor-entertainment-guide/"><u>Affordable Syma S111G RC Helicopter - Comprehensive Indoor Entertainment Guide</u></a></li>
+<li><a href="https://discover-community.techidaily.com/comprehensive-guide-recording-your-fifa-18-matches-on-playstation-4-share-like-a-pro/"><u>Comprehensive Guide: Recording Your FIFA 18 Matches on PlayStation 4 - Share Like a Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-your-speaking-experience-with-uc/"><u>Elevate Your Speaking Experience with UC</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-your-free-copy-of-the-m-audio-fast-track-ultra-driver-top-sound-drivers/"><u>Get Your Free Copy of the M-Audio Fast Track Ultra Driver – Top Sound Drivers</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Xiaomi Civi 3? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/iphone-13-pro-max-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>iPhone 13 Pro Max Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/save-money-without-sacrificing-quality-in-depth-look-at-tp-link-archer-c5/"><u>Save Money Without Sacrificing Quality: In-Depth Look at TP-Link Archer C5</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-selection-of-premium-ups-units-for-unwavering-power-security-2024/"><u>The Definitive Selection of Premium UPS Units for Unwavering Power Security - 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/transform-your-food-habits-the-ultimate-strategy-for-personalized-meal-planning-with-chatgpt/"><u>Transform Your Food Habits: The Ultimate Strategy for Personalized Meal Planning with ChatGPT</u></a></li>
+</ul></div>
 

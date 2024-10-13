@@ -1,7 +1,7 @@
 ---
 title: Immerse in Hoops with the Latest NBA 2K19 Game
-date: 2024-09-12T19:50:53.932Z
-updated: 2024-09-15T22:12:54.965Z
+date: 2024-10-07T12:49:48.858Z
+updated: 2024-10-13T07:24:38.329Z
 categories:
   - BestProducts
 description: This Article Describes Immerse in Hoops with the Latest NBA 2K19 Game
@@ -43,6 +43,13 @@ thumbnail: https://www.lifewire.com/thmb/nRScZfZVQWaoiNcc0W9_9SRRzv8=/400x300/fi
 
 3
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
@@ -73,6 +80,13 @@ thumbnail: https://www.lifewire.com/thmb/nRScZfZVQWaoiNcc0W9_9SRRzv8=/400x300/fi
  As for a real plotline, there isn’t really one—the only kind of plot in the game is the objective to colonize Mars. There are challenges which you can do if you’re feeling particularly adventurous, which is nice, but they’re not a real plotline, and only serve to give you a different angle to colonizing the planet.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -108,24 +122,18 @@ thumbnail: https://www.lifewire.com/thmb/nRScZfZVQWaoiNcc0W9_9SRRzv8=/400x300/fi
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -142,16 +150,10 @@ thumbnail: https://www.lifewire.com/thmb/nRScZfZVQWaoiNcc0W9_9SRRzv8=/400x300/fi
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -179,5 +181,18 @@ thumbnail: https://www.lifewire.com/thmb/nRScZfZVQWaoiNcc0W9_9SRRzv8=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-the-ultimate-hits-for-tiktok-stardom-for-2024/"><u>[New] The Ultimate Hits for TikTok Stardom for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-premium-pick-of-budget-friendly-vectors-and-graphic-sites/"><u>2024 Approved Premium Pick of Budget-Friendly Vectors & Graphic Sites</u></a></li>
+<li><a href="https://fox-place.techidaily.com/abrufen-versehentlich-geloschter-dokumente-schritt-fur-schritt-anleitung-mit-unterstutzung-durch-die-myrecover-software/"><u>Abrufen Versehentlich Gelöschter Dokumente: Schritt-Für-Schritt-Anleitung Mit Unterstützung Durch Die MyRecover Software</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/apex-legends-players-guide-diagnosing-and-fixing-game-engine-problems/"><u>Apex Legends Players' Guide: Diagnosing and Fixing Game Engine Problems</u></a></li>
+<li><a href="https://fox-place.techidaily.com/complete-guide-restoring-deleted-or-accidentally-altered-text-in-microsoft-word-files-docx-on-windows-11/"><u>Complete Guide: Restoring Deleted or Accidentally Altered Text in Microsoft Word Files (DOCX) on Windows 11</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/empower-writers-leverage-these-veled-by-artificial-intelligence/"><u>Empower Writers: Leverage These Veled by Artificial Intelligence</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-form-and-function-an-in-depth-evaluation-of-fitbits-latest-tracker-the-charge-4/"><u>Exploring Form & Function: An In-Depth Evaluation of Fitbit's Latest Tracker – The Charge 4</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-beyond-headsets-ultimate-vr-gear-guide/"><u>In 2024, Beyond Headsets Ultimate VR Gear Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-premier-6-e-commerce-platforms-for-televisions-and-flatscreens/"><u>The Premier 6 E-Commerce Platforms for Televisions and Flatscreens</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-zte-blade-a3y-examined-reliable-efficiency-at-a-reasonable-cost/"><u>The ZTE Blade A3Y Examined: Reliable Efficiency at a Reasonable Cost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-recommended-digital-programming-classes/"><u>Top Recommended Digital Programming Classes</u></a></li>
+</ul></div>
 

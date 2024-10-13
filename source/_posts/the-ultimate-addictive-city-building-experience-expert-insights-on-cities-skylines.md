@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Addictive City-Building Experience: Expert Insights on Cities: Skylines"
-date: 2024-09-10T17:35:59.266Z
-updated: 2024-09-15T20:18:19.377Z
+date: 2024-10-07T18:37:00.753Z
+updated: 2024-10-13T05:24:57.422Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate Addictive City-Building Experience: Expert Insights on Cities: Skylines"
@@ -45,6 +45,13 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Kelsey Simon
 
 [View On Amazon](https://www.amazon.com/Techland-Torment-Tides-Numenera-PlayStation-4/dp/B01N2VISUC/?tag=lifewire-onsite-prod-20&ascsubtag=5077302%7Cnac6eb02defc3413da4da5d4ed0dc77ea21%7CB01N2VISUC) [View On Steampowered.com](https://store.steampowered.com/app/272270/Torment%5FTides%5Fof%5FNumenera/) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/torment-tides-of-numenera/141986.html)
@@ -69,6 +76,13 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
  This whole introduction is slow moving and boring, and getting through it is rough. But even past this, things don’t necessarily pick up and get more interesting. The game has such a heavy hand with its narration, telling you the game’s visuals even though you can see them right there on your screen. The whole game reads like someone wrote a novel, couldn’t publish it, and then decided making a[video game](https://www.lifewire.com/best-gaming-consoles-4154610) was a better idea, and instead of trimming the fat, they left every unnecessary description and detail in the game’s prompt.
@@ -76,13 +90,6 @@ Lifewire / Kelsey Simon
  I did continue forward, even though I was already disinterested, hoping the game would become more gripping. After the memory room, you’ll wake to another platform where a being tells you you’ve suffered a great injury and they are in your mind. He tries to explain who you are but before he gets too far, you’ll be attacked by something called the Sorrow. Eventually, you’ll wake in the real world, enter the game’s main city, and be able to talk to the wealth of characters living there. You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Gameplay: Dialogue prompts and effort**
 
@@ -104,13 +111,6 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -119,20 +119,14 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Price: Only worth it if you’re keen on the story**
 
@@ -153,6 +147,13 @@ Lifewire / Kelsey Simon
  **A text-heavy RPG that doesn’t live up to its predecessor.**
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -175,5 +176,22 @@ Lifewire / Kelsey Simon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-amplifying-tv-screens-through-fb-live-integration-for-2024/"><u>[New] Amplifying TV Screens Through FB Live Integration for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-augment-visuals-incorporating-black-box-and-letterboxing-in-social-media/"><u>[New] Augment Visuals Incorporating Black Box & Letterboxing in Social Media</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-deciphering-how-t-series-earns-via-youtube/"><u>[New] In 2024, Deciphering How T-Series Earns via Youtube</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-quintessential-stop-motion-gems-for-cinephiles/"><u>[New] Quintessential Stop-Motion Gems for Cinephiles</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-make-every-chat-memorable-how-to-send-engaging-gifs-on-snapchat/"><u>[Updated] 2024 Approved Make Every Chat Memorable How to Send Engaging Gifs on Snapchat</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-hilarity-and-sobriety-a-list-of-top-10-memetic-spots-on-insta/"><u>[Updated] Hilarity & Sobriety A List of Top 10 Memetic Spots on Insta</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-tips-to-improve-visual-integrity-while-watching-youtube-content/"><u>[Updated] Tips to Improve Visual Integrity While Watching YouTube Content</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-oppo-reno-11-pro-5g-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Oppo Reno 11 Pro 5G Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-stunning-lg-oled-c9-65-smart-tv-the-optimal-choice-for-high-fidelity-home-cinema-experience/"><u>In-Depth Look at the Stunning LG OLED C9 65 Smart TV: The Optimal Choice for High-Fidelity Home Cinema Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovators-top-tripod-triumph-full-capabilities/"><u>Innovator's Top Tripod Triumph: Full Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-your-entertainment-the-ultimate-verdict-on-the-caixun-4k-android-tv-75-inches/"><u>Maximizing Your Entertainment: The Ultimate Verdict on the Caixun 4K Android TV (75 Inches)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/microsoft-surface-duo-critique-an-overpriced-device-plagued-by-glitches/"><u>Microsoft Surface Duo Critique: An Overpriced Device Plagued by Glitches</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/owc-mercury-pro-analysis-outstanding-drives-and-top-tier-performance/"><u>OWC Mercury Pro Analysis: Outstanding Drives and Top-Tier Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reliability-meets-affordability-in-the-latest-rexing-v1-dashcam-review/"><u>Reliability Meets Affordability in the Latest Rexing V1 Dashcam Review</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/which-media-supersedes-the-other-podcasts-or-youtube-for-2024/"><u>Which Media Supersedes the Other Podcasts or YouTube for 2024</u></a></li>
+</ul></div>
 

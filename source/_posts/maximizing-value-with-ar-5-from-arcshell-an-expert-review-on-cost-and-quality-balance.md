@@ -1,7 +1,7 @@
 ---
 title: Maximizing Value with AR-5 From ArcShell - An Expert Review on Cost & Quality Balance
-date: 2024-09-08T17:59:45.799Z
-updated: 2024-09-15T19:03:42.276Z
+date: 2024-10-05T19:57:32.747Z
+updated: 2024-10-13T07:06:17.743Z
 categories:
   - BestProducts
 description: This Article Describes Maximizing Value with AR-5 From ArcShell - An Expert Review on Cost & Quality Balance
@@ -99,6 +99,13 @@ Andrew Hayward / Lifewire
 
 ![Oculus Quest 2 ](https://www.lifewire.com/thmb/1aG6kdNHMuvnim8p8_i1RwH9QG8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-3-eec6cabc11db4ed9be5254aa2bc46ec1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Andrew Hayward / Lifewire
 
  But there is a potential loss for function and comfort with one other particular aspect of the headset itself: IPD adjustment. Inter-pupillary distance, or IPD, is the physical distance between your eyes, and a headset must account for it to effectively deliver clear, 3D experiences. On the original Quest, a physical slider let you precisely adjust the distance to match your own face. With the Quest 2, however, there are just three settings, and you can physically shift the placement of the lenses to choose the position that is closest to your own.
@@ -110,10 +117,10 @@ Andrew Hayward / Lifewire
 ![Oculus Quest 2](https://www.lifewire.com/thmb/gwWuuSfTzWNDoS45b-iG9qG32-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-4-27f169e7e71b4372a38e13332b7b1364.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Andrew Hayward / Lifewire
@@ -148,6 +155,13 @@ Andrew Hayward / Lifewire
 
  Plugging in headphones delivers a more closed-off, immersive experience, but the Oculus Quest 2’s built-in speaker does a solid job of delivering audio and music. It does sound a tiny bit louder and fuller than the original Quest’s speaker, but not significantly so. Still, if you want to play without being fully shut-off from your surroundings, it works just fine.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Battery: You’ll get a couple hours
 
  Like the original headset, the Oculus Quest 2 is rated for 2-3 hours of usage on a full charge. For such a compact, standalone headset, I think that’s reasonable. You get a couple hours to play, and then you can take a breather and do other things while it charges.
@@ -157,6 +171,13 @@ Andrew Hayward / Lifewire
 ![Oculus Quest 2](https://www.lifewire.com/thmb/Ns2S3DQVema5UEDDSO8n3N7SC_4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-7-0a0e40b6a3064fe7abc985f0900dbeff.jpg)
 
  Andrew Hayward / Lifewire
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Software: Use the headset or connect to PC
 
@@ -169,6 +190,13 @@ Andrew Hayward / Lifewire
  Using a[Razer Blade 15 (2019)](https://www.lifewire.com/razer-blade-15-review-4845229) gaming laptop, I was able to play the visually demanding and deeply immersive Half-Life: Alyx on the Oculus Quest 2—a game that it could never run using its own internal hardware. It ran a little less smoothly than it did using the PC-native Valve Index headset, but not significantly so. This is a great way to experience higher-end VR games, including the new[Star Wars: Squadrons](https://www.lifewire.com/star-wars-squadrons-review-5086656) , for example. And with Oculus announcing plans to phase out PC-only headsets, it will also be a key part of the Quest platform’s future.
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/72vxixVr7kdKoLfUC3QkIrBl26I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-6-12fcb6054cf2475191bc613a3f26bcfc.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Andrew Hayward / Lifewire
 
@@ -186,6 +214,13 @@ Andrew Hayward / Lifewire
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/FqVvo044zoPghSD_PR1g2e0L2rs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-5-216bbf638cbe407b8b6f332abc94ae47.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Andrew Hayward / Lifewire
 
 ## Price: It’s an amazing value
@@ -194,20 +229,13 @@ Andrew Hayward / Lifewire
 
 ![Oculus Quest 2](https://www.lifewire.com/thmb/TDsFPvRGkhZaFzIaNnKRk1_xO4s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus-Quest-2-VR-Headset-8-Comparison-1b0c51b029da41389167e103a4c4843a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Andrew Hayward / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Oculus Quest 2 vs. PlayStation VR
@@ -224,25 +252,11 @@ Andrew Hayward / Lifewire
 
  The significant performance upgrade and surprising price drop outweigh some of the annoying design shifts with the Oculus Quest 2, making it the must-have VR headset for just about everyone. Not only does it play a great library of on-headset games, but it can also connect to a powerful PC to play even more games on top of that. Add to that the ease of use, quality gameplay, and immersive visuals, and the Oculus Quest 2 is another brilliant VR game console.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Oculus Rift S](https://www.lifewire.com/oculus-rift-s-review-4764112)
 * [Oculus Go Standalone VR Headset](https://www.lifewire.com/oculus-go-vr-headset-review-4690298)
 * [Valve Index](https://www.lifewire.com/valve-index-review-4775604)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -273,5 +287,20 @@ Andrew Hayward / Lifewire
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-exploring-vlcs-screen-recorder-features/"><u>[New] 2024 Approved Exploring VLC's Screen Recorder Features</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-obs-vs-twitch-studio-which-one-is-better/"><u>[New] OBS Vs Twitch Studio Which One Is Better?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-the-greatest-hits-of-iphone-movie-streaming/"><u>[Updated] 2024 Approved The Greatest Hits of iPhone Movie Streaming</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-essential-tactics-for-effective-fb-giveaway-campaigns/"><u>[Updated] Essential Tactics for Effective FB Giveaway Campaigns</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-live-and-record-flawlessly-find-the-best-conference-tech-today/"><u>[Updated] In 2024, Live and Record Flawlessly - Find the Best Conference Tech Today</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-look-into-the-amazon-kindle-oasis-exceptional-style-with-an-upscale-tag/"><u>Comprehensive Look Into the Amazon Kindle Oasis - Exceptional Style with an Upscale Tag</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-test-of-the-kootek-notebook-cooler-superior-in-every-aspect/"><u>Comprehensive Test of the Kootek Notebook Cooler: Superior in Every Aspect</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/deciphering-the-value-of-youtube-premium-membership/"><u>Deciphering the Value of YouTube Premium Membership</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-ideal-e-commerce-platforms-for-purchasing-televisions/"><u>Discover the Ideal E-Commerce Platforms for Purchasing Televisions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/docooler-usb-20-12-megapixel-review/"><u>Docooler USB 2.0 12 Megapixel Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-your-network-with-netgears-ac1200-ex6200-wifi-range-expander-a-user-centric-review/"><u>Elevate Your Network with Netgear's AC1200 EX6200 WiFi Range Expander - A User-Centric Review</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-vivo-y78-5g-by-drfone-android/"><u>How to Bypass FRP on Vivo Y78 5G?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-iphone-passcode-again-unlock-iphone-12-mini-without-passcode-now-by-drfone-ios/"><u>In 2024, Forgot iPhone Passcode Again? Unlock iPhone 12 mini Without Passcode Now</u></a></li>
+</ul></div>
 

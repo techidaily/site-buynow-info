@@ -1,7 +1,7 @@
 ---
 title: "Asus Chromebook C202SA Review: Durable for Students and Kids"
-date: 2024-10-06T18:28:56.235Z
-updated: 2024-10-07T18:48:07.349Z
+date: 2024-10-11T23:13:40.136Z
+updated: 2024-10-12T21:31:26.101Z
 categories:
   - BestProducts
 description: "This Article Describes Asus Chromebook C202SA Review: Durable for Students and Kids"
@@ -71,13 +71,26 @@ Lifewire / Andrew Hayward
 
 ![Spyro Reignited Trilogy](https://www.lifewire.com/thmb/5LUU3UESqaYj2UWDcD-NPdJTIvU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Spyro-Reignited-Trilogy-Playstation-4-Game-6-5c3db24b663040cf945be68bbdbb626a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Plot: Brave battles ahead**
@@ -90,14 +103,14 @@ Lifewire / Andrew Hayward
 
 ![Spyro Reignited Trilogy](https://www.lifewire.com/thmb/SoFUBfHCW2Wax9Y_hdtY9LGp7ZQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Spyro-Reignited-Trilogy-Playstation-4-Game-5-3de0ab6701954a6895a617e2f1068f78.jpg)
 
- Lifewire / Andrew Hayward
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Andrew Hayward
 
 ## **Gameplay: Blazing, approachable action**
 
@@ -119,13 +132,6 @@ Lifewire / Andrew Hayward
 
 ![Spyro Reignited Trilogy](https://www.lifewire.com/thmb/U1aCdzD7y9wloZO5KOWe2sP65uw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Spyro-Reignited-Trilogy-Playstation-4-Game-2-c085f6135aba41a3adb8125570b9a452.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 ## **Graphics: Beautifully reimagined**
@@ -140,18 +146,18 @@ Lifewire / Andrew Hayward
 
 Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Kid Appropriate: It’s made for them**
 
  There’s very little to worry about with Spyro Reignited Trilogy. All three of these games were pretty kid-friendly back in the late ‘90s, and that hasn’t changed with the upgraded graphics. It’s an action experience, and Spyro will use his charge and fire attacks to defeat enemies, which quickly disappears from view. It’s all very cartoonish, however, and doesn’t look realistic at all.
 
  The ESRB rates Spyro Reignited Trilogy as “Everything 10+” for “Cartoon Violence” and “Comic Mischief,” citing his attacks and also enemy Gnorc soldiers that briefly lift up the back flaps of their uniforms to “moon” Spyro before pointing and laughing. That might sound crude, but in the moment, it’s barely noticeable. We wouldn’t hesitate to give this game to kids under 10.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Three-for-one**
 
@@ -172,16 +178,16 @@ Lifewire / Andrew Hayward
  Spyro Reignited Trilogy might not be the most riveting platform-action experience for modern genre fans, but this remastered package is a great option for younger kids thanks to its simple gameplay and cartoonish tone. It’s also a welcome upgrade for fans of the decades-old original games, maintaining the spirit of the classics while making them much easier to enjoy today.
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -207,18 +213,15 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-enhancing-video-tracking-adding-timestamps-in-youtube/"><u>[New] In 2024, Enhancing Video Tracking Adding Timestamps in YouTube</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-safeguarding-and-recovering-private-snap-content/"><u>[Updated] 2024 Approved Safeguarding and Recovering Private Snap Content</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-kids-car-clubbing-capers/"><u>2024 Approved Kids' Car Clubbing Capers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/consider-insurance-if-youre-prone-to-accidents-or-dropping-your-devices-consider-getting-insurance-coverage-with-your-purchase-to-protect-against-accidental19/"><u>Consider Insurance: If You're Prone to Accidents or Dropping Your Devices, Consider Getting Insurance Coverage with Your Purchase to Protect Against Accidental Damage.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ddpai-mini3-review/"><u>DDpai Mini3 Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elite-selection-of-mobile-guardians-discover-the-best-iphone-malware-defenders/"><u>Elite Selection of Mobile Guardians: Discover the Best iPhone Malware Defenders</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-the-best-features-of-the-high-end-garmin-forerunner-ebike-sports-watch/"><u>Expert Analysis: The Best Features of the High-End Garmin Forerunner Ebike Sports Watch</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-picks-elite-network-server-racks-and-enclosures-dominating-2024-rankings/"><u>Expert Picks: Elite Network Server Racks and Enclosures Dominating 2024 Rankings</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-picks-the-foremost-high-performance-network-server-racks-for-modern-tech-environments/"><u>Expert Picks: The Foremost High-Performance Network Server Racks for Modern Tech Environments</u></a></li>
-<li><a href="https://win-dash.techidaily.com/free-download-enhanced-steelseries-gaming-experience-on-windows-11/"><u>Free Download: Enhanced SteelSeries Gaming Experience on Windows 11</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-apple-iphone-11-pro-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change Your Apple iPhone 11 Pro Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://os-tips.techidaily.com/ipad-ownership-is-it-worth-your-investment-essential-insights-for-potential-buyers/"><u>IPad Ownership: Is It Worth Your Investment? Essential Insights for Potential Buyers</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/step-by-step-guide-to-exporting-a-video-from-adobe-after-effects-for-seo-optimization/"><u>Step-by-Step Guide to Exporting a Video From Adobe After Effects for SEO Optimization</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-social-stardom-awaits-add-1k-to-your-insta-profile-each-month/"><u>[New] 2024 Approved Social Stardom Awaits Add 1K to Your Insta Profile Each Month</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cheap-and-fast-why-ankers-powerdrive-is-unmatched-for-efficient-in-car-charging-solutions/"><u>Cheap and Fast: Why Anker’s PowerDrive Is Unmatched for Efficient In-Car Charging Solutions.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-genius-widecam-f100-discussing-image-clarity-and-audible-echo-issues/"><u>Comprehensive Review of Genius WideCam F100 - Discussing Image Clarity and Audible Echo Issues</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-razer-blade-pro-17-top-notch-travel-companion-unveiled/"><u>Comprehensive Review of the Razer Blade Pro 17: Top Notch Travel Companion Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-the-multifunctional-samsung-gear-s3-frontier-your-ultimate-wrist-companion/"><u>Comprehensive Review: The Multifunctional Samsung Gear S3 Frontier – Your Ultimate Wrist Companion</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-hp-officejet-5740-drivers-compatible-with-windows-11-10-and-8/"><u>Download HP OfficeJet 5740 Drivers: Compatible with Windows 11, 10 & 8</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/instant-guide-how-to-safely-gratisly-download-vlc-on-macos-for-2024/"><u>Instant Guide How to Safely, Gratisly Download VLC on MacOS for 2024</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-realme-c33-2023-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-rated-windows-11-performance-analysis-essential-viewing-in-depth-desktop-and-mobile-appraisals/"><u>Top Rated Windows 11 Performance Analysis | Essential Viewing: In-Depth Desktop and Mobile Appraisals</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/visual-snippet-retriever-for-2024/"><u>Visual Snippet Retriever for 2024</u></a></li>
 </ul></div>
 

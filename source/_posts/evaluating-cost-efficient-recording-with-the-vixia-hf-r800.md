@@ -1,7 +1,7 @@
 ---
 title: Evaluating Cost-Efficient Recording with the VIXIA HF R800
-date: 2024-10-06T17:21:02.243Z
-updated: 2024-10-07T16:53:33.143Z
+date: 2024-10-09T03:36:00.513Z
+updated: 2024-10-12T23:25:02.864Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating Cost-Efficient Recording with the VIXIA HF R800
@@ -46,6 +46,13 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 [View On Amazon](https://www.amazon.com/dp/B075ZQXB26/?tag=lifewire-onsite-prod-20&ascsubtag=4845569%7Cn4bcb8b1996c24cd3b14f62e195599b0615%7CB075ZQXB26)
@@ -67,6 +74,13 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -85,34 +99,13 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels (in a rural area)**
 
  So many things[affect an antenna’s performance](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) —location, household electronics, tree cover, tower location, and more. The antenna displays channels of high quality. However, sometimes the channels would take a few seconds to load, and other times, I’d see a pixelated effect when I first changed the channel that would clear up after a few seconds. Once the picture was fully loaded, it was in clear high definition. The antenna is capable of displaying a clear HD picture, so I couldn’t tell the difference between the antenna’s picture and the picture from streaming services like Hulu or Netflix.
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -124,18 +117,18 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -148,6 +141,13 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -180,19 +180,18 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-buzzing-beats-leading-music-distortion-apps/"><u>[New] Buzzing Beats Leading Music Distortion Apps</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/digital-dreams-unite-conference-for-2024/"><u>Digital Dreams Unite Conference for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/essential-learning-applications-ranked-for-academic-success/"><u>Essential Learning Applications Ranked for Academic Success</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/expert-hashtag-analyzers-for-social-media-giants-fbtweetig-for-2024/"><u>Expert Hashtag Analyzers for Social Media Giants (FB/Tweet/IG) for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-in-depth-guide-to-extracting-vimeo-media/"><u>In 2024, In-Depth Guide to Extracting Vimeo Media</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-new-google-nest-hub-gen-2-why-cameras-are-missing/"><u>In-Depth Analysis of the New Google Nest Hub (Gen 2): Why Cameras Are Missing</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-ps4-pros-ability-to-deliver-ultra-hd-gaming/"><u>In-Depth Analysis of the PS4 Pro's Ability to Deliver Ultra HD Gaming</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-iphone-13-unveiled-pros-cons-and-performance-review/"><u>In-Depth Evaluation: IPhone 13 Unveiled – Pros, Cons & Performance Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mlb-the-show-nineteen-where-baseball-meets-immersive-role-playing-gameplay/"><u>MLB The Show Nineteen - Where Baseball Meets Immersive Role-Playing Gameplay</u></a></li>
-<li><a href="https://extra-information.techidaily.com/navigating-the-nuances-zoom-and-youtube-live-streaming-explored/"><u>Navigating the Nuances Zoom and YouTube Live Streaming Explored</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-gopro-quik-for-pc-a-comprehensive-review-and-alternatives/"><u>New 2024 Approved GoPro Quik for PC A Comprehensive Review and Alternatives</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/powerful-beatit-bt-d11-jumper-pack-evaluation/"><u>Powerful Beatit BT-D11 Jumper Pack Evaluation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/pros-cons-and-performance-ring-doorbell-vs-nest-smart-doorbell-analysis/"><u>Pros, Cons & Performance: Ring Doorbell Vs. Nest Smart Doorbell Analysis</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-complete-manual-on-deleting-a-defunct-linkedin-profile-for-2024/"><u>The Complete Manual on Deleting a Defunct LinkedIn Profile for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-best-browser-capture-tools-top-picks/"><u>[New] In 2024, Best Browser Capture Tools Top Picks</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-device-entry-guide-to-googles-video-conferencing/"><u>[Updated] 2024 Approved Device Entry Guide to Google's Video Conferencing</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-capture-and-store-nine-excellent-windows-tools-for-animation-gifs-for-2024/"><u>[Updated] Capture and Store Nine Excellent Windows Tools for Animation GIFs for 2024</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/1725289870987-dvd/"><u>「新着、日本語対応のDVDクランキングソフトを無料で入手！」</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/driven-with-cookiebot-technology/"><u>Driven with Cookiebot Technology</u></a></li>
+<li><a href="https://win-updates.techidaily.com/the-insiders-manual-on-m4v-all-you-need-to-know-about-this-common-digital-video-format/"><u>The Insider's Manual on M4V: All You Need to Know About This Common Digital Video Format</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-samsung-galaxy-s24-ultra-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Samsung Galaxy S24 Ultra Phone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/unifying-your-visuals-how-to-color-match-video-clips-in-powerdirector/"><u>Unifying Your Visuals How to Color Match Video Clips in PowerDirector</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-capabilities-a-complete-review-of-the-intelligent-linksys-ea9500-wifi-router/"><u>Unveiling the Capabilities: A Complete Review of the Intelligent Linksys EA9500 WiFi Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-performance-of-linksys-wrt3nacm-acm-a-leading-choice-for-enthusiasts-in-open-source-routers/"><u>Unveiling the Performance of Linksys WRT3nacm ACM: A Leading Choice for Enthusiasts in Open Source Routers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-perks-and-pitfalls-of-the-google-pixelbook-gos-pricing-strategy/"><u>Unveiling the Perks and Pitfalls of the Google Pixelbook Go's Pricing Strategy</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-quality-of-fongos-voip-services-across-canada/"><u>Unveiling the Quality of Fongo's VoIP Services Across Canada</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/wifi-warriors-tp-link-archer-ax6000-vs-nighthawk-ax12-which-should-you-choose/"><u>WiFi Warriors: TP-Link Archer AX6000 Vs. Nighthawk AX12 – Which Should You Choose?</u></a></li>
 </ul></div>
 

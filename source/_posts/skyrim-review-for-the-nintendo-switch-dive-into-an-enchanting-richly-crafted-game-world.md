@@ -1,7 +1,7 @@
 ---
 title: Skyrim Review for the Nintendo Switch - Dive Into an Enchanting, Richly Crafted Game World.
-date: 2024-09-10T16:34:40.813Z
-updated: 2024-09-15T19:52:43.948Z
+date: 2024-10-08T17:17:20.578Z
+updated: 2024-10-13T09:54:18.955Z
 categories:
   - BestProducts
 description: This Article Describes Skyrim Review for the Nintendo Switch - Dive Into an Enchanting, Richly Crafted Game World.
@@ -42,6 +42,13 @@ Lifewire / Kelsey Simon
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Dying Light
 
 ![Dying Light](https://www.lifewire.com/thmb/YWkGikwP23JK119N4M7J22dAPJY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
@@ -68,6 +75,13 @@ Lifewire / Kelsey Simon
  Dying Light is a first-person action-adventure game set in the midst of a zombie apocalypse. Its headline feature is kinetic parkour traversal through an open-world infested with unique zombies.
 
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -107,19 +121,6 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/YctEePpYKsIXQ5kU-hQ8w7o9CDo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-4-1edeaf05c6ba435e9b81e68a13831ac6.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
 ## **Graphics: Attention to detail**
@@ -130,30 +131,24 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Worth the cost, especially with a friend**
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Other zombie and parkour games**
@@ -167,6 +162,13 @@ Harran is a whole different city at night.
 **An original in the zombie survival genre.**
 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -187,5 +189,24 @@ Harran is a whole different city at night.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastering-the-art-of-filter-selection-on-instagram/"><u>[New] 2024 Approved Mastering the Art of Filter Selection on Instagram</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unveiling-the-fresh-lg-bp550-update/"><u>[New] Unveiling the Fresh LG BP550 Update</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/achieving-your-objectives-with-microsoft-word-the-ultimate-guide-to-digital-bullet-journalling/"><u>Achieving Your Objectives with Microsoft Word: The Ultimate Guide to Digital Bullet Journalling</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/analyzing-the-balance-between-price-and-agility-in-the-swagtron-swagboard-t1-review/"><u>Analyzing the Balance Between Price and Agility in the Swagtron Swagboard T1 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apples-airpods-pro-vs-samsungs-buds-pro-clash/"><u>Apple's Airpods Pro Vs. Samsung's Buds Pro Clash</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/beyond-the-surface-aminys-ufo-critique/"><u>Beyond the Surface: Aminy's UFO Critique</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-comfort-and-support-with-the-x-chair-x4-executive-chair-breakdown/"><u>Decoding Comfort and Support with the X-Chair X4 Executive Chair Breakdown</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/discover-cutting-edge-electronics-with-toms-hardware-insights/"><u>Discover Cutting-Edge Electronics with Tom's Hardware Insights</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discover-the-key-enhancements-of-ipados-18-revealed-at-apples-wwdc-2024-and-compatible-devices-list/"><u>Discover the Key Enhancements of iPadOS 18 Revealed at Apple's WWDC 2024 and Compatible Devices List</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/plot-perfection-the-top-9-ways-chatgpt-helps-novelists/"><u>Plot Perfection: The Top 9 Ways ChatGPT Helps Novelists</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/rapid-video-to-audio-transformation-swiftly-convert-mp4-files-to-mp3-format/"><u>Rapid Video-to-Audio Transformation: Swiftly Convert MP4 Files to MP3 Format</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-amd-ryzen-drivers-update-protect-your-system-with-ease/"><u>Step-by-Step AMD Ryzen Drivers Update - Protect Your System with Ease</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-meme-code-principles-of-viral-video-content-creation-for-2024/"><u>The Meme Code Principles of Viral Video Content Creation for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-breakdown-of-the-asus-rog-gt-ac5300-tailored-to-meet-gamers-and-tech-buffs-needs/"><u>The Ultimate Breakdown of the Asus ROG GT-AC5300: Tailored to Meet Gamers and Tech Buffs Needs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-asus-rog-rapture-gt-ax11000-analysis-highlighting-superior-gameplay-speed-and-advanced-features/"><u>Top Asus ROG Rapture GT-AX11000 Analysis: Highlighting Superior Gameplay Speed & Advanced Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unmissable-savings-prime-days-premier-deals-for-acer-products-in-2e24/"><u>Unmissable Savings: Prime Day's Premier Deals for Acer Products in 2E24</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/x3/"><u>X=3</u></a></li>
+</ul></div>
 

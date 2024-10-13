@@ -1,7 +1,7 @@
 ---
 title: "Motorola's Moto G Power Shines in Performance and Lasting Battery Life: Reviews"
-date: 2024-10-06T16:09:09.313Z
-updated: 2024-10-07T16:45:09.744Z
+date: 2024-10-06T16:18:51.876Z
+updated: 2024-10-12T23:20:43.970Z
 categories:
   - BestProducts
 description: "This Article Describes Motorola's Moto G Power Shines in Performance and Lasting Battery Life: Reviews"
@@ -41,6 +41,13 @@ Lifewire / Kelsey Simon
 
 2.7
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
@@ -64,10 +71,10 @@ Lifewire / Kelsey Simon
  Torment: Tides of Numenera is the second game in the Torment series, offering players a rich world inspired by combining science-fiction and fantasy elements. Loaded with heavy-handed storytelling, players might find it hard to push through the poor graphics and the boring[gameplay](https://www.lifewire.com/record-gameplay-on-ps4-5074215) to truly enjoy the game’s plot. We had a rough time even making it through 10 hours of the game, latching on to the game’s one highlight, it’s rich and unique worldbuilding. Read on to see how it stacked up to the other games on our[best PC games](https://flow.dotdash.com/flow-queue?backTo=%2Fmy-projects%2F1804&source=todo&doc%5Fid=4580331&task%5Fid=1289817&project%5Fid=1804) roundup.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Story: Heavy-handed writing to the exclusion of all else**
@@ -77,10 +84,10 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -112,10 +119,10 @@ Lifewire / Kelsey Simon
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Graphics: Outdated and simplistic**
@@ -135,13 +142,6 @@ Lifewire / Kelsey Simon
  That said, if role-playing games with a text-heavy focus are of interest to you, then the game does have a lot to offer for the cost. The world of Numenera is vast, and considering all the prompts that alter the story, the game also has a lot of replayability. While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else, and for those players, the $50 cost will be worth it.
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Other story focused RPGs**
 
@@ -178,20 +178,17 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-analyzing-youtubes-process-for-selective-comment-showcasing/"><u>[New] 2024 Approved Analyzing YouTube's Process for Selective Comment Showcasing</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-envisioned-worlds-await-equip-yourself-with-these-7-devices-for-2024/"><u>[Updated] Envisioned Worlds Await Equip Yourself with These 7 Devices for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-top-youtube-titles-crafted-by-ai/"><u>[Updated] Top YouTube Titles Crafted by AI</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/androids-lightroom-app-a-complete-evaluation/"><u>Android's Lightroom App A Complete Evaluation</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-old-call-logs-from-your-nokia-g42-5g-by-fonelab-android-recover-call-logs/"><u>How to recover old call logs from your Nokia G42 5G?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-track-imei-number-of-nokia-c32-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Nokia C32 Through Google Earth?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Oppo A38 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-windows-upgrades-home-to-pro-pathway/"><u>Mastering Windows Upgrades: Home to Pro Pathway</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximize-your-workout-experience-with-garmin-vivoactive-3s-top-tier-tunes-and-fitness-features/"><u>Maximize Your Workout Experience with Garmin Vivoactive 3'S Top-Tier Tunes and Fitness Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-security-a-critical-evaluation-of-the-ring-battery-doorbell-plus-version/"><u>Maximizing Security: A Critical Evaluation of the Ring Battery Doorbell + Version</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-through-clouds-with-msfsx-ultimate-release-why-this-remains-a-top-ranked-flight-simulation-software-for-gamers-and-hobbyists/"><u>Navigating Through Clouds with MSFSX Ultimate Release - Why This Remains a Top-Ranked Flight Simulation Software for Gamers and Hobbyists</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reviewing-the-exceptional-and-elegant-dell-xps-13-7390-the-ultimate-2-in-1-ultrabook/"><u>Reviewing the Exceptional and Elegant Dell XPS 13 7390: The Ultimate 2-in-1 Ultrabook</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionize-your-wireless-experience-with-the-upgraded-netgear-nighthawk-wi-fi-booster-x6s/"><u>Revolutionize Your Wireless Experience with the Upgraded Netgear Nighthawk Wi-Fi Booster X6S</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/side-by-side-comparison-how-does-an-ipad-differ-from-an-ipad-air/"><u>Side-by-Side Comparison: How Does an iPad Differ From an iPad Air?</u></a></li>
-<li><a href="https://win11.techidaily.com/thaw-frozen-handbrake-on-windows/"><u>Thaw Frozen HandBrake on Windows</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-launch-your-stream-top-8-youtube-revenue-tactics/"><u>2024 Approved Launch Your Stream Top 8 YouTube Revenue Tactics</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5ywo55s76z2i44kt44oj44ox44ob44oj5lin5yplusv6kej5p6q77ya6yyy55s75qmf6io944gm5bgk44gl44gq44ge55cg55sx/"><u>全画面キャプチャ不可解析：録画機能が届かない理由</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-vivo-v29e-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Vivo V29e Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-motorola-moto-g14-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Motorola Moto G14 PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://extra-support.techidaily.com/prove-youre-a-pro-lightning-fast-editing-in-windows-11-videos-for-2024/"><u>Prove You're a Pro Lightning-Fast Editing in Windows 11 Videos for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/quickening-ppt-tempo-a-guide-to-faster-slides-for-2024/"><u>Quickening PPT Tempo A Guide to Faster Slides for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-g435-bluetooth-headphones-silent-issues-quick-guide/"><u>Troubleshooting G435 Bluetooth Headphones Silent Issues - Quick Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-samsung-un65ru8000fxza-a-masterpiece-of-design-and-intelligence-reviewed/"><u>Unveiling the Samsung UN65RU8000FXZA: A Masterpiece of Design & Intelligence Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-top-7-wireless-contracts-tailored-for-elders/"><u>Unveiling the Top 7 Wireless Contracts Tailored for Elders</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/yakuza-like-a-dragon-review-a-must-play-jrpg/"><u>Yakuza: Like A Dragon Review: A Must-Play JRPG</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/your-ultimate-guide-to-choosing-optimal-wrist-supports-for-pc-users/"><u>Your Ultimate Guide to Choosing Optimal Wrist Supports for PC Users</u></a></li>
+<li><a href="https://fox-making.techidaily.com/windows-11windows-8/"><u>データ移行ガイド：Windows 11への変更、Windows 8.</u></a></li>
 </ul></div>
 

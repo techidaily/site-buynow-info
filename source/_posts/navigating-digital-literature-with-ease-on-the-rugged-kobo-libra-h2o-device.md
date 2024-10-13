@@ -1,7 +1,7 @@
 ---
 title: Navigating Digital Literature with Ease on the Rugged Kobo Libra H2O Device
-date: 2024-10-06T16:30:47.723Z
-updated: 2024-10-07T18:53:36.386Z
+date: 2024-10-08T02:22:34.966Z
+updated: 2024-10-13T00:34:16.727Z
 categories:
   - BestProducts
 description: This Article Describes Navigating Digital Literature with Ease on the Rugged Kobo Libra H2O Device
@@ -45,22 +45,21 @@ Lifewire / Andy Zahn
 4.3
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -110,13 +109,6 @@ Lifewire / Andy Zahn
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
@@ -155,6 +147,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -168,6 +167,13 @@ Lifewire / Andy Zahn
  A problem with all these automated modes and scene settings is that the images they produce are exclusively JPEG, with RAW being unavailable. Fortunately, Program mode is essentially the same as Auto, and you can enable RAW image recording there.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
 
@@ -193,11 +199,31 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
+
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
 
@@ -215,25 +241,11 @@ Lifewire / Andy Zahn
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Panasonic Lumix DC-FZ80](https://www.lifewire.com/panasonic-lumix-dc-fz80-review-4691071)
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -269,17 +281,20 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-info.techidaily.com/all-in-one-home-hub-on-wheels-exploring-the-latest-amazon-echo-show-10-third-generation/"><u>All-in-One Home Hub on Wheels – Exploring the Latest Amazon Echo Show 10 (Third Generation)</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/effective-fixes-for-world-of-warcraft-voice-chat-failures-and-interruptions/"><u>Effective Fixes for World of Warcraft Voice Chat Failures and Interruptions</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/essential-advice-on-securing-the-best-deal-for-your-next-vintage-ipad/"><u>Essential Advice on Securing the Best Deal for Your Next Vintage iPad</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-superior-performance-at-a-steal-the-ultimate-guide-to-the-arcshell-ar-5/"><u>Experience Superior Performance at a Steal: The Ultimate Guide to the Arcshell AR- 5</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/in-2024-combine-videos-without-branding-top-7-tools-reviewed/"><u>In 2024, Combine Videos Without Branding Top 7 Tools Reviewed</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-free-top-ranked-image-overlays-for-androidandios/"><u>In 2024, Ultimate FREE Top-Ranked Image Overlays for Android&iOS</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, What are Location Permissions Life360 On Apple iPhone XS Max? | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/introducing-macpaws-innovative-ipad-application-solution-amidst-stricter-guidelines-an-insight/"><u>Introducing MacPaw's Innovative iPad Application Solution Amidst Stricter Guidelines - An Insight</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-bridge-crossing-with-top-10-easy-speak/"><u>Linguistic Bridge: Crossing with Top 10 Easy-Speak</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/omnicharge-omni-20-in-depth-analysis-a-comprehensive-guide-for-multi-functional-portable-batteries-with-qi-wireless-features/"><u>Omnicharge Omni 20 In-Depth Analysis: A Comprehensive Guide for Multi-Functional Portable Batteries with Qi Wireless Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-the-netgear-c3-grower-routermodem-combo-is-it-time-to-upgrade/"><u>Unboxing and Testing the Netgear C3 Grower Router/Modem Combo - Is It Time to Upgrade?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/universal-flexible-bluetooth-keyboard-by-moko-compact-and-portable/"><u>Universal Flexible Bluetooth Keyboard by MoKo: Compact & Portable</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-initial-movie-capture-evaluation-with-options/"><u>[New] In 2024, Initial Movie Capture Evaluation with Options</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-pioneering-process-open-mac-seamlessly-with-watch/"><u>[Updated] Pioneering Process Open Mac Seamlessly with Watch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-leading-choices-for-dependable-battery-backup-systems/"><u>2024'S Leading Choices for Dependable Battery Backup Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-premier-pathways-to-becoming-a-pro-coder-from-home/"><u>2024'S Premier Pathways to Becoming a Pro Coder From Home</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-comprehensive-look-at-the-new-generation-flight-experience-in-x-plane-11s-visual-overhaul-review/"><u>A Comprehensive Look at the New Generation Flight Experience in X-Plane 11'S Visual Overhaul Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-critical-examination-of-the-high-end-garmin-forerunner-745-multisport-fitness-device-for-serious-athletes/"><u>A Critical Examination of the High-End Garmin Forerunner 745: Multisport Fitness Device for Serious Athletes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-deep-dive-into-dreame-bot-l10-pros-capabilities-next-level-lidar-technology-for-home-cleaning/"><u>A Deep Dive Into Dreame Bot L10 Pro's Capabilities - Next-Level LiDAR Technology for Home Cleaning</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-nubia-red-magic-8s-proplus-frp-bypass-by-drfone-android/"><u>About Nubia Red Magic 8S Pro+ FRP Bypass</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/demystifying-instagrams-guidelines-for-sharing-songs/"><u>Demystifying Instagram’s Guidelines for Sharing Songs</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/ensuring-display-perfection-after-fix/"><u>Ensuring Display Perfection After Fix</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-fix-excessive-processing-power-use-in-baldurs-gate-3/"><u>How to Fix Excessive Processing Power Use in Baldur's Gate 3</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723208972954-minecraft-and-windows-woes-no-more-solve-your-video-card-driver-problems-today/"><u>Minecraft and Windows Woes No More - Solve Your Video Card Driver Problems Today</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722671362813-top-rated-netgear-wifi-router-models/"><u>Top-Rated Netgear WiFi Router Models</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722531400541-top-rated-video-game-systems-of-2024-your-ultimate-guide/"><u>Top-Rated Video Game Systems of 2024 - Your Ultimate Guide</u></a></li>
+<li><a href="https://article-helps.techidaily.com/virtual-venture-gears-choosing-best-metaverse-headsets-for-2024/"><u>Virtual Venture Gears Choosing Best Metaverse Headsets for 2024</u></a></li>
 </ul></div>
 

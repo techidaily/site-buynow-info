@@ -1,7 +1,7 @@
 ---
 title: "Understanding the Triumph of Nintendo's Wii U: Key Factors Behind Its Popularity"
-date: 2024-10-04T18:58:22.184Z
-updated: 2024-10-07T16:04:23.791Z
+date: 2024-10-12T00:47:04.608Z
+updated: 2024-10-12T21:26:21.148Z
 categories:
   - BestProducts
 description: "This Article Describes Understanding the Triumph of Nintendo's Wii U: Key Factors Behind Its Popularity"
@@ -47,16 +47,16 @@ Erika Rawes / Lifewire
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Raspberry Pi 400
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/Lx1zPft9GUcm5A0WBJsxvP8fCUM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Raspberry-Pi-400-Mini-PC-1-2e3e0817c1ad4570a7c3a8d70b7e991b.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Erika Rawes / Lifewire
 
@@ -110,6 +110,13 @@ Erika Rawes / Lifewire
 
  The whole purpose of a Raspberry Pi is to be whatever you want it to be—a personal computer, a smart home controller, a gaming system, or whatever else you can think of.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Projects: Keyboard helps in some ways, hinders in others
 
  One great thing about[Raspberry Pi](https://www.lifewire.com/what-is-raspberry-pi-4042337) is that there’s a community of users to help you out with project ideas, to share terminal commands, and to help with troubleshooting. Pi computers are great for makers, but once I really started experimenting with the Pi 400, I realized the keyboard is beneficial in some areas, but it’s limiting in others.
@@ -120,20 +127,13 @@ Erika Rawes / Lifewire
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/oideXrFtpj_WzRtq1qacMhsc7Dg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-2-6fbd163b7ed849f684963b93ae8b8735.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Erika Rawes / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Display: Dual mini HDMI ports
@@ -150,11 +150,25 @@ Erika Rawes / Lifewire
 
  The PC-in-a-keyboard design makes the Pi 400 Kit less like a computer you have to build, and more like a PC you can start using right out of the box.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Gaming: Minecraft Pi, RetroPie, and more
 
  The Raspberry Pi 400 Kit with the included Raspberry Pi OS card has a few games preloaded, like Soccer, Boing, Bunner, and Minecraft Pi. Minecraft Pi lets you build Minecraft style, while also learning about programming languages.
 
  You can turn your Raspberry Pi 400 into a RetroPie gaming system, where you can play classic games from Nintendo, Nintendo 64, Sega, Atari, and more. I created a RetroPie using a Raspberry Pi 3 a few years back, and I’d have to connect a keyboard for any updates or changes. The new keyboard form factor makes things a bit easier with the Pi 400\.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Productivity: LibreOffice and helpful accessories
 
@@ -162,18 +176,18 @@ Erika Rawes / Lifewire
 
  The accessories tab includes a PDF viewer and a calculator, as well as a text editor and an SD card copier. You also have a basic web browser—plenty of tools to get you started.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Audio: Bluetooth connectivity
 
  You won’t find built-in speakers, but the Pi 400 will play audio on your monitor’s speakers when you use the HDMI to mini HDMI cable included in the kit. It also has Bluetooth for connecting a pair of wireless headphones. I had no problem connecting a few different types of Bluetooth headphones to the Pi. There’s no audio output jack, but you can connect compatible USB speakers if you launch the appropriate USB commands in the terminal.
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/vAb_0QFg4Uze6uuiSMlTPtkw_CA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-5-b326f92abc1a4349910f0b7b5d0e2d53.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Erika Rawes / Lifewire
 
@@ -183,19 +197,6 @@ Erika Rawes / Lifewire
 
  Here at my home in the Research Triangle in North Carolina, my Wi-Fi speeds max out at 400Mbps. I was able to get respectable speeds on this mini PC, with around 100Mbps upload and 30Mbps download. I did not attempt a hardwired connection.
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Camera: No CSI port, but you can use a USB webcam
 
  The Pi 400 doesn’t have the CSI (camera serial interface) port for connecting the camera accessory, and this limits the types of projects you can create to a certain extent.
@@ -203,6 +204,13 @@ Erika Rawes / Lifewire
  You can[connect a USB webcam](https://www.lifewire.com/install-and-connect-a-webcam-to-your-pc-2640488) as an alternative, but this won’t provide the same tiny form factor as you’d get with previous Pi models. Also, keep in mind when using a USB webcam, you have to go into the terminal and enter a command to install the webcam package. You can then use commands to take a picture with your webcam, and you can adjust your commands to specify things like sizing, borders, and other conditions. It’s not as seamless as a typical Windows or Chromebox mini PC, where you can just plug, play, and start video chatting. You have to enter a command for just about everything you do.
 
  Pi computers are great for makers, but once I really started experimenting with the Pi 400, I realized the keyboard is beneficial in some areas, but it’s limiting in others.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Software: Learn to code
 
@@ -215,13 +223,6 @@ Erika Rawes / Lifewire
  Unless you’re well-versed in using a Pi, I would not suggest going with the Pi 400 alone. It’s best to go with the kit. The Pi 400 kit costs around $100, and that’s a great price considering everything you get. It makes an excellent gift for a young techie or anyone who wants to learn more about computers or automation.
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/sgM6gDaZx8bgvwHPPRkrZjgH9oA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-4-c9378702644a4e77b8a5e58985d72993.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Erika Rawes / Lifewire
 
@@ -238,13 +239,6 @@ Erika Rawes / Lifewire
 **Practical, versatile, and affordable.**
 
  Unlike previous Raspberry Pis that are for more advanced users, the Pi 400 kit is designed for everyone. Whether you want to learn programming, create a gaming system, create a streaming system, or get into 3D modeling, the Pi 400 is a good starting point.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -276,18 +270,20 @@ Erika Rawes / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/rafting-the-perfect-end-screen-youtube-template-guidebook/"><u>[New] Crafting the Perfect End Screen - YouTube Template Guidebook</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-explore-the-finest-yt-unboxing-sequences/"><u>[New] Explore the Finest YT Unboxing Sequences</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-mastery-of-autoplay-functionality-in-fb-video-streams/"><u>[New] Mastery of Autoplay Functionality in Fb Video Streams</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-enhance-branding-the-ultimate-guide-to-custom-urls-for-youtube-for-2024/"><u>[Updated] Enhance Branding The Ultimate Guide to Custom URLs for YouTube for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/comprendre-le-guide-dutilisation-de-winxdvd-un-cours-pratique/"><u>Comprendre Le Guide D'Utilisation De WinXDVD : Un Cours Pratique</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-wonders-of-skyrim-as-a-role-playing-experience-on-nintendo-switch/"><u>Exploring the Wonders of Skyrim as a Role-Playing Experience on Nintendo Switch</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/find-your-perfect-match-a-guide-to-the-best-6-laptop-shops-worldwide/"><u>Find Your Perfect Match: A Guide to the Best 6 Laptop Shops Worldwide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/from-cozy-to-chic-the-evolution-guide-to-animal-accommodations/"><u>From Cozy to Chic: The Evolution Guide to Animal Accommodations</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-samsung-galaxy-m34-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Samsung Galaxy M34 Phone Now with These Tips</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-the-waters-of-high-fidelity-soundscape-with-the-nest-audio-smart-speaker/"><u>Navigating the Waters of High-Fidelity Soundscape with the Nest Audio Smart Speaker</u></a></li>
-<li><a href="https://video-capture.techidaily.com/pcgifgif5/"><u>PCユーザーへのGIF制作ガイド：GIFを作るための上位5選ソフト情報</u></a></li>
-<li><a href="https://win-web.techidaily.com/sharing-and-interacting-with-archived-help-documents-master-the-process-on-flipbuildercom/"><u>Sharing and Interacting with Archived Help Documents - Master the Process on FlipBuilder.com</u></a></li>
-<li><a href="https://change-location.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Samsung Galaxy F14 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-syncing-songs-with-stories-and-videos-on-instagram/"><u>[New] 2024 Approved Syncing Songs with Stories and Videos on Instagram</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-learn-to-cut-out-the-unwanted-a-guide-to-erasing-background/"><u>[Updated] In 2024, Learn to Cut Out the Unwanted A Guide to Erasing Background</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Infinix GT 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-detailed-look-at-garmin-forerunner-45-unveiling-its-capabilities-for-various-fitness-pursuits/"><u>A Detailed Look at Garmin Forerunner 지오45 - Unveiling Its Capabilities for Various Fitness Pursuits</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/applecareplus-benefits-examined-a-cost-benefit-analysis-you-need-to-know/"><u>AppleCare+ Benefits Examined: A Cost-Benefit Analysis You Need to Know</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-the-persistent-crash-problem-in-alan-wake-2-ultimate-fixes-of-2024/"><u>Fixing the Persistent Crash Problem in Alan Wake 2 - Ultimate Fixes of 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor X8b? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-se-2020-to-other-iphone-13-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone SE (2020) to other iPhone 13 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-se-2022-to-other-iphone-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone SE (2022) to other iPhone devices? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, The Best iSpoofer Alternative to Try On Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-worlds-best-short-videos-download-now-free/"><u>In 2024, World's Best Short Videos – Download Now! (Free)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-activating-and-setting-up-a-nintendo-network-username-for-enhanced-gameplay-experience-on-the-3ds/"><u>Ultimate Guide: Activating and Setting Up a Nintendo Network Username for Enhanced Gameplay Experience on the 3DS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722562415255-unleash-lightning-fast-media-experience-with-our-comprehensive-look-at-the-fire-tv-cube/"><u>Unleash Lightning-Fast Media Experience with Our Comprehensive Look at the Fire TV Cube!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-elgoog-the-definitive-mirror-site-analysis/"><u>Unveiling elgooG: The Definitive Mirror Site Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/which-is-better-an-in-depth-look-at-google-nest-audio-and-nest-mini-features/"><u>Which Is Better? An In-Depth Look at Google Nest Audio and Nest Mini Features</u></a></li>
 </ul></div>
 

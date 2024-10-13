@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Beauty & Versatility in the Dell XPS 13 (7390) Review: A Stunning Convertible Ultrabook"
-date: 2024-09-09T17:05:46.547Z
-updated: 2024-09-15T20:23:32.636Z
+date: 2024-10-11T00:58:19.927Z
+updated: 2024-10-13T05:38:09.056Z
 categories:
   - BestProducts
 description: "This Article Describes Unveiling the Beauty & Versatility in the Dell XPS 13 (7390) Review: A Stunning Convertible Ultrabook"
@@ -43,6 +43,13 @@ Lifewire / Andrew Hayward
 [View On Amazon $120](https://www.amazon.com/dp/B01N5G5PG2?tag=lifewire-onsite-prod-20&ascsubtag=4779841%7Cn60af91831ac9464bb2875557b5307fe410%7CB01N5G5PG2) [View On Walmart $115](https://www.walmart.com/ip/200902257)
 
 4.5
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## ASUS Chromebook Flip C302CA-DHM4
 
@@ -97,6 +104,19 @@ Lifewire / Andrew Hayward
 
  The Chromebook Flip’s keyboard feels great in action. The one-piece chiclet keyboard has a scissor-style key design with 1.4mm of travel, which gives it a more satisfying feel than the latest MacBooks’ keys (which have very little travel), and the keys are responsive and not especially loud in usage. It’s also brightly backlit, which isn’t always the case with Chromebooks. The touchpad below is nicely sized and wider than some we’ve seen, although not nearly as large as Apple’s luxurious trackpads of late.
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: No sweat whatsoever**
 
  Setting up a Chromebook is incredibly easy. Just power it on (the button is on the left side), connect to a network, accept the terms of service and choose from any options that you’re prompted to, and then plug in your Google account info. If you do already have a Google account, then any bookmarks, Chrome extensions, and apps will automatically be added. If you don’t have a Google account, then you’ll need to sign up for one to use the Chromebook. In any case, this whole process shouldn’t take more than a matter of minutes to complete.
@@ -104,10 +124,10 @@ Lifewire / Andrew Hayward
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/AFQh-ERthm-g0pAMcnQlyA2Rjgw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_bent_02-3dfd0720309d4d12beb5ae695a007aa1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -117,6 +137,13 @@ Lifewire / Andrew Hayward
  As mentioned, the Chromebook Flip’s 12.5-inch, 1080p screen is a little smaller than you’ll see on some rivals, but that doesn’t take away from its usability. It’s colorful and nicely vibrant, and text and graphics typically look crisp. It’s not one of the brightest screens we’ve seen, with a listed brightness of about 300 nits, but that’s pretty common amongst laptops. It’s a little dimmer than we’d like, admittedly. Visibility is impacted in direct sunlight, but in most situations, it’s hard to complain too much about this screen.
 
  It also acts like an extra-large tablet screen since it’s a touchscreen with 10 points of interaction. It felt just as responsive as any tablet we’ve used.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: It does what it can**
 
@@ -138,16 +165,22 @@ Lifewire / Andrew Hayward
 
  The tiny speaker grates on the left and right side of the Chromebook Flip don’t look too promising, but the playback quality was better than expected. Music output isn’t big and bold, but it’s pretty clear and it can get loud without getting too muddled. Video playback via YouTube and Netflix was sometimes too quiet at full volume, however.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Network: No complaints here**
 
  The Chromebook Flip has dual-band Wi-Fi that can connect to both 2.4Ghz and 5Ghz networks, and we had no issues with either during our testing. We went online at a home network and a Starbucks Google network alike, and things were routinely speedy. On the home network, we saw speeds of about 33Mbps and upload speeds in excess of 10Mbps—essentially the same as we’ve seen with[other laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) and[smartphones](https://www.lifewire.com/best-smartphones-4043781) .
+
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery: Nearly a day’s worth**
 
@@ -159,21 +192,7 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/VR5Y-1tDILHowNSeA408pnLVtgg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_closed_04-bde5ec8f988c4bb49e4019f95cc47c31.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: It’s definitely different**
 
@@ -195,14 +214,14 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/NHrMPSrgOWsOuCEYg0M-STQUfsU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Air-v-Surface-Comparison-a255967a27e14762b5c2ad9c442df77f.jpg)
 
- Lifewire / Andrew Hayward
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Andrew Hayward
 
 ## **Asus Chromebook Flip C302CA vs. Apple MacBook Air**
 
@@ -248,5 +267,24 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-the-ultimate-list-of-preferred-mac-snipping-apps/"><u>[Updated] 2024 Approved The Ultimate List of Preferred Mac Snipping Apps</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-excellent-4k-capture-gear-the-18-best-ones/"><u>[Updated] In 2024, Excellent 4K Capture Gear - The 18 Best Ones</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-maximizing-tv-viewership-for-facebook-live-events/"><u>[Updated] Maximizing TV Viewership for Facebook Live Events</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-top-8-best-video-grabbers-for-windows-10-for-2024/"><u>[Updated] Top 8 Best Video Grabbers for Windows 10 for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ambient-weather-ws-1002-wifi-observer-review/"><u>Ambient Weather WS-1002-WIFI Observer Review</u></a></li>
+<li><a href="https://extra-information.techidaily.com/elevate-with-excellence-the-ultimate-guide-to-motivational-films/"><u>Elevate with Excellence The Ultimate Guide to Motivational Films</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-star-wars-squadrons-a-comprehensive-review-of-its-thrilling-dogfights-in-space/"><u>Exploring Star Wars: Squadrons - A Comprehensive Review of Its Thrilling Dogfights in Space</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-oppo-find-x6-pro-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Oppo Find X6 Pro Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-mp4mpeg-audio-extraction-tool/"><u>In 2024, MP4/MPEG Audio Extraction Tool</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-trouble-with-iphone-8-plus-swipe-up-try-these-11-solutions-by-drfone-ios/"><u>In 2024, Trouble with iPhone 8 Plus Swipe-Up? Try These 11 Solutions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-xbox-series-s-portable-gaming-without-compromise/"><u>In-Depth Analysis of Xbox Series S: Portable Gaming without Compromise</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovo-ideapad-130s-evaluation-balancing-restricted-performance-with-unexpected-user-friendliness/"><u>Lenovo IdeaPad 130S Evaluation: Balancing Restricted Performance with Unexpected User-Friendliness</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/moto-g-power-evaluation-reliable-functionality-with-extraordinary-battery-life-explored/"><u>Moto G Power Evaluation: Reliable Functionality with Extraordinary Battery Life Explored</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-buyers-guide-to-selecting-the-best-asus-routers-available/"><u>The Ultimate Buyer's Guide to Selecting the Best ASUS Routers Available</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-strengths-of-the-nokia-c3-review-going-beyond-ordinary-mid-range-smartphone-offerings/"><u>Unveiling the Strengths of the Nokia C3 Review: Going Beyond Ordinary Mid-Range Smartphone Offerings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/x-planes-latest-update-an-in-depth-review-of-next-gen-visuals-and-gameplay-for-aspiring-pilots/"><u>X-Plane's Latest Update - An In-Depth Review of Next-Gen Visuals and Gameplay for Aspiring Pilots</u></a></li>
+</ul></div>
 

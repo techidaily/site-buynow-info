@@ -1,7 +1,7 @@
 ---
 title: "Sony XBR65X850F 4K Television: Stunning Visuals at an Unbelievable Price Point Review"
-date: 2024-09-12T18:05:43.996Z
-updated: 2024-09-15T17:57:28.531Z
+date: 2024-10-09T16:14:25.271Z
+updated: 2024-10-13T02:36:51.265Z
 categories:
   - BestProducts
 description: "This Article Describes Sony XBR65X850F 4K Television: Stunning Visuals at an Unbelievable Price Point Review"
@@ -70,6 +70,13 @@ thumbnail: https://thmb.techidaily.com/89da125ea493abc275649c1f57ef017273ab0d0d8
 
  Though Sony panels are sometimes on the expensive end of the spectrum, there are some older Sony 4K TVs that can be had for a nice little discount. One such TV is Sony’s XBR65X850F from their X850F series. This specific model has now been replaced by the X850G, but that doesn’t mean you necessarily need to go with the most current model. In fact, snagging one of these earlier generation sets can save you some cash without forcing you to compromise too much.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Standard Sony**
 
  The XBR65X850F's design is a combination of sleek and workmanlike. The stand on this Sony is pretty common for TVs these days, with two V-shaped feet that stick out to either side. While they look aluminum, these are actually plastic too, with merely an aluminum finish. They are decently steady, but we noticed a bit of wobble if you move the TV around. It should be plenty sturdy for most, though you will need a fairly wide stand for them to rest on since they stick out so far. There’s also no room for adjusting the unit up or down, but they’re tall enough to fit a soundbar underneath if you want. They also flip open on the top if you want to use them for some clever cable management.
@@ -91,10 +98,10 @@ thumbnail: https://thmb.techidaily.com/89da125ea493abc275649c1f57ef017273ab0d0d8
  On the front of the screen, the bezels are a little thicker than some of the 4K TVs we’ve reviewed, but they’re pretty thin and shouldn’t distract. There’s your standard anti-glare coating found on the screen here too.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Stick to the on-screen instructions**
@@ -108,6 +115,13 @@ thumbnail: https://thmb.techidaily.com/89da125ea493abc275649c1f57ef017273ab0d0d8
  Sony has done a solid job here of making the setup process simple, or maybe we should be thanking Google for that, as this is an Android TV. All you need to do is follow along with the on-screen instructions and complete them as necessary. Using the remote, you’ll be prompted to choose a language, location, internet connection, sign into accounts, etc. Just stick to the guide.
 
  With the initial process done, you will likely need to run a quick update check. This should automatically pop up, but check under the settings tab if it doesn’t. An update to the firmware should improve things considerably, especially if you need to upgrade to the latest version of Android TV. Updating takes a bit of time to do, so maybe go watch some TV while…oh right. Well, whatever you do during this process, just remember not to unplug the power while it’s running through updates.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Image Quality: Impressive 4K for IPS with some shortcomings**
 
@@ -131,20 +145,14 @@ thumbnail: https://thmb.techidaily.com/89da125ea493abc275649c1f57ef017273ab0d0d8
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
- Lifewire / Zach Sweat
-
 <!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Zach Sweat
 
 ## **Audio Quality: Loud, but distorted**
 
@@ -166,13 +174,6 @@ thumbnail: https://thmb.techidaily.com/89da125ea493abc275649c1f57ef017273ab0d0d8
 
  One last thing, your phone can also be used as a remote if you so choose. All you need to do is download the app and connect it to the TV. This works with both Android and iOS devices (thanks Google). While it’s not a good as the regular remote, it works fine enough if you’re too lazy to get up and find the standard remote.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Not bad for the size, but not the cheapest**
 
  The X850F series come in a range of sizes, from 65 to 85 inches, so the prices can vary considerably depending on which one you go with. Any TV in this size range is going to cost a good bit of coin, no matter the manufacturer, but Sony isn’t too bad here.
@@ -180,6 +181,13 @@ thumbnail: https://thmb.techidaily.com/89da125ea493abc275649c1f57ef017273ab0d0d8
  On Sony’s website, the 65-inch model we tested here is listed at $1,300, the 75 at $2,300, and the 85 at a whopping $4,000\. Now these prices aren’t exactly accurate, especially since these are an older series. Typically you can find the 65-inch for about $1,100 or so. The other models are also heavily discounted depending on where you look, so definitely shop around. It’s likely that you can snag them for even less during sales.
 
  But how do these prices stack up against comparable TVs from competitors like LG or Samsung? Taking a quick look around online, you can easily save a few hundred dollars by going with a comparable LG TV, while Samsung was pretty closely matched with Sony. In the end, the price for the X850F series isn’t the best bang for your buck, but it ain’t bad either.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Sony XBR65X850F vs. Samsung UN65RU8000**
 
@@ -198,13 +206,6 @@ thumbnail: https://thmb.techidaily.com/89da125ea493abc275649c1f57ef017273ab0d0d8
 **A solid IPS panel 4K TV.**
 
  The X850F series is far from perfect, but the Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV and its family are more than capable of providing a pleasurable viewing experience for most people. Despite this, there are probably better options out there that can be had for even less.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -233,5 +234,20 @@ thumbnail: https://thmb.techidaily.com/89da125ea493abc275649c1f57ef017273ab0d0d8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-intergalactic-visions-the-best-sci-fi-movies-in-virtual-universes/"><u>[New] Intergalactic Visions The Best Sci-Fi Movies in Virtual Universes</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-exploring-previous-images-3-inverse-search-methods-on-social-media/"><u>[Updated] Exploring Previous Images 3 Inverse Search Methods on Social Media</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-audio-conversion-made-simple-youtube-to-mp3-mac-edition/"><u>[Updated] In 2024, Audio Conversion Made Simple YouTube to MP3, Mac Edition</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-starters-guide-select-the-best-10-editors/"><u>[Updated] Instagram Starters Guide - Select the Best 10 Editors</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-showdown-twitchs-challenge-to-youtubes-market/"><u>2024 Approved The Ultimate Showdown Twitch's Challenge to YouTube's Market</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-my-desktops-readiness-for-macos-sonoma/"><u>Evaluating My Desktop's Readiness for macOS Sonoma</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-unmatched-endurance-with-moto-g-power-a-comprehensive-performance-review/"><u>Experience Unmatched Endurance with Moto G Power - A Comprehensive Performance Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/gain-german-proficiency-from-binge-watched-show/"><u>Gain German Proficiency From Binge-Watched Show</u></a></li>
+<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-realme-11-proplus-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Realme 11 Pro+ Phone | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/oculus-quest-2-and-elite-gearbag-with-power-reserve-in-depth-product-analysis/"><u>Oculus Quest 2 & Elite Gearbag with Power Reserve - In-Depth Product Analysis</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/struggling-with-iphone-camera-focusing-heres-how-you-can-resolve-it/"><u>Struggling with iPhone Camera Focusing? Here's How You Can Resolve It</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-alluring-sony-ps-lx310bt-reviewed-turntable/"><u>The Alluring Sony PS-LX310BT Reviewed Turntable</u></a></li>
+<li><a href="https://windows11.techidaily.com/troubleshoot-your-windows-xbox-app-woes/"><u>Troubleshoot Your Windows Xbox App Woes</u></a></li>
+</ul></div>
 

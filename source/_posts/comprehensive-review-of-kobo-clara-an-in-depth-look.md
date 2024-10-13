@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Review of Kobo Clara: An In-Depth Look"
-date: 2024-10-03T18:19:07.254Z
-updated: 2024-10-07T19:10:56.149Z
+date: 2024-10-05T19:01:50.835Z
+updated: 2024-10-12T18:23:38.584Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Review of Kobo Clara: An In-Depth Look"
@@ -49,10 +49,16 @@ Lifewire / Andy Zahn
 ![Razer Book 13](https://www.lifewire.com/thmb/0i6VvZqT39MNfVUbDSY7z3l8-Tw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_HeroSquare-80401fcfbef94a1b8444cd0832388aac.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
@@ -81,13 +87,6 @@ Lifewire / Andy Zahn
 
  An[ultrabook](https://www.lifewire.com/best-laptops-to-buy-4043650) is typically a thing of compromises, and if you want a laptop that’s thin and light, power is often sacrificed. However, the Razer Book 13 challenges that stereotype and offers a sleek and attractive alternative to other high-end[ultra-portables](https://www.lifewire.com/best-lightweight-laptops-to-buy-4065134) . I tested it for 40 hours to find if it can live up both to its stunning ultrabook looks and Razer’s prowess in building high-powered gaming laptops.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design: Beauty in minimalism
 
  Razer is known for their flashy gaming-focused laptops, mice, and keyboards that are clearly marketed towards gamers, but they have always also employed a certain degree of restraint over some more exuberant gaming products. With the Book 13, that restraint is pushed even further with only a few tasteful reminders of the laptop’s gaming heritage—the twisted snaky Razer logo on the top, and of course RGB backlighting for the keyboard.
@@ -104,6 +103,13 @@ Lifewire / Andy Zahn
 
  For such a thin laptop, there’s a surprising amount of ports included with the Book 13\. You get 4[Thunderbolt ports](https://www.lifewire.com/what-is-thunderbolt-832713) , a USB type-A port,[HDMI port](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) , a microSD slot, and a 3.5mm headphone/microphone combo port. Such a versatile array of inputs is not to be taken for granted these days, and is a big point in the Book 13’s favor.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Setup Process: Very straightforward
 
  There’s not a lot to say about setting up the Razer Book 13\. It’s just a standard install of Windows 10 Home with no surprises along the way so you can be up and running in just a few minutes.
@@ -114,14 +120,14 @@ Lifewire / Andy Zahn
 
 ![Razer Book 13](https://www.lifewire.com/thmb/C308jEtLYxnwMp68uF5Sd-2hjyA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_02-4da7b450ac1c4b879f1b0bebfa9815b5.jpg)
 
-Lifewire / Andy Zahn
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Lifewire / Andy Zahn
 
 ## Performance: Lean and mean
 
@@ -141,44 +147,24 @@ Lifewire / Andy Zahn
 
 ![Razer Book 13](https://www.lifewire.com/thmb/hKfA1c1e0-bRVVhMU22PtI2GewM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_03-23b08f335541443ebe1e7d7763140eca.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Connectivity: The latest and greatest
 
  With[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , the Book 13 had no trouble taking full advantage of my home network. It provides a fast and reliable connection, and Bluetooth 5.0 is available as well.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Battery: Juice for the day
 
  Razer claims a battery life of up to 10 hours or even a bit more, and I found this to be accurate. The Book 13 should get you through a day at the office without needing to recharge, depending upon use, of course.
 
 ![Razer Book 13](https://www.lifewire.com/thmb/6yYQ1e8vR0Ldvs2GP61CrvFy3zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_05-1c8a8e1bdd78413fb72cc6307a07ea40.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -188,6 +174,13 @@ Lifewire / Andy Zahn
 
 ![Razer Book 13](https://www.lifewire.com/thmb/PL2MokPWQ_egcxv3fE0tw_k09Yo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_04-6eed60095cbe467c9552c651ba4c9d46.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andy Zahn
 
  It’s particularly good in the mids and highs, but as you’d expect, loses something in the bass range. However, it’s more than adequate for listening to music, gaming, or watching movies.
@@ -196,6 +189,13 @@ Lifewire / Andy Zahn
 
  The webcam on the Book 13 is about average for a laptop. It captures 720p video and is perfectly acceptable, though not exceptional in any way. Video quality looks decent, even in relatively challenging situations.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: The cost of quality
 
  The configuration of the Razer Book 13 I tested is definitely pricey at $2,000\. That’s a decent chunk of change, and you could certainly buy a laptop with more graphical power for the money, but the Book 13 isn’t made for high-end gaming.
@@ -203,13 +203,6 @@ Lifewire / Andy Zahn
  Between its solid design, attractive aesthetics, and nice little touches that tie the whole package together, this is one awesome little ultrabook.
 
  This is a premium, ultra-portable device designed more for professional work, and its ability to game is basically a nice bonus. Considering the competition from Dell and Apple, it’s not unreasonably priced.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Razer Book 13 vs. Dell XPS 13 7390 2-in-1
 
@@ -228,6 +221,13 @@ Lifewire / Andy Zahn
 * [Microsoft Surface Laptop Go](https://www.lifewire.com/microsoft-surface-laptop-go-review-5088869)
 * [Asus Zephyrus G14](https://www.lifewire.com/asus-zephyrus-g14-review-a-no-compromises-gaming-laptop-5084841)
 * [Razer Blade 15](https://www.lifewire.com/razer-blade-15-review-4845229)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -261,20 +261,24 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-ushering-bliss-in-unboxing-7-strategies/"><u>[New] Ushering Bliss in Unboxing 7 Strategies</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-navigating-vsco-for-visual-impact-in-media/"><u>[Updated] Navigating VSCO for Visual Impact in Media</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/1715860229979-2024-approved-best-free-call-apps-on-android-ranks-them/"><u>2024 Approved Best Free Call Apps on Android, Ranks Them!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/assessing-speed-and-stability-the-bulky-outlook-on-netgears-powerline-xb6-pro-1200/"><u>Assessing Speed and Stability: The Bulky Outlook on Netgear's Powerline XB6 Pro 1200</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/breaking-down-the-benefits-of-owning-an-apple-iphone-xs-max-an-expert-guide-to-its-priciest-features/"><u>Breaking Down the Benefits of Owning an Apple iPhone XS Max - An Expert Guide to Its Priciest Features</u></a></li>
-<li><a href="https://techidaily.com/complete-tutorial-for-oneplus-nord-ce-3-lite-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for OnePlus Nord CE 3 Lite 5G Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-and-rating-unveiling-the-superiority-of-dji-air/"><u>Comprehensive Guide & Rating: Unveiling the Superiority of DJI Air</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/easy-steps-to-download-and-install-aoc-monitor-drivers-on-windows-supporting-versions-11-10-and-8/"><u>Easy Steps to Download & Install AOC Monitor Drivers on Windows: Supporting Versions 11, 10, and 8</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-mohu-blades-capabilities-exceptional-interior-signal-quality-and-original-look/"><u>Exploring the Mohu Blade's Capabilities - Exceptional Interior Signal Quality and Original Look</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/from-kitchen-to-chaos-a-delectable-review-of-overcooked-2s-gaming-excellence/"><u>From Kitchen to Chaos: A Delectable Review of Overcooked! 2'S Gaming Excellence</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Honor 100 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-plug-in-proweries-expert-analysis/"><u>In 2024, PLUG-IN PROWERIES Expert Analysis</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-asus-rog-rapture-gt-ax110e-router-analysis-ultimate-performance-for-gamers-and-speed-enthusiasts/"><u>In-Depth Asus ROG Rapture GT-AX110e Router Analysis - Ultimate Performance for Gamers & Speed Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tp-links-ultra-small-wr90nac-travel-router-staying-connected-anywhere-anytime/"><u>TP-Link's Ultra-Small WR90nac Travel Router: Staying Connected Anywhere, Anytime</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-best-avi-trimmers-top-picks-for-cutting-avi-videos-on-any-device/"><u>Updated 2024 Approved Best AVI Trimmers Top Picks for Cutting AVI Videos on Any Device</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-audio-anomalies-top-disruptive-apps-on-the-go/"><u>[New] In 2024, Audio Anomalies Top Disruptive Apps on the Go</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-clearview-screenshot-perfect-windowsmac-imaging/"><u>[New] In 2024, ClearView Screenshot Perfect Windows/Mac Imaging</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-tweet-to-facebook-video-sharing-a-2023-perspective/"><u>[New] Tweet-to-Facebook Video Sharing A 2023 Perspective</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-10-online-retailers-specialized-in-personalized-boxed-gifts/"><u>[Updated] 10 Online Retailers Specialized in Personalized Boxed Gifts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-cross-posting-strategies-sharing-tiktok-on-your-facebook-feed-for-2024/"><u>[Updated] Cross-Posting Strategies Sharing TikTok on Your Facebook Feed for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-realme-12-5g-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Realme 12 5G? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Infinix Smart 8 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-your-online-meetings-the-logitech-c615-review-quality-meets-value/"><u>Maximizing Your Online Meetings: The Logitech C615 Review - Quality Meets Value</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nokia-72-analysis-surpassing-expectations-in-the-mid-range-market/"><u>Nokia 7.2 Analysis: Surpassing Expectations in the Mid-Range Market</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/performance-overview-of-the-asus-zenbook-17-fold-navigating-pros-and-cons-on-a-big-screen-device/"><u>Performance Overview of the Asus ZenBook 17 Fold - Navigating Pros and Cons on a Big Screen Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/picking-the-best-phone-in-depth-iphone-vs-android-analysis-for-consumers/"><u>Picking the Best Phone: In-Depth iPhone vs Android Analysis for Consumers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On OnePlus 12 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rise-and-shine-naturally-unboxing-the-heimvision-a80s-sunrise-light-therapy-clock/"><u>Rise and Shine Naturally: Unboxing the HeimVision A80S Sunrise Light Therapy Clock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sony-hdrcx405-hd-camcorder-review-image-stabilizationdual-recording-modes-at-a-budget-price/"><u>Sony HDRCX405 HD Camcorder Review: Image Stabilization/Dual Recording Modes at a Budget Price</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sturdy-construction-meets-superior-functionality-in-canon-430ex-iii-rt/"><u>Sturdy Construction Meets Superior Functionality in Canon 430EX III-RT</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722884049226-tech-essentials-meet-classic-reads-discover-unbeatable-combos-with-laptops-phones-and-books/"><u>Tech Essentials Meet Classic Reads: Discover Unbeatable Combos with Laptops, Phones & Books!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-comparison-of-affordable-indoor-hdtv-antennas-spotlight-on-1byone-digitals-budget-friendly-choice/"><u>The Ultimate Comparison of Affordable Indoor HDTV Antennas: Spotlight on 1byOne Digital's Budget-Friendly Choice</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-dell-g5-5090-analysis-for-gamers-on-a-budget-a-wide-array-of-options-packed-in-an-affordable-package/"><u>The Ultimate Dell G5 #5090 Analysis for Gamers on a Budget: A Wide Array of Options Packed in an Affordable Package</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-tecno-spark-20c-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Tecno Spark 20C Device</u></a></li>
 </ul></div>
 

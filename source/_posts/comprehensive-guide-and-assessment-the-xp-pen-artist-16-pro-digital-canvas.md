@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Guide and Assessment: The XP-Pen Artist 16 Pro Digital Canvas"
-date: 2024-10-05T18:26:47.699Z
-updated: 2024-10-07T18:21:28.231Z
+date: 2024-10-05T23:37:16.839Z
+updated: 2024-10-13T05:50:44.945Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Guide and Assessment: The XP-Pen Artist 16 Pro Digital Canvas"
@@ -42,22 +42,21 @@ Lifewire / Kelsey Simon
 2.7
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## inXile Entertainment Torment: Tides of Numenera
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -91,13 +90,6 @@ Lifewire / Kelsey Simon
 
  You’re a castoff of the powerful Changing God, and you’ve got a lot to figure out―the question is, do you want to read a poorly written novel in video game format?
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Gameplay: Dialogue prompts and effort**
 
  The Tides of Numenera is a third-person[role-playing game](https://www.lifewire.com/best-free-offline-rpg-games-4177675) where almost 75 percent of the gameplay is scrolling dialogue boxes and the various prompts that will pop up as the game tells you the story. These prompts will allow you control over how the story unfolds, and this, more than anything else, is the game’s main mechanic.
@@ -105,10 +97,10 @@ Lifewire / Kelsey Simon
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -143,6 +135,13 @@ Lifewire / Kelsey Simon
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Competition: Other story focused RPGs**
 
  There are quite a few other games available that are story-focused RPGs besides Tides of Numenera. Wasteland 2 (view on[Amazon](https://www.amazon.com/Wasteland-2-Directors-Cut-PlayStation-4/dp/B013CQHQFU/?tag=lifewire-onsite-prod-20&ascsubtag=5077302%7Cnac6eb02defc3413da4da5d4ed0dc77ea21%7C) ) is a very similar game, as it is made by the same developers, but where Numenera falls flat with its heavy-handed storytelling, Wasteland 2 stands apart with a fun, tactical combat system.
@@ -154,6 +153,13 @@ Lifewire / Kelsey Simon
  **A text-heavy RPG that doesn’t live up to its predecessor.**
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -178,21 +184,21 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-cadence-and-codes-a-mac-studio-journey-for-2024/"><u>[New] Cadence and Codes A Mac Studio Journey for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-expert-tips-for-saving-your-favorite-screened-events/"><u>[New] In 2024, Expert Tips for Saving Your Favorite Screened Events</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/audio-excellence-showcase-best-cd-devices-of-24/"><u>Audio Excellence Showcase: Best CD Devices of '24</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/behind-the-scenes-discord-streaming-basics/"><u>Behind-the-Scenes Discord Streaming Basics</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comparing-top-smart-doorbells-why-the-ring-doorbell-pro-stands-out/"><u>Comparing Top Smart Doorbells: Why the Ring Doorbell Pro Stands Out</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Lava Agni 2 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-barnes-and-noble-nook-glowlight-4/"><u>Comprehensive Analysis of the Barnes & Noble Nook GlowLight 4</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-stanley-j5c09-powerful-storage-unit-unveiled/"><u>Comprehensive Analysis of the Stanley J5C09 - Powerful Storage Unit Unveiled</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-tp-link-archer-c80-assessment-high-speed-in-the-sub-100-range/"><u>Comprehensive TP-Link Archer C80 Assessment: High Speed in the Sub-$100 Range</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/corsair-one-pro-unveiled-a-revolutionary-experience-in-gaming-and-design-pc-power/"><u>Corsair One Pro Unveiled: A Revolutionary Experience in Gaming and Design PC Power</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-unmatched-comfort-with-the-mavix-m9-a-detailed-gaming-chair-review/"><u>Experience Unmatched Comfort with the Mavix M9 - A Detailed Gaming Chair Review</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-identify-malfunctioning-your-drivers-with-windows-device-manager-in-windows-10-by-drivereasy-guide/"><u>How to identify malfunctioning your drivers with Windows Device Manager in Windows 10</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Oppo A78 | Dr.fone</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/navigating-new-tech-trustworthy-advice-from-toms-hardware-experts/"><u>Navigating New Tech: Trustworthy Advice From Tom's Hardware Experts</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/spirited-account-creation-steps/"><u>Spirited Account Creation Steps</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-vivo-y02t-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Vivo Y02T FRP Bypass</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-swift-snap-reinstatement-techniques/"><u>[New] Swift Snap Reinstatement Techniques</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-zenith-of-joys-our-top-10-relaxing-games/"><u>[New] Zenith of Joys Our Top 10 Relaxing Games</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-motorola-moto-g24-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Motorola Moto G24 without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/discover-the-best-free-subtitle-makers-srt-online/"><u>Discover the Best Free Subtitle Makers (Srt) Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/engage-anytime-anywhere-mondly-and-huawei/"><u>Engage Anytime, Anywhere - Mondly and Huawei</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/excel-on-windows-1011-our-selection-of-the-top-5plus-productivity-boosters/"><u>Excel on Windows 10/11: Our Selection of the Top 5+ Productivity Boosters</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-motorola-one-5g-ace-outstanding-fast-connectivity-and-robust-battery-life-reviewed-here/"><u>Experience the Motorola One 5G Ace: Outstanding Fast Connectivity & Robust Battery Life Reviewed Here!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-most-accurate-and-user-friendly-storm-tracker-apps-of-the-year-2024/"><u>Expert Picks: Most Accurate and User-Friendly Storm Tracker Apps of the Year 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-the-most-suitable-iphones-for-hardcore-gamers/"><u>Expert Picks: The Most Suitable iPhones for Hardcore Gamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-unveiling-the-power-and-simplicity-of-free-photoscape-your-go-to-image-editor/"><u>Expert Review: Unveiling the Power and Simplicity of Free Photoscape - Your Go-To Image Editor</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/find-the-best-prices-acers-unmissable-promotions-during-prime-day-2024/"><u>Find the Best Prices: Acer's Unmissable Promotions During Prime Day 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/firsttimers-guide-to-durable-child-friendly-underwater-shots/"><u>FirstTimer's Guide to Durable Child-Friendly Underwater Shots</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/furbo-dog-camera-review/"><u>Furbo Dog Camera Review</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-vivo-s18-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Vivo S18 | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-honor-magic-v2-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Honor Magic V2 to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/unlock-apple-id-without-phone-number-on-iphone-xs-max-by-drfone-ios/"><u>Unlock Apple ID without Phone Number On iPhone XS Max</u></a></li>
 </ul></div>
 

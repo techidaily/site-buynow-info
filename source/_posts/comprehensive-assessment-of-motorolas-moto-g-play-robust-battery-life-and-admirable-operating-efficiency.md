@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Assessment of Motorola's Moto G Play: Robust Battery Life & Admirable Operating Efficiency"
-date: 2024-09-13T19:26:24.471Z
-updated: 2024-09-15T18:02:29.315Z
+date: 2024-10-10T02:41:03.579Z
+updated: 2024-10-13T02:08:54.297Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Assessment of Motorola's Moto G Play: Robust Battery Life & Admirable Operating Efficiency"
@@ -95,10 +95,10 @@ Lifewire / Matthew S. Smith
  All the laptop’s ports are placed near the front of the chassis. You’ll have to deal with tangled cables more often than with a laptop that places most ports on the rear. I found this annoying when using an external mouse, as cables jutting from the laptop’s flanks often bumped my hand while playing games.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What’s New: This one is special
@@ -118,15 +118,22 @@ Lifewire / Matthew S. Smith
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/eRv5Q4rKutM9zrhSTCRxbBO4rVc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-6-2af7f9999ae847bda4f5b9b830c9c555.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
  There’s one downside: poor viewing angles. This is unusual in a modern laptop, though I’ve noticed this trait in many high-refresh laptop displays. I can’t give the Triton 300 SE too much flak for this given its otherwise excellent performance.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Performance: Great for games, ok for everything else
 
@@ -135,19 +142,6 @@ Lifewire / Matthew S. Smith
  PCMark 10 hit an overall score of 5,534\. Geekbench 5 turned in a single-core score of 1,418 and a multi-core score of 4,493\. The Geekbench 5 multi-core score is behind the curve;[new AMD Ryzen 7 5000-series laptops](https://www.lifewire.com/amd-vs-intel-which-processor-is-best-for-you-4780276) can almost double that result. This will disappoint content creators who use CPU-dependent applications. The Acer Triton 300 SE won’t keep up with AMD-powered rivals, like the Asus ROG Zephyrus G14, in such workloads.
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/_blPSVdy574t15clSGhbK6JH68o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-4-5a097b76e29b4ee985eee421ed6d0fe8.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -189,22 +183,16 @@ Lifewire / Matthew S. Smith
 
  This translated to excellent real-world results. I created a real-world stress test by downloading Cyberpunk 2077 on Steam while simultaneously downloading Metro Exodus on Epic. Surprisingly, both downloads averaged in excess of 25Mbps. I’m used to seeing numbers in the teens.
 
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Camera: BYOW (Bring Your Own Webcam)
 
  Acer’s Predator Triton 300 SE straddles the line between entertainment and productivity in its design, but the camera falls short of its professional aspirations. It’s a tiny 720p pinhole camera that squeezes between the display and the top bezel. Video quality is grainy in all but the brightest rooms and uneven lighting can easily confuse it.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Battery: Ouch
 
@@ -234,6 +222,19 @@ Lifewire / Matthew S. Smith
 
  Acer sells the Predator Triton 300 SE for $1,400, and it sometimes sells for $1,350 at Best Buy. This is an outstanding price for a laptop packing Nvidia’s RTX 3060\. There’s only a few competitors with the RTX 3060, such as MSI’s GF65 Thin, that can be purchased for less right now. The MSI GF65 manages to undercut the Triton 300 SE by using an older Intel chip and just 8GB of RAM.
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Acer Predator Triton 300 SE vs. Asus ROG Zephyrus G14
 
  Acer’s Predator Triton 300 SE and Asus’ ROG Zephyrus G14 seem to target the same users. They’re both compact, light 14-inch laptops that pack impressive CPU and GPU horsepower. Although great for gamers, they also appeal to content creators seeking an affordable, portable laptop.
@@ -252,6 +253,13 @@ Lifewire / Matthew S. Smith
 
  Acer’s Predator Triton 300 SE is an excellent value that has what gamers want: a great gaming experience and a quality display. Its short battery life and mediocre multi-core processor hold it back in everyday use, but the laptop’s competitive price makes these flaws easy to forgive.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
@@ -259,10 +267,10 @@ Lifewire / Matthew S. Smith
 * [Microsoft Surface Laptop 2](https://www.lifewire.com/microsoft-surface-laptop-2-review-4779760)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -297,5 +305,21 @@ Lifewire / Matthew S. Smith
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-top.techidaily.com/apk-flac-movavi/"><u>移動維密 APK 到 FLAC 傳送 - 使用 Movavi 無間斷流式音頻轉換工具</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/best-value-gaming-peripherals-for-under-100/"><u>Best Value Gaming Peripherals for Under $100</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-assessment-of-the-lg-gram-156-inch-notebook-201n-stunning-durability-meets-extended-playtime/"><u>Comprehensive Assessment of the LG Gram 15.6-Inch Notebook (201N) - Stunning Durability Meets Extended Playtime</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-the-issue-how-to-resolve-overwatchs-persistent-black-screen-problem/"><u>Fixing the Issue: How to Resolve Overwatch's Persistent Black Screen Problem</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/homing-in-on-the-best-value-in-depth-analysis-of-the-syma-helix-7x-rc-helicopter/"><u>Homing in on the Best Value: In-Depth Analysis of the Syma Helix 7X RC Helicopter</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-pro-tips-for-the-best-pc-snipping-software-of-today/"><u>In 2024, Pro Tips for the Best PC Snipping Software of Today</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-top-6-video-downloaders-preserve-your-linkedin-media-masterfully/"><u>In 2024, Top 6 Video Downloaders Preserve Your LinkedIn Media Masterfully</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-user-experience-navigating-the-capabilities-of-arlos-home-protection-technology/"><u>In-Depth User Experience: Navigating the Capabilities of Arlo's Home Protection Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nintendo-faceoff-unveiling-the-pros-and-cons-of-switch-lite-and-oled-variants/"><u>Nintendo Faceoff: Unveiling the Pros and Cons of Switch Lite and OLED Variants</u></a></li>
+<li><a href="https://fox-http.techidaily.com/premium-visual-enhancer-cutting-edge-conversion-for-2024/"><u>Premium Visual Enhancer Cutting-Edge Conversion for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/seamlessly-managing-microsoft-surface-driver-installations-and-updates/"><u>Seamlessly Managing Microsoft Surface Driver Installations and Updates</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/on-indexable-world-of-youtube-a-compreayer-guide-to-unlisted-videos-for-2024/"><u>The Non-Indexable World of YouTube A Compreayer Guide to ‘Unlisted’ Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-playbook-for-captivating-youtube-audiences-with-strategic-banners-for-2024/"><u>The Ultimate Playbook for Captivating YouTube Audiences with Strategic Banners for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-the-power-of-preview-on-your-mac-master-this-hidden-photo-editor/"><u>Unlocking the Power of Preview on Your Mac - Master This Hidden Photo Editor</u></a></li>
+</ul></div>
 

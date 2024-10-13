@@ -1,7 +1,7 @@
 ---
 title: "Lenovo's Low Budget Marvel: A Deep Dive Into the Features and Performance of Chromebook Duet"
-date: 2024-10-03T17:21:53.826Z
-updated: 2024-10-07T16:21:38.602Z
+date: 2024-10-06T19:05:19.491Z
+updated: 2024-10-13T10:01:13.844Z
 categories:
   - BestProducts
 description: "This Article Describes Lenovo's Low Budget Marvel: A Deep Dive Into the Features and Performance of Chromebook Duet"
@@ -41,22 +41,15 @@ Lifewire / James Huenink
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Logitech C615 HD Laptop Webcam
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/9YqP4BNKZ_F27rxIYbc3f1vqzd0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_HERO_3LW4065141_3_Final_Square-204b4e949e864f148cd513b3511eac69.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / James Huenink
@@ -97,13 +90,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Camera Quality: Quality camera with some autofocus troubles**
 
  The camera takes 1080p video and has a 2 MP sensor. We tested the webcam’s photo capabilities by taking a picture of some packaging. Color was well represented, but the autofocus was just a bit off. The image was just a bit blurry, and we couldn’t read the smaller words at all. This wasn’t a problem close up, but it made a bigger difference when people were far away.
@@ -116,6 +102,13 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/Bko9Uk1HIIMt9aNgtBf9ATCy0AA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_14_Final_Horiz-4f1b9fe91b8c4229b17dbbe6afb81b8c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / James Huenink
 
 ## **Performance: Decent sound quality for a small mic**
@@ -126,18 +119,25 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/C2UBXNFmxG8nA0udy1IprMH4LBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_9_Final_Horiz-1af52951f8704af9b76d7dd1ec9744a9.jpg)
 
- Lifewire / James Huenink
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / James Huenink
 
 ## **Price: Inexpensive HD camera**
 
  The Logitech C615 costs $70 MSRP, but you can find it for about half that cost. Even at full price, it's a solid value. The thoughtful design, image quality, and microphone clarity easily justify the price tag.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Acquits itself well against the competition**
 
@@ -187,22 +187,18 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-how-to-add-free-text-animation-to-videos/"><u>[New] How to Add Free Text Animation to Videos</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-seamless-snapshots-mobile-tripods-for-iphones-androids/"><u>[Updated] Seamless Snapshots Mobile Tripods for iPhones, Androids</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/beats-beyond-limits-clash-of-apple-airpods-pro-and-galaxy-buds-pro/"><u>Beats Beyond Limits: Clash of Apple Airpods Pro and Galaxy Buds Pro</u></a></li>
-<li><a href="https://techidaily.com/complete-tutorial-for-lava-yuva-3-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Lava Yuva 3 Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/engaging-review-of-dji-robomaster-s1-the-perfect-blend-of-educational-coding-and-exciting-battle-gameplay-for-tech-enthusiasts/"><u>Engaging Review of DJI Robomaster S1: The Perfect Blend of Educational Coding & Exciting Battle Gameplay for Tech Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-picks-leading-cable-modemrouter-combo-packs/"><u>Expert Picks: Leading Cable Modem/Router Combo Packs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-of-asus-rog-gt-ac5300-a-top-pick-for-hardcore-gamers-and-tech-enthusiasts/"><u>Expert Review of Asus ROG GT-Ac5300: A Top Pick for Hardcore Gamers and Tech Enthusiasts</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/explore-all-facets-of-japanese-hospitality/"><u>Explore All Facets of Japanese Hospitality</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/explore-free-fcp-download-options-for-2024/"><u>Explore FREE FCP Download Options for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-tecno-spark-go-2024-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Tecno Spark Go (2024)</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-how-to-scan-and-store-your-old-printed-photos/"><u>In 2024, How to Scan and Store Your Old Printed Photos</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-samsung-galaxy-note20-ultra-5g-smartphone-evaluation/"><u>In-Depth Analysis: Samsung Galaxy Note20 Ultra 5G Smartphone Evaluation</u></a></li>
-<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Realme 11 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-most-popular-portable-consoles-for-gamers/"><u>The Most Popular Portable Consoles for Gamers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-mighty-beatit-bt-d11-portable-charger-review/"><u>The Ultimate Guide to the Mighty Beatit BT-D11: Portable Charger Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unrivaled-gaming-powerhouse-the-definitive-guide-to-why-xbox-one-x-reigns-supreme-in-the-console-universe/"><u>Unrivaled Gaming Powerhouse: The Definitive Guide to Why Xbox One X Reigns Supreme in the Console Universe</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-and-performance-of-the-universal-linksys-max-stream-ac1900-wireless-router-reviewed/"><u>Unveiling the Features and Performance of the Universal Linksys Max-Stream AC1900 Wireless Router Reviewed</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-why-does-my-photo-booth-video-keep-freezing-in-2024/"><u>[New] Why Does My Photo Booth Video Keep Freezing, In 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-decoding-the-m1-max-clip-functionality/"><u>[Updated] Decoding the M1 Max Clip Functionality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-comprehensive-review-of-samsungs-new-galaxy-s24-ultra-smartphone/"><u>A Comprehensive Review of Samsung's New Galaxy S24 Ultra Smartphone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-critical-review-of-google-maps-application-version-compatible-with-iphone/"><u>A Critical Review of Google Maps Application Version Compatible with iPhone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/achieve-lightning-fast-connectivity-across-your-household-with-orbis-wifi-6-tri-band-mesh-network-our-full-system-review/"><u>Achieve Lightning Fast Connectivity Across Your Household with Orbi's WiFi 6 Tri-Band Mesh Network - Our Full System Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/achieve-your-fitness-goals-easily-using-fitbit-versa-3s-built-in-gps-and-wellness-software-for-daily-encouragement/"><u>Achieve Your Fitness Goals Easily Using Fitbit Versa 3'S Built-In GPS & Wellness Software for Daily Encouragement.</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/experience-enhanced-performance-with-your-new-macbook-top-macos-15-innovations-unveiled-on-zdnet/"><u>Experience Enhanced Performance with Your New MacBook: Top MacOS 15 Innovations Unveiled on ZDNet</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixing-persistent-freezing-issues-in-ghostwire-tokyo-on-pc/"><u>Fixing Persistent Freezing Issues in Ghostwire: Tokyo on PC</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-on-apple-iphone-15-without-password-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account On Apple iPhone 15 without Password?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-remove-passcode-from-iphone-14-pro-complete-guide-drfone-by-drfone-ios/"><u>In 2024, How To Remove Passcode From iPhone 14 Pro? Complete Guide | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722764162414-leading-pc-auditory-devices-find-your-perfect-fit-here/"><u>Leading PC Auditory Devices : Find Your Perfect Fit Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-your-online-presence-for-richer-whatsapp-interactions/"><u>Leveraging Your Online Presence for Richer WhatsApp Interactions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/portability-meets-precision-in-sabrents-wireless-travel-mouse-with-retractable-cord/"><u>Portability Meets Precision in Sabrent's Wireless Travel Mouse with Retractable Cord</u></a></li>
 </ul></div>
 

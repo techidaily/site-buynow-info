@@ -1,7 +1,7 @@
 ---
 title: "The Elder Scrolls V: Skyrim on the Nintendo Switch – An Unparalleled RPG Journey!"
-date: 2024-10-02T16:17:31.533Z
-updated: 2024-10-07T17:52:06.505Z
+date: 2024-10-08T07:06:14.374Z
+updated: 2024-10-12T23:38:53.557Z
 categories:
   - BestProducts
 description: "This Article Describes The Elder Scrolls V: Skyrim on the Nintendo Switch – An Unparalleled RPG Journey!"
@@ -41,16 +41,22 @@ Lifewire / Kelsey Simon
 
 3.8
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/8XGs9qzQ6hLIBySEKXEvBMfEkq4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -102,6 +108,13 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Gameplay: Not as smooth as on other platforms**
 
  The first real interactive thing you do with the game is to create your character, and true to other Elder Scrolls games, you can change your character’s appearance in the most minute way. Pick your race, gender, hairstyle, eye color, and even tweak the height of your cheekbones and brows if you want. This is the first sign of just how encompassing and involved the role-playing aspects of Skyrim are.
@@ -122,23 +135,9 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Graphics: A bit outdated**
 
  The graphics in Skyrim aren’t awful, but they haven't progressed much since 2011\. If you’ve played any other version of Skyrim, you can overlook it, simply because you know what you’re getting into. Bethesda attempted to make Skyrim look realistic, likely in their desire to give you a fully immersive experience. But these days, Skyrim’s graphics just aren’t as realistic as what other, more recent games have accomplished. In places, the mountains look blocky and the grass a little patchy. Character’s faces sometimes seem deeply sunken around the eyes, with the skin looking more like leather than flesh. It’s not that the graphics are overly bad, they’re just not as good as what you can get with better hardware on the PC.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Platform: Take Skyrim on the go**
 
@@ -152,20 +151,14 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/Iik6f_7RIRMWo5R6zGYxgGeL4n0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546076-8fb741faa7144fa6bafe386d2b7d8296.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Price: A tad expensive**
 
@@ -173,13 +166,20 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Other action RPGs**
@@ -199,10 +199,10 @@ Lifewire / Kelsey Simon
 * [Splatoon 2](https://www.lifewire.com/splatoon-2-review-4688940)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -227,18 +227,17 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-beginners-essential-guide-to-youtube-video-editing-magic-for-2024/"><u>[Updated] Beginner’s Essential Guide to YouTube Video Editing Magic for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-skincare-and-sensational-looks/"><u>[Updated] In 2024, Skincare and Sensational Looks</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-leveraging-likes-for-livelihood-the-blueprint-to-brand-backings-on-instagram/"><u>2024 Approved Leveraging Likes for Livelihood The Blueprint to Brand Backings on Instagram</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Vivo Y27 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-netgears-nighthawk-x6-wi-fi-mesh-expander-unveiling-its-exceptional-capabilities/"><u>In-Depth Evaluation of Netgear's Nighthawk X6 Wi-Fi Mesh Expander: Unveiling Its Exceptional Capabilities</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/inside-look-apples-compact-marvel-the-ipad-mini-5-unveiled/"><u>Inside Look: Apple's Compact Marvel - The iPad Mini 5 Unveiled</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-the-samsung-galaxy-tab-s3-still-a-great-choice-in-depth-analysis/"><u>Is the Samsung Galaxy Tab S3 Still a Great Choice? - In-Depth Analysis</u></a></li>
-<li><a href="https://windows11.techidaily.com/mobile-devices-enhancing-windows-microphone-use/"><u>Mobile Devices Enhancing Windows Microphone Use</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ns-43df710na19-review-affordable-ultra-hd-and-alexa-capabilities-on-amazons-insignia-fire-tv-edition/"><u>NS-43DF710NA19 Review: Affordable Ultra HD and Alexa Capabilities on Amazon's Insignia Fire TV Edition</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/seamless-conversion-transforming-your-soundcloud-tracks-into-mp3-format/"><u>Seamless Conversion: Transforming Your SoundCloud Tracks Into MP3 Format</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/spotlight-on-studiofxs-long-lasting-strong-box/"><u>Spotlight on StudioFX's Long-Lasting, Strong Box</u></a></li>
-<li><a href="https://video-capture.techidaily.com/step-by-step-tutorial-converting-video-cds-vcd-to-mp4-format-on-your-computer-and-using-online-services/"><u>Step-by-Step Tutorial: Converting Video CDs (VCD) to MP4 Format on Your Computer and Using Online Services</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unlockedchatgpt-subscription-deadline-clarity/"><u>UnlockedChatGPT: Subscription Deadline Clarity</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-6-best-microphones-for-live-streaming-overview/"><u>2024 Approved 6 Best Microphones for Live Streaming Overview</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-perfecting-fade-out-techniques-in-audacity/"><u>2024 Approved Perfecting Fade-Out Techniques in Audacity</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-the-top-7-stardew-valley-improvement-packs/"><u>2024 Approved The Top 7 Stardew Valley Improvement Packs</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/amd-radeon-r9-360-driver-update-and-download-instructions-for-windows-11-users/"><u>AMD Radeon R9 360 Driver Update and Download Instructions for Windows 11 Users</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/decoding-the-best-chatgpt-face-off-with-bing-ai-and-bard/"><u>Decoding the Best: ChatGPT Face-Off with Bing AI & Bard</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-ultimate-list-of-free-video-openers/"><u>In 2024, The Ultimate List of Free Video Openers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-handheld-game-devices-of-2024-the-ultimate-guide/"><u>Leading Handheld Game Devices of 2024: The Ultimate Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-flaws-in-a-compact-package-detailed-assessment-of-criacrs-bluetooth-fm-transmitter-model-cp24/"><u>Navigating Flaws in a Compact Package: Detailed Assessment of Criacr's Bluetooth FM Transmitter - Model CP24</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-best-marathon-timers-2024s-finest-running-watches/"><u>Navigating the Best Marathon Timers: 2024’S Finest Running Watches</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-through-comfort-and-clarity-the-ultimate-guide-to-the-rotibox-bluetooth-headset-hat/"><u>Navigating Through Comfort and Clarity: The Ultimate Guide to the Rotibox Bluetooth Headset Hat</u></a></li>
+<li><a href="https://win-web.techidaily.com/step-by-step-tutorial-on-how-to-download-and-convert-basketball-coaching-videos-into-common-file-types-mp4-avi-flv-mov/"><u>Step-by-Step Tutorial on How to Download and Convert Basketball Coaching Videos Into Common File Types (MP4, AVI, FLV, MOV)</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unveiling-tech-secrets-in-depth-guides-by-toms-hardware-experts/"><u>Unveiling Tech Secrets - In-Depth Guides by Tom's Hardware Experts</u></a></li>
 </ul></div>
 

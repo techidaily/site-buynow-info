@@ -1,7 +1,7 @@
 ---
 title: "Evaluating the Sony Xperia 5: Small Size, High Price Tag"
-date: 2024-09-12T19:36:19.245Z
-updated: 2024-09-15T17:36:12.138Z
+date: 2024-10-09T02:22:31.215Z
+updated: 2024-10-13T07:58:01.071Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating the Sony Xperia 5: Small Size, High Price Tag"
@@ -88,6 +88,13 @@ Lifewire / Jeremy Laukkonen
 
 [APC Back-UPS Pro 1500VA Review](https://www.lifewire.com/apc-back-ups-pro-1500va-review-5077533)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Budget Buy
 
 [Tripp Lite AVR750U UPS](https://www.amazon.com/dp/B000DZU02A/?tag=lifewire-onsite-prod-20&ascsubtag=4142625%7Cn5c900d52712540bf8e7c7a8a5e9a224616%7CB000DZU02A)
@@ -112,6 +119,13 @@ PHOTO: Amazon
  Keep in mind: If you decide to go this route, the Trip Lite lays on the floor horizontally, so it takes up more space than you might be used to.
 
 **Outlets:** 6 battery, 6 surge-protected |**Battery backup power:** 750VA/450W |**Sine Wave:** Simulated in battery backup mode, pure in standard mode
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Most Efficient
 
@@ -140,10 +154,10 @@ PHOTO: Amazon
 **Outlets:** 6 battery, 3 surge-protected, 3 Eco |**Battery backup power:** 850VA/510W |**Sine Wave:** Simulated
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Versatile
@@ -207,31 +221,11 @@ PHOTO: Amazon
 
 Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What to Look For in an Uninterrupted Power Supply
 
 ### Compatibility
 
  When buying a UPS, the most important factor to consider is its compatibility with the power supply. Before hooking anything up, check what your devices require and make sure there’s a match.
-
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### On-Battery Runtime
 
@@ -243,20 +237,14 @@ Lifewire / Jeremy Laukkonen
 
 ![APC Back-UPS Pro 1500VA](https://www.lifewire.com/thmb/0W2VJDKSDlD96nho0nniHgFaAVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/APC-Back-UPS-Pro-1500VA-Protector-2-043c29eec4e142f6b0fbb5333c462096.jpg)
 
-Lifewire / Jeremy Laukkonen
-
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Lifewire / Jeremy Laukkonen
 
 ### Portability
 
@@ -302,5 +290,18 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-boost-brand-visibility-with-smart-strategies-in-instagram-videos/"><u>[New] Boost Brand Visibility with Smart Strategies in Instagram Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-from-overflowed-drafters-to-ordered-files-learn-to-edit-hefty-tiktok-content/"><u>[New] In 2024, From Overflowed Drafters to Ordered Files Learn to Edit Hefty TikTok Content</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-prime-videobg-selections-enhancing-remote-collaboration/"><u>[Updated] Prime Videobg Selections Enhancing Remote Collaboration</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-craving-a-companion-top-discord-dating-spots/"><u>2024 Approved Craving a Companion? Top Discord Dating Spots</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazons-fire-tv-cube-revealed-top-tier-performance-in-high-speed-content-streaming/"><u>Amazon's Fire TV Cube Revealed: Top-Tier Performance in High-Speed Content Streaming</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/exploring-the-prime-linux-screenshot-applications-for-2024/"><u>Exploring the Prime Linux Screenshot Applications for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Apple iPhone SE? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/portable-and-powerful-internet-access-with-the-tp-link-wr902ac-travel-router/"><u>Portable and Powerful Internet Access with the TP-Link WR902AC Travel Router</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/searching-for-free-sports-streaming-sites-look-no-further-for-2024/"><u>Searching for Free Sports Streaming Sites? Look No Further for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-untold-story-behind-cyberpunk-2077-a-work-in-progress-or-a-missed-opportunity/"><u>The Untold Story Behind Cyberpunk 2077: A Work in Progress or a Missed Opportunity?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-spectacular-features-of-the-sony-xbr49x900f-49-inch-4k-tv-review/"><u>Unveiling the Spectacular Features of the Sony XBR49X900F 49-Inch 4K TV Review</u></a></li>
+</ul></div>
 

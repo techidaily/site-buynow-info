@@ -1,7 +1,7 @@
 ---
 title: "Predator Mini by Holy Stone (HS170): An Economical Choice for Hobbyist Drone Enthusiasts Reviewed!"
-date: 2024-09-10T20:25:18.676Z
-updated: 2024-09-15T17:05:02.049Z
+date: 2024-10-05T19:04:56.689Z
+updated: 2024-10-12T21:07:33.060Z
 categories:
   - BestProducts
 description: "This Article Describes Predator Mini by Holy Stone (HS170): An Economical Choice for Hobbyist Drone Enthusiasts Reviewed!"
@@ -44,9 +44,23 @@ Lifewire / Erika Rawes
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Xiaomi Mi Smart Band 4
 
 ![Xiaomi Mi Smart Band 4](https://www.lifewire.com/thmb/UV3EHV0VwUI0F7jJZFlAMknHD2M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xiaomi-Mi-Band-4-Fitness-Tracker-1-0f0e3854f10a4a2595aacd594e37472b.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -80,7 +94,21 @@ Lifewire / Erika Rawes
 
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/oCYh365Kx4bFT1nCDvemWNcGEYI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-6-64089d35ecca457d9f49477537785d34.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Comfort: A water resistant removable band**
 
@@ -93,10 +121,10 @@ Lifewire / Erika Rawes
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/MsPw0300j9lhgQEmelHfapWXla4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-4-52ee61c2595e4aafb5c1ad04be13f12e.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -114,13 +142,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software: Mi Fit App**
 
  The Mi Fit app is somewhat basic, but it provides useful health and fitness information. Some functions, like automatic monitoring, aren’t as easy to find in the app as others, but overall the basic app serves its purpose. As with most fitness trackers, you can set alarms, set event reminders, and share your fitness info. You can view historical data on your heart rate, workouts, steps, and calories burned. You can track your sleep, including deep sleep, light sleep, hours slept, and more.
@@ -130,13 +151,6 @@ Lifewire / Erika Rawes
 ![Xiaomi Mi Smart Band](https://www.lifewire.com/thmb/uyTDWcqaPVwpPOnZeijBG5Y2MYM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xiaomi-Mi-Band-4-Fitness-Tracker-5-040745fab732483a957277c9daaa82ca.jpg)
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Battery: Up to 20 days**
 
@@ -167,13 +181,6 @@ The 135 mAh battery lasts for up to 20 days.
 **Impressive, especially for the price.**
 
  The Xiaomi Mi Smart Band 4 offers a lot of features for a little bit of cash.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -213,5 +220,22 @@ The 135 mAh battery lasts for up to 20 days.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-quick-scale-your-iphones-viewport/"><u>[Updated] 2024 Approved Quick Scale Your iPhone's Viewport</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-the-ultimate-guide-resurrecting-non-displayed-fb-video-posts-2023/"><u>[Updated] 2024 Approved The Ultimate Guide Resurrecting Non-Displayed FB Video Posts, 2023</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-instant-subscriber-tally-software/"><u>[Updated] Instant Subscriber Tally Software</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-musical-enhancements-for-social-video-sharing-platforms-fb/"><u>[Updated] Musical Enhancements for Social Video Sharing Platforms (FB)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bose-wavesound-touch-iv-evaluation-top-quality-sound-mediocre-look/"><u>Bose WaveSound Touch IV Evaluation: Top Quality Sound, Mediocre Look</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-lenovo-thinkpad-x1-titanium-yoga-assessment-a-cutting-edge-convertible-device-loved-by-legacy-thinkpad-admirers/"><u>Comprehensive Lenovo ThinkPad X1 Titanium Yoga Assessment: A Cutting-Edge Convertible Device Loved by Legacy ThinkPad Admirers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-the-apple-mac-mini-m1-2020-outshines-competitors-with-its-revolutionary-arm-architecture/"><u>How the Apple Mac Mini (M1, 2020) Outshines Competitors with Its Revolutionary ARM Architecture</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-on-apple-watch-or-iphone-11-pro-by-drfone-ios/"><u>How To Bypass Activation Lock On Apple Watch Or iPhone 11 Pro?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Xiaomi Redmi Note 13 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-next-gen-entertainment-an-exhaustive-review-of-the-exceptional-xbox-series-x-in-crystal-clear-4k/"><u>Mastering Next-Gen Entertainment: An Exhaustive Review of the Exceptional Xbox Series X in Crystal Clear 4K</u></a></li>
+<li><a href="https://blog-min.techidaily.com/movavi-transformez-votre-ram-en-une-ligne-connectee-gratuite/"><u>Movavi: Transformez Votre RAM en Une Ligne Connectée Gratuite</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rise-and-shine-little-ones-an-unbiased-look-at-the-mirari-child-alarm-clock/"><u>Rise and Shine, Little Ones: An Unbiased Look at the Mirari Child Alarm Clock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-rc-fun-discover-the-appeal-of-holy-stone-racing-toys-for-family-entertainment/"><u>Top-Rated RC Fun: Discover the Appeal of Holy Stone Racing Toys for Family Entertainment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-lg-stylo-6-review-where-sophisticated-design-meets-precision-touch/"><u>Unveiling the LG Stylo 6 Review - Where Sophisticated Design Meets Precision Touch!</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-youll-thank-your-smartphone-for-these-9-advantages/"><u>Why You'll Thank Your Smartphone for These 9 Advantages</u></a></li>
+</ul></div>
 

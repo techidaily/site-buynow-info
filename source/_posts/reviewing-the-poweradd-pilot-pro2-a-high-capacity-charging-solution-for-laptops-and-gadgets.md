@@ -1,7 +1,7 @@
 ---
 title: Reviewing the POWERADD Pilot Pro2 - A High-Capacity Charging Solution for Laptops & Gadgets
-date: 2024-09-10T20:15:12.609Z
-updated: 2024-09-15T19:00:36.512Z
+date: 2024-10-11T20:56:42.757Z
+updated: 2024-10-12T20:51:29.797Z
 categories:
   - BestProducts
 description: This Article Describes Reviewing the POWERADD Pilot Pro2 - A High-Capacity Charging Solution for Laptops & Gadgets
@@ -46,6 +46,13 @@ Lifewire / Todd Braylor
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Todd Braylor
 
 [View On Amazon $280](https://www.amazon.com/dp/B019HF60EI/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7CB019HF60EI) [View On Walmart $140](https://www.walmart.com/ip/Escort-Passport-S55-High-Performance-Pro-Radar-and-Laser-Detector-w-DSP/49140972)
@@ -67,6 +74,13 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -77,24 +91,31 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Easy installation**
 
  The S55 is straightforward and easy to install. Simply stick the windshield mount in place and plug the SmartCord lighter adapter into your car's DC cigarette lighter input. Plugging the modular jack into the S55 will automatically power on the radar detector and you can quickly customize settings for display brightness, detector sensitivity levels, and volume. Then you're ready to hit the road.
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Range: Impressive detection**
 
  The Passport S55 features Enhanced Radar Protection that delivers long-distance range for laser and radar bands, including K and Ka bands, widely used microwave frequencies for police radar guns. It reliably delivers on its promise of long-distance sensitivity. While testing the S55 in Highway mode I received Ka-band alerts over a mile and a half out from where I approached a highway patrol parked on the median of the interstate. This range was on par with much more expensive models.
 
  It reliably delivers on its promise of long-distance sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
 
@@ -103,19 +124,6 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
-
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: You get what you pay for**
 
@@ -162,5 +170,24 @@ Lifewire / Todd Braylor
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-clip-maker/"><u>[Updated] Youtube Clip Maker</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-how-to-locate-your-youtube-fanbase/"><u>2024 Approved How to Locate Your YouTube Fanbase</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-most-popular-karaoke-machines-of-this-year/"><u>Discover the Most Popular Karaoke Machines of This Year</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1722182901697-discover-the-power-of-chatgpt-in-personal-healthcare-learn-why-its-worth-considering-now/"><u>Discover the Power of ChatGPT in Personal Healthcare – Learn Why It's Worth Considering Now!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dive-into-our-in-depth-analysis-of-the-2019-apple-ipad-air-a-stellar-performer-for-media-lovers/"><u>Dive Into Our In-Depth Analysis of the 2019 Apple iPad Air: A Stellar Performer for Media Lovers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/effortless-methods-for-capturing-google-voice-conversations/"><u>Effortless Methods for Capturing Google Voice Conversations</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-honor-play-7t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-integrating-b-roll-effectively-without-distraction/"><u>In 2024, Integrating B Roll Effectively Without Distraction</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-the-premium-philips-somneo-alarm-clock-series/"><u>In-Depth Review of the Premium Philips Somneo Alarm Clock Series</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-look-what-you-need-to-know-about-the-ring-battery-doorbell-proplus/"><u>Inside Look - What You Need to Know About the Ring Battery Doorbell Pro+</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/microsoft-surface-ergo-keyboard-unveiled-a-high-end-review-for-optimal-typing-experience/"><u>Microsoft Surface Ergo Keyboard Unveiled – A High-End Review for Optimal Typing Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nikon-coolpix-w100-review/"><u>Nikon Coolpix W100 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/practical-and-robust-a-detailed-review-of-urban-armor-gears-macbook-pro-sleeve/"><u>Practical and Robust - A Detailed Review of Urban Armor Gear's MacBook Pro Sleeve</u></a></li>
+<li><a href="https://win-able.techidaily.com/stay-on-top-of-your-game-ultimate-tips-to-resolve-war-thunders-persistent-crashing-issues-for-202er/"><u>Stay on Top of Your Game: Ultimate Tips to Resolve War Thunder's Persistent Crashing Issues for 202Er</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/surface-pro-and-ipad-pro-an-in-depth-look-at-their-unique-features-and-performance-differences/"><u>Surface Pro and iPad Pro: An In-Depth Look at Their Unique Features and Performance Differences</u></a></li>
+<li><a href="https://driver-download.techidaily.com/the-ultimate-how-to-for-keeping-your-windows-computers-motherboard-drivers-current-and-efficient/"><u>The Ultimate How-To for Keeping Your Windows Computer's Motherboard Drivers Current and Efficient</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/visionaryzoom-7-x-perfect-photo-amplification/"><u>VisionaryZoom 7-X Perfect Photo Amplification</u></a></li>
+</ul></div>
 

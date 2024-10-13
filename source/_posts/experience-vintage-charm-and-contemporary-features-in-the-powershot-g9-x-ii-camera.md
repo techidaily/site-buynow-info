@@ -1,7 +1,7 @@
 ---
 title: Experience Vintage Charm and Contemporary Features in the PowerShot G9 X II Camera
-date: 2024-10-01T18:44:36.238Z
-updated: 2024-10-07T16:39:05.072Z
+date: 2024-10-05T16:07:34.282Z
+updated: 2024-10-13T10:00:30.687Z
 categories:
   - BestProducts
 description: This Article Describes Experience Vintage Charm and Contemporary Features in the PowerShot G9 X II Camera
@@ -41,16 +41,16 @@ Lifewire / James Huenink
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Logitech C615 HD Laptop Webcam
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/9YqP4BNKZ_F27rxIYbc3f1vqzd0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_HERO_3LW4065141_3_Final_Square-204b4e949e864f148cd513b3511eac69.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / James Huenink
 
@@ -74,14 +74,14 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/86PZ5XCiq91ihr7-8UNmM5io9pY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_4_Final_Horiz-bad356a5002b4156859dca672e8a8eb4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / James Huenink
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design:** **Flexible, foldable design**
 
@@ -111,6 +111,13 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Decent sound quality for a small mic**
 
  We used both[Photobooth](https://www.lifewire.com/how-to-turn-on-camera-on-mac-4175436) and[Skype](https://www.lifewire.com/how-to-make-hd-skype-calls-3426508) to test the performance of the C615\. It was very easy to position the camera exactly the way we wanted it, though the USB cable occasionally gave us problems. We’d swivel the camera and then the pull of the USB cable would turn the whole base so the camera pointed back at the same spot where it started.
@@ -118,13 +125,6 @@ Lifewire / James Huenink
  When we used Skype to make calls everything worked great. The HD camera made the video look great, and video and sound were in sync. Close up, the sound was clear but with a thin, distorted tone. From 10 feet away, we heard only a small amount of echo in the call. We also tried using the camera mic with video game noise in the background. The camera clearly caught our voices and downplayed the background noise, helping us focus on what we wanted to hear.
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/C2UBXNFmxG8nA0udy1IprMH4LBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_9_Final_Horiz-1af52951f8704af9b76d7dd1ec9744a9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / James Huenink
 
@@ -149,10 +149,10 @@ Lifewire / James Huenink
  The Logitech C615 Webcam strikes the perfect balance between performance and affordability. The quality design, high definition video, and quality sound make this an excellent webcam for most tasks at a great price.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -187,14 +187,24 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-iphone-tutorial-snap-and-stream-simultaneously/"><u>[New] IPhone Tutorial Snap and Stream Simultaneously</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-conquering-gameplay-logic-from-console-to-computer-playback/"><u>[Updated] 2024 Approved Conquering Gameplay Logic From Console to Computer Playback</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-ultimate-list-premier-iphone-tone-producers/"><u>[Updated] 2024 Approved Ultimate List Premier iPhone Tone Producers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-free-lightzone-editing-software-on-windows-and-macos/"><u>Comprehensive Guide to Free LightZone Editing Software on Windows & macOS</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-advantages-and-disadvantages-of-using-webex-for-remote-collaboration/"><u>Comprehensive Review: Advantages & Disadvantages of Using WebEx for Remote Collaboration</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dissecting-the-vyncs-app-strong-performance-overshadowed-by-perplexing-payment-packages/"><u>Dissecting the Vyncs App - Strong Performance Overshadowed by Perplexing Payment Packages</u></a></li>
-<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-huawei-p60-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Huawei P60 Phone? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/echo-show-4th-generation-an-in-depth-analysis-of-the-latest-improvements/"><u>Echo Show (4Th Generation): An In-Depth Analysis of the Latest Improvements</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/revolutionizing-facebook-advertising-through-creative-insight/"><u>Revolutionizing Facebook Advertising Through Creative Insight</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-key-strategies-to-craft-persuasive-testimonials-that-resonate/"><u>[New] Key Strategies to Craft Persuasive Testimonials That Resonate</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-live-link-legends-favoring-the-framework-software-or-fabrication-hardware-in-2024/"><u>[New] Live Link Legends Favoring the Framework (Software) or Fabrication (Hardware), In 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-navigating-the-world-of-online-streaming-wirecast-and-facebook/"><u>2024 Approved Navigating the World of Online Streaming Wirecast & Facebook</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-lenovo-tab-4-assessment-highlighting-the-pros-and-cons-of-this-economical-android-device/"><u>Affordable Lenovo Tab 4 Assessment: Highlighting the Pros and Cons of This Economical Android Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/balancing-budget-and-functionality-in-the-logitech-c615-webcam-a-comprehensive-review/"><u>Balancing Budget and Functionality in the Logitech C615 Webcam - A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/breaking-down-the-rca-video-doorbell-camera-an-authoritative-security-device-assessment/"><u>Breaking Down the RCA Video Doorbell Camera: An Authoritative Security Device Assessment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-blh4100-blade-rc-helicopter-evaluation-for-outdoor-use-ready-to-fly/"><u>Comprehensive BLH4100 Blade RC Helicopter Evaluation for Outdoor Use – Ready To Fly!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/conquer-the-night-sky-together-a-critical-look-at-dying-lights-cooperative-and-parkour-features/"><u>Conquer the Night Sky Together: A Critical Look at Dying Light's Cooperative & Parkour Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/d-link-powerline-av-2000-product-analysis-simplified-installation-and-high-speed-connectivity/"><u>D-Link Powerline AV 2000 Product Analysis: Simplified Installation & High-Speed Connectivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-the-differences-echo-pop-stacked-up-against-echo-dot/"><u>Decoding the Differences: Echo Pop Stacked Up Against Echo Dot</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-dependable-nature-of-sonys-dsc-w800-at-a-reasonable-price/"><u>Discovering the Dependable Nature of Sony's DSC-W800 at a Reasonable Price</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-advice-on-how-to-achieve-perfect-camera-placement-with-your-ps4/"><u>Expert Advice on How to Achieve Perfect Camera Placement with Your PS4</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/hearing-the-airwaves-how-to-stream-fm-radio-from-iphones-and-android-phones/"><u>Hearing the Airwaves: How to Stream FM Radio From iPhones and Android Phones</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-xiaomi-redmi-12-5g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Xiaomi Redmi 12 5G Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-tutorial-connecting-and-chatting-with-whatsapp-on-macos/"><u>Step-by-Step Tutorial: Connecting and Chatting with WhatsApp on macOS</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/teac-pd-301-insight-classy-design-rich-tones/"><u>Teac PD-301 Insight: Classy Design, Rich Tones</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/toms-tech-reviews-comprehensive-insights-on-hardware/"><u>Tom's Tech Reviews: Comprehensive Insights on Hardware</u></a></li>
+<li><a href="https://win-able.techidaily.com/top-tricks-to-eliminate-high-ping-while-playing-valheim-on-pc/"><u>Top Tricks to Eliminate High Ping While Playing Valheim on PC</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlocking-secrets-for-flawless-windows-error-handling/"><u>Unlocking Secrets for Flawless Windows Error Handling</u></a></li>
 </ul></div>
 

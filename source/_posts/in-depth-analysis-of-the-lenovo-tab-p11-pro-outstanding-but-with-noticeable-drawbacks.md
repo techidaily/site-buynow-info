@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of the Lenovo Tab P11 Pro: Outstanding but with Noticeable Drawbacks"
-date: 2024-10-01T16:38:57.271Z
-updated: 2024-10-07T17:26:14.339Z
+date: 2024-10-06T22:36:52.480Z
+updated: 2024-10-13T11:09:07.598Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis of the Lenovo Tab P11 Pro: Outstanding but with Noticeable Drawbacks"
@@ -72,13 +72,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Flimsy and difficult to use**
 
  The first thing we noticed about the Docooler USB 2.0 12 Megapixel is how cheap it feels. The camera itself has a plastic, silver housing with a shiny silver focus ring on the end. It feels like it could break at any moment. The base is made of a transparent plastic, which is also available in blue and black. The plastic is so rigid that we expect it to break under regular use. Every time we adjusted the camera, the plastic creaked like a rusty door in a haunted house. Even in our short testing period, the joints started getting loose. We had to check several times just to make sure it wasn’t broken.
@@ -87,6 +80,13 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/a_8Gd66JN0RtfWzKKcRq95S8EmY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_6_Final_Horiz-1dd3a45479614483b0f4f5883f27094a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / James Huenink
 
 ## **Setup process: Awkward to position**
@@ -94,13 +94,6 @@ Lifewire / James Huenink
  It takes almost no time to get the Docooler USB 2.0 12 Megapixel up and running. We just plugged the USB cord into the computer and it worked.
 
  It was easy to set up when we clipped it to a laptop, but terrible when we tried to put it on our HD TV. Every time we moved the computer or the USB cable, the camera slid, twisted, or fell off the TV. The ball joint, which connects the camera to the base, didn’t move smoothly, so we struggled to point the Docooler USB 2.0 12 Megapixel in the right direction, and we were too worried about breaking the plastic to try and force it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Camera Quality: Not even close to advertised**
 
@@ -115,10 +108,10 @@ Lifewire / James Huenink
  Lifewire / James Huenink
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Underwhelming performance in video and audio**
@@ -137,6 +130,13 @@ Lifewire / James Huenink
 
  The Docooler USB 2.0 12 Megapixel is the most inexpensive webcam you can buy, ranging from $8 up to around $15, but there’s a reason it’s priced so low. The image and audio quality are both terrible, and the camera is difficult to use.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Competition: Falls short**
 
 **_Logitech C270_ :** The Logitech C270 is a low-cost webcam that goes for $40 MSRP, though you can frequently find it for approximately $20\. For $10 more than the Docooler, you get a big upgrade. It has 720p video calling and takes photos at 3MP. The microphone filters out background noise, so it shouldn’t have the same echo effects as the Docooler Web Cam. Even though it’s twice the price, you get a lot more camera for your ten bucks.
@@ -152,10 +152,10 @@ Lifewire / James Huenink
  The Docooler USB 2.0 12 Megapixel is one of the most inexpensive cameras on the market for a reason. This camera doesn’t come close to delivering what it promises, meaning it's not worth even the trifle you'd pay for it.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -190,20 +190,22 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-streamline-social-sharing-integrate-your-fb-story/"><u>[Updated] 2024 Approved Streamline Social Sharing Integrate Your FB Story</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-innovative-ai-pixel-perfect-editor/"><u>[Updated] Innovative AI Pixel Perfect Editor</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-starting-out-right-budget-friendly-game-editing-software-for-beginners/"><u>2024 Approved Starting Out Right Budget-Friendly Game Editing Software for Beginners</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/are-vloggers-compensated-for-product-critiques-in-2024/"><u>Are Vloggers Compensated for Product Critiques, In 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/best-picture-preview-compilation-for-2024/"><u>Best Picture Preview Compilation for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-you-play-mp4-on-galaxy-a05s-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Can you play MP4 on Galaxy A05s?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comparative-analysis-how-does-the-samsung-galaxy-s21-ultra-measure-up-to-top-android-and-ios-phones/"><u>Comparative Analysis: How Does the Samsung Galaxy S21 Ultra Measure Up to Top Android and iOS Phones?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comparing-the-features-apple-iphone-15-pro-vs-pro-max-which-one-reigns-supreme/"><u>Comparing the Features: Apple iPhone 15 Pro Vs. Pro Max – Which One Reigns Supreme?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-viber-out-appraisal-features-and-user-experience-insights/"><u>Comprehensive Viber Out Appraisal: Features and User Experience Insights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cutting-edge-entertainment-on-a-budget-deep-dive-into-the-sony-xbr65x850f-tv-specs-and-value/"><u>Cutting-Edge Entertainment on a Budget: Deep Dive Into the Sony XBR65X850F TV Specs & Value</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/examining-the-strengths-and-weaknesses-of-vyncs-a-detailed-review-of-their-tracking-features-and-pricing-plans/"><u>Examining the Strengths & Weaknesses of VyNCs: A Detailed Review of Their Tracking Features and Pricing Plans</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/expressive-satire-kapwings-memetic-tool-for-2024/"><u>Expressive Satire Kapwing’s Memetic Tool for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-fix-iphone-6-could-not-be-activatedreached-issue-by-drfone-ios/"><u>How To Fix iPhone 6 Could Not Be Activated/Reached Issue</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/pulsar-3d-sound-system-analysis/"><u>Pulsar 3D Sound System Analysis</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-samsung-galaxy-note-9-evaluation-top-contender-in-large-display-smartphones/"><u>Ultimate Samsung Galaxy Note 9 Evaluation: Top Contender in Large-Display Smartphones</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-crafting-striking-instagram-profile-overviews/"><u>[New] Crafting Striking Instagram Profile Overviews</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-gastronomic-genius-ideal-culinary-network-name-strategies/"><u>[Updated] 2024 Approved Gastronomic Genius Ideal Culinary Network Name Strategies</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-frost-giants-redemption-gods-unleashed-for-2024/"><u>[Updated] Frost Giants' Redemption Gods Unleashed for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-how-to-record-with-your-macbooks-camera-for-2024/"><u>[Updated] How to Record with Your MacBook's Camera for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-premier-tech-to-record-your-on-air-video-on-youtube/"><u>[Updated] Premier Tech to Record Your On-Air Video on YouTube</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-leading-home-entertainment-pcs-ranked-for-optimal-movie-experience/"><u>2024'S Leading Home Entertainment PCs Ranked for Optimal Movie Experience</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/7-strategies-for-rectifying-windows-display-defects/"><u>7 Strategies for Rectifying Windows Display Defects</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/8-things-to-consider-when-buying-a-tablet/"><u>8 Things to Consider When Buying a Tablet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-tasty-adventure-a-comprehensive-review-of-overcooked-eb/"><u>A Tasty Adventure? A Comprehensive Review of Overcooked! Eb</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/acers-predator-triton-300se-analyzed-compact-design-meets-exceptional-affordability/"><u>Acer's Predator Triton 300SE Analyzed: Compact Design Meets Exceptional Affordability</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722599126716-asus-chromebook-flip-c302ca-outstanding-budget-laptop-with-remarkable-versatility-reviewed/"><u>Asus Chromebook Flip C302CA: Outstanding Budget Laptop with Remarkable Versatility Reviewed!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722766616161-discover-the-ultimate-pc-sound-solutions-elite-card-picks-for-2eby2024/"><u>Discover the Ultimate PC Sound Solutions: Elite Card Picks for 2Eby2024!</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/get-hooked-on-ez-grabber-a-step-by-step-downloading-guide/"><u>Get Hooked on EZ Grabber A Step-by-Step Downloading Guide</u></a></li>
+<li><a href="https://techtrends.techidaily.com/iphone-os-18-update-find-out-which-devices-work-and-dont-with-the-latest-apple-software-zdnet/"><u>IPhone OS 18 Update: Find Out Which Devices Work & Don't with the Latest Apple Software | ZDNET</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722606418065-pros-and-cons-of-roku-vs-amazon-fire-tv-stick-find-out-which-one-suits-you-best/"><u>Pros & Cons of Roku vs Amazon Fire TV Stick: Find Out Which One Suits You Best!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722538649938-top-rated-trial-run-on-the-innovative-linksys-velop-networking-solution/"><u>Top-Rated Trial Run on the Innovative Linksys Velop Networking Solution!</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/undercover-instagram-story-experience-top-5-tools/"><u>Undercover Instagram Story Experience, Top 5 Tools</u></a></li>
 </ul></div>
 

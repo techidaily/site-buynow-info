@@ -1,7 +1,7 @@
 ---
 title: Capability Meets Value in Our In-Depth Look at the Google Pixel 4a 5G Smartphone
-date: 2024-09-11T18:33:13.663Z
-updated: 2024-09-15T20:32:23.760Z
+date: 2024-10-08T09:38:00.180Z
+updated: 2024-10-12T17:52:23.977Z
 categories:
   - BestProducts
 description: This Article Describes Capability Meets Value in Our In-Depth Look at the Google Pixel 4a 5G Smartphone
@@ -43,6 +43,13 @@ Lifewire / Jordan Provost
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Nokia 7.1
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/FPdNqEjtI6f1tbMbciesCKN2pRQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_hero-14043634662d46998584bb21b3d7becd.jpg)
@@ -79,6 +86,13 @@ Lifewire / Jordan Provost
 
 [Phone Reviews & Top Picks](https://www.lifewire.com/best-android-smartphones-577403)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: A mid-range phone with high-end sensibilities**
 
  The Nokia 7.1 is a mid-range handset that could pass for a higher-end device if you squint. It features the same general design—a glass front and back separated by an aluminum body—that we’ve seen so many times before, but it has a few design tweaks that help it stand out. The matte aluminum body features chamfered edges that add a bit of visual flair, especially when they catch the light.
@@ -101,21 +115,7 @@ Lifewire / Jordan Provost
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/LkCNBmkQjVwHH-SoT7i4QFOrSsk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_1-83b2f49a5f2c4443b2b7f30b502fd094.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jordan Provost
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Great for a mid-range handset**
 
@@ -133,6 +133,13 @@ Lifewire / Jordan Provost
 
  It’s important to note that when the Nokia 7.1 launched, it was plagued with complaints about slow operation, lag, and an unresponsive touchscreen. These appear to have been software-related issues that have since been fixed, as we experienced no such problems in our hands-on testing.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Connectivity: Data connection is slow**
 
  In our testing, the Nokia 7.1 performed exceedingly well when connected to Wi-Fi, but it had far more problems with mobile data compared to similar handsets we tested. Connected to T-Mobile’s 4G LTE network (indoors), the Nokia 7.1 achieved 4.03 Mbps down and just 0.11 Mbps up via the Ookla Speedtest app. Tested at the same time, in the same location, a Google Pixel 3 recorded 4.69 Mbps down and 1.33 Mbps up.
@@ -140,6 +147,19 @@ Lifewire / Jordan Provost
  The Nokia 7.1 exhibited similar speed issues when tested in other locations despite showing a very strong connection. The highest speeds we were able to achieve, with full reception bars, were 18.0 Mbps down and 1.42 Mbps up (compared to 37.8 Mbps down and 7.23 Mbps up measured on a Pixel 3 in the same location at the same time).
 
  Despite these connectivity problems, we were still able to stream YouTube videos and music from Google Play over the data connection.
+
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Display Quality: HDR quality with a chunky notch**
 
@@ -171,6 +191,13 @@ Lifewire / Jordan Provost
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/VI32Dr6kjQKlJti1W9Egtq7kb10=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_2-b7780c375da34f349ba0c037120ee3ff.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
 
 ![Nokia 7.1 rose photo](https://www.lifewire.com/thmb/4d-M-nqoc9xpcT44HdNVobPQU1U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/gs9-photo9-7b35a0c91bd544ae89dab81238efdda2.jpg)
@@ -180,10 +207,10 @@ Lifewire
 ![Nokia 7.1 cat photo](https://www.lifewire.com/thmb/hepqa5K_YkbwuC1_7lRbkLgxJVc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/cat-photo7-e1f061ad95324519a4cd85a39faeb1a7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire
@@ -209,10 +236,10 @@ Lifewire
  Charging is accomplished through USB-C, and it does support fast charging when you use the included charger and cable. Despite the glass back, wireless charging is not supported.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Android One means guaranteed updates**
@@ -222,13 +249,6 @@ Lifewire
  Since this handset is part of the Android One program, you can expect updates for at least 24 months from the date of release. Android One phones are also supposed to receive new operating system updates and access to new features before other phones.
 
  With Google ending their own mid-range line of phones with the Nexus 5X and 6P, Android One devices like the Nokia 7.1 are now the best way to keep up with the newest Android features without paying a premium.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Solidly mid-range**
 
@@ -249,6 +269,19 @@ Lifewire
  **Premium features and great looks, all on a budget.**
 
  The Nokia 7.1 isn’t a high-end device, but it brings a lot of premium quality and features to the table. If you’re in the market for a solid mid-range handset, you won’t do much better than this.
+
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -289,5 +322,18 @@ Lifewire
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-gameplay-capture-simplified-the-ultimate-win10-guide/"><u>[New] In 2024, Gameplay Capture Simplified The Ultimate Win10 Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-seamless-internet-experience-try-these-7-best-android-apps/"><u>[New] In 2024, Seamless Internet Experience? Try These 7 Best Android Apps</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-build-a-fortified-mc-base-plan-6-10/"><u>[Updated] In 2024, Build a Fortified MC Base Plan #6-10</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/advanced-iis-settings-configuration-panel/"><u>Advanced IIS Settings Configuration Panel</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-unveiling-the-pros-and-cons-of-google-maps-for-apples-iphone/"><u>Expert Insights: Unveiling the Pros and Cons of Google Maps for Apple's iPhone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-itel-s23plus-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Itel S23+ to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-budget-champion-why-xiaomis-mi-smart-band-ebshines-over-competitors/"><u>In-Depth Analysis of the Budget Champion: Why Xiaomi's Mi Smart Band Ebshines Over Competitors</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-the-pros-and-cons-of-the-revolutionary-lenovo-thinkpad-x1-fold/"><u>In-Depth Analysis: The Pros & Cons of the Revolutionary Lenovo ThinkPad X1 Fold</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-internet-experience-with-synology-rt2600ac-a-wireless-router-merging-prolonged-signal-span-and-supervisory-features-for-peace-of-mind/"><u>Maximizing Internet Experience with Synology RT2600ac - A Wireless Router Merging Prolonged Signal Span & Supervisory Features for Peace of Mind</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-strategy-to-locate-ideal-placement-for-your-ps4-webcam/"><u>The Definitive Strategy to Locate Ideal Placement for Your PS4 Webcam</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-the-xiaomi-mi-smart-band-4-a-highly-recommended-fitness-wristband-at-a-budget-price-point/"><u>Unboxing and Testing the Xiaomi Mi Smart Band 4 - A Highly Recommended Fitness Wristband at a Budget Price Point</u></a></li>
+</ul></div>
 

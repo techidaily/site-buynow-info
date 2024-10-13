@@ -1,7 +1,7 @@
 ---
 title: Discover Why the Mohu Leaf 30 Is a Top Pick for Value and Functionality in TV Antenna Shopping
-date: 2024-09-12T18:28:57.866Z
-updated: 2024-09-15T20:51:50.330Z
+date: 2024-10-12T00:45:35.854Z
+updated: 2024-10-13T10:44:54.389Z
 categories:
   - BestProducts
 description: This Article Describes Discover Why the Mohu Leaf 30 Is a Top Pick for Value and Functionality in TV Antenna Shopping
@@ -86,26 +86,26 @@ Lifewire / Andrew Hayward
 
  The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Setup Process: Plug and play
 
  The C302 is a purely plug-and-play accessory with no flashy perks or settings to deal with, nor any need for software on your computer. Simply place it under your laptop, adjust the feet and holding nubs as desired, and plug the USB port into your computer to power on the pad. The fans will then activate and run at the only available speed, and you can unplug it when you’re done or don’t need it anymore.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Performance: It makes a difference
@@ -128,6 +128,13 @@ Lifewire / Andrew Hayward
 
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: It’s very affordable
 
  At $30, this is one of the most affordable laptop cooling pads on the market right now. While results varied across multiple tests and games/apps, the C302 was pretty well in line with some of the pricier options I tested. It feels a little flimsy and doesn’t have any premium features, but the C302 is a very good entry-level option.
@@ -135,6 +142,13 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
 
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## TopMate C302 vs. Kootek Laptop Cooling Pad
 
@@ -146,18 +160,18 @@ Lifewire / Andrew Hayward
 
  Durability questions aside, the TopMate C302 Laptop Cooling Pad ultimately worked about as well as the other, pricier pads I tested, helping to offset some of the heat generated by a very hot gaming laptop. If you’re concerned about long-term damage or performance degradation from an overheating laptop, the C302 is a cost-efficient way to help keep your notebook from reaching extreme heat peaks.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 * [North Face Pivoter Backpack](https://www.lifewire.com/north-face-pivoter-backpack-review-4690198)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -185,5 +199,22 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-setting-up-for-success-an-instagram-business-account-blueprint/"><u>[New] Setting Up for Success An Instagram Business Account Blueprint</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-3-honor-x50i-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Honor X50i Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/directdraw-malfunction-effective-strategies-and-fixes-to-try-out/"><u>DirectDraw Malfunction: Effective Strategies and Fixes to Try Out</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/echo-dot-4th-gen-review-a-totally-new-look/"><u>Echo Dot (4Th Gen) Review: A Totally New Look</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/expert-streaming-the-creme-de-la-cam-of-6-zoom-cameras/"><u>Expert Streaming The Crème De La Câm' Of #6 Zoom Cameras</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-motorola-moto-g24-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Motorola Moto G24</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-vivo-y55s-5g-2023-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Vivo Y55s 5G (2023) Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/e-look-at-vimeo-and-youtubes-market-strategies/"><u>Inside Look at Vimeo and YouTube’s Market Strategies</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-best-3d-animation-software-free-and-paid2022-new/"><u>New Best 3D Animation Software Free and Paid(2022 New)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ravpower-24w-usb-car-charger-review-high-power-output-low-quality-construction/"><u>RAVPower 24W USB Car Charger Review: High Power Output, Low-Quality Construction</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/should-i-switch-to-monterey-now/"><u>Should I Switch to Monterey Now?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-breakdown-of-the-asus-rog-gt-ac5300-tailored-to-meet-gamers-and-tech-buffs-needs/"><u>The Ultimate Breakdown of the Asus ROG GT-AC5300: Tailored to Meet Gamers and Tech Buffs Needs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-samsung-cf591-gaming-display-reviews-and-insights/"><u>The Ultimate Guide to the Samsung CF591 Gaming Display – Reviews and Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-asus-rog-rapture-gt-ax11000-analysis-highlighting-superior-gameplay-speed-and-advanced-features/"><u>Top Asus ROG Rapture GT-AX11000 Analysis: Highlighting Superior Gameplay Speed & Advanced Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-xbox-one-elite-series-2-gaming-controller-evaluation-why-its-a-must-have/"><u>Top Xbox One Elite Series 2 Gaming Controller Evaluation - Why It's a Must-Have!</u></a></li>
+</ul></div>
 

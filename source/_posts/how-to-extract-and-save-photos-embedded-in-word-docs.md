@@ -1,7 +1,7 @@
 ---
 title: How to Extract and Save Photos Embedded in Word Docs
-date: 2024-09-30T17:24:31.261Z
-updated: 2024-10-07T18:09:40.814Z
+date: 2024-10-10T05:14:12.156Z
+updated: 2024-10-13T09:44:39.727Z
 categories:
   - BestProducts
 description: This Article Describes How to Extract and Save Photos Embedded in Word Docs
@@ -48,13 +48,6 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/mKaiRcg5xaWaOPRj0Ph1dRjUbSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4164252-1-e8b8c3eb31dd46e8a63e8e40a5a9d04b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
 
 [View On Amazon](https://www.amazon.com/7-Days-Die-PlayStation-4/dp/B01DPUVMNU/?tag=lifewire-onsite-prod-20&ascsubtag=4771121%7Cn6d0ad33beb4d40d5925c2a807d89db2412%7CB01DPUVMNU) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/7-days-to-die/10129841.html)
@@ -78,13 +71,6 @@ Lifewire / Rebecca Isaacs
  Everyone loves zombies, but there are so many zombie shooters, it can be hard to tell them apart. But when we played 7 Days to Die, we jumped for joy and grabbed our digital cricket bats, fully prepared to go full Shaun of the Dead on hordes of the undead. A game loosely based around a nuclear fallout that ends with the fall of civilization and the spawning of undead, hungry friends sounds like a good time. Racking up over 500 hours on the game, we’ve tested it across four major alpha updates, taking note of gameplay, plot, ease of use, and price. Read on to find out our thoughts.
 
 ![7 Days to Die](https://www.lifewire.com/thmb/MW5wYA5ujBjG5LdXn-w9bTJd5WQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-2-a59091cd21c04d99a42270199349fc2a.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -114,6 +100,13 @@ Lifewire / Rebecca Isaacs
 
  Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Gameplay: Could be better, but solid overall**
 
  7 Days to Die boasts two playable maps: Navezgane, which is a massive square map consisting of five biomes in which you can use the sandbox world to your advantage; and random map generation, which is a map that randomly spawns cities and biomes. The latter is for players who want a greater challenge, as no random map is the same. The former, however, has fun elements like a school, complete with charging football zombies, and a strip club. From these two kinds of maps alone, gameplay can last for hours (as we said, we’ve clocked in 500 hours at this point).
@@ -134,14 +127,20 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/O0do2JbbpgP_VF7azi5OhENnDpc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-5-13eba1dcdd7d45b48c0c3d07711686e6.jpg)
 
- Lifewire / Rebecca Isaacs
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Rebecca Isaacs
 
 ## **Graphics: Outdated, but detailed on optimal**
 
@@ -158,15 +157,28 @@ Lifewire / Rebecca Isaacs
  Last time we checked, the company that owned all console rights, Telltale, went bust, and The Fun Pimps (the developer) were in legal limbo trying to reacquire their own rights. There’s a good chance that there will not be an update in the console versions of the game anytime soon as this issue makes its way through the courts. Therefore, we strongly recommend that you purchase the PC version if you decide this is a game you might like to try.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Average for an alpha game**
 
  At around $25, 7 Days isn’t the most expensive zombie game on the market. However, it is the most expensive alpha zombie game out there. Because you can purchase it on[Steam](https://www.lifewire.com/what-is-steam-4177380) or Humble Bumble, we recommend waiting for a Steam sale and getting it for a discount, especially since it’s still in progress. This way, if you decide you don’t like it in the future, you aren’t out the full price.
+
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Other sandbox shooters**
 
@@ -181,10 +193,10 @@ Lifewire / Rebecca Isaacs
  Despite flaws in graphics, there’s a lot to love about 7 Days to Die. The challenging skill tree system and dangerous intelligent zombies add an element that’s not typically found in zombie shooters. If you want a game to commit to for hours on end, building bases and exploring dungeon-like homes while slaying zombie cheerleaders, then 7 Days to Die could be a fun way to ease some stress after a long day of work.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -220,15 +232,22 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-breaking-through-with-stunning-hdr-portrait-shots/"><u>[Updated] In 2024, Breaking Through with Stunning HDR Portrait Shots</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-parrot-ar-drone-evaluation-elite-edition/"><u>2024 Approved Parrot AR Drone Evaluation - Elite Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cutting-edge-tech-unveiled-a-complete-review-of-the-samsung-galaxy-note20-ultra-5g/"><u>Cutting-Edge Tech Unveiled: A Complete Review of the Samsung Galaxy Note20 Ultra 5G</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-makeblock-mbot-a-comprehensive-guide-to-building-and-programming-your-own-robot/"><u>Exploring the Makeblock mBot: A Comprehensive Guide to Building & Programming Your Own Robot</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/holy-stone-rc-cartoon-race-car-review/"><u>Holy Stone RC Cartoon Race Car Review</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Vivo Y02T? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mophie-powerstation-ac-tested-a-pricey-charger-with-impressive-portability-features/"><u>Mophie Powerstation AC Tested: A Pricey Charger with Impressive Portability Features</u></a></li>
-<li><a href="https://games-able.techidaily.com/top-three-pitfalls-of-my-rtx-4090-purchase/"><u>Top Three Pitfalls of My RTX 4090 Purchase</u></a></li>
-<li><a href="https://extra-information.techidaily.com/unveiling-studio-magic-comprehensive-xreview/"><u>Unveiling Studio Magic Comprehensive XReview</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-top-5-revolutionary-google-meet-voice-modification-tools-for-2024/"><u>Updated Top 5 Revolutionary Google Meet Voice Modification Tools for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-seamless-emoji-incorporation-into-discords-status-feature/"><u>[New] 2024 Approved Seamless Emoji Incorporation Into Discord's Status Feature</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-crafting-sound-saturated-instagram-visuals/"><u>[Updated] In 2024, Crafting Sound-Saturated Instagram Visuals</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/7-innovative-apps-gpt-assisted-file-analysis/"><u>7 Innovative Apps: GPT-Assisted File Analysis</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/avi-to-quicktime-mov-transformation-easy-methods-for-pc-and-web-conversion-techniques/"><u>AVI to QuickTime MOV Transformation – Easy Methods for PC and Web Conversion Techniques</u></a></li>
+<li><a href="https://win-blog.techidaily.com/boost-your-gameplay-ultimate-guide-to-resolving-low-fps-issues-in-valorant/"><u>Boost Your Gameplay: Ultimate Guide to Resolving Low FPS Issues in Valorant</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/customize-the-status-bar-a-guide-to-including-a-weather-icon-in-windows-11/"><u>Customize the Status Bar: A Guide to Including a Weather Icon in Windows 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/face-off-feature-analysis-iphone-15-pro-max-vs-samsungs-latest-powerhouse-the-z-fold6/"><u>Face-Off Feature Analysis: IPhone 15 Pro Max Vs. Samsung's Latest Powerhouse, the Z Fold6</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-honor-magic-6-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Honor Magic 6 Lite | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gaming-with-gusto-dissecting-the-delightful-anarchy-of-overcooked-2/"><u>Gaming with Gusto: Dissecting the Delightful Anarchy of Overcooked! 2</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/google-nest-tvs-a-new-era-of-streaming/"><u>Google Nest TVs: A New Era of Streaming?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/honeycomb-headsets-at-an-affordable-price-point/"><u>Honeycomb Headsets at an Affordable Price Point</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-kindles-are-changing-reading-experience/"><u>How Kindles Are Changing Reading Experience</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-ipad-or-iphone-14-stuck-on-activation-lock-by-drfone-ios/"><u>In 2024, How to Fix iPad or iPhone 14 Stuck On Activation Lock?</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-top-fifa-film-analysis-on-youtube-infographics/"><u>In 2024, Top FIFA Film Analysis on YouTube Infographics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-wallet-friendly-apple-watch-se/"><u>In-Depth Look at the Wallet-Friendly Apple Watch SE</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-switch-landscape-a-closer-look-at-the-lite-model-and-oled-upgrade/"><u>Navigating the Switch Landscape: A Closer Look at the Lite Model and OLED Upgrade</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-unleash-seamless-web-surfing-and-enjoy-media-streaming-with-lenovo-tab-m10-hd-2ebuary-2020/"><u>Review: Unleash Seamless Web Surfing & Enjoy Media Streaming with Lenovo Tab M10 HD (2Ebuary, 2020)</u></a></li>
 </ul></div>
 

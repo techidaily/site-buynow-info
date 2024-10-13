@@ -1,7 +1,7 @@
 ---
 title: "OnePlus 9 Evaluation: Calculations Fall Short in Expectations"
-date: 2024-10-04T19:11:35.246Z
-updated: 2024-10-07T16:51:26.272Z
+date: 2024-10-11T01:58:58.201Z
+updated: 2024-10-13T10:15:09.924Z
 categories:
   - BestProducts
 description: "This Article Describes OnePlus 9 Evaluation: Calculations Fall Short in Expectations"
@@ -51,13 +51,6 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/sG6odS-sTBDQKNtpoev0kWtdSGg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cyberpunk-2077-1-d90f62b5a126437681da9916c0360527.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Andy Zahn / Lifewire
 
 [View On Amazon $55](https://www.amazon.com/dp/B07T8BP118/?tag=lifewire-onsite-prod-20&ascsubtag=5113844%7Cn1caa6f424ed249b0ba9a31e582ec71b217%7CB07T8BP118) [View On Steampowered.com](https://store.steampowered.com/app/1091500/Cyberpunk%5F2077/) [View On Gamestop.com](https://www.gamestop.com/video-games/pc-gaming/games/products/cyberpunk-2077/11094594.html)
@@ -87,7 +80,27 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/YQBwL9wFHphVzIqJYlYwd0J2OYU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-2-7e358ac09a2c48fbb0f6aaec1e9381e9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
+
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Story: Engaging and well written
 
@@ -101,13 +114,6 @@ Andy Zahn / Lifewire
 
  Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Gameplay: Fun, but deeply flawed
 
  As with the game as a whole, Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows. It does some things very well and stumbles bafflingly in other regards. The game mostly takes place in the first person, with third-person view being an option while driving.
@@ -117,10 +123,10 @@ Andy Zahn / Lifewire
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/NwK7qVv8XDmr_i0b9XzULnmPZ9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-5-664cae2e38304560a7d6fc3ce2a84335.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
@@ -136,13 +142,6 @@ Andy Zahn / Lifewire
  If you want to avoid conflict and don’t want to slow down for stupid drivers, your best bet is a motorcycle, and it is indeed a blast to go zipping through the streets dodging through gaps in traffic. For some reason, motorcycles control much more reliably than cars, and a cynical mind might suppose that more care was put into motorcycle control due to Cyberpunk featuring the brand of motorcycle owned by a major celebrity who plays a part in the game’s story.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/ByBdwophc_bSfdD-P0CfbqJgbwY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-7-e6be7e2c1ae24ac3a1c5dbfd4a5b595a.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -188,6 +187,13 @@ At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/JM3cD1pX6maee1yiQYZnSgc-9pw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-4-624da4fa8225434eb59ba999a53dafd6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
 
 ## Mature content: Pushing the boundaries
@@ -209,6 +215,13 @@ Andy Zahn / Lifewire
  Even with my settings well-adjusted I still ran into occasional frame rate drops, particularly in areas with a lot of volumetric fog and many lighting sources. Traveling at high speeds also tested the limits of my gaming rig.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/toUXDFSRFZjol-BOgnhnVEyJTYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-8-7b54b824c3bc4dcfb04234f69204d2f6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -237,16 +250,10 @@ Andy Zahn / Lifewire
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/o42yZx4igr8SBsJoS2Nc52n6m3U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-6-1b41a87ba1244122adf280147c09e5f1.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
@@ -255,22 +262,15 @@ Andy Zahn / Lifewire
 
  At launch and for long after Cyberpunk 2077 will be a single-player game. However, CDPR has said that a few years down the road they will be launching a multiplayer mode, and a lot of people are looking forward to that. Of course, it is impossible to predict if this will be any good or if some circumstances might prevent its release, but there is a lot of potential for Cyberpunk to become a better experience when Night City goes online. With that said, CDPR really needs to fix the single-player game before they even think about launching multiplayer.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Price: A refreshing lack of micro-transactions
 
  At $60 with no extra monetization at launch, Cyberpunk 2077 is something of a bargain. Take this with a grain of salt though, as this situation could change dramatically once the multiplayer mode is released.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Cyberpunk 2077 vs. Assassin’s Creed: Valhalla
@@ -311,16 +311,20 @@ Andy Zahn / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-discovering-streamer-favorite-live-cam-technology/"><u>[Updated] 2024 Approved Discovering Streamer-Favorite Live Cam Technology</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-live-stream-to-instagram-from-obs/"><u>[Updated] 2024 Approved Live Stream to Instagram From OBS</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-visual-quality-with-panasonic-wxf991/"><u>Exploring Visual Quality with Panasonic WXF991</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/fellowes-microban-wired-keyboard-review-the-best-budget-option/"><u>Fellowes Microban Wired Keyboard Review: The Best Budget Option</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>How to Change Netflix Location to Get More Country Version On Apple iPhone 13 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ideal-tech-gadgets-for-sun-lovers-paradise/"><u>Ideal Tech Gadgets for Sun Lover's Paradise</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Oppo Reno 11F 5G | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/mac-based-guide-efficiently-converting-and-compressing-mkv-files-into-3gp-format/"><u>Mac-Based Guide: Efficiently Converting and Compressing MKV Files Into 3GP Format</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/philips-hf3520-wake-up-light-therapy-lamp-review/"><u>Philips HF3520 Wake-Up Light Therapy Lamp Review</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/samsung-phone-debut-a-glimpse-into-cutting-edge-technology-and-design/"><u>Samsung Phone Debut: A Glimpse Into Cutting-Edge Technology and Design</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-beginners-guide-to-rebel-t6-dslr/"><u>The Beginner's Guide to Rebel T6 DSLR</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-apples-m1-pro-versus-the-powerhouse-m1-max-what-to-note/"><u>[New] Apple's M1 Pro Versus the Powerhouse M1 Max - What to Note?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unlocking-the-secret-of-fbs-lately-viewed-videos-for-2024/"><u>[New] Unlocking the Secret of Fb’s Lately Viewed Videos for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-m06s-wire-free-sound-quality-and-connectivity/"><u>Evaluating M06's Wire-Free Sound Quality & Connectivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/google-pixel-3-review-android-like-its-meant-to-be/"><u>Google Pixel 3 Review: Android Like It’s Meant to Be</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/google-pixel-3-uncovered-the-quintessential-android-smartphone-experience/"><u>Google Pixel 3 Uncovered: The Quintessential Android Smartphone Experience</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-iphone-11-pro-stuck-at-attempting-data-recovery-loop-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Fix iPhone 11 Pro Stuck at attempting data recovery Loop | Stellar</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-tecno-spark-20c-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Tecno Spark 20C</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-warriors-echoes-celebrating-ghost-of-tsushima-analogues/"><u>In 2024, Warrior's Echoes Celebrating Ghost of Tsushima Analogues</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-assessment-the-mighty-performance-of-beatit-bt-d11-starter-kit/"><u>In-Depth Assessment: The Mighty Performance of Beatit BT-D11 Starter Kit</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-kobo-nia-examination-rising-up-against-amazons-kindle-dominance/"><u>In-Depth Kobo Nia Examination: Rising Up Against Amazon's Kindle Dominance</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/iphone-and-ipad-verifying-genuine-ai-services/"><u>IPhone & iPad: Verifying Genuine AI Services</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-long-range-router-models-optimize-your-home-network-now/"><u>Leading Long-Range Router Models: Optimize Your Home Network Now!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovo-ideapad-flex-5-spin-review-an-in-depth-analysis/"><u>Lenovo IdeaPad Flex 5 Spin Review: An In-Depth Analysis</u></a></li>
+<li><a href="https://win-dash.techidaily.com/m2tsmtsavchd/"><u>M2TS/MTSファイルでAVCHD形式における音障害の考察と解決法</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-your-digital-footprint-prime-2024-cloud-solutions/"><u>Mastering Your Digital Footprint Prime 2024 Cloud Solutions</u></a></li>
 </ul></div>
 

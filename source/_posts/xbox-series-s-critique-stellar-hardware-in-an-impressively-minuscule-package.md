@@ -1,7 +1,7 @@
 ---
 title: "Xbox Series S Critique: Stellar Hardware in an Impressively Minuscule Package"
-date: 2024-10-04T17:22:06.241Z
-updated: 2024-10-07T16:06:40.899Z
+date: 2024-10-06T03:58:43.259Z
+updated: 2024-10-13T01:19:49.652Z
 categories:
   - BestProducts
 description: "This Article Describes Xbox Series S Critique: Stellar Hardware in an Impressively Minuscule Package"
@@ -51,10 +51,10 @@ Lifewire / Jeremy Laukkonen
 ![Xbox Series S](https://www.lifewire.com/thmb/wlG_GrSmQPVex-VRt3ap4hsTP-s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -82,25 +82,11 @@ Lifewire / Jeremy Laukkonen
 
  This console is remarkably compact and has a surprisingly low price point. Gamers looking for a[4K UHD in HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) experience will need to pay a premium for the Series X, but the Xbox Series S offers an enticing alternative if you’re looking to save some money or haven’t yet made the jump to 4K.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Sleek and compact**
 
  The Xbox Series S is small, and it's almost impossible to oversell that point. I had seen pictures and videos of the console and the spec sheet, but I was still surprised at how compact this thing was when I unboxed it. It's smaller than the Xbox One S, and Microsoft bills it as "our smallest Xbox ever." That's especially noteworthy since Microsoft and Sony went exceptionally big with their flagship consoles, the Series X and PlayStation 5.
 
 ![Xbox Series S](https://www.lifewire.com/thmb/3-mUIkkRYilM5F2tvCYMPXtW1Ew=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1-04d996bcdfbb489d84e8945e4c475713.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -117,6 +103,13 @@ Lifewire / Jeremy Laukkonen
  I highly recommend setting up the Xbox Series S with the help of the Xbox app. It massively streamlines the process, makes it easier to connect to Wi-Fi since you don’t need to type out your password with the Xbox’s on-screen keyboard, and even pre-loads the Series S with settings from your old Xbox One if you had one.
 
  I ended up wiping the console back to factory settings a few times while I put it through its paces, so I also tried the traditional setup method after circling back. It’s similar to setting up an Xbox One; not that difficult or time-consuming, but the app option is better.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Rock solid 1440p gaming**
 
@@ -141,10 +134,10 @@ Lifewire / Jeremy Laukkonen
  Load times were negligible in each game I played, which I expected from a super-fast NVME SSD storage system. Some games had more noticeable load times than others, but not enough to disrupt gameplay.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Games: Microsoft still has an exclusivity problem**
@@ -164,10 +157,10 @@ Lifewire / Jeremy Laukkonen
  Microsoft's $7.5B purchase of Bethesda's parent company, Zenimax, brought some hope of additional exclusives appearing in Microsoft's arsenal. (Bethesda is the publisher of Fallout, DOOM, Dishonored, Skyrim, Wolfenstein, The Elder Scrolls, and more.) However, the situation is murky as the company has yet to clarify which (if any) Bethesda titles will be exclusive to Xbox.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Storage: Disappointingly shallow, so bring your USB drive**
@@ -198,13 +191,6 @@ Lifewire / Jeremy Laukkonen
 
  The bottom line is that the Series S provided fairly unimpressive download speeds over Wi-Fi but tore it up when connected via Ethernet. You’ll want to connect this all-digital console via Ethernet to a fast internet connection.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software and User Interface: Familiar and cozy**
 
  Microsoft isn’t looking to rock the boat with the Xbox Series X|S in terms of the user interface. If you’ve used an Xbox One, you’ll find the Xbox Series X|S user interface strangely familiar. The dashboard looks almost the same, and the guide functions as expected. There are a few upgrades and changes here and there, but this is nothing like the massive change between the Xbox 360 dashboard and the Xbox One dashboard.
@@ -226,6 +212,13 @@ Lifewire / Jeremy Laukkonen
  Aside from that, the only other item of note is that the Xbox Series X|S controller includes a fairly aggressive texture on the grips that feels quite nice when held.
 
 ![Xbox Series S](https://www.lifewire.com/thmb/MZdEnnFWPzhGzv_P5GO8byAY5qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3-dd9458b294e74205acad2ff6fee33913.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -263,6 +256,19 @@ Lifewire / Jeremy Laukkonen
 
 [Nintendo Switch Lite Review](https://www.lifewire.com/nintendo-switch-lite-review-4788015)
 
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Xbox Series S
@@ -295,22 +301,21 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-stepwise-guide-to-conducting-video-chats-on-laptop-via-whatsapp/"><u>[New] 2024 Approved Stepwise Guide to Conducting Video Chats on Laptop via WhatsApp</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-twitter-image-resolution-standards/"><u>[New] In 2024, Twitter Image Resolution Standards</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-the-secret-lives-of-messages-exploring-whatsapp-hidden-features-for-2024/"><u>[New] The Secret Lives of Messages Exploring WhatsApp Hidden Features for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-ultimate-moment-in-vr-infinity-for-2024/"><u>[New] Ultimate Moment in VR Infinity for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-how-to-save-powerpoint-presentation-as-video-on-windows-and-mac-os/"><u>[Updated] 2024 Approved How to Save PowerPoint Presentation as Video on Windows and Mac OS</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-voice-over-techniques-video-production-edition/"><u>[Updated] 2024 Approved Voice Over Techniques Video Production Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazon-echo-show-10-3rd-gen-a-comprehensive-review-of-your-new-moving-smart-assistant/"><u>Amazon Echo Show 10 (3Rd Gen): A Comprehensive Review of Your New Moving Smart Assistant</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-dell-inspiron-3671-desktop-middle-ground-in-budget-computing/"><u>Comprehensive Evaluation of the Dell Inspiron 3671 Desktop: Middle Ground in Budget Computing</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-unveiling-how-the-onetastic-add-in-enhances-microsoft-onenote-experience/"><u>Comprehensive Review: Unveiling How the Onetastic Add-In Enhances Microsoft OneNote Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-difference-a-thorough-review-of-the-latest-and-greatest-macbook-pro-m1-2021-by-apple-inc/"><u>Discover the Difference: A Thorough Review of the Latest and Greatest MacBook Pro (M1, 2021) by Apple Inc.</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/effective-solution-found-for-igfx-graphics-module-failure/"><u>Effective Solution Found for iGFX Graphics Module Failure</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/explore-the-thrills-of-programming-a-comprehensive-review-of-the-fun-filled-dji-robomaster-s1-tank-drone/"><u>Explore the Thrills of Programming: A Comprehensive Review of the Fun-Filled DJI RoboMaster S1 Tank Drone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/high-end-huion-inspiroy-g10t-graphics-pen-tablet-evaluation-superior-craftsmanship-and-functionality/"><u>High-End Huion Inspiroy G10T Graphics Pen Tablet Evaluation - Superior Craftsmanship & Functionality</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-apps-from-nokia-xr21-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Apps from Nokia XR21 to Another | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/step-onto-the-court-with-nba-2k19-leading-basketball-emulator/"><u>Step Onto the Court with NBA 2K19: Leading Basketball Emulator</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-sharing-your-game-library-with-friends-on-xbox-one/"><u>The Ultimate Guide: Sharing Your Game Library with Friends on Xbox One</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/transformar-archivos-wmv-a-formato-de-audio-aiff-sin-costo-alguno-con-herramientas-online/"><u>Transformar Archivos WMV a Formato De Audio AIFF Sin Costo Alguno Con Herramientas Online</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-industry-standards-the-top-5-online-video-devices/"><u>[Updated] In 2024, Industry Standards The Top 5 Online Video Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-consumers-perspective-on-the-ring-doorbell-pro-functionality-design-and-review-comparisons/"><u>A Consumer's Perspective on the Ring Doorbell Pro: Functionality, Design & Review Comparisons</u></a></li>
+<li><a href="https://extra-information.techidaily.com/examining-the-value-proposition-of-mophies-ac-powerstation-charger-expensive-but-highly-practical-for-on-the-go-charging-needs/"><u>Examining the Value Proposition of Mophie's AC Powerstation Charger - Expensive, but Highly Practical for On-the-Go Charging Needs</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/from-novice-to-expert-learning-the-ins-and-outs-of-instagram-hashtags-for-2024/"><u>From Novice to Expert Learning the Ins and Outs of Instagram Hashtags for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-infinix-note-30-pro-by-drfone-android/"><u>In 2024, How to Bypass FRP from Infinix Note 30 Pro?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-locked-apple-id-from-iphone-12-mini-by-drfone-ios/"><u>In 2024, How to Fix Locked Apple ID from iPhone 12 mini</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-imovie-clip-integration-into-youtubes-vast-network/"><u>In 2024, IMovie Clip Integration Into YouTube's Vast Network</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ring-youtube-brand-identity-increasing-subscriber-count/"><u>Mastering YouTube Brand Identity Increasing Subscriber Count</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mp4-video-repair-tool-repair-corrupt-damaged-unplayable-video-files-of-lava-by-stellar-video-repair-mobile-video-repair/"><u>MP4 Video Repair Tool - Repair corrupt, damaged, unplayable video files of Lava</u></a></li>
+<li><a href="https://windows11.techidaily.com/top-techniques-converting-heic-images-to-jpeg-using-windows-11-capabilities/"><u>Top Techniques: Converting Heic Images to JPEG Using Windows 11 Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-most-innovative-runners-smartwatches/"><u>Ultimate Guide to the Most Innovative Runner's Smartwatches</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultra-light-lg-gram-17-unveiling-high-performance-at-an-astounding-weight/"><u>Ultra-Light LG Gram 17: Unveiling High-Performance at an Astounding Weight</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-features-and-limitations-in-our-comprehensive-asus-x441ba-laptop-review/"><u>Unpacking the Features and Limitations in Our Comprehensive Asus X441BA Laptop Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-google-nate-hello-smart-bell-cutting-edge-facial-scanning-and-innovative-parcel-sensing-features/"><u>Unveiling Google Nate Hello Smart Bell: Cutting-Edge Facial Scanning & Innovative Parcel Sensing Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-michael-kors-access-series-5e-mkgo-collection-where-glamour-fuses-with-clever-mechanics/"><u>Unveiling the Michael Kors Access Series 5E MKGO Collection: Where Glamour Fuses with Clever Mechanics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-the-omoton-t1-is-your-go-to-budget-friendly-choice-for-a-reliable-tablet-stand/"><u>Why the Omoton T1 Is Your Go-To Budget-Friendly Choice for a Reliable Tablet Stand</u></a></li>
 </ul></div>
 
