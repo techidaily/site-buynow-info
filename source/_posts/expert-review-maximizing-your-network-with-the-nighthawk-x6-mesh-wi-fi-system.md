@@ -1,7 +1,7 @@
 ---
 title: "Expert Review: Maximizing Your Network with the Nighthawk X6 Mesh Wi-Fi System"
-date: 2024-10-06T12:36:33.125Z
-updated: 2024-10-13T03:43:27.016Z
+date: 2024-10-15T03:38:46.997Z
+updated: 2024-10-19T12:21:14.893Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Review: Maximizing Your Network with the Nighthawk X6 Mesh Wi-Fi System"
@@ -48,13 +48,6 @@ Lifewire / Erika Rawes
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/_gP-SgRbIGXPYdlmqqhNJSxhmSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_HeroSquare-61fda9713bb44c89bf3c2f1f74386bee.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Erika Rawes
 
 [View On Amazon $199](https://www.amazon.com/dp/B07P3FGKYD?tag=lifewire-onsite-prod-20&ascsubtag=4942498%7Cn31dea18fa28a4d9a88e5e3a62470a49720%7CB07P3FGKYD) [View On Adorama.com $450](https://www.adorama.com/nerax120100n.html?utm%5Fsource=google&utm%5Fmedium=organic&utm%5Fcampaign=organicshopping&utm%5Fsource=adl-gbase-hometech) [View On B&H Photo Video $399](https://www.bhphotovideo.com/c/product/1469206-REG/netgear%5Frax120%5Fnighthawk%5Fax12%5F12%5Fstream%5Fwifi.html)
@@ -81,13 +74,6 @@ Lifewire / Erika Rawes
 
  The[Netgear](https://www.lifewire.com/best-netgear-routers-4159862) Nighthawk RAX120 is supposed to provide lightning-fast speeds while serving as one of the[best long-range wireless routers](https://www.lifewire.com/best-long-range-routers-4122554) currently on the market. Fully loaded with[Wi-Fi 6 technology](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , smart home connectivity, and a slew of other features, the AX12 should be an ideal router for small businesses, very large homes, or for homes with multiple devices. I tested the Netgear Nighthawk RAX120 to see how well it performs in the real world.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Batman’s router**
 
  The Netgear Nighthawk RAX120 has a futuristic design—angular, with clean lines. It looks like a cross between a spaceship and the Batmobile. It’s matte black and rectangular, but instead of the multiple antennas you’d typically see protruding from the top of a Nighthawk router, it has two wing-like extensions that come from each side.
@@ -96,20 +82,33 @@ Lifewire / Erika Rawes
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/fw0FJuD9bAOkQEHuAZ9OFq5toXk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_05-2a03227466354aad82fe55b884b76ac6-4d18f476974a44b081aafc943a8e56b1.jpg)
 
-Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Lifewire / Erika Rawes
 
 ## **Setup: Quick and easy**
 
  The Netgear Nighthawk app walks you through the setup process. There’s a QR code sticker on the router, as well as a temporary network name and password on the label, which allow you to connect quickly and easily.
 
  The app guides you through creating separate 2.4 and 5GHz networks, but you can also take advantage of a feature called smart connect, which combines your networks and designates your devices based on optimal performance. You can create a guest network, as well as manage and monitor your devices individually. The initial setup process took me about ten minutes in total.
+
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: Superfast speeds**
 
@@ -120,6 +119,13 @@ Lifewire / Erika Rawes
  The RAX120 has four Gigabit Ethernet ports on the back (two of which can be combined to support a larger file transfer rate of 2 GB) and a multigig Ethernet port that supports speeds up to 5 gigs. I was impressed overall with the location and specifications of the ports, but I would have liked to see more Ethernet ports on a router this expensive.
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/y2V4Ncx3Z1ul8B-4lsc_IeiyCRQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_04-9e452ddedd2b4a46893fddd147c06d4f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -153,25 +159,31 @@ Lifewire / Erika Rawes
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/MPwp1LtMC7Ua30t8VnJy7bjuqn4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_02-94fbae95ca5d4851a1cf40b197da4161.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Expensive**
 
  The Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router will cost you a pretty penny—it sells for $400, which is $100 lower than its original retail price of $500\. But it’s still on the higher end of the price spectrum, especially considering it doesn’t include any sort of mesh points, and you only get the router, power supply, and an Ethernet cable.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Netgear Nighthawk RAX120 vs. TP-Link Archer AX6000**
 
@@ -221,22 +233,18 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/updated-blending-binaries-digital-photographic-techniques/"><u>[Updated] Blending Binaries Digital Photographic Techniques</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-cartooncast-comprehensive-24-guidebook-for-2024/"><u>[Updated] CartoonCast Comprehensive '24 Guidebook for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-academic-archiving-ranking-the-top-10-educators-video-capturers/"><u>[Updated] In 2024, Academic Archiving Ranking the Top 10 Educator's Video Capturers</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-gain-command-over-youtubes-video-playback-speed/"><u>[Updated] In 2024, Gain Command Over YouTube's Video Playback Speed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazons-fire-hd-8-gen-8-a-surprising-contender-in-entry-level-tablets-detailed-examination/"><u>Amazon's Fire HD 8 Gen 8: A Surprising Contender in Entry-Level Tablets - Detailed Examination</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-fongos-offering-for-voice-communication-services-in-canada/"><u>Exploring Fongo's Offering for Voice Communication Services in Canada</u></a></li>
-<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On ZTE Nubia Z60 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/igniting-interest-how-to-elevate-your-instagram-contents-impact-for-2024/"><u>Igniting Interest How to Elevate Your Instagram Content's Impact for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-the-art-of-selecting-televisions/"><u>Mastering the Art of Selecting Televisions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/nhl-19-user-review-a-riveting-e-sports-adventure/"><u>NHL 19 User Review: A Riveting E-Sports Adventure</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-extollo-lansocket-1500-fast-connectivity-with-minimal-delay-and-inbuilt-power-transfer/"><u>Review of Extollo LANSocket 1500: Fast Connectivity with Minimal Delay & Inbuilt Power Transfer</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/steps-to-connect-and-share-your-printer-with-all-your-gadgets/"><u>Steps to Connect and Share Your Printer with All Your Gadgets</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-owning-a-sony-xbr65x850f-premium-quality-at-an-accessible-price-point-for-the-65-inch-4k-set/"><u>The Ultimate Guide to Owning a Sony XBR65X850F – Premium Quality at an Accessible Price Point for the 65-Inch 4K Set</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-tier-image-enhancement-evaluating-anthropics-smart-photo-editor-suite/"><u>Top-Tier Image Enhancement: Evaluating Anthropics' Smart Photo Editor Suite</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-complete-quietness-how-to-get-your-minecraft-game-audio-back-on-a-computer/"><u>Troubleshooting Complete Quietness: How To Get Your Minecraft Game Audio Back On A Computer</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/under-100-wireless-solutions-explored-inside-review-of-tp-links-archer-c80-speed-router/"><u>Under $100 Wireless Solutions Explored - Inside Review of TP-Link's Archer C80 Speed Router</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-inside-mastery-exploring-polarrs-sophisticated-image-editing/"><u>[New] Inside Mastery Exploring Polarr's Sophisticated Image Editing</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-advanced-recording-software-outshining-fbx-methods/"><u>[Updated] Advanced Recording Software Outshining FBX Methods</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/consumer-favorites-top-of-the-line-2-cups-capacity-battery-chargers/"><u>Consumer Favorites: Top-of-the-Line 2 Cups Capacity Battery Chargers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-streamline-and-slim-vids-instagram-tips-using-macos/"><u>In 2024, Streamline and Slim Vids Instagram Tips Using macOS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovos-cost-effective-dual-function-chromebook-duet-a-complete-review-and-analysis/"><u>Lenovo's Cost-Effective Dual-Function Chromebook Duet: A Complete Review and Analysis</u></a></li>
+<li><a href="https://android-location.techidaily.com/mastering-pc-builds-and-upgrades-insights-from-toms-hardware-wisdom/"><u>Mastering PC Builds and Upgrades: Insights From Tom's Hardware Wisdom</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-the-ergodriven-topo-mat-your-ultimate-solution-against-fatigue-while-using-a-standing-desk/"><u>Review of the Ergodriven Topo Mat: Your Ultimate Solution Against Fatigue While Using a Standing Desk</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-12-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from 12</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/tactics-and-techniques-for-thriving-in-spotifys-adverse-for-2024/"><u>Tactics and Techniques for Thriving in Spotify's Adverse for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-wireless-network-adapters-usb/"><u>Top Rated Wireless Network Adapters (USB)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/trendy-ride-redefined-comprehensive-swagtron-swagger-electric-scooter-analysis/"><u>Trendy Ride Redefined: Comprehensive Swagtron Swagger Electric Scooter Analysis</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-vivo-g2-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Vivo G2 IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-samsung-galaxy-s23-fe-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Samsung Galaxy S23 FE to Gmail | Dr.fone</u></a></li>
 </ul></div>
 

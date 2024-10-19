@@ -1,7 +1,7 @@
 ---
 title: "Airborne Excellence: In-Depth Review of the Blade E-Flite mCX2 RTF Helicopter"
-date: 2024-09-09T19:42:54.929Z
-updated: 2024-09-15T18:25:10.259Z
+date: 2024-10-12T12:14:36.551Z
+updated: 2024-10-18T16:23:04.468Z
 categories:
   - BestProducts
 description: "This Article Describes Airborne Excellence: In-Depth Review of the Blade E-Flite mCX2 RTF Helicopter"
@@ -36,6 +36,13 @@ Lifewire / Scott Gercken
 [View On Amazon](https://www.amazon.com/dp/B01I06JJZM/?tag=lifewire-onsite-prod-20&ascsubtag=4774592%7Cndcdcb6695c0f483b9cdb00c2d3a1335107%7CB01I06JJZM)
 
 4.4
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner
 
@@ -79,7 +86,21 @@ Lifewire / Scott Gercken
 
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/LB5BA5cM1cVQB_sK6BgcOEl3l9k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_02-60d78cf22bf04b52979d5f65437a35e8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Scott Gercken
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: So easy**
 
@@ -101,32 +122,11 @@ It’s one of the most plug-and-play burners we’ve tested.
 
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/hYWwVcK8E-FSog7TpOTOgE-hYnY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_03-df0bfb492ead4e86a35df19618bcd5d4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Scott Gercken
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Image Quality: Decent quality for an optical drive**
 
  While Blu-ray burners and[optical drives](https://www.lifewire.com/what-is-an-optical-disc-drive-2618157) aren’t exactly designed to play movies, we tried it anyway. We used a free Blu-ray player for Mac, and the picture was pretty good. On the Mac, it was sharp, almost as good as a[Blu-ray player](https://www.lifewire.com/best-blu-ray-players-1846400) designed for the TV. Next, we connected an HDMI cable to the Mac to see what it would look like on an[HDTV](https://www.lifewire.com/best-tvs-to-buy-4061107) . It wasn’t as good as on the computer, but it wasn’t bad either. The TV reported that the resolution was 768p at 60hz, not as good as a Blu-ray player built for that purpose, but better than SD.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Sound Quality: Blu-ray quality sound**
 
@@ -142,9 +142,23 @@ It’s one of the most plug-and-play burners we’ve tested.
 
  That extra durability is worth the slightly higher cost than this drive’s competitors.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Good value for the speed and portability**
 
  For the price, it delivers strong performance and portability. At an MSRP of $120, the BDR-XS06 is a little more expensive than some of its competition, but it feels more solid than even Pioneer’s own models in this price range. That extra durability is worth the slightly higher cost than this drive’s competitors.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: A step ahead**
 
@@ -169,13 +183,6 @@ It’s one of the most plug-and-play burners we’ve tested.
 * [OWC Mercury Pro External USB 3.1 Gen 1 Optical Drive](https://www.lifewire.com/owc-mercury-pro-review-4774690)
 * [Asus BW-16D1X-U Blu-ray Drive](https://www.lifewire.com/asus-bw-16d1x-u-blu-ray-drive-review-4774686)
 * [NAVISKAUTO 12" Portable DVD Player](https://www.lifewire.com/naviskauto-12-portable-dvd-player-review-4691953)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -207,5 +214,24 @@ It’s one of the most plug-and-play burners we’ve tested.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-capturing-moments-like-never-before-with-sj-cam-s6/"><u>[Updated] In 2024, Capturing Moments Like Never Before with SJ-CAM S6</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagrams-time-travelling-method-master-reversal-of-videos-for-2024/"><u>[Updated] Instagram's Time-Travelling Method Master Reversal of Videos for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/audew-portable-air-compressor-pump-review/"><u>Audew Portable Air Compressor Pump Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-value-video-doorbells-on-a-budget-in-depth-iseebell-model-review/"><u>Best Value Video Doorbells on a Budget: In-Depth ISeeBell Model Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-docooler-12mp-usb-camera-is-it-worth-the-hype/"><u>Comprehensive Evaluation of the Docooler 12MP USB Camera - Is It Worth The Hype?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-understated-elegance-of-the-acer-aspire-c27-the-comprehensive-all-in-one-pc/"><u>Discover the Understated Elegance of the Acer Aspire C27 - The Comprehensive All-in-One PC</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-the-latest-intel-iris-graphics-plus-hd-655-drivers-for-windows-11-systems/"><u>Download the Latest Intel Iris Graphics + HD 655 Drivers for Windows 11 Systems</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/efficient-methodology-for-deleting-obscuring-background-elements/"><u>Efficient Methodology for Deleting Obscuring Background Elements</u></a></li>
+<li><a href="https://app-tips.techidaily.com/empowering-tech-teams-amplifying-your-voice-in-the-realm-of-customer-experience-insights-from-zdnet/"><u>Empowering Tech Teams: Amplifying Your Voice in the Realm of Customer Experience - Insights From ZDNet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/free-tango-communication-texts-voice-and-video-chat-app-reviews/"><u>Free Tango Communication: Texts, Voice & Video Chat App Reviews</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-enhance-tv-broadcasts-with-seamless-video-loops-from-youtube/"><u>In 2024, Enhance TV Broadcasts with Seamless Video Loops From YouTube</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlock-apple-id-on-your-apple-iphone-12-pro-without-security-questions-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID On your Apple iPhone 12 Pro without Security Questions?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-through-creativity-and-fun-in-minecraft-the-perfect-game-for-every-age-group/"><u>Navigating Through Creativity and Fun in Minecraft – The Perfect Game for Every Age Group</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-itel-a05s-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Itel A05s Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-free-replacements-for-microsoft-office/"><u>Top-Rated Free Replacements for Microsoft Office</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-greatness-at-a-low-cost-review-of-asus-chromebook-flip-c302cas-remarkable-capabilities/"><u>Unlocking Greatness at a Low Cost: Review of Asus Chromebook Flip C302CA's Remarkable Capabilities</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unveiling-the-transition-understanding-the-move-towards-electric-cars/"><u>Unveiling the Transition: Understanding the Move Towards Electric Cars</u></a></li>
+</ul></div>
 

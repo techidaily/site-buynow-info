@@ -1,7 +1,7 @@
 ---
 title: "Investigating Economical Recording: A Look Into VIXIA's HF R800"
-date: 2024-09-08T18:33:41.538Z
-updated: 2024-09-15T18:51:45.222Z
+date: 2024-10-16T21:17:49.649Z
+updated: 2024-10-19T05:02:27.170Z
 categories:
   - BestProducts
 description: "This Article Describes Investigating Economical Recording: A Look Into VIXIA's HF R800"
@@ -41,6 +41,13 @@ Lifewire / Rui Yang
 
 ![Google Wifi](https://www.lifewire.com/thmb/1JG-edlMJWoUUvDsH0-3Y-yiDAY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-2LW4139748-5-5c91046146e0fb0001f8d0fa.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Rui Yang
 
 [View On Amazon $140](https://www.amazon.com/Google-Wifi-system-set-replacement/dp/B01MAW2294/ref=sr%5F1%5F1%5Fsspa?psc=1%2F&tag=lifewire-onsite-prod-20&ascsubtag=4589445%7Cn93fab60e589d4935aa0f1658838638d208%7CB01MAW2294) [View On Walmart $140](https://www.walmart.com/ip/Google-Wifi-3-Pack/157933144)
@@ -65,6 +72,13 @@ Lifewire / Rui Yang
 
  We spent a long time using Google Wifi in our apartment evaluating its design, ease of setup, connectivity, and software.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Elegance in function**
 
  One of the first things that jump out when you pull the Google Wifi out of the box for the first time is its elegance. In the past, you’d be stuck with these ugly wireless routers with antennas sticking out in four different directions. They were unsightly beasts which encouraged people to hide them behind decor, weakening the signal.
@@ -86,10 +100,10 @@ Lifewire / Rui Yang
  Lifewire / Rui Yang
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Network admin for everyone**
@@ -107,13 +121,20 @@ Lifewire / Rui Yang
 ![Google Wifi](https://www.lifewire.com/thmb/9S7E-N_VashUpOWO5ZRp4ig5Fmw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4139748-1-5c9104a7c9e77c0001e11e05.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Rui Yang
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: Limited, but modern**
 
@@ -145,13 +166,6 @@ Lifewire / Rui Yang
 
  Compared to most other mesh routers, Google Wifi provides tons of performance and more individual nodes.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Google Wifi vs. Netgear Orbi**
 
  The Google Wifi doesn’t exist in a vacuum, and the Netgear Orbi may be the closest to claiming Google’s crown over the mesh Wi-Fi kingdom. The Netgear Orbi comes with one router and one satellite, as opposed to the Google Wifi’s three nodes, and will set you back about $320.
@@ -171,13 +185,6 @@ Lifewire / Rui Yang
 * [Samsung SmartThings Wifi Mesh Router and Smart Home Hub](https://www.lifewire.com/samsung-smartthings-wifi-router-review-4772283)
 * [Netgear Orbi](https://www.lifewire.com/netgear-orbi-review-4589368)
 * [Motorola MG7700](https://www.lifewire.com/motorola-mg7700-review-4589346)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -212,5 +219,20 @@ Lifewire / Rui Yang
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-driving-traffic-and-likes-a-guide-for-instagram-pros/"><u>[New] 2024 Approved Driving Traffic & Likes A Guide for Instagram Pros</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-essential-steps-for-logging-virtual-exchanges/"><u>[New] In 2024, Essential Steps for Logging Virtual Exchanges</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-clearer-communication-the-art-of-adding-text-to-video-media/"><u>[Updated] In 2024, Crafting Clearer Communication The Art of Adding Text to Video Media</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-youtube-thumbnail-mastery-size-and-ratio-tactics/"><u>2024 Approved Youtube Thumbnail Mastery Size & Ratio Tactics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-apeman-c450-dashcam-assessment-top-picks-for-economical-drivers/"><u>Affordable Apeman C450 Dashcam Assessment – Top Picks for Economical Drivers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/canons-sx530-the-simple-starter-for-aspiring-photographers/"><u>Canon's SX530: The Simple Starter for Aspiring Photographers</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-updated-intel-wireless-adapter-driver-for-windows-operating-systems-including-11107/"><u>Download Updated Intel Wireless Adapter Driver for Windows Operating Systems Including 11/10/7</u></a></li>
+<li><a href="https://extra-information.techidaily.com/erase-red-eye-in-iphone-pics-for-free-with-our-guide/"><u>Erase Red-Eye in iPhone Pics for Free with Our Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/harnessing-the-power-of-iphones-shutter-speed-for-movement/"><u>Harnessing the Power of iPhone's Shutter Speed for Movement</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-cricket-iphone-14-pro-for-free-by-drfone-ios/"><u>How To Unlock Cricket iPhone 14 Pro for Free</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionizing-portability-a-detailed-assessment-of-apples-iphone-12-mini-experience/"><u>Revolutionizing Portability: A Detailed Assessment of Apple's iPhone 12 Mini Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-tp-link-deco-p9-mesh-router-revolutionizing-home-internet-access/"><u>The Ultimate Guide to the TP-LInk Deco P9 Mesh Router: Revolutionizing Home Internet Access</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-6-locations-to-purchase-your-next-laptop/"><u>Top 6 Locations to Purchase Your Next Laptop</u></a></li>
+</ul></div>
 

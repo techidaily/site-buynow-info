@@ -1,7 +1,7 @@
 ---
 title: The Amazing Portability of Amazon Basics' Tablet Holder - A Comprehensive Review
-date: 2024-09-09T20:37:25.138Z
-updated: 2024-09-15T19:31:58.592Z
+date: 2024-10-14T10:25:26.244Z
+updated: 2024-10-18T16:30:56.277Z
 categories:
   - BestProducts
 description: This Article Describes The Amazing Portability of Amazon Basics' Tablet Holder - A Comprehensive Review
@@ -37,6 +37,13 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
@@ -70,6 +77,13 @@ Lifewire / Erika Rawes
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup: Relatively easy**
 
  Setting up the antenna is pretty straightforward. You start by plugging one end of the coaxial cable into the antenna, and then the other end to the coaxial/antenna-in connector to your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) .
@@ -80,19 +94,6 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **Performance: Almost two dozen channels (in a rural area)**
@@ -101,14 +102,14 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Range: 35 miles**
 
@@ -137,10 +138,10 @@ Lifewire / Erika Rawes
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -172,5 +173,21 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-leading-selections-ultimate-mac-video-grabber-devices/"><u>[New] In 2024, Leading Selections Ultimate Mac Video Grabber Devices</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-coping-with-youtube-copyright-claims-a-step-by-step-guide-for-2024/"><u>[Updated] Coping with YouTube Copyright Claims A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/best-resources-to-explore-for-personalized-text-enhancements-online-for-2024/"><u>Best Resources to Explore for Personalized Text Enhancements Online for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-spyro-reignited-trilogy-the-ultimate-hatchling-adventure-worth-every-penny/"><u>Comprehensive Evaluation of Spyro Reignited Trilogy - The Ultimate Hatchling Adventure Worth Every Penny</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-cinematic-brilliance-on-a-budget-with-the-hisense-50h8f-4k-smart-led-tv-review/"><u>Experience Cinematic Brilliance on a Budget with the Hisense 50H8F 4K Smart LED TV Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-enhanced-comfort-of-the-2019-kindle-oasis-a-review-for-unmatched-paper-like-reading/"><u>Exploring the Enhanced Comfort of the 2019 Kindle Oasis - A Review for Unmatched Paper-Like Reading</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/function-trumps-form-with-the-acer-xfa2n-series-comprehensive-review-insights/"><u>Function Trumps Form with the Acer XFA2n Series - Comprehensive Review Insights</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/jumpstart-your-pc-ms-stores-premier-choices/"><u>Jumpstart Your PC: MS Store's Premier Choices</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/navigating-virtual-territories-metaverse-and-multiverse-guide-for-2024/"><u>Navigating Virtual Territories Metaverse & Multiverse Guide for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/rediscovering-my-love-for-the-arts-with-help-from-ai-tech-my-personal-journey/"><u>Rediscovering My Love for the Arts with Help From AI Tech - My Personal Journey</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/seamless-edits-navigating-photoshops-eraser-function/"><u>Seamless Edits Navigating Photoshop’s Eraser Function</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/smooth-transition-optimal-8-sub-to-srt-modules/"><u>Smooth Transition Optimal 8 Sub to SRT Modules</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tackling-mute-microphone-issue-during-video-recordings/"><u>Tackling Mute Microphone Issue During Video Recordings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-verdict-on-motorola-edgeplus-surprisingly-misses-high-end-benchmarks/"><u>The Verdict on Motorola Edge+: Surprisingly Misses High-End Benchmarks</u></a></li>
+</ul></div>
 

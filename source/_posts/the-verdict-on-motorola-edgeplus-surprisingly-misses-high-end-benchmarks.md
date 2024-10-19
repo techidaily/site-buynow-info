@@ -1,7 +1,7 @@
 ---
 title: "The Verdict on Motorola Edge+: Surprisingly Misses High-End Benchmarks"
-date: 2024-10-09T17:55:59.232Z
-updated: 2024-10-12T22:55:33.536Z
+date: 2024-10-11T16:37:30.834Z
+updated: 2024-10-18T23:10:52.653Z
 categories:
   - BestProducts
 description: "This Article Describes The Verdict on Motorola Edge+: Surprisingly Misses High-End Benchmarks"
@@ -69,16 +69,10 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Punching above the price point**
@@ -92,13 +86,6 @@ Lifewire / Jonno Hill
  Finally, on the rear of the device users will see the LCD display and a suite of buttons and indicators, which we will cover in the next section.
 
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Features & Functionality: Full suite manual control**
 
@@ -134,6 +121,13 @@ Lifewire / Jonno Hill
 
  Overall, the YN560 IV gives you a lot of functionality and control, but definitely requires some reading and troubleshooting before you can master the device.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Significant savings for manual users**
 
  Buyers that need a lot of manual control for complex flash setups will be very pleased with what the get for the approximately $60 the YN560 IV costs. It sits at a price that’s a fraction of its TTL-enabled Canon and Nikon counterparts, but twice that of even simpler options. Do you need all the functionality that the YN560 IV offers? Are you willing to troubleshoot a bit with returns to make sure you get good, non-defective units? If the answer to those questions is yes, this is definitely the flash for you.
@@ -141,10 +135,10 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Yongnuo YN560 IV Wireless Flash Speedlite Master vs Neewer TT560 Flash Speedlite**
@@ -162,10 +156,10 @@ Lifewire / Jonno Hill
  The Yongnuo YN560 IV Wireless Flash Speedlite Master may not be a very simple flash, but it packs enough functionality to make a very versatile platform for more aspirational photographers. Buyers that want full manual control and radio transmission without paying an arm and a leg will be more than pleased with what they get.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -206,17 +200,16 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-expert-picks-of-premium-timelapse-capture-software/"><u>[New] 2024 Approved Expert Picks of Premium Timelapse Capture Software</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-camstudio-screen-capturing-a-comprehensive-analysis-users-for-2024/"><u>[Updated] CamStudio Screen Capturing A Comprehensive Analysis Users for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-understanding-youtubes-monthly-revenue-options/"><u>[Updated] Understanding YouTube's Monthly Revenue Options</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-crafting-memorable-experiences-with-vr-escapades/"><u>2024 Approved Crafting Memorable Experiences with VR Escapades</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-top-digital-innovators-in-av-media-crafting/"><u>2024 Approved Top Digital Innovators in Av Media Crafting</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-impact-of-marvels-spider-man-miles-morales-intimate-adventures-widespread-effect/"><u>Exploring the Impact of Marvel’s Spider-Man: Miles Morales – Intimate Adventures, Widespread Effect</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/from-concept-to-reality-a-comprehensive-review-of-the-groundbreaking-yet-imperfect-lenovo-thinkpad-x1-fold/"><u>From Concept to Reality: A Comprehensive Review of the Groundbreaking yet Imperfect Lenovo ThinkPad X1 Fold</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-premier-mp4-broadcast-suite/"><u>In 2024, Premier MP4 Broadcast Suite</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/ion-air-pro-3-visionary-revolutionizing-action-video-for-2024/"><u>ION Air Pro 3 Visionary - Revolutionizing Action Video for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/score-insane-discounts-on-apple-gadgets-during-prime-day-extravaganza/"><u>Score Insane Discounts on Apple Gadgets During Prime Day Extravaganza</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-surprising-strength-of-the-beatit-bt-d11-portable-charger-unveiled-in-our-thorough-assessment/"><u>The Surprising Strength of the Beatit BT-D11 Portable Charger Unveiled in Our Thorough Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/transitioning-windows-10-home-to-professional-edition/"><u>Transitioning Windows 10 Home to Professional Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevate-your-video-game-youtube-production-mastery/"><u>[Updated] 2024 Approved Elevate Your Video Game YouTube Production Mastery</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-advanced-strategies-in-ps3-gaming-broadcasting/"><u>[Updated] In 2024, Advanced Strategies in PS3 Gaming Broadcasting</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-e-readers-for-voracious-readers-a-detailed-comparison-between-ipads-kindles-and-nooks/"><u>Best E-Readers for Voracious Readers: A Detailed Comparison Between iPads, Kindles, and Nooks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/combining-cutting-edge-precision-with-sturdy-cables-discover-the-power-of-the-sabrent-portable-mouse/"><u>Combining Cutting-Edge Precision with Sturdy Cables: Discover the Power of the Sabrent Portable Mouse!</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/comprehensive-ratings-and-insights-on-streaming-music-platforms-similar-to-datpiff/"><u>Comprehensive Ratings and Insights on Streaming Music Platforms Similar to Datpiff</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-capabilities-of-extollo-lansocket-1300-exceptional-data-transfer-and-power-management-features/"><u>Exploring the Capabilities of Extollo LANSocket 1300: Exceptional Data Transfer and Power Management Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-linksys-wrt3nacm-a-comprehensive-assessment-of-an-exceptional-open-router/"><u>Exploring the Linksys WRT3nacm: A Comprehensive Assessment of an Exceptional Open Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/find-your-perfect-tablet-understanding-the-8-crucial-criteria-to-review-beforehand/"><u>Find Your Perfect Tablet: Understanding The 8 Crucial Criteria To Review Beforehand</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-oppo-reno-11-pro-5g-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Oppo Reno 11 Pro 5G Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-revolutionize-your-content-strategy-a-guide-to-youtube-savvy-tips/"><u>In 2024, Revolutionize Your Content Strategy A Guide to YouTube Savvy Tips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-fastest-routers-spotlight-on-netgears-nighthawk-rax120/"><u>Ultimate Guide to The Fastest Routers: Spotlight on Netgear's Nighthawk RAX120</u></a></li>
 </ul></div>
 

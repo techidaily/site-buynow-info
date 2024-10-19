@@ -1,7 +1,7 @@
 ---
 title: Inexpensive Yet Robust - Meet the Coolpix W100
-date: 2024-10-11T20:12:00.264Z
-updated: 2024-10-12T18:46:40.697Z
+date: 2024-10-12T10:42:22.001Z
+updated: 2024-10-18T17:19:34.631Z
 categories:
   - BestProducts
 description: This Article Describes Inexpensive Yet Robust - Meet the Coolpix W100
@@ -42,6 +42,13 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 [View On Amazon $30](https://www.amazon.com/dp/B00NR2VMNC?tag=lifewire-onsite-prod-20&%2F=&ascsubtag=4846136%7Cn81cb5d49c23640658f86ff160e2903a300%7CB00NR2VMNC) [View On Walmart $28](https://www.walmart.com/ip/TP-Link-RE200-AC750-Dual-Band-Wireless-Wall-plugged-Range-Extender-works-with-any-router-or-WiFi-system/42300087) [View On B&H Photo Video $25](https://www.bhphotovideo.com/c/product/1113036-REG/tp%5Flink%5Fre200%5Fac750%5Fwifi%5Frange%5Fextender.html/?ap=y&ap=y&smp=y&smp=y&lsft=BI%3A514&gclid=EAIaIQobChMIhKjIlrbS6QIVE4rICh0N3wFcEAQYASABEgITKfD%5FBwE)
 
 3.5
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## TP-Link RE200 AC750 Wi-Fi Range Extender
 
@@ -94,10 +101,10 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: Solid performance**
@@ -127,10 +134,10 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 ![TP-Link AV1300 Powerline](https://www.lifewire.com/thmb/iIfxo6VdIGO0JQzuzz4G5WeBKA8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_03-a1f202abd7e945a18b08ae3013c9d664.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -140,13 +147,6 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
  Price is definitely one of the strongest suits here. At just $30, this compact, easy-to-use adapter sets up easily and works as advertised, extending Wi-Fi access into dead zones in your home. It may not be a seamless mesh network if you lack a recent, compatible TP-Link router, however, and it won’t hit the higher speeds that some pricier extenders provide. You can do better, but you’ll probably have to spend a lot more to do so.
 
  At just $30, this compact, easy-to-use adapter sets up easily and works as advertised, extending Wi-Fi access into dead zones in your home.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **TP-Link RE200 vs. Netgear Nighthawk X4**
 
@@ -159,10 +159,10 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
  If you have modest broadband speeds and just need a little help to stretch your Wi-Fi network into certain spaces, then the TP-Link RE200 AC750 Wi-Fi Range Extender may be an appealing option. It’s definitely_less_ appealing if you can’t take advantage of TP-Link’s OneMesh hardware platform, and it won’t be able to replicate the full extent of a very high-speed broadband connection. Still, for a lot of people, this cheap, simple extender could be enough.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -191,18 +191,20 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-viral-jokes-whos-winning-on-the-meme-front/"><u>[New] 2024 Approved Viral Jokes Who's Winning on the Meme Front?</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-unlocking-phantom-the-slow-motion-essentials/"><u>[Updated] In 2024, Unlocking Phantom The Slow-Motion Essentials</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-sliceshot-synopsis/"><u>[Updated] SliceShot Synopsis</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-navigating-the-basics-of-multi-os-skype-chatting/"><u>2024 Approved Navigating the Basics of Multi-OS Skype Chatting</u></a></li>
-<li><a href="https://extra-information.techidaily.com/breaking-down-why-syma-x5c-is-top-notch-for-new-dronists/"><u>Breaking Down Why Syma X5C Is Top-Notch for New Dronists</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-top-smart-audio-devices-dominating/"><u>Discover the Top Smart Audio Devices Dominating</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-the-complete-video-revenue-playbook-dm-vs-yo-edition/"><u>In 2024, The Complete Video Revenue Playbook Dm Vs. Yo Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-imac-with-apples-new-m1-processor-visual-upgrade-and-enhanced-performance/"><u>In-Depth Analysis of iMac with Apple's New M1 Processor: Visual Upgrade & Enhanced Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/lamicall-s-tablet-stand-review-designed-with-functionality-in-mind/"><u>Lamicall S Tablet Stand Review: Designed With Functionality In Mind</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-lenovos-ideapad-130s-balancing-useful-features-against-limited-processing-ability/"><u>Review of Lenovo's IdeaPad 130S: Balancing Useful Features Against Limited Processing Ability</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/space-shooter-and-smiles-exploring-the-entertaining-storyline-and-mechanics-of-the-outer-worlds/"><u>Space, Shooter and Smiles: Exploring the Entertaining Storyline & Mechanics of The Outer Worlds</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/0-youtube-to-mp3-transformation-tools/"><u>Top 10 YouTube-to-MP3 Transformation Tools</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/sh-potential-with-optimal-hashtags-for-gaming-vids-for-2024/"><u>Unleash Potential with Optimal Hashtags for Gaming Vids for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2023s-best-rated-ps3-virtual-players-for-pc/"><u>[New] 2023'S Best-Rated PS3 Virtual Players for PC</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-mediamasher-suite/"><u>[New] 2024 Approved MediaMasher Suite</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tep-by-step-wirecast-livestream-on-youtube/"><u>[New] Step-by-Step WireCast Livestream on YouTube</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-financial-investment-for-youtube-ads-success/"><u>[Updated] 2024 Approved Financial Investment for Youtube Ads Success</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-novice-to-vlogger-the-top-10-editing-techniques/"><u>[Updated] 2024 Approved From Novice to Vlogger The Top 10 Editing Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-undetected-consumer-of-life-streams-fb/"><u>2024 Approved Undetected Consumer of Life Streams (FB)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/advanced-wi-fi-reach-expanders-top-performing-models-for-enhanced-connectivity/"><u>Advanced Wi-Fi Reach Expanders: Top Performing Models for Enhanced Connectivity</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/comprehensive-techniques-to-downsize-android-footage-without-compromising-image-clarity/"><u>Comprehensive Techniques to Downsize Android Footage Without Compromising Image Clarity</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-xiaomi-redmi-note-12-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Xiaomi Redmi Note 12 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-the-cryptographers-guide-to-masked-recordings/"><u>In 2024, The Cryptographer's Guide to Masked Recordings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/m1-chip-ipad-pro-2021-review-experience-powerhouse-portability/"><u>M1 Chip iPad Pro 2021 Review: Experience Powerhouse Portability</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/skyrim-review-for-the-nintendo-switch-dive-into-an-enchanting-richly-crafted-game-world/"><u>Skyrim Review for the Nintendo Switch - Dive Into an Enchanting, Richly Crafted Game World.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sony-xbr65x850f-4k-television-stunning-visuals-at-an-unbelievable-price-point-review/"><u>Sony XBR65X850F 4K Television: Stunning Visuals at an Unbelievable Price Point Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-sleek-powerhouse-comprehensive-review-of-the-thinkpad-x1-nano-by-lenovo/"><u>Unboxing the Sleek Powerhouse: Comprehensive Review of the ThinkPad X1 Nano by Lenovo</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/weather-enthusiasts-rejoice-with-the-impeccable-netatmo-station-review-a-technophiles-dream-come-true/"><u>Weather Enthusiasts Rejoice with the Impeccable Netatmo Station Review – A Technophile's Dream Come True!</u></a></li>
 </ul></div>
 

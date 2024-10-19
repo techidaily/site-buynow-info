@@ -1,7 +1,7 @@
 ---
 title: Elevating Your Skills with the Pinnacle of Flight Technology - The DJI Air
-date: 2024-09-10T16:45:14.732Z
-updated: 2024-09-15T19:53:00.722Z
+date: 2024-10-15T17:39:04.560Z
+updated: 2024-10-19T04:33:48.348Z
 categories:
   - BestProducts
 description: This Article Describes Elevating Your Skills with the Pinnacle of Flight Technology - The DJI Air
@@ -67,6 +67,13 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Flimsy and difficult to use**
 
  The first thing we noticed about the Docooler USB 2.0 12 Megapixel is how cheap it feels. The camera itself has a plastic, silver housing with a shiny silver focus ring on the end. It feels like it could break at any moment. The base is made of a transparent plastic, which is also available in blue and black. The plastic is so rigid that we expect it to break under regular use. Every time we adjusted the camera, the plastic creaked like a rusty door in a haunted house. Even in our short testing period, the joints started getting loose. We had to check several times just to make sure it wasn’t broken.
@@ -78,10 +85,10 @@ Lifewire / James Huenink
  Lifewire / James Huenink
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup process: Awkward to position**
@@ -89,13 +96,6 @@ Lifewire / James Huenink
  It takes almost no time to get the Docooler USB 2.0 12 Megapixel up and running. We just plugged the USB cord into the computer and it worked.
 
  It was easy to set up when we clipped it to a laptop, but terrible when we tried to put it on our HD TV. Every time we moved the computer or the USB cable, the camera slid, twisted, or fell off the TV. The ball joint, which connects the camera to the base, didn’t move smoothly, so we struggled to point the Docooler USB 2.0 12 Megapixel in the right direction, and we were too worried about breaking the plastic to try and force it.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Camera Quality: Not even close to advertised**
 
@@ -106,6 +106,13 @@ Lifewire / James Huenink
  We tested the camera’s field of view by placing it 13.5 inches from a wall and measuring the field of view, 8.25 inches. After running those measurements through some trigonometric calculations, we found that it has a 34 degree field of view. The camera also has a surprising amount of distortion. Vertical lines in the background had a significant tilt backwards, and we saw tremendous barrel distortion everywhere except for the very center of the image.
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/BxI5asxQavdUO5cT3iIpSIqM9Mk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_10_Final_Horiz-8acc6be9290c439496f17a63684115ae.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / James Huenink
 
@@ -120,6 +127,13 @@ Lifewire / James Huenink
  We had trouble getting the focus right, too. The focus ring was hard to turn, so we had to put our hand over the lense to get a good grip. We turned the ring a little, and then we’d pull away to check the focus. Then we’d repeat until it was ready, a frustrating experience.
 
  The audio performance of the Docooler USB 2.0 12 Megapixel was also lackluster. The built-in microphone produced poor quality sound, and when we tested it on Skype, voices were both muffled and echoey. People on the other end could understand what we were saying, but it was an unpleasant experience.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Cheap price, even cheaper webcam**
 
@@ -138,13 +152,6 @@ Lifewire / James Huenink
 **Impossible to recommend.**
 
  The Docooler USB 2.0 12 Megapixel is one of the most inexpensive cameras on the market for a reason. This camera doesn’t come close to delivering what it promises, meaning it's not worth even the trifle you'd pay for it.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -176,5 +183,26 @@ Lifewire / James Huenink
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tech-renaissance.techidaily.com/meta-quest-3httpsdhgatesjvio5g6yb2/"><u>[Meta Quest 3](https://dhgate.sjv.io/5g6yb2)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-gopro-spectrum-an-intensive-feature-by-feature-comparison/"><u>[New] 2024 Approved GoPro Spectrum An Intensive Feature-By-Feature Comparison</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-mastering-the-art-of-instantaneous-deletion-of-youtube-discussions/"><u>[New] 2024 Approved Mastering the Art of Instantaneous Deletion of YouTube Discussions</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-the-ultimate-playstation-4-guide-to-perfect-gameplay-recording/"><u>[New] 2024 Approved The Ultimate PlayStation 4 Guide to Perfect Gameplay Recording</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-drones-unleashed-selecting-the-right-supplementary-gear-for-2024/"><u>[New] Drones Unleashed Selecting the Right Supplementary Gear for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-beginners-blueprint-optimal-gopro-extras/"><u>[Updated] Beginner’s Blueprint Optimal GoPro Extras</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-sun-salutations-and-beyond-youtubes-premier-yoga-pages/"><u>2024 Approved Sun Salutations & Beyond – YouTube's Premier Yoga Pages</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/beyond-power-boosting-delving-into-the-highlights-and-improvements-of-sonys-latest-console/"><u>Beyond Power Boosting: Delving Into the Highlights and Improvements of Sony's Latest Console</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/chatgpts-heirloom-next-level-ai-conversations/"><u>ChatGPT's Heirloom: Next-Level AI Conversations</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/creating-seamless-ps4-streams-using-obs-studio-tools/"><u>Creating Seamless PS4 Streams Using OBS Studio Tools</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elite-off-road-capabilities-with-the-top-race-rc-rock-crawler-a-comprehensive-review/"><u>Elite Off-Road Capabilities with the Top Race RC Rock Crawler - A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/embrace-the-world-with-your-pet-at-anytime-through-petcube/"><u>Embrace the World With Your Pet at Anytime Through Petcube</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-dell-xps-13-2-in-1-a-superior-computing-experience-unveiled/"><u>Exploring the Dell XPS 13 2-in-1: A Superior Computing Experience Unveiled</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Infinix Smart 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insights-on-midlands-gxt1nk0vp4-the-ultimate-review-for-pristine-audio-communication/"><u>Insights on Midland's GXT1nk0Vp4: The Ultimate Review for Pristine Audio Communication</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-protection-with-urban-armor-gears-durable-macbook-pro-sleeve/"><u>Maximizing Protection with Urban Armor Gear's Durable MacBook Pro Sleeve</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-portable-jump-starters-of-2024/"><u>The Best Portable Jump Starters of 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-the-potential-of-low-light-a-comprehensive-review-of-the-j5-tactical-v1-pro-flashlight-for-superior-night-visibility/"><u>Unlocking the Potential of Low Light: A Comprehensive Review of the J5 Tactical V1-Pro Flashlight for Superior Night Visibility</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-best-5g-smartphone-a-comprehensive-review-of-the-samsung-galaxy-s20-fe/"><u>Unveiling the Best 5G Smartphone: A Comprehensive Review of the Samsung Galaxy S20 FE</u></a></li>
+</ul></div>
 

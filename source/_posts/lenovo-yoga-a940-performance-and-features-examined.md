@@ -1,7 +1,7 @@
 ---
 title: Lenovo Yoga A940 Performance and Features Examined
-date: 2024-10-08T11:03:55.272Z
-updated: 2024-10-12T16:07:33.423Z
+date: 2024-10-13T08:50:01.488Z
+updated: 2024-10-18T20:46:25.010Z
 categories:
   - BestProducts
 description: This Article Describes Lenovo Yoga A940 Performance and Features Examined
@@ -43,22 +43,15 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -91,19 +84,6 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **Setup: Easier than most**
@@ -113,6 +93,13 @@ Lifewire / Erika Rawes
  Once you connect the antenna’s cable to your TV, you’ll need to find the best placement. This is perhaps the most difficult part of the setup process. My test home is in a wooded area, and I found the best placement was near or directly on the window. However,[to improve your antenna’s reception](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) , it’s usually a good idea to place the antenna high up in a room close to the home’s exterior (and nearest to the transmitter towers) and to avoid obstacles like walls and tree cover.
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels**
 
@@ -125,10 +112,10 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: Could be better**
@@ -156,6 +143,13 @@ Lifewire / Erika Rawes
 **Works great & looks even better.**
 
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -188,16 +182,22 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-xiaomi-13t-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Xiaomi 13T</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/answers-you-need-the-comprehensive-echo-dot-vs-homepod-mini-face-off/"><u>Answers You Need: The Comprehensive Echo Dot Vs. HomePod Mini Face-Off</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cheap-and-good-the-paradox-of-nikons-coolpix-a10/"><u>Cheap and Good - The Paradox of Nikon's COOLPIX A10</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-the-ultimate-guide-to-the-onetastic-add-in-for-microsoft-onenote/"><u>Comprehensive Analysis: The Ultimate Guide to the Onetastic Add-In for Microsoft OneNote</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/crafting-mood-and-atmosphere-through-post-color-tweaks/"><u>Crafting Mood and Atmosphere Through Post-Color Tweaks</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/effortless-audiovideo-editing-with-movavi-convert-your-wma-videos-to-vob-at-no-cost/"><u>Effortless Audio/Video Editing with Movavi: Convert Your WMA Videos to VOB at No Cost!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/freestyle2-blue-on-macs-a-must-have-application-for-apple-fans-revealed-in-our-detailed-review/"><u>Freestyle2 Blue on Macs: A Must-Have Application for Apple Fans, Revealed in Our Detailed Review</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-motorola-moto-g24-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Motorola Moto G24 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-identify-malfunctioning-your-drivers-with-windows-device-manager-in-windows-11-by-drivereasy-guide/"><u>How to identify malfunctioning your drivers with Windows Device Manager in Windows 11</u></a></li>
-<li><a href="https://howto.techidaily.com/reasons-for-huawei-p60-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Huawei P60 Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://win-advanced.techidaily.com/wie-man-ungeloschte-bilder-mithilfe-von-datenrettungstechniken-wiedererstellt/"><u>Wie Man Ungelöschte Bilder Mithilfe Von Datenrettungstechniken Wiedererstellt</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On OnePlus Ace 2V | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dbpower-600a-portable-charger-analysis-peak-performance-of-18k-mah-for-unwavering-dependability/"><u>DBPOWER 600A Portable Charger Analysis: Peak Performance of 18K mAh for Unwavering Dependability</u></a></li>
+<li><a href="https://win11.techidaily.com/enhance-learning-with-windows-edition-themes/"><u>Enhance Learning with Windows Edition Themes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-alienware-aurora-r7-high-performance-at-the-cost/"><u>Expert Analysis of Alienware Aurora R7: High Performance at the Cost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-how-does-the-samsung-galaxy-fit-measure-up-for-athletes-and-daily-movers/"><u>Expert Review: How Does the Samsung Galaxy Fit Measure Up for Athletes & Daily Movers?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-features-of-the-latest-ampasys-andes-1500-mobile-power-unit/"><u>Exploring the Features of the Latest Ampasys Andes 1500 Mobile Power Unit</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-newest-magicard-rio-pro-driver-game-for-your-window-10-8-cuisine-and-7-machine-download-here/"><u>Get the Newest Magicard Rio Pro Driver Game for Your Window 10, 8. Cuisine, and 7 Machine: Download Here!</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/in-depth-review-of-midlands-lxt500vp3-handheld-radios-packed-with-features-but-questionable-performance/"><u>In Depth Review of Midland's LXT500VP3 Handheld Radios – Packed with Features but Questionable Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-google-pixelbook-go-exquisite-design-meets-high-cost/"><u>In-Depth Analysis of the Google Pixelbook Go: Exquisite Design Meets High Cost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/masterpiece-creation-with-the-huion-inspiroy-g10-t-series-tablet-a-comprehensive-examination-of-its-unmatched-performance-and-durable-design/"><u>Masterpiece Creation with the Huion Inspiroy G10 T-Series Tablet - A Comprehensive Examination of Its Unmatched Performance and Durable Design</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/playing-lossless-music-on-ios-the-ultimate-tutorial-for-flac-format-mastery/"><u>Playing Lossless Music on iOS: The Ultimate Tutorial for FLAC Format Mastery</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sony-pulse-3d-wireless-headset-review/"><u>Sony Pulse 3D Wireless Headset Review</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/swift-solutions-to-restart-rigid-ios-chatgpt-on-the-go/"><u>Swift Solutions to Restart Rigid iOS ChatGPT on the Go</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/terramat-cubefit-assessment-an-innovative-way-to-boost-fitness-on-the-go/"><u>TerraMat CubeFit Assessment: An Innovative Way to Boost Fitness on the Go</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-latest-from-samsung-z-fold-4-official-specs-launch-date-and-how-much-to-expect-paying/"><u>The Latest From Samsung Z Fold 4: Official Specs, Launch Date & How Much to Expect Paying</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/your-path-to-advanced-interactions-with-new-chatgpt-extensions/"><u>Your Path to Advanced Interactions with New ChatGPT Extensions</u></a></li>
 </ul></div>
 

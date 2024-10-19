@@ -1,7 +1,7 @@
 ---
 title: Reviewing the CAT S42 Rugged Smartphone - Unmatched Protection Yet Moderate Speed Levels
-date: 2024-10-10T22:53:12.195Z
-updated: 2024-10-13T08:38:39.896Z
+date: 2024-10-11T22:22:05.484Z
+updated: 2024-10-19T11:40:55.053Z
 categories:
   - BestProducts
 description: This Article Describes Reviewing the CAT S42 Rugged Smartphone - Unmatched Protection Yet Moderate Speed Levels
@@ -50,6 +50,13 @@ Lifewire / Emily Ramirez
 
 ![Amazfit Bip](https://www.lifewire.com/thmb/FjZoJgoDC-OSIll0d_v6sd0Q2JE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_3LW4157747-1-844a250cf13a4de7bf4b368b68d24baa.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Emily Ramirez
 
 [View On Amazon](https://www.amazon.com/Amazfit-Smartwatch-Monitoring-Ultra-Long-Bluetooth/dp/B07CRSK5DM?tag=lifewire-onsite-prod-20&ascsubtag=4773112%7Cn83ea47a8b99c4699bca71eb633bed81c19%7CB07CRSK5DM) [View On Walmart $70](https://www.walmart.com/ip/Amazfit-Bip-Smartwatch-by-Huami-A1608-Black/637785839) [View On B&H Photo Video](https://www.bhphotovideo.com/c/product/1502607-REG/amazfit%5Fa1608b%5Fbip%5Fsmartwatch%5Fonyx%5Fblack.html/specs)
@@ -92,16 +99,10 @@ Lifewire / Emily Ramirez
  Software-wise, it feels more like owning a fitness tracker than a smartwatch, with similar functionality to that of a mid-tier Fitbit. As a package, the Amazfit Bip may be too basic if you need a watch that can manage and control incoming calls and notifications, but it’s a great smartwatch with the features most people want for a great price and a better battery life.
 
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Standard procedure**
@@ -109,6 +110,13 @@ Lifewire / Emily Ramirez
  When you turn the Amazfit Bip on for the first time, it shows a graphic prompting you to connect the watch to your phone. Pairing it is easy: you download the Mi Fit app, add the Amazfit Bip as a device, and activate Bluetooth to finish pairing. Once your watch is paired, keep in mind you must turn on notifications for all the apps you care about.
 
 ![Amazfit Bip](https://www.lifewire.com/thmb/3kBE0sCQ60xm2fEoA0PVMasMsgU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4157747-4-64fbd2b751874bb8bc895b5a916744e4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -130,14 +138,14 @@ Lifewire / Emily Ramirez
 
 ![Amazfit Bip](https://www.lifewire.com/thmb/3HLkXEjviXIuAO5HDQGiM53vYyo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4157747-2-a5cb75b376fd4aaa8bcbf1970114673b.jpg)
 
- Lifewire / Emily Ramirez
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Emily Ramirez
 
 ## **Battery: A month of charge-free bliss**
 
@@ -145,23 +153,9 @@ Lifewire / Emily Ramirez
 
  We feel confident in Huami’s claim the battery can last 30 days or more.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Solid value for solid quality**
 
  The Amazfit Bip is an incredibly good value for $80\. It may not be able to respond to messages, but it does come with a decent heart rate monitor and GPS chip. It performs almost as well as Fitbit’s mid-tier fitness trackers, such as the Charge 3, while being almost half as expensive. If you’re looking for an understated, simple smartwatch, the Bip is a great choice.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition:** **Fierce in this price range**
 
@@ -182,10 +176,10 @@ _Fitbit Versa Lite_ : Fitbit has been dominating the sub-$200 wearables market, 
  The Amazfit Bip is an awesome smartwatch for those dipping their toes into the market, for fitness enthusiasts, or people who just really hate charging their devices. We didn’t want to take them off our wrist after testing was over. If the Bip’s functionality proves too simple for you, then it’s no big loss at $80, but you’ll be hard-pressed to find a better, more reliable smartwatch at this price range.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -226,14 +220,24 @@ _Fitbit Versa Lite_ : Fitbit has been dominating the sub-$200 wearables market, 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-simplifying-the-process-how-to-guide-for-booking-meets/"><u>[Updated] 2024 Approved Simplifying the Process How-To Guide for Booking Meets</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-automate-playlist-retrieval-from-youtube-directly/"><u>2024 Approved Automate Playlist Retrieval From YouTube Directly</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazon-prime-day-extravaganza-unmissable-tech-deals/"><u>Amazon Prime Day Extravaganza: Unmissable Tech Deals</u></a></li>
-<li><a href="https://techtrends.techidaily.com/chatgpts-proprietors-unraveling-the-truth-behind-its-inception/"><u>ChatGPT's Proprietors - Unraveling the Truth Behind Its Inception</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/essential-insights-for-your-health-journey-why-these-asteriskstarsare-vital-prior-to-investing-in-a-fitness-tracker/"><u>Essential Insights for Your Health Journey: Why These asteriskstarsAre Vital Prior to Investing in a Fitness Tracker</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/essential-strategies-for-perfecting-your-chatgpt-prompt-game-avoid-these-slip-ups/"><u>Essential Strategies for Perfecting Your ChatGPT Prompt Game – Avoid These Slip-Ups</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-the-soft-bricked-realme-narzo-n53-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Realme Narzo N53? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/powershot-sx620-a-blend-of-portability-and-performance/"><u>PowerShot SX620: A Blend of Portability and Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-apple-airtag-assessment-ultimate-tracking-device-for-ios-devices/"><u>Top Apple AirTag Assessment: Ultimate Tracking Device for iOS Devices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-elevating-your-yt-content-with-the-top-thumbnail-hacks/"><u>[New] 2024 Approved Elevating Your YT Content with the Top Thumbnail Hacks</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-essential-steps-for-recording-on-facebook-live/"><u>[Updated] 2024 Approved Essential Steps for Recording on Facebook Live</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-a-jargon-primer-for-virtual-experiences/"><u>[Updated] A Jargon Primer for Virtual Experiences</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-twilight-tales-top-hdr-sky-captures-from-leading-portals/"><u>[Updated] Twilight Tales - Top HDR Sky Captures From Leading Portals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazonbasics-flat-tv-antenna-overview-watching-without-worry-within-your-means/"><u>AmazonBasics Flat TV Antenna Overview - Watching Without Worry, Within Your Means</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/chatgpt-plus-unveiling-the-value-here-are-5-persuasive-factors-to-consider-signing-up/"><u>ChatGPT Plus: Unveiling the Value – Here Are 5 Persuasive Factors to Consider Signing Up!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-the-superior-performance-of-the-expensive-google-pixelbook-go/"><u>Comprehensive Guide to the Superior Performance of the Expensive Google Pixelbook Go</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722861411816-effective-techniques-for-repairing-hardware-exceptions-understanding-and-fixing-the-wheee-error-in-windows/"><u>Effective Techniques for Repairing Hardware Exceptions – Understanding and Fixing the WHEeE Error in Windows.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhancing-your-internet-coverage-2024s-leading-wireless-range-amplifiers/"><u>Enhancing Your Internet Coverage: 2024'S Leading Wireless Range Amplifiers</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-iphone-passcode-again-unlock-iphone-14-plus-without-passcode-now-drfone-by-drfone-ios/"><u>Forgot iPhone Passcode Again? Unlock iPhone 14 Plus Without Passcode Now | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-subtle-start-sequence/"><u>In 2024, Subtle Start Sequence</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/large-studiofx-softbox-lighting-robust-revelation/"><u>Large StudioFX Softbox Lighting: Robust Revelation</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/mastering-the-art-of-setting-up-unknown-audio-devices-on-windows-11/"><u>Mastering the Art of Setting Up Unknown Audio Devices on Windows 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/small-sized-big-performance-in-depth-review-of-the-razer-book-13/"><u>Small-Sized, Big Performance: In-Depth Review of the Razer Book 13</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-5-essentials-smart-strategies-when-shopping-for-your-first-fitness-band/"><u>Top 5 Essentials: Smart Strategies When Shopping for Your First Fitness Band</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-apple-homepod-mini-in-depth-analysis-of-audio-performance-and-smart-capabilities/"><u>Unveiling the Apple HomePod Mini: In-Depth Analysis of Audio Performance & Smart Capabilities</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-y77t-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo Y77t Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/voice-command-warriors-alexa-or-google-assistant-the-ultimate-guide-to-finding-your-perfect-match/"><u>Voice Command Warriors: Alexa or Google Assistant – The Ultimate Guide to Finding Your Perfect Match</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1725289786060-and/"><u>ビデオ撮影の鍵: 手ぶれを直す内蔵機能&ソフトで動画を安定させる方法</u></a></li>
 </ul></div>
 

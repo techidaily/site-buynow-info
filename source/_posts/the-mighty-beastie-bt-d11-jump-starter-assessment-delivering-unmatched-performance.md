@@ -1,7 +1,7 @@
 ---
 title: "The Mighty Beastie BT-D11 Jump Starter Assessment: Delivering Unmatched Performance"
-date: 2024-10-08T06:07:11.475Z
-updated: 2024-10-12T16:57:20.909Z
+date: 2024-10-15T01:21:02.333Z
+updated: 2024-10-19T05:12:24.941Z
 categories:
   - BestProducts
 description: "This Article Describes The Mighty Beastie BT-D11 Jump Starter Assessment: Delivering Unmatched Performance"
@@ -75,31 +75,24 @@ Lifewire / Jeremy Laukkonen
 
  This console is remarkably compact and has a surprisingly low price point. Gamers looking for a[4K UHD in HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) experience will need to pay a premium for the Series X, but the Xbox Series S offers an enticing alternative if you’re looking to save some money or haven’t yet made the jump to 4K.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Sleek and compact**
 
  The Xbox Series S is small, and it's almost impossible to oversell that point. I had seen pictures and videos of the console and the spec sheet, but I was still surprised at how compact this thing was when I unboxed it. It's smaller than the Xbox One S, and Microsoft bills it as "our smallest Xbox ever." That's especially noteworthy since Microsoft and Sony went exceptionally big with their flagship consoles, the Series X and PlayStation 5.
 
 ![Xbox Series S](https://www.lifewire.com/thmb/3-mUIkkRYilM5F2tvCYMPXtW1Ew=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1-04d996bcdfbb489d84e8945e4c475713.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
  The overall form factor of the Series S is similar to the Xbox One S, but the Series S lacks an optical drive and includes a massive circular vent on one side. This striking design choice has drawn comparisons to a speaker and a washing machine. It also bears a passing resemblance to Microsoft’s[adaptive controller](https://www.lifewire.com/what-is-the-xbox-adaptive-controller-4707753) , which is boxy, white, and features two large black circular pads. This aesthetic might not be for everyone, but I like how it stands next to my television.
 
  Aside from the bold vent grill, the Series S doesn’t break any new ground regarding design choices. It has sturdy rubber feet on two sides, so you can lay it flat or stand it up on end, as has become more or less standard with home consoles. It feels pretty sturdy in both positions.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Easier than ever before**
 
@@ -150,10 +143,16 @@ Lifewire / Jeremy Laukkonen
  Microsoft's $7.5B purchase of Bethesda's parent company, Zenimax, brought some hope of additional exclusives appearing in Microsoft's arsenal. (Bethesda is the publisher of Fallout, DOOM, Dishonored, Skyrim, Wolfenstein, The Elder Scrolls, and more.) However, the situation is murky as the company has yet to clarify which (if any) Bethesda titles will be exclusive to Xbox.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Storage: Disappointingly shallow, so bring your USB drive**
@@ -170,18 +169,18 @@ Lifewire / Jeremy Laukkonen
 
  So if you go with an external USB drive, you'll only be able to play Xbox One, Xbox 360, and original Xbox games stored on it.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Internet Connectivity: Fast when wired, but Wi-Fi is a mixed bag**
 
  With all those massive games and the fact that the Series S is a digital-only console, you will spend a lot of time downloading. The Series S has built-in Wi-Fi and an Ethernet port, so you have options, but a wired connection is the way to go here.
 
 ![Xbox Series S](https://www.lifewire.com/thmb/_GSxQvNgtJMhoyNl62qlg671Qvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2-25991056c5c2486695923f7c1b61c7b5.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -191,25 +190,11 @@ Lifewire / Jeremy Laukkonen
 
  The bottom line is that the Series S provided fairly unimpressive download speeds over Wi-Fi but tore it up when connected via Ethernet. You’ll want to connect this all-digital console via Ethernet to a fast internet connection.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software and User Interface: Familiar and cozy**
 
  Microsoft isn’t looking to rock the boat with the Xbox Series X|S in terms of the user interface. If you’ve used an Xbox One, you’ll find the Xbox Series X|S user interface strangely familiar. The dashboard looks almost the same, and the guide functions as expected. There are a few upgrades and changes here and there, but this is nothing like the massive change between the Xbox 360 dashboard and the Xbox One dashboard.
 
  An overhaul of the dashboard is currently in the works, and we expect it to arrive in 2023.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Controller: Iteration more than innovation**
 
@@ -227,7 +212,21 @@ Lifewire / Jeremy Laukkonen
 
 ![Xbox Series S](https://www.lifewire.com/thmb/MZdEnnFWPzhGzv_P5GO8byAY5qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3-dd9458b294e74205acad2ff6fee33913.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Jaw-droppingly low**
 
@@ -252,6 +251,13 @@ Lifewire / Jeremy Laukkonen
  **An affordable alternative for those without a 4K television.**
 
  The Xbox Series S might be a bit of a step back from the Xbox One X in performance, but the fact is that it’s a next-gen console that plays next-gen games with some impressive hardware and an unreal price tag. Gamers in search of the best graphics possible will want to look at the Xbox Series X instead, but gamers who haven’t yet made the 4K plunge, parents in need of an affordable console for their kids, or anyone looking to save money will all find something to like here.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -295,21 +301,19 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-explore-extravagance-best-terrafirma-mapping/"><u>[New] 2024 Approved Explore Extravagance Best Terrafirma Mapping</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-vidvault-seamless-techniques-for-securing-tweeted-videos/"><u>[New] 2024 Approved VidVault Seamless Techniques for Securing Tweeted Videos</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-quick-setup-for-hosting-online-seminars-on-pcmac/"><u>[New] Quick Setup for Hosting Online Seminars on PC/Mac</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-freedomfrexpressor-the-ultimate-2024-audio-extractor-guide/"><u>[Updated] FreedomFreXpressor The Ultimate 2024 Audio Extractor Guide</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/captureitease-2023s-best-screen-recording-tools/"><u>CaptureItEase 2023'S Best Screen Recording Tools</u></a></li>
-<li><a href="https://fox-shield.techidaily.com/creative-tims-laravel-paper-admin-ui-top-rated-and-free-bootstrap-framework-compatible-dashboard/"><u>Creative Tim's Laravel Paper Admin UI: Top-Rated & FREE Bootstrap Framework Compatible Dashboard</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-leading-key-finder-gadgets-expert-picks-revealed/"><u>Discover the Leading Key Finder Gadgets - Expert Picks Revealed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-linksys-max-stream-ac1900-a-versatile-router-catered-to-everyones-needs/"><u>Expert Insights on Linksys Max-Stream AC1900: A Versatile Router Catered to Everyone's Needs</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-the-latest-amd-radeon-drivers-for-your-windows-pc/"><u>Get the Latest AMD Radeon Drivers for Your Windows PC</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/prime-websites-to-acquire-custom-youtube-ringtones-for-2024/"><u>Prime Websites to Acquire Custom YouTube Ringtones for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sonys-hdrcx405-excellent-for-stability-enthusiasts/"><u>Sony's HDRCX405: Excellent for Stability Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-price-for-quality-exploring-the-capabilities-of-the-fitbit-versa-lite-tracker/"><u>The Best Price for Quality: Exploring the Capabilities of the Fitbit Versa Lite Tracker</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-reliable-companion-on-your-drives-a-comprehensive-look-at-the-rexing-v1-dashcam/"><u>The Reliable Companion on Your Drives: A Comprehensive Look at the Rexing V1 Dashcam</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-8-must-play-mobile-games-exclusive-to-google-play-pass/"><u>Top 8 Must-Play Mobile Games Exclusive to Google Play Pass</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-apple-airtag-assessment-ideal-device-for-iphone-enthusiasts/"><u>Top Apple AirTag Assessment: Ideal Device for iPhone Enthusiasts</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-music-from-honor-magic-vs-2-by-fonelab-android-recover-music/"><u>Undelete lost music from Honor Magic Vs 2</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-how-to-add-music-to-facebook-story-in-2024/"><u>[New] How to Add Music to Facebook Story, In 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-harnessing-the-power-of-hdr-in-portrait-photography/"><u>[New] In 2024, Harnessing the Power of HDR in Portrait Photography</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-fueling-inspiration-crafting-engaging-channel-content/"><u>[Updated] Fueling Inspiration Crafting Engaging Channel Content</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-quality-in-a-powershot-elph-190/"><u>Affordable Quality in a PowerShot: ELPH 190</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-vivo-y27s-device-sim-by-drfone-android/"><u>Easily Unlock Your Vivo Y27s Device SIM</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-unmatched-brightness-with-romers-rechargeable-beam-torch-comprehensive-review/"><u>Experience Unmatched Brightness with Romer's Rechargeable Beam Torch - Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gaomon-pd1560-review/"><u>Gaomon PD1560 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/highly-rated-portable-optical-drives-for-home-and-office-use-2-groovy-listings/"><u>Highly Rated Portable Optical Drives for Home and Office Use, 2 Groovy Listings</u></a></li>
+<li><a href="https://article-helps.techidaily.com/mastering-gadgets-with-tom-a-comprehensive-guide/"><u>Mastering Gadgets with Tom: A Comprehensive Guide</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/mastering-smart-exposure-the-ultimate-guide-to-hdr-tech-in-cameras/"><u>Mastering Smart Exposure The Ultimate Guide to HDR Tech in Cameras</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/the-pros-playbook-3-ways-to-record-competitive-games-for-2024/"><u>The Pro's Playbook 3 Ways to Record Competitive Games for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/touching-sound-quality-explore-flexus-200-by-klipsch/"><u>Touching Sound Quality: Explore Flexus 200 by Klipsch</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ultimate-guide-discover-the-6-premier-online-and-desktop-mp4-to-gif-conversion-solutions/"><u>Ultimate Guide: Discover the 6 Premier Online & Desktop MP4 to GIF Conversion Solutions!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/xbox-live-status-checking-if-the-service-is-down-or-user-connection-issue/"><u>Xbox Live Status: Checking if the Service Is Down or User Connection Issue</u></a></li>
 </ul></div>
 

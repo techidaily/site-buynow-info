@@ -1,7 +1,7 @@
 ---
 title: Budget-Friendly Amazon Basics Flat Antenna - Unlocking Free HDTV Channels
-date: 2024-10-09T09:38:09.476Z
-updated: 2024-10-12T16:17:17.276Z
+date: 2024-10-17T05:15:03.066Z
+updated: 2024-10-19T06:07:04.029Z
 categories:
   - BestProducts
 description: This Article Describes Budget-Friendly Amazon Basics Flat Antenna - Unlocking Free HDTV Channels
@@ -42,9 +42,29 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -75,6 +95,13 @@ Lifewire / Erika Rawes
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup: Relatively easy**
 
  Setting up the antenna is pretty straightforward. You start by plugging one end of the coaxial cable into the antenna, and then the other end to the coaxial/antenna-in connector to your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) .
@@ -93,20 +120,13 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Range: 35 miles**
@@ -123,13 +143,6 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
@@ -141,13 +154,6 @@ Lifewire / Erika Rawes
 **A budget antenna that works as advertised.**
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -180,20 +186,17 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-a-comprehensive-guide-to-subtitle-sharing-on-tumblr-and-discord/"><u>[Updated] 2024 Approved A Comprehensive Guide to Subtitle Sharing on Tumblr and Discord</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/decoding-auto-gpt-how-it-measures-against-chatgpt/"><u>Decoding Auto-GPT - How It Measures Against ChatGPT</u></a></li>
-<li><a href="https://media-tips.techidaily.com/discover-the-ultimate-free-dvd-players-our-top-picks-for-pc-and-mac-users/"><u>Discover the Ultimate Free DVD Players: Our Top Picks for PC and Mac Users</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/everyday-wisdom-in-spanish-the-best-17-sayings/"><u>Everyday Wisdom in Spanish: The Best 17 Sayings</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/google-pixel-3-review-mastering-the-essence-of-android-technology/"><u>Google Pixel 3 Review: Mastering the Essence of Android Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-the-heimvision-a8n-alarm-clock-revolutionizes-your-mornings-an-in-depth-look-at-its-light-therapy-features/"><u>How the HeimVision A8n Alarm Clock Revolutionizes Your Mornings: An In-Depth Look at Its Light Therapy Features</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Honor Magic 5 Lite | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-strategic-approaches-to-dominating-spotifys-ad-space/"><u>In 2024, Strategic Approaches to Dominating Spotify's Ad Space</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-tecno-spark-20-pro-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Tecno Spark 20 Pro Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/inside-status-bts-rating-tight-wallet-slightly-off-track/"><u>Inside Status BT's Rating: Tight Wallet, Slightly Off Track</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/reduction-de-video-simple-conversion-facile-dune-video-full-hd-1080p-a-hd-720p/"><u>Réduction De Vidéo Simple - Conversion Facile D'une Vidéo Full HD (1080P) À HD (720P)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/snap-up-amazing-discounts-best-prices-this-prime-day-for-quality-tribit-audio-devices/"><u>Snap Up Amazing Discounts: Best Prices This Prime Day for Quality Tribit Audio Devices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-5-factors-to-evaluate-when-selecting-your-next-fitness-tracker/"><u>Top 5 Factors to Evaluate When Selecting Your Next Fitness Tracker</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-value-tp-link-archer-a6-ac1200-high-speed-connectivity-without-the-price-tag/"><u>Top Value TP-Link Archer A6 AC1200: High-Speed Connectivity Without the Price Tag</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/twelve-south-compass-pro-examination-innovatively-engineered-for-optimal-balance/"><u>Twelve South Compass Pro Examination: Innovatively Engineered for Optimal Balance</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-future-proofing-data-top-2024-cloud-choices/"><u>[New] Future-Proofing Data Top 2024 Cloud Choices</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-boosting-tiktok-video-playback-speeds/"><u>[New] In 2024, Boosting TikTok Video Playback Speeds</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-screener-info-deconverter/"><u>[Updated] 2024 Approved Screener Info Deconverter</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-decoding-vsdcs-technology-against-top-screen-recorder-competitors/"><u>[Updated] Decoding VSDC's Technology Against Top Screen Recorder Competitors</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-skype-record-simplified-techniques-for-dual-os-recording/"><u>2024 Approved Skype Record Simplified Techniques for Dual OS Recording</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-value-for-money-detailed-review-of-the-vuebell-video-doorbell-on-the-market/"><u>Best Value for Money: Detailed Review of the VueBell Video Doorbell on the Market</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-gimp-image-editing-software-assessment-a-cost-free-solution-across-platforms/"><u>Comprehensive GIMP Image Editing Software Assessment: A Cost-Free Solution Across Platforms</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-xbox-series-s-making-a-big-impact-in-a-small-frame/"><u>In-Depth Analysis of Xbox Series S: Making a Big Impact in a Small Frame</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/patek-fly-12s-adaptive-support-system-revealed/"><u>Patek Fly 12'S Adaptive Support System Revealed</u></a></li>
+<li><a href="https://win-forum.techidaily.com/top-social-networks-explored-facebook-twitter-instagram-youtube/"><u>Top Social Networks Explored: Facebook | Twitter | Instagram | YouTube</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unseen-worlds-in-water-with-insta360-x2s-360-features/"><u>Unseen Worlds in Water with Insta360 X2's 360 Features</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-vivo-y100t-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Vivo Y100t Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 </ul></div>
 

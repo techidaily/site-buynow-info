@@ -1,7 +1,7 @@
 ---
 title: TP-Link Deco P9 Review
-date: 2024-09-13T17:39:50.015Z
-updated: 2024-09-15T18:54:21.366Z
+date: 2024-10-17T21:26:10.486Z
+updated: 2024-10-19T09:01:32.507Z
 categories:
   - BestProducts
 description: This Article Describes TP-Link Deco P9 Review
@@ -43,6 +43,13 @@ Lifewire / Erika Rawes
 
 ![Amplifi HD](https://www.lifewire.com/thmb/Njd1HQu0FsmaveVCH4FDT0Spa6c=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_HeroSquare-fdb67079a06b415b98467919ec8e34a6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 [View On Walmart $426](https://www.walmart.com/ip/976428400) [View On Staples $449](https://www.staples.com/Ubiquiti-Amplifi-AFIHD-High-Density-Router-with-2-Mesh-Point-1750-Mbps/product%5F2620679?cid=AFF%3A2620679&slfpid=3) [View On Quill.com $455](https://www.quill.com/ubiquiti-amplifi-home-wi-fi-system-afi-hd-ac1750-dual-band-wireless-ethernet-router-white-afi-hd/cbs/55340637.html?effort%5Fcode=550&cm%5Fmmc=AFF%5F55340637&slfpid=3)
@@ -65,6 +72,13 @@ Lifewire / Erika Rawes
 
  The Amplifi HD is a[Mesh Wi-Fi System](https://www.lifewire.com/best-mesh-wi-fi-network-systems-4139748) with a main router and separate mesh points that serve as satellite routers. The Amplifi system is supposed to extend Wi-Fi range, reduce dead zones, and provide better coverage. To see how Ubiquiti’s mesh system holds up to the demands of a household with multiple devices, I connected the Amplifi HD in my test home that contains roughly 50 Wi-Fi connected devices.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: A beautiful router with mismatched mesh points**
 
  The Amplifi HD Mesh System comes with a[long-range router](https://www.lifewire.com/best-long-range-routers-4122554) and two satellite mesh points. The router has a unique design. It’s small, cube-shaped, and it looks more like an alarm clock or smart display than a router. It doesn’t have antennas protruding from it as you see on most routers.
@@ -77,18 +91,18 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: Couldn’t get any easier**
 
  The setup for the Amplifi HD system is probably the easiest setup process I’ve encountered. The app walks you through the process step-by-step, with pictures to guide you on each instruction. The most difficult part was deciding where to place the two mesh points in my test home. I placed one in the far bedroom and one in my office, two rooms that notoriously experience drop-offs.
 
  By default, the app creates a dual (2.4 and 5Ghz) network, which directs traffic based on the most efficient pathways. You can create separate 2.4 and 5Ghz networks, or make other adjustments as you see fit though. You can change the band on the mesh points (from 2.4 to 5Ghz), create additional SSIDs, and more. For the purpose of testing, I used the default combined network and allowed the system to direct network traffic between bands.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: Lags when you add too many devices**
 
@@ -98,13 +112,6 @@ Lifewire / Erika Rawes
 
  In my test home, speeds from my ISP max out at 500 Mbps. In the same room as the main router, Ookla measured the speed at 131 Mbps. The speed remained consistent throughout the home, even in rooms that typically experience drop offs with other routers. However, outside in the backyard, the speed reduced to 111 Mbps.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Key Features: A display screen**
 
  The touchscreen on the front of the main router can display the time, total GB, WAN and Router IP addresses, internet speeds, and port statuses. You touch the screen to cycle through the different screen options. The power cable connects via[USB-C](https://www.lifewire.com/usb-c-4149490) , and there’s a USB 2.0 port as well, but it doesn’t allow you to connect an external hard drive (the port is reserved for future use).
@@ -112,6 +119,13 @@ Lifewire / Erika Rawes
  Since the Amplifi HD is a[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) , it can self-heal, manage network traffic, and you can manage your network through the companion app.
 
  The app creates a dual (2.4 and 5Ghz) network, which directs traffic based on the most efficient pathways.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Amplifi App**
 
@@ -136,13 +150,6 @@ Lifewire / Erika Rawes
 **Looks better than it performs.**
 
  The Amplifi HD mesh system is attractive and does provide coverage for a huge area, but it doesn’t deliver lightning-fast speeds in a home with dozens of connected devices.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -175,5 +182,26 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-decoding-youtubes-intricate-view-count-mechanics/"><u>[New] In 2024, Decoding YouTube's Intricate View Count Mechanics</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-best-5-multitasking-visual-and-audio-producers/"><u>[Updated] In 2024, Best 5 Multitasking Visual & Audio Producers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-photomontages-a-comprehensive-guide/"><u>[Updated] Mastering PhotoMontages A Comprehensive Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-blueprinting-a-dynamic-tiktok-end-credits-rollout/"><u>2024 Approved Blueprinting a Dynamic TikTok End-Credits Rollout</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/assessing-the-pros-and-cons-why-consider-a-localized-llm-solution/"><u>Assessing the Pros and Cons: Why Consider a Localized LLM Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/barnes-and-nobles-latest-e-ink-marvel-a-detailed-look-at-the-nook-glowlight-ebook-reader/"><u>Barnes & Noble's Latest E-Ink Marvel - A Detailed Look at the Nook GlowLight eBook Reader</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cost-effective-paper-shredding-solutions-a-detailed-look-at-the-amazonbasics-6-sheet-shredder/"><u>Cost-Effective Paper Shredding Solutions: A Detailed Look at the AmazonBasics 6-Sheet Shredder</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insight-into-the-fujitsu-scansnap-ix1600-the-ultimate-desktop-document-scanner-solution/"><u>Expert Insight Into the Fujitsu ScanSnap iX1600 - The Ultimate Desktop Document Scanner Solution</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/icy-immortals-top-athletes-from-the-freeze/"><u>Icy Immortals Top Athletes From the Freeze</u></a></li>
+<li><a href="https://program-issues.techidaily.com/improved-pc-experience-for-f1-2021-frames-per-second-fps-optimization-achieved/"><u>Improved PC Experience for F1 2021 - Frames Per Second (FPS) Optimization Achieved</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-tecno-pova-6-pro-5g-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Tecno Pova 6 Pro 5G Is Unlocked</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-jump-cut-strategies-for-compelling-vlogs/"><u>In 2024, Jump Cut Strategies for Compelling Vlogs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-lenovo-ideapad-320-where-sophistication-meets-portability-and-legendary-keyboard-design/"><u>In-Depth Analysis of the Lenovo Ideapad 320: Where Sophistication Meets Portability & Legendary Keyboard Design</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-comparison-ring-vs-nest-for-intelligent-entryway-solutions/"><u>In-Depth Comparison: Ring Vs. Nest for Intelligent Entryway Solutions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lg-watch-style-assessment-redefining-traditional-features-in-modern-wearable-tech/"><u>LG Watch Style Assessment - Redefining Traditional Features in Modern Wearable Tech</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/nutzung-von-nvenc-fur-effizientes-video-kodieren-mit-handbrake-erfolgreiche-implementierung-erfahren/"><u>Nutzung Von NVENC Für Effizientes Video-Kodieren Mit HandBrake – Erfolgreiche Implementierung Erfahren</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-bose-headphones-the-durable-sturdy-option/"><u>Reviewing Bose Headphones: The Durable, Sturdy Option</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-2019-apple-ipad-air-unveiled-perfect-for-all-your-media-needs/"><u>The 2019 Apple iPad Air Unveiled: Perfect for All Your Media Needs!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-oculus-quest-2-top-tier-vr-fun-without-breaking-the-bank/"><u>The Ultimate Guide to the Oculus Quest 2: Top-Tier VR Fun Without Breaking the Bank</u></a></li>
+</ul></div>
 

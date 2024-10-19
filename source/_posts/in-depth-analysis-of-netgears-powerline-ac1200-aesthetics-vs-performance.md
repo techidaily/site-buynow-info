@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of Netgear's Powerline AC1200: Aesthetics vs Performance"
-date: 2024-10-10T10:13:36.078Z
-updated: 2024-10-13T09:19:03.287Z
+date: 2024-10-13T10:02:11.111Z
+updated: 2024-10-18T23:25:40.758Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis of Netgear's Powerline AC1200: Aesthetics vs Performance"
@@ -47,6 +47,13 @@ thumbnail: https://thmb.techidaily.com/a81739d88952571f4be878bb2d8fbe2fb1485b177
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/AfRhNgqeOD7JfcVqpjzm5LwPSB4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 [View On Amazon $185](https://www.amazon.com/dp/B07T89YZWD?tag=lifewire-onsite-prod-20&ascsubtag=4846125%7Cn35b11b2c61b54fa1a2d951691d1a61ed04%7CB07T89YZWD) [View On Walmart $379](https://www.walmart.com/ip/NETGEAR-Nighthawk-AX6000-Dual-Band-WiFi-Wireless-6-Mesh-Range-Extender-EAX80-100NAS/122370265) [View On Best Buy $197](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-nighthawk-ax6000-ax8-dual-band-wi-fi-6-range-extender-black%2F6359409.p%3FskuId%3D6359409)
@@ -71,6 +78,13 @@ thumbnail: https://thmb.techidaily.com/a81739d88952571f4be878bb2d8fbe2fb1485b177
 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -78,13 +92,6 @@ thumbnail: https://thmb.techidaily.com/a81739d88952571f4be878bb2d8fbe2fb1485b177
  With very large sides, the front is really just a small panel with light-up LED indicators showing connectivity details and which Ethernet ports are in use. There’s also a small WPS button beneath the LED panel for easy connectivity with a router. On the wider back panel are the four wired[Ethernet ports](https://www.lifewire.com/what-is-an-ethernet-port-817546) for plugging in devices such as game consoles and computers, as well as a USB 3.0 port, DC power port, and the power button itself.
 
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Avoid the app**
 
@@ -97,13 +104,6 @@ thumbnail: https://thmb.techidaily.com/a81739d88952571f4be878bb2d8fbe2fb1485b177
  Over and over, the setup process wouldn’t complete… and then it finally did. I ran into similar issues with the other Netgear extenders, in which setup processes didn’t work as expected on the first or second time, but this was a much longer and more arduous ordeal. Finally, however, I got the Nighthawk AX8 up and running. From there, you’ll need to find a new location for the extender—roughly halfway between the router and your Wi-Fi dead zone is ideal, but play around with positioning if you’re not getting the results you seek.
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -124,10 +124,10 @@ thumbnail: https://thmb.techidaily.com/a81739d88952571f4be878bb2d8fbe2fb1485b177
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -137,6 +137,13 @@ thumbnail: https://thmb.techidaily.com/a81739d88952571f4be878bb2d8fbe2fb1485b177
  It’s billed as an “8-stream” device, so it should be able to handle several simultaneous media streams at once, with a billed max speed of 4.8Gbps on the 5GHz band and 1.2Gbps on the 2.4GHz band. It has[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) (multiple users, multi-in multi-out) and beamforming capabilities, promising expanded range of up to 2,500 square feet and support for 30+ simultaneous devices.
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: More than most**
 
@@ -153,13 +160,6 @@ thumbnail: https://thmb.techidaily.com/a81739d88952571f4be878bb2d8fbe2fb1485b177
  **Only for early adopters with Wi-Fi 6 routers and devices.**
 
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -187,22 +187,20 @@ thumbnail: https://thmb.techidaily.com/a81739d88952571f4be878bb2d8fbe2fb1485b177
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-convenient-syncing-moving-media-between-pc-and-iphone-for-2024/"><u>[New] Convenient Syncing Moving Media Between PC and iPhone for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-maximizing-traffic-with-effective-youtube-titles/"><u>2024 Approved Maximizing Traffic with Effective YouTube Titles</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-galaxy-ford-f-150-rc-truck-a-look-at-an-automotive-icons-miniature-version/"><u>Comprehensive Review of the Galaxy Ford F-150 RC Truck - A Look at an Automotive Icon's Miniature Version</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/cyberlink-screen-recorder-review-and-the-best-alternative-for-2024/"><u>Cyberlink Screen Recorder Review and the Best Alternative for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-heroic-escapades-in-assassins-creed-valhalla-an-epic-viking-expedition-through-time/"><u>Discover the Heroic Escapades in 'Assassin's Creed: Valhalla': An Epic Viking Expedition Through Time!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-lenovo-chromebook-duet-a-steal-at-a-bargain-price-for-hybrid-devices/"><u>Evaluating the Lenovo Chromebook Duet: A Steal at a Bargain Price for Hybrid Devices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-the-asus-zephyrus-g14-sets-new-standards-in-non-compromising-portable-gaming-systems/"><u>How the Asus Zephyrus G14 Sets New Standards in Non-Compromising Portable Gaming Systems</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-itel-p40-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Itel P40 to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-vivo-s18-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Vivo S18 If I Forgot Security Code or Password? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-remove-forgotten-pin-of-your-samsung-galaxy-a24-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Samsung Galaxy A24</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Realme 11 5G | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-any-honor-x9b-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Honor X9b Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-unlocking-the-power-of-screencastify-recorder/"><u>In 2024, Unlocking the Power of Screencastify Recorder</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-the-ultimate-guide-to-using-the-onetastic-add-in-with-microsoft-onenote/"><u>In-Depth Analysis: The Ultimate Guide to Using the Onetastic Add-In with Microsoft OneNote</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-amazon-fire-tv-cube-a-comprehensive-review-of-the-fastest-media-streamer-on-market/"><u>The Amazon Fire TV Cube: A Comprehensive Review of the Fastest Media Streamer on Market</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-verdict-on-samsungs-un65nu8000fxza-does-quality-justify-the-expense/"><u>The Verdict on Samsung's UN65NU8000FXZA - Does Quality Justify the Expense?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-choosing-the-ideal-portable-wi-fi-router-2024-edition/"><u>Ultimate Guide to Choosing the Ideal Portable Wi-Fi Router - 2024 Edition</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-core-6-social-media-tools-for-corporate-engagement/"><u>[New] Core 6 Social Media Tools for Corporate Engagement</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-upload-youtube-shorts-detailed-instructions-from-desktopmobile/"><u>[Updated] Upload YouTube Shorts Detailed Instructions From Desktop/Mobile</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-the-wonders-of-yokus-island-adventure-a-riveting-game-analysis/"><u>Discovering the Wonders of Yoku's Island Adventure - A Riveting Game Analysis</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-prime-online-communities-eclipsing-twitterenasity/"><u>In 2024, Prime Online Communities Eclipsing Twitter'enasity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-blueear-bluetooth-cap-combining-chic-style-and-adequate-sound-quality/"><u>In-Depth Analysis of the BlueEar Bluetooth Cap: Combining Chic Style and Adequate Sound Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-lenovo-thinkpad-x1-titanium-yoga-the-perfect-choice-for-devoted-thinkpad-fans-seeking-versatility/"><u>In-Depth Analysis of the Lenovo ThinkPad X1 Titanium Yoga: The Perfect Choice for Devoted ThinkPad Fans Seeking Versatility</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-the-samsung-galaxy-watch3-blending-traditional-style-with-state-of-the-art-features/"><u>In-Depth Evaluation of the Samsung Galaxy Watch3: Blending Traditional Style With State-of-the-Art Features</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/luxury-leisure-levels-review-roundup/"><u>LUXURY LEISURE LEVELS Review Roundup</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-landscapes-and-adventures-with-nikon-coolpix-p1000/"><u>Mastering Landscapes & Adventures with Nikon COOLPIX P1000</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/star-wars-fans-rejoice-acemagic-raises-the-stakes-with-their-new-mini-gaming-computer-shaped-like-an-x-wing/"><u>Star Wars Fans Rejoice: AceMagic Raises the Stakes with Their New Mini Gaming Computer Shaped Like an X-Wing</u></a></li>
+<li><a href="https://win11.techidaily.com/tackling-bad-chunks-repairing-sector-issues/"><u>Tackling Bad Chunks: Repairing Sector Issues</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-lowdown-on-lenovo-tab-4-a-budget-android-tablet-review-and-its-trade-offs/"><u>The Lowdown on Lenovo Tab 4: A Budget Android Tablet Review and Its Trade-Offs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-richness-of-language-in-macau/"><u>The Richness of Language in Macau</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-review-asus-zephyrus-g14-a-perfect-blend-of-work-and-play/"><u>Top Review: Asus Zephyrus G1^4 - A Perfect Blend of Work and Play</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/your-personal-dj-for-fitness-discover-the-music-capabilities-of-garmin-vivoactive-3/"><u>Your Personal DJ for Fitness: Discover the Music Capabilities of Garmin Vivoactive 3</u></a></li>
 </ul></div>
 

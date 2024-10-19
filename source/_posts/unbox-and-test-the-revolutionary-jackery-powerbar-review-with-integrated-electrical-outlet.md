@@ -1,7 +1,7 @@
 ---
 title: "Unbox and Test: The Revolutionary Jackery PowerBar Review with Integrated Electrical Outlet"
-date: 2024-10-06T09:46:56.475Z
-updated: 2024-10-13T01:12:35.641Z
+date: 2024-10-13T03:40:13.890Z
+updated: 2024-10-19T03:48:01.701Z
 categories:
   - BestProducts
 description: "This Article Describes Unbox and Test: The Revolutionary Jackery PowerBar Review with Integrated Electrical Outlet"
@@ -45,13 +45,6 @@ Lifewire / Jeremy Laukkonen
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Omni 20+ Wireless Power Bank
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/_EV0MTLRfFPHdqFJ2gKyMJff5YY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-HERO-SQ-e459d44e1a2c432f80fec058b858ccfe.jpg)
@@ -83,13 +76,20 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/lFGiT6009F_OKGOJ-sLcNKNylt0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-2-9a3217b3ee154a3ebcb38e61aac3be52.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Slick all-black appearance that’s dulled a bit by soft-touch rubber**
@@ -121,10 +121,16 @@ Lifewire / Jeremy Laukkonen
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/QOfV3Sc5THi3Z0gKZq0e-ciPUEE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-5-000854ae3c4347b7adc13130dcb9d1b9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
@@ -134,13 +140,6 @@ Lifewire / Jeremy Laukkonen
  The display is small, but it’s quite bright and easy to read. The only issue is that it isn’t particularly easy to figure out what the individual icons mean, or how to use the display to change input and output settings, without referring to an instruction manual that isn’t included in the box.
 
  I’ve already covered the issue with the manual in the previous section, so suffice it to say I recommend avoiding frustration and just downloading the manual from the Omnicharge website rather than trying to figure out the display and controls on your own.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Sockets and Ports: Excellent array, including wireless**
 
@@ -172,13 +171,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/aZDfINCcUg9uIHRuhVr2k3wmX94=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-1-815fe3c777eb4f46a77cb00127bd88c2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
 ## **Charging Speed: True fast charging available for some USB-C devices**
@@ -194,6 +186,13 @@ Lifewire / Jeremy Laukkonen
  By plugging the Omni 20+ into power when available, I found it to be a fantastic replacement for an otherwise bulky assortment of power adapters for my laptop, phone, and other devices.
 
  The built-in Qi charger is capable of putting out 10 watts, and I found it to work just as well as other 10 watt Qi chargers I’ve used. It is a bit touchy in terms of positioning, but I was able to get the hang of it pretty fast.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: High end**
 
@@ -214,6 +213,13 @@ Lifewire / Jeremy Laukkonen
  **Fantastic functionality, decent battery capacity, and frustrating setup experience.**
 
  The Omnicharge Omni 20+ is one of the best power banks out there, and it had better be for the price they’re asking. This is the power bank you need if you count a high wattage USB-C port, barrel connector input and output, wireless charging, and a standard power outlet among your needs. You can find cheaper power banks that provide more juice, but you won’t find one with this same feature set.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -241,21 +247,20 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-enhance-playstation-2-experience-top-5-android-emulators/"><u>[Updated] In 2024, Enhance PlayStation 2 Experience Top 5 Android Emulators</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-introducing-the-essence-of-motion-blur-techniques-on-iphone-for-2024/"><u>[Updated] Introducing the Essence of Motion-Blur Techniques on iPhone for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-upgrading-your-cinematic-story-with-video-edges/"><u>[Updated] Upgrading Your Cinematic Story with Video Edges</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/beantech-bitwatch-s1-plus-smartwatch-review-a-fascinating-budget-wearable/"><u>Beantech Bitwatch S1 Plus Smartwatch Review: A Fascinating Budget Wearable</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-depths-of-easy-and-secure-reading-with-the-waterproof-kobo-libra-ereader-our-insightful-review/"><u>Exploring the Depths of Easy and Secure Reading with the Waterproof Kobo Libra eReader – Our Insightful Review</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-honor-70-lite-5g-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Honor 70 Lite 5G by Name | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-gimbal-guide-to-pro-video-shooting-with-dslrs-and-mirrorless/"><u>In 2024, Gimbal Guide to Pro Video Shooting with DSLRs & Mirrorless</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-vivo-x90s-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Vivo X90S? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/invisible-pathways-advanced-techniques-for-chat-file-extraction-for-2024/"><u>Invisible Pathways Advanced Techniques for Chat File Extraction for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/kobo-clara-colour-unboxed-an-insiders-e-reader-review/"><u>Kobo Clara Colour Unboxed: An Insider's E-Reader Review</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/pioneering-techniques-in-documentary-scripting/"><u>Pioneering Techniques in Documentary Scripting</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/pros-of-linkedin-premium-8-key-factors-to-consider/"><u>Pros of LinkedIn Premium: 8 Key Factors to Consider</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/revitalize-your-system-comprehensive-guide-on-updating-and-installing-screen-drivers-for-windows/"><u>Revitalize Your System: Comprehensive Guide on Updating & Installing Screen Drivers for Windows</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/some-bacteria-can-be-tricky-to-classify-using-gram-stain-alone-due-to-atypical-cell-wall-structures-additional-biochemical-tests-may-be-required-for-accurat79/"><u>Some Bacteria Can Be Tricky to Classify Using Gram Stain Alone Due to Atypical Cell Wall Structures; Additional Biochemical Tests May Be Required for Accurate Identification.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tablet-showdown-which-reigns-king-ipad-vs-kindle-vs-nook-in-the-world-of-e-reading/"><u>Tablet Showdown: Which Reigns King - iPad Vs. Kindle Vs. Nook in the World of E-Reading?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-portable-cable-equipped-mouse-you-need-experience-unrivaled-precision-with-the-sabrent-mini-travel-gaming-companion/"><u>The Best Portable Cable-Equipped Mouse You Need - Experience Unrivaled Precision with the Sabrent Mini Travel Gaming Companion</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-bridging-content-gap-youtube-videos-to-instagram/"><u>[New] 2024 Approved Bridging Content Gap YouTube Videos to Instagram</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-learn-the-easy-way-unlocking-iphone-screen-recording/"><u>2024 Approved Learn the Easy Way Unlocking Iphone Screen Recording</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-perfecting-your-podcast-in-depth-zoom-video-recording-tutorial/"><u>2024 Approved Perfecting Your Podcast In-Depth Zoom Video Recording Tutorial</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/all-ages-explore-with-the-best-minecraft-reviews-available-online/"><u>All Ages Explore with the Best Minecraft Reviews Available Online!</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/become-a-pip-expert-enhancing-visual-narratives-on-macos-sierra/"><u>Become a PIP Expert Enhancing Visual Narratives on macOS Sierra</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-hp-chromebook-11-analysis-ideal-for-learning-productivity-and-entertainment/"><u>Comprehensive HP Chromebook 11 Analysis: Ideal for Learning, Productivity & Entertainment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-byb-e430-swing-arm-led-luminary-premium-quality-and-performance-reviewed/"><u>Expert Analysis of the BYB E430 Swing Arm LED Luminary: Premium Quality & Performance Reviewed</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, How does the stardust trade cost In pokemon go On Apple iPhone SE? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-securing-memories-a-comprehensive-guide-for-scanning-and-storing-vintage-photos/"><u>In 2024, Securing Memories A Comprehensive Guide for Scanning and Storing Vintage Photos</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-streamlining-video-content-for-youtube-and-tiktok-audience/"><u>In 2024, Streamlining Video Content for YouTube and TikTok Audience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-garmin-gpsmap-64st-the-ultimate-portable-navigation-device/"><u>In Depth Analysis of the Garmin GPSMAP 64St - The Ultimate Portable Navigation Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/safeguard-your-iphone-from-threats-using-these-6-superior-antivirus-applications/"><u>Safeguard Your iPhone From Threats Using These 6 Superior Antivirus Applications</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/start-with-the-original-equation-8x-plus-3-5x-6/"><u>Start with the Original Equation: $8X + 3 = 5X - 6$</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-bargain-in-big-screens-an-in-depth-review-of-the-tcl-50s425-the-2019s-value-packed-4k-roku-tv/"><u>The Best Bargain in Big Screens - An In-Depth Review of the TCL 50S425, the 2019'S Value-Packed 4K Roku TV</u></a></li>
+<li><a href="https://fox-info.techidaily.com/unleash-creativity-design-your-own-logos-using-template-assets-free-for-2024/"><u>Unleash Creativity Design Your Own Logos Using Template Assets (Free) for 2024</u></a></li>
 </ul></div>
 

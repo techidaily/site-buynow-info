@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive HP ZBook Firefly 15 G8 Assessment: Ultimate Portable Powerhouse"
-date: 2024-10-11T08:00:58.395Z
-updated: 2024-10-12T22:38:07.169Z
+date: 2024-10-11T23:35:22.159Z
+updated: 2024-10-18T19:41:01.891Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive HP ZBook Firefly 15 G8 Assessment: Ultimate Portable Powerhouse"
@@ -49,13 +49,6 @@ Lifewire / Jeff Dojillo
 
 ![GoPro HERO7 Black](https://www.lifewire.com/thmb/GYZOA14ZRWOM3tJzi8ZbmTTASe8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4158963-1-2553e26bad2246dea19f86f8fb2c3714.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jeff Dojillo
 
 [View On Amazon $374](https://www.amazon.com/dp/B07GDGZCCH?tag=lifewire-onsite-prod-20&ascsubtag=4705929%7Cnde50fad4b8a24784badd8dc01044b4ab22%7CB07GDGZCCH) [View On Best Buy $250](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6283807.p) [View On Musiciansfriend.com](https://www.musiciansfriend.com/pro-audio/gopro-hero7-black/l43176000000000?slfpid=3)
@@ -87,6 +80,13 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Classic action camera design**
 
  The GoPro HERO7 Black measures in at 2.4 x 1.3 x 1.8 inches, so it’s super compact and almost a cube. The device is all black with a very nice rubber casing around the unit that makes it feel soft to the touch.
@@ -96,13 +96,6 @@ Lifewire / Jeff Dojillo
  All these doors protect the camera’s ports from the elements and give it a tough outer shell that’s rugged enough to survive rough falls and submersion in up to 33 feet of water. The HERO7 Black is a great travel camera that can be taken on exotic trips where water adventures and rough terrain are a part of your itinerary.
 
  While testing the GoPro HERO7 Black we noticed that the body of the device becomes very hot when used for long periods of time. We tested it for a few hours nonstop and noticed it was still very warm even when it was not recording. This can be a big concern if the device is used for long recordings in hot temperatures.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Display: Bright and visible**
 
@@ -118,13 +111,6 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Sensor: Small but mighty**
 
  The GoPro HERO7 Black boasts a 1/2.3-inch 12-megapixel sensor that is built for action. The new and improved image processor now has the ability to stabilize footage through electronic image stabilization technology called HyperSmooth. This feature works by tracking unwanted motion in your videos and algorithmically correcting shake. It makes your footage impressively stable even when filming handheld or while riding on rough terrain.
@@ -133,22 +119,15 @@ Lifewire / Jeff Dojillo
 
  It makes your footage impressively stable even when filming handheld or while riding on rough terrain.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Lens: Great for video**
 
  The fixed lens on the GoPro HERO7 Black shoots wide or in SuperView mode, the latter of which is an extra-wide field of view and can sometimes give a kind of distorted fisheye effect to your footage. This distortion can be frustrating, but there are ways to work around it during editing, including using video editing software to correct. And when shooting at a lower resolution, the camera can shoot with a linear field of view which reduces the distortion of the lens. The SuperView is not available when shooting in a 4:3 aspect ratio.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Video Quality: Amazing 4K quality with variable frame rates**
@@ -165,6 +144,13 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Photo Quality: Nothing to brag about**
 
  The photo quality on the GoPro HERO7 Black is average, though it does have the ability to create HDR (High Dynamic Range) images.
@@ -172,6 +158,13 @@ Lifewire / Jeff Dojillo
  Due to the lens distortion, the images that this camera produces have a specific look that you may either love or hate. It also has a fixed lens that does not zoom, so that limits its functionality compared to typical point-and-shoot cameras.
 
  But generally speaking, the GoPro HERO7 Black is not a camera known for its stunning photographs—it is known for its stunning video capabilities. It’s not for someone that wants to use it specifically for still photographs.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Sound Quality: Sensitive to the touch**
 
@@ -191,18 +184,18 @@ Lifewire / Jeff Dojillo
 
  Inside the app, there are also options to edit mode settings, change the original set up, review camera info, changed Wi-Fi remotes, as well as monitor the battery level and[SD card](https://www.lifewire.com/how-to-format-sd-card-camera-4587017) capacity. It also makes it easier to review footage and images that the camera captures.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery Life: High-res video drains it quickly**
 
  When recording 4K video at 60 fps, the HERO7 Black’s battery only lasts about 50 minutes, so if you’re going to be shooting all day, it would be smart to have a few extra batteries available.
 
  Another option to extend shooting time would be to connect the GoPro HERO7 Black to an external battery pack via the[USB port.](https://www.lifewire.com/what-is-a-usb-port-818166)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Fairly priced for what you get**
 
@@ -233,6 +226,19 @@ Lifewire / Jeff Dojillo
  **A rugged and compact action camera with fantastic video stabilization.**
 
  Between the amazing video quality and the enhanced HyperSmooth electronic image stabilization, the GoPro HERO7 Black is perfect for adventurers who want to record or even live-stream their most rugged expeditions. It produces beautiful videos with enhanced color and sharpness and is small enough to wear or mount somewhere without it getting in the way.
+
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -271,24 +277,18 @@ Lifewire / Jeff Dojillo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-help.techidaily.com/new-from-draft-to-edit-essential-film-techniques-via-youtube/"><u>[New] From Draft to Edit Essential Film Techniques via YouTube</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-financial-outcomes-dailymotion-versus-youtube-earning-potential/"><u>[Updated] In 2024, Financial Outcomes Dailymotion versus YouTube Earning Potential</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-learn-to-use-vlcs-screen-recorder-today/"><u>2024 Approved Learn to Use VLC's Screen Recorder Today</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-the-ultimate-guide-to-delete-social-media-streaming/"><u>2024 Approved The Ultimate Guide to Delete Social Media Streaming</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dive-deep-into-the-world-of-lenovos-compact-9-inch-tab-experience/"><u>Dive Deep Into the World of Lenovo's Compact 9-Inch Tab Experience</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-and-install-hp-laserjet-p1606dn-printer-drivers-on-windows-step-by-step-guide/"><u>Download & Install HP LaserJet P1606dn Printer Drivers on Windows: Step-by-Step Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-boses-sporty-durable-sound-tech/"><u>Exploring Bose's Sporty, Durable Sound Tech</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-essential-tips-for-producing-high-quality-youtube-videos/"><u>In 2024, Essential Tips for Producing High-Quality YouTube Videos</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-poco-x5-pro-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Poco X5 Pro Phone with Broken Screen</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-netgear-nighthawk-rax120-speeds-that-outpace-all-rivals/"><u>In-Depth Analysis of the Netgear Nighthawk RAX120: Speeds That Outpace All Rivals</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/melodic-safety-audiophile-friendly-earmuff-reviews/"><u>Melodic Safety: Audiophile-Friendly Earmuff Reviews</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723208523630-minecraft-stability-restored-correcting-video-card-driver-errors-on-your-windows-pc/"><u>Minecraft Stability Restored: Correcting Video Card Driver Errors On Your Windows PC</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/optimal-tech-meets-practicality-in-the-google-pixel-4a-a-review-of-what-you-need-in-a-phone/"><u>Optimal Tech Meets Practicality in the Google Pixel 4A: A Review of What You Need in a Phone</u></a></li>
-<li><a href="https://change-location.techidaily.com/pokemon-go-cooldown-chart-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Vivo Y02T | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/razer-portal-reviewed-transforming-your-online-gameplay-with-seamless-connectivity/"><u>Razer Portal Reviewed: Transforming Your Online Gameplay with Seamless Connectivity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sailing-through-time-with-assassins-creed-valhalla-a-riveting-viking-chronicle-set-in-the-middle-ages/"><u>Sailing Through Time with Assassin's Creed: Valhalla – A Riveting Viking Chronicle Set in the Middle Ages</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-budget-guide-exploring-the-features-of-the-alcatel-joy-tab-2/"><u>The Ultimate Budget Guide: Exploring the Features of the Alcatel Joy Tab 2</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-imac-with-apples-m1-cutting-edge-technology-meets-visual-appeal/"><u>Unveiling the iMac with Apple's M1: Cutting-Edge Technology Meets Visual Appeal</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/vital-tips-for-optimal-router-shopping-decisions/"><u>Vital Tips for Optimal Router Shopping Decisions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/riple-tactic-tracker-how-to-scrutinize-your-subscriber-earnings-on-googles-platform-youtube-for-2024/"><u>[New] Triple Tactic Tracker How to Scrutinize Your Subscriber Earnings on Google's Platform, YouTube for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-get-unlimited-echoes-for-online-content-makers/"><u>[Updated] 2024 Approved Get Unlimited Echoes for Online Content Makers</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-real-time-capture-simplified-a-deep-dive-into-vimeo-record/"><u>[Updated] Real-Time Capture Simplified A Deep Dive Into Vimeo Record</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-budget-smartwatches-thrilling-review-and-insight-into-the-beantech-bitwatch-s1-plus/"><u>A Closer Look at Budget Smartwatches - Thrilling Review and Insight Into the Beantech Bitwatch S1 Plus</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/analyzing-the-pinnacle-of-android-smartphones-a-detailed-review-of-the-samsung-galaxy-s21-ultra/"><u>Analyzing the Pinnacle of Android Smartphones – A Detailed Review of the Samsung Galaxy S21 Ultra</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-infinix-note-30-vip-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Infinix Note 30 VIP Devices</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-streaming-wars-recap-fb-live-yt-live-and-twitter-spaces/"><u>In 2024, Streaming Wars Recap FB LIVE, YT Live & Twitter Spaces</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/leveraging-cookiebots-capabilities-for-improved-website-analytics/"><u>Leveraging Cookiebot's Capabilities for Improved Website Analytics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rediscovering-demons-souls-with-next-gen-graphics-a-fusion-of-old-charm-and-modern-visual-excellence/"><u>Rediscovering Demon's Souls with Next-Gen Graphics: A Fusion of Old Charm & Modern Visual Excellence</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/score-amazing-prices-on-apples-finest-products-prime-day-bargains/"><u>Score Amazing Prices on Apple's Finest Products - Prime Day Bargains</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/setting-the-standard-for-online-video-presentations-yt-thumbnail-sizing/"><u>Setting the Standard for Online Video Presentations – YT Thumbnail Sizing</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-3-ultimate-facebook-video-downloader-apps-for-quick-and-easy-extraction/"><u>Top 3 Ultimate Facebook Video Downloader Apps for Quick and Easy Extraction</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-distinctions-between-ipad-and-ipad-air-models-explained/"><u>Unveiling the Distinctions Between iPad & iPad Air Models Explained</u></a></li>
 </ul></div>
 

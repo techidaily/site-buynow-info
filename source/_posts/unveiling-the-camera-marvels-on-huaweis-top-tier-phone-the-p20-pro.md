@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Camera Marvels on Huawei's Top-Tier Phone, The P20 Pro
-date: 2024-10-07T20:16:18.996Z
-updated: 2024-10-12T16:17:03.924Z
+date: 2024-10-12T17:32:23.404Z
+updated: 2024-10-19T07:26:56.901Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Camera Marvels on Huawei's Top-Tier Phone, The P20 Pro
@@ -46,13 +46,6 @@ thumbnail: https://www.lifewire.com/thmb/vcPR8sMCFYv5wwuLBGaBwAuPrhk=/400x300/fi
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/AfRhNgqeOD7JfcVqpjzm5LwPSB4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -99,13 +92,20 @@ thumbnail: https://www.lifewire.com/thmb/vcPR8sMCFYv5wwuLBGaBwAuPrhk=/400x300/fi
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: Smooth sailing**
 
@@ -123,13 +123,6 @@ thumbnail: https://www.lifewire.com/thmb/vcPR8sMCFYv5wwuLBGaBwAuPrhk=/400x300/fi
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -138,18 +131,18 @@ thumbnail: https://www.lifewire.com/thmb/vcPR8sMCFYv5wwuLBGaBwAuPrhk=/400x300/fi
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: More than most**
 
  The Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender is listed at $250, although it’s being sold for $220 at multiple retailers as of this writing. That’s definitely on the higher end for an extender.
 
  Should you really spend that much on an extender? If you don’t already have a new Wi-Fi 6 router, then probably not. You might see higher peaks of speed as I did, but rather than trying to mix and match old and new tech, you’re probably better off investing in a new Wi-Fi mesh system that can cover the entire house. Netgear’s Orbi is a favorite, as is Google’s similar Nest Wi-Fi system.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Netgear Nighthawk AX8 vs. Netgear Nighthawk X6S (EX8000)**
 
@@ -160,6 +153,13 @@ thumbnail: https://www.lifewire.com/thmb/vcPR8sMCFYv5wwuLBGaBwAuPrhk=/400x300/fi
  **Only for early adopters with Wi-Fi 6 routers and devices.**
 
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -187,16 +187,20 @@ thumbnail: https://www.lifewire.com/thmb/vcPR8sMCFYv5wwuLBGaBwAuPrhk=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-innovate-your-screenshots-unveiling-ezvides-screen-casting-features/"><u>[Updated] 2024 Approved Innovate Your Screenshots Unveiling EZvide's Screen Casting Features</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-prime-time-camera-selection-apexs-top-18-4k-camcorders/"><u>[Updated] 2024 Approved Prime-Time Camera Selection Apex's Top 18 4K Camcorders</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-halt-real-time-audiovideo-capturing-on-apples-platform/"><u>[Updated] In 2024, Halt Real-Time Audio/Video Capturing on Apple's Platform</u></a></li>
-<li><a href="https://fox-info.techidaily.com/all-about-kinemaster-androids-ultimate-gaming-companion-for-2024/"><u>All About KineMaster Android's Ultimate Gaming Companion for 2024</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/daten-sichern-perfektes-kopieren-fehlerhafter-festplatten-zur-verhinderung-der-informationsgewinnung/"><u>Daten Sichern – Perfektes Kopieren Fehlerhafter Festplatten Zur Verhinderung Der Informationsgewinnung</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/enjoy-cinematic-quality-without-breaking-the-bank-hisense-50h8f-4k-tv-review/"><u>Enjoy Cinematic Quality Without Breaking the Bank: Hisense 50H8F 4K TV Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-soundbots-sb210-audio-device-solid-performance-when-operational/"><u>In-Depth Analysis of Soundbot's SB210 Audio Device - Solid Performance When Operational</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-review-assessing-the-performance-and-size-of-stanley-j5c09-compact-disc-drive/"><u>In-Depth Review: Assessing the Performance and Size of Stanley J5C09 Compact Disc Drive</u></a></li>
-<li><a href="https://techtrends.techidaily.com/revealing-hidden-wi-fi-passwords-in-windows-11-essential-tips-and-tricks/"><u>Revealing Hidden Wi-Fi Passwords in Windows 11 - Essential Tips and Tricks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/supercharge-your-ps3-the-hard-drive-expansion-guide/"><u>Supercharge Your PS3: The Hard Drive Expansion Guide</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/top-youtube-concepts-for-channel-motivation-and-creativity-for-2024/"><u>Top YouTube Concepts for Channel Motivation and Creativity for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-the-ultimate-guide-to-chrome-os-snapshotting/"><u>[New] 2024 Approved The Ultimate Guide to Chrome OS Snapshotting</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-and-compact-a-comprehensive-review-of-the-samsung-galaxy-s10e/"><u>Affordable & Compact: A Comprehensive Review of the Samsung Galaxy S10e</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/best-tools-to-spot-ai-generated-text-ideal-for-teachers-and-supervisors/"><u>Best Tools to Spot AI-Generated Text: Ideal for Teachers and Supervisors</u></a></li>
+<li><a href="https://games-able.techidaily.com/boosting-gearsports-frame-rate-tactics/"><u>Boosting Gearsports Frame Rate Tactics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-and-insights-on-lgs-latest-model-the-unparalleled-classic-in-the-evolution-of-wearos-20-timepieces/"><u>Comprehensive Analysis and Insights on LG's Latest Model - The Unparalleled Classic in the Evolution of WearOS 2.0 Timepieces</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhancing-my-laptops-ram-a-step-by-step-guide/"><u>Enhancing My Laptop's RAM: A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/genius-widecam-f100-test-and-analysis-examining-image-quality-and-audio-issues/"><u>Genius WideCam F100 Test & Analysis: Examining Image Quality & Audio Issues</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hitman-3-review/"><u>Hitman 3 Review</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/how-to-speed-up-vimeo-videos/"><u>How to Speed Up Vimeo Videos</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-stop-your-windows-11-computer-from-randomly-powering-on-by-itself/"><u>How to Stop Your Windows 11 Computer From Randomly Powering On by Itself</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Realme 12 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/isomp4-handbrake/"><u>ISOファイルからMP4への変換 - HandBrakeで簡単な手順</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/mac-compatible-xyz-video-transformer-effortlessly-convert-avchd-mkv-mov-and-mp4-formats/"><u>Mac Compatible XYZ Video Transformer: Effortlessly Convert AVCHD, MKV, Mov & MP4 Formats</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/power-and-prestige-collide-an-in-depth-look-at-the-google-pixel-5-for-enthusiasts/"><u>Power and Prestige Collide: An In-Depth Look at the Google Pixel 5 for Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-nokia-31-user-guide-a-top-pick-for-first-time-smartphone-users/"><u>The Nokia 3.1 User Guide: A Top Pick for First-Time Smartphone Users</u></a></li>
 </ul></div>
 

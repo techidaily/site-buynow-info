@@ -1,7 +1,7 @@
 ---
 title: "Discovering Android's True Identity Through The Google Pixel 3: A Comprehensive Review"
-date: 2024-10-10T22:35:13.491Z
-updated: 2024-10-13T07:43:00.522Z
+date: 2024-10-17T22:37:39.954Z
+updated: 2024-10-19T12:21:08.943Z
 categories:
   - BestProducts
 description: "This Article Describes Discovering Android's True Identity Through The Google Pixel 3: A Comprehensive Review"
@@ -41,28 +41,15 @@ Lifewire / Jonno Hill
 
 4.4
 
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Clearstream ECLIPSE
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/0gXsFyigpZzsnNAEj3tIrKImB8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
@@ -88,6 +75,13 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/AbdriPZwiRfd8iHxT9N5E6Ae2hk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_03-d434cf7b4c5f4f73b08c8c220fd0d43e.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 ## **Design: Inoffensive but unexceptional**
@@ -106,31 +100,24 @@ Lifewire / Jonno Hill
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Range: Fair to middling**
 
  Antenna’s Direct rates the ClearStream Eclipse Antenna for up to 35 miles of range, although I’ve seen reports of people getting good results from further, or having trouble from much closer. My apartment is well within the supported range, so my sentiments reflect its use in city settings more than suburbs or exurbs.
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
@@ -141,6 +128,13 @@ Lifewire / Jonno Hill
 **The best unpowered indoor antenna.**
 
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -169,20 +163,16 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-quickcapture-lite-basic-chromecasting-tool-for-2024/"><u>[Updated] QuickCapture Lite Basic Chromecasting Tool for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-how-to-expose-and-rectify-vanished-videos-on-fb/"><u>2024 Approved How to Expose and Rectify Vanished Videos on FB</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-inside-the-world-of-facetune-a-comprehensive-photography-tool/"><u>2024 Approved Inside the World of Facetune A Comprehensive Photography Tool</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazons-fastest-contender-in-depth-analysis-and-performance-check-on-the-fire-tv-cube/"><u>Amazon's Fastest Contender: In-Depth Analysis and Performance Check on the Fire TV Cube</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expertly-curated-list-of-superior-smartwatches/"><u>Expertly Curated List of Superior Smartwatches</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-restore-audio-on-laptoppc-when-speaker-plugged-in-but-silent/"><u>How to Restore Audio on Laptop/PC when 'Speaker Plugged In' But Silent?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Motorola Edge 40 Neo | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-a-5g-network-enough-to-make-lg-k92-phone-stand-out-among-competitors/"><u>Is a 5G Network Enough to Make LG K92 Phone Stand Out Among Competitors?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/luxurious-listening-realized-the-beoplay-h8i-experience/"><u>Luxurious Listening Realized: The Beoplay H8i Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximize-your-viewing-experience-with-the-hisense-50h8f-4k-television-in-depth-review/"><u>Maximize Your Viewing Experience with the Hisense 50H8F 4K Television - In-Depth Review</u></a></li>
-<li><a href="https://windows11.techidaily.com/resolving-ragnarok-interface-errors-sse/"><u>Resolving Ragnarok Interface Errors (SSE)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/smart-speaker-face-off-google-nest-audio-vs-apple-homepod-deciding-who-wins-in-sound-quality/"><u>Smart Speaker Face-Off: Google Nest Audio Vs. Apple HomePod – Deciding Who Wins in Sound Quality.</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-infinix-smart-7-hd-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/the-complete-screenrec-manual-for-laptops-for-2024/"><u>The Complete ScreenRec Manual for Laptops for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-assessment-of-the-beatit-bt-d11-car-booster/"><u>Ultimate Assessment of the Beatit BT-D11 Car Booster</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ecoding-youtubes-economic-strategy-the-rise-of-short-videos/"><u>[New] Decoding YouTube’s Economic Strategy The Rise of Short Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-top-strategies-for-efficient-mobizen-screencasting/"><u>[New] In 2024, Top Strategies for Efficient Mobizen Screencasting</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-mobile-media-upload-share-videos-on-twitter-without-retweeting/"><u>[Updated] In 2024, Mobile Media Upload Share Videos on Twitter Without Retweeting</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-watch-showdown-gps-capabilities-versus-built-in-cellular-options/"><u>Apple Watch Showdown: GPS Capabilities Versus Built-In Cellular Options</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/berbagai-langkah-untuk-mengenai-file-dan-folder-yang-hapus-tidak-menunjukkan-di-tempat-pemotongan/"><u>Berbagai Langkah Untuk Mengenai File Dan Folder Yang Hapus, Tidak Menunjukkan Di Tempat Pemotongan</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-discover-the-brilliance-of-samsungs-qn55q60rafxza-tv-with-4k-and-hdr10plus/"><u>Comprehensive Review: Discover the Brilliance of #Samsung's QN55Q60RAFXZA TV with 4K and HDR10+</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-purge-and-its-implications-for-privacy-protection-in-social-media/"><u>Data Purge and Its Implications for Privacy, Protection in Social Media</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/future-ready-expansion-with-the-netgear-nighthawk-ax8-an-in-depth-review-of-the-latest-wi-fi-emesh-technology/"><u>Future-Ready Expansion with the Netgear Nighthawk AX8: An In-Depth Review of the Latest Wi-Fi eMesh Technology</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/retrieve-stored-login-credentials-securely-on-macos-devices/"><u>Retrieve Stored Login Credentials Securely on macOS Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-the-latest-addition-to-the-ring-home-security-lineup/"><u>The Ultimate Verdict on the Latest Addition to the Ring Home Security Lineup</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/update-completed-origin-username-and-password-problems-fixed/"><u>Update Completed: Origin Username & Password Problems Fixed</u></a></li>
 </ul></div>
 

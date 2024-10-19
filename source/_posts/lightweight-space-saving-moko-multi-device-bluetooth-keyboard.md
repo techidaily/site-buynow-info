@@ -1,7 +1,7 @@
 ---
 title: Lightweight, Space-Saving MoKo Multi-Device Bluetooth Keyboard
-date: 2024-10-10T21:00:01.488Z
-updated: 2024-10-12T18:56:51.023Z
+date: 2024-10-18T11:44:25.754Z
+updated: 2024-10-19T09:49:35.045Z
 categories:
   - BestProducts
 description: This Article Describes Lightweight, Space-Saving MoKo Multi-Device Bluetooth Keyboard
@@ -48,6 +48,13 @@ thumbnail: https://www.lifewire.com/thmb/wHZ-ZuGaBn8D_tIZ9YtAursona4=/400x300/fi
 
 ![Netgear Nighthawk X10 AD7200](https://www.lifewire.com/thmb/0rm8vUox5EoeaGCQJw0E5XQxwck=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_HeroSquare-885945bb208b49a583aca8da1aa09378.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 [View On Amazon $440](https://www.amazon.com/dp/B01M12RE4A?tag=lifewire-onsite-prod-20&ascsubtag=4846418%7Cnd55a891e250641509ef77229001ead8021%7CB01M12RE4A) [View On Walmart $279](https://www.walmart.com/ip/122396083) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-nighthawk-x10-ad7200-tri-band-wi-fi-router-black%2F5610805.p%3FskuId%3D5610805)
@@ -73,10 +80,10 @@ thumbnail: https://www.lifewire.com/thmb/wHZ-ZuGaBn8D_tIZ9YtAursona4=/400x300/fi
  I recently unpacked a Netgear Nighthawk X10 and plugged it into my own wireless network to see how it performs in the real world. Over several hours of intense testing, and a couple of days of more casual use, I tested connection speeds at various distances, ease of setup and use, and more.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Netgear continues to impress with its off-beat designs**
@@ -96,10 +103,10 @@ thumbnail: https://www.lifewire.com/thmb/wHZ-ZuGaBn8D_tIZ9YtAursona4=/400x300/fi
 Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Zero hassle from start to finish**
@@ -128,19 +135,6 @@ Lifewire / Jeremy Laukkonen
 
  For physical connectivity, the Nighthawk X10 features six Ethernet ports, two of which can be used together to create a single 2Gbps connection. You also get two USB 3.0 ports for connecting USB drives and a single 10Gbps SFP+ LAN port. This final port is potentially the most interesting, and also most niche since it allows you to connect a high-speed NAS server, a secondary switch for more Ethernet ports, or other devices that require a bunch of high-speed bandwidth.
 
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Network Performance: Fantastic 5GHz performance, WiGig leaves a bit to be desired**
 
  Since this is an 802.11ad router, and the 60GHz WiGig network is the key feature here, that’s where I’m going to start. All of my tests are performed using a 1Gbps Mediacom cable internet connection, so any testing done on an 802.11ad router like this involves data transfer speeds within my network, not the internet connection. For testing purposes, I have a[laptop](https://www.lifewire.com/best-laptops-to-buy-4043650) that I retrofitted with a network interface card featuring the QCA9005 chipset.
@@ -152,19 +146,6 @@ Lifewire / Jeremy Laukkonen
  The bottom line is that this router provides truly awesome speeds at very short distances, but the benefit falls off sharply, and you’d be better off using the 5GHz network even a few feet away.
 
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/Jwl6BD38cWznmN0op6bpzAmBs_U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_03-4cfe683a7cf94e94b14c0ec2be12da50.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -193,16 +174,10 @@ Lifewire / Jeremy Laukkonen
  I plugged in one of my media-filled SSD USB drives and had no trouble streaming to any of the Plex clients I have on my network.
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Not bad if you really need 802.11ad**
@@ -212,6 +187,13 @@ Lifewire / Jeremy Laukkonen
  If you do have use for an 802.11ad router, then $250 isn’t that bad of a price tag, especially considering the fantastic 5GHz performance and the convenient inclusion of Plex Media Server. I wouldn’t recommend upgrading your existing equipment to 802.11ad just to use this router, but the Nighthawk X10 makes a fine choice if you already have the hardware to support it.
 
  By way of comparison, the Nighthawk Pro Gaming XR700 has similar specifications, swaps out Plex Media Server for some gaming-centric quality of life (QoL) features, and has a street price that’s close to $400.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Netgear Nighthawk X10 AD7200 vs. Netgear Nighthawk RAX80**
 
@@ -263,21 +245,22 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-ultimate-list-top-8-fb-movies-to-download-in-23/"><u>[New] 2024 Approved Ultimate List Top 8 FB Movies to Download in '23</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-powerdirectors-latest-revolution-compre-point-by-point-review-and-tutorial/"><u>[New] In 2024, PowerDirector's Latest Revolution Compre Point-by-Point Review & Tutorial</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolved-unresponsive-logitech-mouse-mystery/"><u>[Resolved] Unresponsive Logitech Mouse Mystery</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-10-expert-suggestions-to-make-your-yt-shorts-stand-out/"><u>[Updated] In 2024, 10 Expert Suggestions to Make Your YT Shorts Stand Out</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-audio-innovations-for-the-road-savvy-driver/"><u>Affordable Audio Innovations for the Road-Savvy Driver</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-locked-for-security-reasons-from-apple-iphone-6s-find-the-best-solution-here-by-drfone-ios/"><u>Apple ID Locked for Security Reasons From Apple iPhone 6s? Find the Best Solution Here</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/applecare-plus-analysis-why-a-longer-warranty-is-beneficial/"><u>AppleCare Plus Analysis: Why a Longer Warranty Is Beneficial</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/compreran-a-deep-dive-into-the-logitech-4k-pro-webcam-for-2024/"><u>Compreran a Deep Dive Into the Logitech 4K Pro Webcam for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/deep-dive-into-b550-xt-masterful-vocal-interaction/"><u>Deep Dive Into B550-XT: Masterful Vocal Interaction</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-improved-functionality-of-samsungs-latest-galaxy-watch-active-2-model/"><u>Exploring the Improved Functionality of Samsung's Latest Galaxy Watch Active 2 Model</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-hardware-hurdles-whats-necessary-for-big-sur/"><u>In 2024, Hardware Hurdles What's Necessary for Big Sur?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-in-depth-walkthrough-for-proficient-use-of-green-screen-in-kinemaster/"><u>In 2024, In-Depth Walkthrough for Proficient Use of Green Screen in Kinemaster</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/processor-rankings-choosing-top-tier-tablets-with-advanced-cpu-technology/"><u>Processor Rankings: Choosing Top-Tier Tablets with Advanced CPU Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/should-you-choose-a-ps5-or-ps5-slim-a-comprehensive-guide-to-each-versions-perks-and-pitfalls/"><u>Should You Choose a PS5 or PS5 Slim? A Comprehensive Guide to Each Version's Perks and Pitfalls</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-perfect-match-freestyle2s-blue-edition-tailored-for-mac-enthusiasts/"><u>Unveiling the Perfect Match: Freestyle2's Blue Edition Tailored for Mac Enthusiasts</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/your-phone-your-camera-tips-for-mobile-video-shooting-for-2024/"><u>Your Phone, Your Camera Tips for Mobile Video Shooting for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-navigating-the-world-of-insta-influencers-5-pivotal-moves-and-results/"><u>[New] In 2024, Navigating the World of Insta Influencers 5 Pivotal Moves and Results</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-step-by-step-inserting-music-in-your-ppt-masterpieces/"><u>[Updated] 2024 Approved Step-by-Step Inserting Music in Your PPT Masterpieces</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-proven-strategies-to-record-clear-audio-without-a-mic/"><u>[Updated] Proven Strategies to Record Clear Audio Without a Mic</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/benefits-and-drawbacks-unveiling-the-pros-and-cons-of-using-webex-as-your-virtual-office/"><u>Benefits and Drawbacks: Unveiling the Pros and Cons of Using Webex as Your Virtual Office</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-ring-battery-doorbell-plus-assessment-what-you-need-to-know/"><u>Comprehensive Ring Battery Doorbell Plus Assessment - What You Need To Know</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-configure-the-wacom-intuos-pro-driver-for-optimal-performance-on-windows-nt/"><u>Download and Configure the Wacom Intuos Pro Driver for Optimal Performance on Windows nT</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/echo-show-gen-4-critique-enhanced-features-and-performance/"><u>Echo Show (Gen 4) Critique: Enhanced Features & Performance</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/expert-advice-from-toms-hardware-hub/"><u>Expert Advice From Tom's Hardware Hub</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-moto-g-stylus-analysis-impressive-speed-and-endurance-with-an-efficient-stylus-feature/"><u>In-Depth Moto G Stylus Analysis: Impressive Speed & Endurance with an Efficient Stylus Feature</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/omnicharge-omni-20-portable-charger-unveiled-a-review-of-its-multi-port-capabilities-and-wireless-charging-functionality/"><u>Omnicharge Omni 20 Portable Charger Unveiled - A Review of Its Multi-Port Capabilities and Wireless Charging Functionality</u></a></li>
+<li><a href="https://techtrends.techidaily.com/perfecting-citations-a-step-by-step-guide-on-referencing-chatgpt/"><u>Perfecting Citations: A Step-by-Step Guide on Referencing ChatGPT</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/power-through-the-darkness-a-comprehensive-guide-to-romers-portable-and-rechargeable-searchlight/"><u>Power Through the Darkness - A Comprehensive Guide to Romer's Portable & Rechargeable Searchlight</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-petsafe-solution-streamline-your-furry-friends-diet-with-our-six-meal-program/"><u>The PetSafe Solution: Streamline Your Furry Friend's Diet with Our Six Meal Program</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/tips-and-tricks-for-setting-up-your-lava-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Lava Phone Pattern Lock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-artists-drawing-slates-2024-edition/"><u>Top-Rated Artist's Drawing Slates: 2024 Edition</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/unlocking-the-secrets-of-modern-setup-hosts-exploring-features-and-fixing-failures-quickly/"><u>Unlocking the Secrets of Modern Setup Hosts: Exploring Features & Fixing Failures Quickly</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/visual-excellence-debate-av1-vs-vp9-showcase/"><u>Visual Excellence Debate Av1 vs VP9 Showcase</u></a></li>
 </ul></div>
 

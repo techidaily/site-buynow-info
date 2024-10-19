@@ -1,7 +1,7 @@
 ---
 title: "Comparing Performance & Features: The Lenovo Yoga C740 Next Generation Following the Legendary A940"
-date: 2024-10-07T17:16:51.748Z
-updated: 2024-10-13T10:27:36.815Z
+date: 2024-10-17T09:06:43.062Z
+updated: 2024-10-19T11:37:25.981Z
 categories:
   - BestProducts
 description: "This Article Describes Comparing Performance & Features: The Lenovo Yoga C740 Next Generation Following the Legendary A940"
@@ -43,16 +43,16 @@ Lifewire / Rebecca Isaacs
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Sabrent Mini Travel USB Optical Mouse
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/XBAevViAWBKn-uqOn_jnTLrfwTw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_HeroSquare-6ae9d6d299054d748f84492b5c31f033.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -76,10 +76,10 @@ Lifewire / Rebecca Isaacs
  Working on the go can prove difficult on a laptop, especially when you need to work on heavy-hitting projects requiring precision. Travel mice, or portable computer mice that can be packed and unpacked on the go, can alleviate much of the proverbial headache of working on PC-heavy tasks. For those who prefer their mouse have a cable, the Sabrent fits the bill. Using high definition precision technology, the tiny, three-year-old mouse is designed for those who want convenience and extreme precision in their work.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Basic**
@@ -93,15 +93,22 @@ Lifewire / Rebecca Isaacs
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/E-UHv94vEiLyLkgwTG1qIFE6uvQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_04-76e4b475ca3f4449a746c22f3713f784.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
  The cable’s addition increases the size of the mouse, bringing the total measurements to 6.44 x 1.5x 2.44 inches (LWH). The Sabrent also comes with a mesh carrying bag, making it easy to pack up and take on the go without scratching it. One more perk: this mouse is adaptable to most[Windows](https://www.lifewire.com/windows-4781566) ,[Mac](https://www.lifewire.com/mac-backup-software-hardware-and-guides-2260931) , and[Linux](https://www.lifewire.com/software-and-apps-4781541) systems, so you can insert it into USB ports across multiple machines for fast use.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Plug and play**
 
@@ -110,13 +117,6 @@ Lifewire / Rebecca Isaacs
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/mM3uSf3Y2pyayDyWJzP8_5uUya4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_05-04e025144b514674b109e77f79129d74.jpg)
 
  Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Precise, but mildly problematic**
 
@@ -134,6 +134,13 @@ Lifewire / Rebecca Isaacs
 
  The cable length left something to be desired in a work PC, however. At 25 inches, it sounds like a dream come true, however, testing it on a standing desk where the PC tower is located further away from the keyboard and mouse we realized there was a problem. The length cable prevented us from shifting our grip on the mouse, and the tugging was a frustrating physical constraint. Laptop users won’t even notice the cable, but PC users may want to look for something a little more wireless.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Comfort: Too small**
 
  Because the mouse is so tiny, and barely fit into the palm of our hand, we constantly had to adjust our fingers to compensate for its size. Granted, we used the mouse for up to eight hours at a time in testing, and our muscles didn’t tire out and hands didn’t cramp, which was a testament to the ergonomic design. However, constantly having to shift our grip to press buttons and scroll was mildly annoying, especially when we were deeply engaged in work.
@@ -145,19 +152,6 @@ Lifewire / Rebecca Isaacs
 ## **Price: Reasonable**
 
  At around $7, this is a great budget mouse. Essentially, the cost is for basic mouse features, and not for anything heavier or more taxing on a PC. If you’re looking for a travel mouse with more features, then expect to spend more. However, if accomplishing work tasks is solely your task then this is the perfect price point.
-
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Sabrent Mini Travel Mouse vs. VicTsing Wireless Mouse**
 
@@ -200,22 +194,15 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-off-facebook-activity-analysis-and-secure-browsing-practices/"><u>[Updated] 2024 Approved Off-Facebook Activity Analysis & Secure Browsing Practices</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-hone-your-talks-expert-insights-into-google-meet-chats/"><u>[Updated] Hone Your Talks Expert Insights Into Google Meet Chats</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-top-20-racing-games-for-bicyclists/"><u>2024 Approved Top 20 Racing Games for Bicyclists</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/5-most-effective-methods-to-unlock-apple-iphone-13-pro-in-lost-mode-drfone-by-drfone-ios/"><u>5 Most Effective Methods to Unlock Apple iPhone 13 Pro in Lost Mode | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-lg-watch-style-evaluation-a-look-at-classic-wear-os-20-timepieces/"><u>Comprehensive LG Watch Style Evaluation: A Look at Classic Wear OS 2.0 Timepieces</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-oneplus-8t-phenomenal-speed-but-underwhelming-cameras/"><u>Comprehensive Review of OnePlus 8T: Phenomenal Speed but Underwhelming Cameras</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/first-impressions-matter-how-sonys-first-party-game-godfall-could-have-done-better/"><u>First Impressions Matter: How Sony's First-Party Game 'Godfall' Could Have Done Better</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-safely-close-down-and-delete-your-tiktok-account/"><u>How To Safely Close Down and Delete Your TikTok Account</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-jokejumper-generate-share-worthy-images-quickly/"><u>In 2024, JokeJumper Generate Share-Worthy Images Quickly</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-eero-pro-the-ultimate-wide-area-wi-fi-solution-for-your-home/"><u>In-Depth Look at the Eero Pro: The Ultimate Wide-Area Wi-Fi Solution for Your Home</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/movavi-ottieni-la-conversione-dei-video-mpeg-gratuitamente-su-internet/"><u>Movavi: Ottieni La Conversione Dei Video MPEG Gratuitamente Su Internet</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-the-world-of-apple-watches-a-deep-dive-into-gps-vs-cellular-options/"><u>Navigating the World of Apple Watches – A Deep Dive Into GPS Vs. Cellular Options</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/prime-list-7-high-quality-vids-on-mac/"><u>Prime List 7 High-Quality Vids on Mac</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/real-user-reviews-for-newly-launched-samsung-galaxy-budsplus/"><u>Real User Reviews for Newly Launched Samsung Galaxy Buds+</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-the-singing-machine-sml3-a-simple-and-joyful-plug-and-play-karaoke-experience/"><u>Review of the Singing Machine SML3# - A Simple & Joyful Plug-and-Play Karaoke Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-nokia-72-an-in-depth-review-of-this-standout-mid-range-smartphone/"><u>Unveiling Nokia 7.2: An In-Depth Review of This Standout Mid-Range Smartphone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-excellence-of-samsung-galaxy-s21-ultra-why-it-reigns-supreme-in-the-android-realm/"><u>Unveiling the Excellence of Samsung Galaxy S21 Ultra: Why It Reigns Supreme in the Android Realm</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-gopro-hero-5-vs-nikon-km-170-for-adventurers/"><u>2024 Approved GoPro HERO 5 vs Nikon KM-170 for Adventurers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-budget-friendly-topmate-c302-laptop-chiller-a-comprehensive-evaluation/"><u>Best Budget-Friendly TopMate C302 Laptop Chiller - A Comprehensive Evaluation</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/cross-network-laughter-whos-tops-today/"><u>Cross-Network Laughter Who's Tops Today?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-what-sets-echo-pop-aside-from-echo-dot-a-side-by-side-comparison/"><u>Discovering What Sets Echo Pop Aside From Echo Dot - A Side-by-Side Comparison</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-meetings-with-the-jabra-evolve2-audio-upgrade/"><u>Elevate Meetings With the Jabra Evolve2 Audio Upgrade</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/happy-tails-enjoy-pets-and-games/"><u>Happy Tails: Enjoy Pets & Games</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-11-pro-to-other-iphone-14-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 11 Pro to other iPhone 14 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-evaluation-of-samsungs-image-editing-software/"><u>In 2024, The Ultimate Evaluation of Samsung's Image Editing Software</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/netgear-nighthawk-rax120-review-one-of-the-fastest-routers-available/"><u>Netgear Nighthawk RAX120 Review: One Of The Fastest Routers Available</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-4th-of-july-cell-plan-bargains-exclusive-offers/"><u>Top 4Th of July Cell Plan Bargains - Exclusive Offers !</u></a></li>
 </ul></div>
 

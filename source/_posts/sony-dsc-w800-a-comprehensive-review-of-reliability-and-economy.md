@@ -1,7 +1,7 @@
 ---
 title: "Sony DSC-W800: A Comprehensive Review of Reliability and Economy"
-date: 2024-10-07T08:11:46.015Z
-updated: 2024-10-13T07:28:28.572Z
+date: 2024-10-16T05:39:34.211Z
+updated: 2024-10-19T09:24:00.484Z
 categories:
   - BestProducts
 description: "This Article Describes Sony DSC-W800: A Comprehensive Review of Reliability and Economy"
@@ -41,13 +41,6 @@ Lifewire / Gannon Burgett
 
 4
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Apple iMac 21.5-inch 4K
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/hOzU-Ut_6g-s5JwzT08s3wa0tSo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4045927-1-625cb1ba7a894cc38db8565dd81072b3.jpg)
@@ -78,6 +71,13 @@ Lifewire / Gannon Burgett
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/TCcSm-nkER9HhHM8YIPMWbaezRA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-4-fa6cf253bfd44ab991c366691b68bdf5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
 ## **Design: Beautiful, with room for improvements**
@@ -96,13 +96,6 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: One plug and you’re good to go**
 
  One of Apple’s core tenets is simplicity, and the 4K iMac is no exception to this rule. Inside the box is the computer itself and a box which contains the Magic Keyboard and Magic Mouse 2\. Additional components include the power connection for the computer, a Lightning cable for charging the mouse and keyboard, and a small package of documentation.
@@ -110,6 +103,13 @@ Lifewire / Gannon Burgett
  Setting up the iMac is as simple as unwrapping it from its protective cover, setting it on the desk, plugging it in with the included power cord, and pressing the power button. As it boots up, we turned on the Magic Keyboard and Magic Mouse 2\. By the time the iMac was to the setup screen — a process that took approximately 60 seconds — the two were already paired with the computer and ready to be used.
 
  Going through the setup process took us approximately five minutes, which included setting up our iCloud account and getting the various login settings in place. We opted to set this up as a new computer, but there’s also the ability to set it up from an Apple Time Capsule backup or transfer content from a PC via USB. The amount of time those options take will vary depending on the device you’re transferring the information from as well as the amount of data being transferred.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Display: Bright, brilliant, and ready to shine**
 
@@ -122,6 +122,13 @@ Lifewire / Gannon Burgett
  As mentioned above, it would’ve been nice to see a smaller bezel, but that’s about the only department the display falls short.
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/IKZ75jBAosAG3M1Py_-E0ElYAfM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-5-a705ea67b88b4cf694c53e4715a9aceb-f57b3be92a934d8ab579d90728e23fe8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -141,24 +148,37 @@ Lifewire / Gannon Burgett
 
  All-in-all, the iMac seems to punch right at or above its specifications when compared to similar hardware. It’s not going to be pumping out 8K footage, but for basic 4K video editing and image post-processing, the graphics card is more than enough. As for productivity, there’s not much you can throw at the iMac that it can’t handle. The only thing we noticed slowing down the computer was the 8GB of RAM when we had over a dozen applications open, but that can be fixed by upgrading to the 16GB or 32GB model (although it’s not a cheap upgrade).
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Network: Fast and reliable**
 
  The 21.5-inch 4K iMac features both wired and wireless connectivity for internet access. As previously mentioned, the iMac features a Gigabit Ethernet (RJ-45) port on the rear of the computer for a hardwired internet connection. For Wi-Fi, the iMac uses an 802.11ac network adapter with support for IEEE 802.11a/b/g/n.
 
  In our hardwired tests, the iMac maxed out our Gigabit fiber optic internet no problem, with steady download and upload speeds. Wireless connectivity was equally impressive, regardless of whether the iMac was in the same room as the router or a few rooms over. We didn’t notice any drops throughout our tests and both uploading and downloading content was consistent.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Camera: Decent built-in option for basic tasks**
 
  The only camera on the 4K iMac is the integrated webcam, which sits dead center above the display. We would’ve liked to see a 1080p or even 4K webcam included, but the 720p resolution is good enough for basic video messaging.
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/rFu0_k9BjbUxQdoEYOcNGU35LJA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-2-a3d2f38b9509480ba41bbb5b33815d1a.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -171,10 +191,10 @@ Lifewire / Gannon Burgett
  Unlike Windows, macOS doesn’t come with any bloatware either. There’s a number of pre-installed apps developed by Apple, including four new ones borrowed from Apple’s mobile operating system, iOS, but most of the pre-installed apps are the standard array of programs you’d expect to see on any modern computer.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: The Apple tax is real**
@@ -201,25 +221,11 @@ Lifewire / Gannon Burgett
 
  The 21.5-inch 4K iMac is a solid all-in-one computer that packs a lot of power into a tiny, well-designed package. It’s not going to blow anyone away on benchmarks and it’s not cheap for the internal components you’re getting, but it has a lot to offer for multimedia and productivity. That’s not to mention the sheer convenience of having everything simply work out of the box.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Microsoft Surface Studio 2](https://www.lifewire.com/microsoft-surface-studio-2-review-4689102)
 * [Alienware Aurora R7](https://www.lifewire.com/alienware-aurora-r7-review-4689097)
 * [Lenovo ThinkCentre M720 Tower](https://www.lifewire.com/lenovo-thinkcentre-m720-tower-review-4776238)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -252,22 +258,20 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-best-buys-in-the-realm-of-4k-video-tools/"><u>[New] Best Buys in the Realm of 4K Video Tools</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-professional-film-techniques-for-drones/"><u>[New] In 2024, Professional Film Techniques for Drones</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-filmmaking-foundations-understanding-screenplays/"><u>2024 Approved Filmmaking Foundations Understanding Screenplays</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/authenticity-audit-filtering-out-pretend-facebook-fans/"><u>Authenticity Audit Filtering Out Pretend Facebook Fans</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/essentials-of-apple-podcast-catalog-integration/"><u>Essentials of Apple Podcast Catalog Integration</u></a></li>
-<li><a href="https://techidaily.com/how-to-hard-reset-nokia-g310-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Nokia G310 Without Password | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Xiaomi 14 Pro? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-your-playstation-5-experience-tips-and-tricks-for-enhanced-performance/"><u>Maximizing Your PlayStation 5 Experience: Tips & Tricks for Enhanced Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/my-experience-with-3d-printing-lego-blocks-the-unexpected-results/"><u>My Experience with 3D Printing LEGO Blocks: The Unexpected Results</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/optimizing-engagement-in-the-new-facebook-algorithms-era-for-2024/"><u>Optimizing Engagement in the New Facebook Algorithms Era for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/requesting-a-silent-interlude-from-spotify-exploring-song-hiatus-options/"><u>Requesting a Silent Interlude From Spotify: Exploring Song Hiatus Options</u></a></li>
-<li><a href="https://extra-support.techidaily.com/revealing-hidden-aspects-in-minecraft-for-2024/"><u>Revealing Hidden Aspects in Minecraft for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/safe-methods-for-increasing-performance-of-your-nvidia-graphics-card-maintaining-warranty-security/"><u>Safe Methods for Increasing Performance of Your NVIDIA Graphics Card: Maintaining Warranty Security</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/save-money-on-premium-sound-tidal-cuts-the-cost-of-its-hifi-music-streaming-offering/"><u>Save Money on Premium Sound: Tidal Cuts the Cost of Its HiFi Music Streaming Offering</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/shop-smart-with-spectacular-deals-dont-miss-amazon-prime-day-starting-july-16th-2024/"><u>Shop Smart with Spectacular Deals - Don't Miss Amazon Prime Day Starting July 16Th, 2024!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/surprising-features-and-tricks-uncover-hidden-functions-of-the-steam-platform/"><u>Surprising Features & Tricks: Uncover Hidden Functions of the Steam Platform</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-controversy-around-game-nerfs-exploring-why-players-voice-discontent/"><u>The Controversy Around Game Nerfs: Exploring Why Players Voice Discontent</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-ingenious-designer-of-visual-and-auditory-delight/"><u>[New] In 2024, Ingenious Designer of Visual & Auditory Delight</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-jumpstart-your-pc-for-windows-11-compatibility/"><u>2024 Approved Jumpstart Your PC for Windows 11 Compatibility</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/battle-for-gaming-supremacy-nintendos-switch-lite-vs-oled-edition-head-to-head-review/"><u>Battle for Gaming Supremacy: Nintendo's Switch Lite Vs. OLED Edition Head-to-Head Review</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/both-questions-pertain-to-setting-up-a-recovery-feature-on-a-windows-server-disk-or-network/"><u>Both Questions Pertain to Setting up a Recovery Feature on a Windows Server (Disk or Network).</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/detailed-methods-for-seamless-wirecast-livestreams-on-youtube/"><u>Detailed Methods for Seamless WireCast Livestreams on YouTube</u></a></li>
+<li><a href="https://driver-error.techidaily.com/effective-fixes-for-non-functional-qualcomm-atheros-bluetooth-drivers-on-windows-10/"><u>Effective Fixes for Non-Functional Qualcomm Atheros Bluetooth Drivers on Windows 10</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-vyncs-platform-robust-analytics-and-complex-tiered-pricing-structure/"><u>Evaluating the Vyncs Platform: Robust Analytics & Complex Tiered Pricing Structure</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-premium-viewing-with-the-cost-effective-lg-24lh4830-smart-tv/"><u>Experience Premium Viewing with the Cost-Effective LG 24LH4830 Smart TV</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-reviews-of-2024s-leading-cable-modems-on-the-market/"><u>Expert Reviews of 2024'S Leading Cable Modems on the Market</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-audio-visual-synchronization-for-streams/"><u>In 2024, Mastering Audio-Visual Synchronization for Streams</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-xiaomi-civi-3-disney-100th-anniversary-edition-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Xiaomi Civi 3 Disney 100th Anniversary Edition with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/key-aspects-to-contemplate-prior-to-purchasing-a-new-print-device/"><u>Key Aspects to Contemplate Prior to Purchasing a New Print Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/premier-wearable-tech-smart-glasses-rankings/"><u>Premier Wearable Tech: Smart Glasses Rankings</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/resolving-attempting-data-recovery-stalemate-tips-for-your-iphone-troubleshooting/"><u>Resolving ‘Attempting Data Recovery’ Stalemate: Tips for Your iPhone Troubleshooting</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/secure-and-connect-setting-up-your-personalized-nintendo-account-on-the-3ds/"><u>Secure and Connect: Setting up Your Personalized Nintendo Account on the 3DS</u></a></li>
 </ul></div>
 

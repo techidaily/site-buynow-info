@@ -1,7 +1,7 @@
 ---
 title: Combine Precise Movements & Easy Access with the Sabrent Travel Mouse - Your Compact Tech Companion
-date: 2024-10-07T01:29:25.316Z
-updated: 2024-10-13T05:27:58.067Z
+date: 2024-10-18T08:03:41.075Z
+updated: 2024-10-19T08:35:18.737Z
 categories:
   - BestProducts
 description: This Article Describes Combine Precise Movements & Easy Access with the Sabrent Travel Mouse - Your Compact Tech Companion
@@ -80,13 +80,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -99,28 +92,15 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Battery life: No worries**
@@ -161,6 +141,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -189,6 +176,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -199,18 +193,18 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
 
@@ -229,10 +223,10 @@ Lifewire / Andy Zahn
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -275,20 +269,18 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-channel-finale-101-insider-tricks-for-successful-outros/"><u>[New] 2024 Approved Channel Finale 101 Insider Tricks for Successful Outros</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-started-streaming-learn-obs-for-youtube-now/"><u>[Updated] Started Streaming? Learn OBS for Youtube Now</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-unleashing-potential-profile-video-elevation-for-2024/"><u>[Updated] Unleashing Potential Profile Video Elevation for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/5-solutions-for-motorola-moto-g-stylus-5g-2023-unlock-without-password-by-drfone-android/"><u>5 Solutions For Motorola Moto G Stylus 5G (2023) Unlock Without Password</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/arf-pets-innovation-the-convenient-pet-food-dispenser/"><u>Arf Pets Innovation: The Convenient Pet Food Dispenser</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-radpower-radcity-5plus-a-sturdy-high-capacity-bike-review/"><u>Evaluating the RadPower RadCity 5+ - A Sturdy, High-Capacity Bike Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-ultimate-performance-of-djis-air-2s-a-detailed-drone-analysis/"><u>Exploring the Ultimate Performance of DJI's Air 2S - A Detailed Drone Analysis.</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/fix-red-eyes-quickly-in-photos-on-ios-without-cost/"><u>Fix Red Eyes Quickly in Photos on iOS Without Cost</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-review-the-reliable-battery-version-of-the-google-nest-doorbell/"><u>In-Depth Review: The Reliable Battery Version of the Google Nest Doorbell</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/optimal-mesh-wifi-solution-a-comprehensive-netgear-orbi-evaluation-and-why-it-stands-out/"><u>Optimal Mesh WiFi Solution - A Comprehensive Netgear Orbi Evaluation and Why It Stands Out</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/owc-mercury-pro-evaluation-premier-performance-in-solid-state-drives/"><u>OWC Mercury Pro Evaluation: Premier Performance in Solid-State Drives</u></a></li>
-<li><a href="https://blog-min.techidaily.com/pasos-sencillos-para-agregar-texto-a-tus-archivos-de-video-mp4/"><u>Pasos Sencillos Para Agregar Texto a Tus Archivos De Video MP4</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-ipad-models-unveiled-a-comprehensive-comparison-matrix/"><u>Top iPad Models Unveiled: A Comprehensive Comparison Matrix</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/vimeos-zero-dollar-video-editing-pathway-for-2024/"><u>Vimeo's Zero-Dollar Video Editing Pathway for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/walkthrough-activating-setup-mode-on-echo-dot-devices/"><u>Walkthrough: Activating Setup Mode on Echo Dot Devices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-step-by-step-guide-to-dominating-the-youtube-viewership-game-for-2024/"><u>[New] A Step-by-Step Guide to Dominating the YouTube Viewership Game for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/can-you-trust-hewlett-packards-affordable-15-with-amd-processor-for-everyday-use-review-and-analysis/"><u>Can You Trust Hewlett-Packard’s Affordable 15” With AMD Processor for Everyday Use? Review & Analysis</u></a></li>
+<li><a href="https://win-community.techidaily.com/capturing-stunning-videos-from-google-earth-a-comprehensive-tutorial/"><u>Capturing Stunning Videos From Google Earth - A Comprehensive Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151405205-facebooks-judicial-committee-prepares-to-rule-on-trump-exclusion/"><u>Facebook's Judicial Committee Prepares to Rule on Trump Exclusion.</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-on-motorola-moto-g84-5g-by-drfone-android/"><u>How to Bypass FRP on Motorola Moto G84 5G?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-earning-by-critiquing-goodies-a-youtube-guide/"><u>In 2024, Earning by Critiquing Goodies A YouTube Guide</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-motorola-moto-g23-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Motorola Moto G23? Try These Fixes</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-full-tutorial-to-bypass-your-huawei-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Huawei Face Lock?</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-vllo-for-mac-download-now-and-explore-alternatives/"><u>In 2024, VLLO for Mac Download Now and Explore Alternatives</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stanley-j5c09-review/"><u>STANLEY J5C09 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-authoritative-selection-of-premium-audio-cards-for-your-pc-2024/"><u>The Authoritative Selection of Premium Audio Cards for Your PC, 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-winter-scenes-to-enhance-your-video-warmth-for-2024/"><u>Top 5 Winter Scenes to Enhance Your Video Warmth for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-mesh-network-routers-of-2024-your-comprehensive-guide/"><u>Top Rated Mesh Network Routers of 2024: Your Comprehensive Guide</u></a></li>
 </ul></div>
 

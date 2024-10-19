@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Comparison: Ring Vs. Nest for Intelligent Entryway Solutions"
-date: 2024-10-06T01:56:31.120Z
-updated: 2024-10-12T21:12:20.068Z
+date: 2024-10-17T23:45:33.787Z
+updated: 2024-10-18T21:49:30.532Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Comparison: Ring Vs. Nest for Intelligent Entryway Solutions"
@@ -42,13 +42,6 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
@@ -74,13 +67,6 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -91,14 +77,14 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Setup: Easier than most**
 
@@ -116,6 +102,13 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Range: Could be better**
@@ -126,24 +119,18 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -156,6 +143,13 @@ Lifewire / Erika Rawes
 **Works great & looks even better.**
 
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -188,24 +182,19 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-how-to-step-into-a-tiktok-event-like-a-pro/"><u>[New] 2024 Approved How to Step Into a TikTok Event Like a Pro</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-break-it-down-streamlining-video-length-with-efficient-chapter-breaks-on-youtube-for-2024/"><u>[Updated] Break It Down Streamlining Video Length with Efficient Chapter Breaks on YouTube for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-capturing-mac-screen-images-top-5-techniques-for-2024/"><u>[Updated] Capturing Mac Screen Images Top 5 Techniques for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-intelligence-easy-setup-of-intels-ac-7260-dual-band-wireless-driver/"><u>Download Intelligence: Easy Setup of Intel's AC 7260 Dual Band Wireless Driver</u></a></li>
-<li><a href="https://fox-pages.techidaily.com/effortless-techniques-for-eliminating-default-backdrop-in-paint-app/"><u>Effortless Techniques for Eliminating Default Backdrop in Paint App</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-infinix-smart-8-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Infinix Smart 8 to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/gratis-online-mp3-codec-veranderen-in-ogg-format-met-movavi-konverter/"><u>Gratis Online MP3-Codec Veranderen in Ogg Format Met Movavi Konverter</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-fix-oem-unlock-missing-on-asus-rog-phone-7-ultimate-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Asus ROG Phone 7 Ultimate?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/incorporating-captions-into-instagrams-video-platform-for-2024/"><u>Incorporating Captions Into Instagram's Video Platform for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-transition-to-one-how-nvidia-is-combining-its-control-panel-and-geforce-experience-into-a-unified-interface/"><u>The Transition to One: How Nvidia Is Combining Its Control Panel and GeForce Experience Into a Unified Interface</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-5-advantages-of-choosing-apple-tvplus-over-netflix-a-comprehensive-guide/"><u>Top 5 Advantages of Choosing Apple TV+ Over Netflix: A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-7-engaging-word-puzzles-perfect-for-post-wordle-fun/"><u>Top 7 Engaging Word Puzzles Perfect for Post-Wordle Fun</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-budget-friendly-gaming-unlocking-free-to-play-event-opportunities/"><u>Top Budget-Friendly Gaming: Unlocking Free to Play Event Opportunities</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-reasons-why-adding-a-controller-is-essential-for-any-serious-pc-gamer/"><u>Top Reasons Why Adding a Controller Is Essential for Any Serious PC Gamer</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/troubleshooting-guide-eliminate-minecraft-exit-code-1-on-your-pc/"><u>Troubleshooting Guide: Eliminate Minecraft Exit Code 1 on Your PC</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/understanding-the-market-landscape-how-apple-tvplus-stands-out-among-popular-streaming-options/"><u>Understanding the Market Landscape: How Apple TV+ Stands Out Among Popular Streaming Options</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/understanding-why-the-release-of-playstation-6-in-2027-makes-more-sense/"><u>Understanding Why the Release of PlayStation 6 in 2027 Makes More Sense</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unexpected-gems-20plus-attractive-games-perfect-for-low-end-diy-potato-computers/"><u>Unexpected Gems: 20+ Attractive Games Perfect for Low-End, DIY Potato Computers</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/valuing-your-vintage-videos-a-comprehensive-pricing-guide-for-pre-owned-dvd-collections/"><u>Valuing Your Vintage Videos: A Comprehensive Pricing Guide for Pre-Owned DVD Collections</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-master-level-editing-the-essence-of-smooth-transitions-in-inshot/"><u>[Updated] Master Level Editing The Essence of Smooth Transitions in Inshot</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1-multiplecam-pro-premium-live-streaming-and-remote-camera-app/"><u>1. MultipleCam Pro: Premium Live Streaming and Remote Camera App</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/docooler-usb-flash-drive-with-hd-camera-12-mp-is-it-worth-your-investment/"><u>Docooler USB Flash Drive with HD Camera (12 MP): Is It Worth Your Investment?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/for-literary-nomads-discover-a-game-changer-the-portable-and-practical-kobo-clara-hd-reader/"><u>For Literary Nomads, Discover a Game-Changer: The Portable and Practical Kobo Clara HD Reader</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-realme-12-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Realme 12 5G without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Vivo V27 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-examination-of-ankers-roav-dashcam-c1-for-enhanced-vehicle-security/"><u>In-Depth Examination of Anker's Roav DashCam C1 for Enhanced Vehicle Security</u></a></li>
+<li><a href="https://driver-install.techidaily.com/instantly-improve-updating-logitech-headset-cables/"><u>Instantly Improve: Updating Logitech Headset Cables</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-brand-comparisons-selecting-the-best-cable-modem-and-router-combo-of-2024/"><u>Leading Brand Comparisons: Selecting the Best Cable Modem and Router Combo of 2024</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-in-2024-best-7-ways-to-promote-twitch-stream/"><u>New In 2024, Best 7 Ways to Promote Twitch Stream</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-review-of-the-poweradd-pilot-pro2-charger-for-multiple-devices/"><u>Top Review of the POWERADD Pilot Pro2 Charger for Multiple Devices</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-the-unexpected-downtime-in-tribes-of-midgard/"><u>Troubleshooting the Unexpected Downtime in 'Tribes of Midgard'</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unlock-your-pcs-potential-exciting-new-windows-10-games/"><u>Unlock Your PC’s Potential Exciting New Windows 10 Games</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/user-ratings-and-insights-a-look-into-google-maps-for-apples-mobile-os/"><u>User Ratings and Insights: A Look Into Google Maps for Apple's Mobile OS</u></a></li>
 </ul></div>
 

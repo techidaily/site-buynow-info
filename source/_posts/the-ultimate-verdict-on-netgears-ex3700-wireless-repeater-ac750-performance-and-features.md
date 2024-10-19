@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Verdict on Netgear's EX3700 Wireless Repeater (AC750) - Performance & Features
-date: 2024-09-13T16:24:52.578Z
-updated: 2024-09-15T20:20:17.612Z
+date: 2024-10-13T10:42:37.102Z
+updated: 2024-10-19T05:38:13.369Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Verdict on Netgear's EX3700 Wireless Repeater (AC750) - Performance & Features
@@ -73,6 +73,19 @@ Lifewire / Fred Meyer
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/lHiNdBeYxT8ClO7fv3LwEZqMjWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-6-5c924b2dc9e77c0001a9278c.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Fred Meyer
 
  We also loved the fact that the EX6200 uses a separate AC adapter and cord to supply its power. Other extenders that plug into a socket limit the areas you can deploy them, take up a wall plug, and just are usually an eyesore. On the other hand, the EX6200 is a very attractive piece of equipment that looks sharp sitting on a desk. Also, if you just don't want to show, since it uses a cord you have the freedom to tuck it somewhere out of sight easily.
@@ -82,10 +95,10 @@ Lifewire / Fred Meyer
  For example, our[router](https://www.lifewire.com/what-is-a-router-2618162) sits in the living room entertainment center against one wall. On the opposite side of the wall sits an entertainment center in our bedroom. Now, we could run an Ethernet cord around the wall, through the bedroom door, and to the entertainment center, which would be around 60 feet or so, or we could drill through the wall and install an Ethernet socket. However, with the EX6200 we didn’t have to do either. Since it's right on the other side of the wall, we can set up the EX6200 and get the full signal to hardwire our TV,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and Xbox One, which gives better speed and reliability than if we used them with WiFi-only.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: A familiar process**
@@ -96,18 +109,18 @@ Lifewire / Fred Meyer
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/Lny9pSzLcp1hItabWfQAbx8cAoc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-2-5c924b5846e0fb0001f8d14a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Fred Meyer
 
  Once you've got that taken care of, you'll have to find the best place for your extender's new home. If you're trying to improve the signal or hardwire something 25 feet away from your router or less, just plop it down in the area and you should be good to go. For further distances, you'll need to use a bit more finesse. Place the extender halfway between the router and the area you're trying to extend your Wi-Fi. Then you can check the light on top that shows the status of the connection between the extender and the router. Red is bad, yellow is mediocre, and green is good. If you've got a green, head over to the previously dead Wi-Fi area and check your network.
 
  If you've followed the above steps and your Wi-Fi connection is strong, you're good-to-go and you can start living your life with the Wi-Fi coverage you always knew you deserved. Otherwise, you'll have to shuffle the extender either closer to the dead zone or closer to the router until you find the sweet spot.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Netgear magic**
 
@@ -152,10 +165,10 @@ Lifewire / Fred Meyer
  At $99.99 (MSRP) the EX6200 isn't exactly cheap. You can get extenders for $30 or lower that get the job done, but that's all they'll do. We found that the EX6200 struck a good balance between price and features, and is an excellent extender for most use cases.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Middle of the road choice**
@@ -173,10 +186,10 @@ Lifewire / Fred Meyer
  If you're in the market for an extender, the EX6200 is one of our favorites. It doesn't excel in any category, but it does everything it’s designed to do well.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -217,5 +230,23 @@ Lifewire / Fred Meyer
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-elevate-video-editing-expert-use-of-obs-on-mobile-devices/"><u>[New] Elevate Video Editing Expert Use of OBS on Mobile Devices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-m1-macbook-pro-a-game-changer-for-video-editors/"><u>[New] M1 MacBook Pro A Game Changer for Video Editors?</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-mastering-gifs-transforming-vimeo-videos-into-animated-graphics-for-2024/"><u>[New] Mastering GIFs Transforming Vimeo Videos Into Animated Graphics for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-mastering-xbox-ultimate-screen-capture-tips/"><u>2024 Approved Mastering Xbox Ultimate Screen Capture Tips</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/conversion-en-ligne-du-fichier-qt-au-format-flv-avec-movavi-une-solution-rapide-et-efficace-gratuite/"><u>Conversion en Ligne Du Fichier QT Au Format FLV Avec Movavi - Une Solution Rapide Et Efficace, Gratuite !</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/deciding-between-an-ipad-pro-or-a-macbook-pro-a-comprehensive-guide/"><u>Deciding Between an iPad Pro or a MacBook Pro: A Comprehensive Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/dissecting-the-functionality-of-burst-in-gopro-filming/"><u>Dissecting the Functionality of Burst in GoPro Filming</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dji-robomasters-s1-unveiled-ultimate-fun-meets-innovative-battle-drones-and-coding-adventures/"><u>DJI Robomasters S1 Unveiled: Ultimate Fun Meets Innovative Battle Drones & Coding Adventures</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/from-average-to-advanced-graphics-card-revamp/"><u>From Average to Advanced: Graphics Card Revamp</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/important-factors-how-to-pick-your-perfect-gaming-system/"><u>Important Factors: How to Pick Your Perfect Gaming System</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-full-guide-to-unlock-apple-iphone-12-pro-with-itunes-drfone-by-drfone-ios/"><u>In 2024, Full Guide to Unlock Apple iPhone 12 Pro with iTunes | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unveiling-the-art-of-closer-views-on-microsoft-teams/"><u>In 2024, Unveiling the Art of Closer Views on Microsoft Teams</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inexpensive-yet-robust-meet-the-coolpix-w100/"><u>Inexpensive Yet Robust - Meet the Coolpix W100</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-compact-innovation-an-extensive-evaluation-of-the-iphone-12-mini-from-apple/"><u>Mastering Compact Innovation: An Extensive Evaluation of the iPhone 12 Mini From Apple</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-5-features-of-the-aphaca-bt69-the-ultimate-wireless-fm-transmitter-for-an-immersive-listening-experience/"><u>Top 5 Features of the Aphaca BT69 - The Ultimate Wireless FM Transmitter for an Immersive Listening Experience</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/top-5-honor-magic-v2-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Honor Magic V2 Bypass FRP Tools for PC That Actually Work</u></a></li>
+</ul></div>
 

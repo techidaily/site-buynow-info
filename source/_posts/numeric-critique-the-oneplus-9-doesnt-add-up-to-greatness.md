@@ -1,7 +1,7 @@
 ---
 title: "Numeric Critique: The OnePlus 9 Doesn't Add Up to Greatness"
-date: 2024-10-07T02:19:57.377Z
-updated: 2024-10-12T22:06:16.708Z
+date: 2024-10-12T09:01:53.435Z
+updated: 2024-10-18T17:19:11.381Z
 categories:
   - BestProducts
 description: "This Article Describes Numeric Critique: The OnePlus 9 Doesn't Add Up to Greatness"
@@ -42,6 +42,13 @@ Lifewire / Jonno Hill
 
 4.3
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## ClearStream 2V Indoor/Outdoor HDTV Antenna
 
 ![ClearStream 2V HDTV Antenna](https://www.lifewire.com/thmb/q2B57F3c717qLOPlnokMF7al1pA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_HeroSquare-b07d5067648049ecb987e39b62796406.jpg)
@@ -71,13 +78,20 @@ Lifewire / Jonno Hill
 
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/vY1j7QoS0FLwOKNhPlSfR3XMlmo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_02-e97897fe03b74f5faa2eefad3b3b7208.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Glimpsing an ugly future**
@@ -97,10 +111,10 @@ Lifewire / Jonno Hill
  Once the entire device is assembled, the real work begins in my opinion. Now you have to figure out how and where to mount this beast of an antenna. Antenna’s Direct has you covered here, including a hefty bracket and swiveling mast that will help you mount the antenna to just about anywhere with a flat surface that you don’t mind screwing some bolts into.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Top tier**
@@ -119,19 +133,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Performance doesn’t come cheap**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna has a list price of $120 and a 90-day rolling average price on Amazon of $83\. This is significantly more than any of the other antennas I tested, some of which could be had for around $25\. If you live far enough that you need a better performing antenna, however, it could easily be worth every penny. I would only caution buyers to make sure they really do need this performance before pulling the trigger on this very large antenna.
@@ -146,13 +147,6 @@ Lifewire / Jonno Hill
 
 **Great performance for those that need it.**
  The ClearStream 2V Indoor/Outdoor HDTV Antenna isn’t the cheapest or best-looking antenna on the market, but it gets the job done better than any of the other antennas we tested. Buyers who know they need an antenna with better range and performance will find this to be a noticeable bump from cheaper indoor antennas.
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -180,18 +174,22 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/updated-comprehensive-list-top-screenshot-videography-tools/"><u>[Updated] Comprehensive List Top Screenshot Videography Tools</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-edu-top-ten-inspiring-educational-content-yt/"><u>[Updated] Edu-Top Ten Inspiring Educational Content YT</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-unveiling-the-secrets-of-youtube-shorts-success/"><u>[Updated] Unveiling the Secrets of YouTube Shorts Success</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-professional-video-editor-essentials-top-5-macos-sierra-software/"><u>2024 Approved Professional Video Editor Essentials Top 5 macOS Sierra Software</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apple-tvpluss-unfulfilled-promises-vital-features-absent-after-five-years/"><u>Apple TV+'s Unfulfilled Promises: Vital Features Absent After Five Years</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-huawei-nova-y91-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Huawei Nova Y91</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-vivo-s18e-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Vivo S18e?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/o-snip-and-save-from-youtube-the-ultimate-guide-for-2024/"><u>How to Snip and Save From YouTube The Ultimate Guide for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/next-gen-learning-vrs-educational-impact/"><u>Next-Gen Learning VR's Educational Impact</u></a></li>
-<li><a href="https://win-popular.techidaily.com/top-8-astuces-pour-debloquer-le-processus-de-mise-a-niveau-du-systeme-dexploitation-windows-10-stagnant-a-0-ou-99/"><u>Top 8 Astuces Pour Débloquer Le Processus De Mise À Niveau Du Système D'Exploitation Windows 10 Stagnant À 0 Ou 99%</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlocking-your-playstation-plus-perks-discover-how-to-access-the-complimentary-movie-collection/"><u>Unlocking Your PlayStation Plus Perks: Discover How to Access the Complimentary Movie Collection!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/upgrade-and-modify-your-playstation-5-controls-beyond-the-standard-dualsense-for-enhanced-gameplay/"><u>Upgrade and Modify Your PlayStation 5 Controls Beyond the Standard DualSense for Enhanced Gameplay</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/upgrade-your-mobile-playtime-discover-how-to-convert-your-smartphone-into-the-perfect-portable-nintendo-console/"><u>Upgrade Your Mobile Playtime: Discover How to Convert Your Smartphone Into the Perfect Portable Nintendo Console</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-elite-methods-for-streaming-and-preserving-sports-action/"><u>[New] 2024 Approved Elite Methods for Streaming and Preserving Sports Action</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-transferring-media-pc-files-to-your-ios-device/"><u>[New] Transferring Media PC Files To Your iOS Device</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-tunekeeper-trackdown-downloads-and-discussion/"><u>[New] TuneKeeper Trackdown Downloads & Discussion</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-ignite-your-audience-top-10-igtv-trends-brands-cant-miss/"><u>[Updated] Ignite Your Audience Top 10 IGTV Trends Brands Can't Miss</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-long-lasting-comfort-an-authoritative-review-of-the-mavix-m9-gaming-seat/"><u>Discovering Long-Lasting Comfort: An Authoritative Review of the Mavix M9 Gaming Seat</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-apple-watch-series-6-subtle-enhancements-retaining-market-leadership/"><u>Evaluating the Apple Watch Series 6: Subtle Enhancements Retaining Market Leadership</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/expert-strategies-for-enhancing-your-daily-productivity-a-comprehensive-guide-insights-from-zdnet/"><u>Expert Strategies for Enhancing Your Daily Productivity: A Comprehensive Guide - Insights From ZDNet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-revolutionary-yet-imperfect-features-of-lenovos-foldable-thinkpad-x1/"><u>Exploring the Revolutionary Yet Imperfect Features of Lenovo's Foldable ThinkPad X1</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/grab-the-best-electronics-bargains-amazon-prime-day-sales-event-of-2024-awaits-you/"><u>Grab the Best Electronics Bargains: Amazon Prime Day Sales Event of 2024 Awaits You!</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Samsung Galaxy A23 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-motorola-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Motorola Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/logitech-g-pro-x-review/"><u>Logitech G Pro X Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximize-your-play-top-iphones-ranked-for-gaming-enthusiasts/"><u>Maximize Your Play: Top iPhones Ranked for Gaming Enthusiasts</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/the-ultimate-guide-to-mobile-image-mastery/"><u>The Ultimate Guide to Mobile Image Mastery</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-choosing-the-ideal-external-bd-drive/"><u>Ultimate Guide to Choosing the Ideal External BD Drive</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-tcls-smart-led-tv-s325-a-balanced-blend-of-brain-and-beauty/"><u>Unveiling the Power of TCL's Smart LED TV (S325): A Balanced Blend of Brain and Beauty</u></a></li>
+<li><a href="https://os-tips.techidaily.com/upcoming-iphone-models-revealed-unpacking-the-secrets-of-iphone-16-16-pro-and-max/"><u>Upcoming iPhone Models Revealed: Unpacking the Secrets of iPhone 16, 16 Pro & Max</u></a></li>
 </ul></div>
 

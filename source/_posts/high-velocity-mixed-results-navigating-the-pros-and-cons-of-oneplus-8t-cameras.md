@@ -1,7 +1,7 @@
 ---
 title: "High Velocity, Mixed Results: Navigating the Pros and Cons of OnePlus 8T Cameras"
-date: 2024-09-08T20:15:52.492Z
-updated: 2024-09-15T17:18:23.520Z
+date: 2024-10-18T09:22:47.427Z
+updated: 2024-10-19T06:35:15.724Z
 categories:
   - BestProducts
 description: "This Article Describes High Velocity, Mixed Results: Navigating the Pros and Cons of OnePlus 8T Cameras"
@@ -66,6 +66,13 @@ Lifewire / Jordan Oloman
 
  Lifewire / Jordan Oloman
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Sharp edges and frustration**
 
  The Netgear Powerline 1200 kit doesn’t really care about your living room or bedroom aesthetic. It’s a monolithic, white glossy plastic box that juts out of the wall. If you’re looking for something inoffensive and reserved, the Netgear offering doesn’t deliver. The edges are sharp and the adapter is quite large in order to house all of the technology and the Ethernet sockets necessary to complete the network.
@@ -79,6 +86,13 @@ Lifewire / Jordan Oloman
  There’s also only one Ethernet port on the Netgear kit, which means that you can only improve the wired connection of one device—a poor payoff for all of the manoeuvering you may have to do, especially when there’s certainly space for another port. Overall, the design is obtrusive and frustrating, which is a shame given how reliable adapter is.
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LMrQEcpONDZxLUfoMW6U8sX4dQw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_02-a8557f722ac84f29b6efb2a763d22a3c.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jordan Oloman
 
@@ -97,20 +111,13 @@ Lifewire / Jordan Oloman
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LvSmrJJnFItVzQEAPCzBexfSn2M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_03-8fb5af44f82449b49fc780fd23bcb2af.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jordan Oloman
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: A solid improvement**
 
@@ -142,6 +149,13 @@ Lifewire / Jordan Oloman
 
  The Netgear Powerline 1200 is incredibly reliable, albeit poorly designed. It is obstructive in the design department, fairly ugly to look at and comes with just one connection and awfully short Ethernet cables. Yet it has a true plug and play setup process with no compromises, and offers a reliable upgrade to your home network speeds. If you can look past the strange design choices this is the perfect introductory kit for Powerline beginners that does everything you need it to.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Powerline PL1200
@@ -164,5 +178,24 @@ Lifewire / Jordan Oloman
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-the-art-of-advertising-making-money-on-the-worlds-social-network-for-2024/"><u>[New] The Art of Advertising Making Money on the World's Social Network for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-understanding-the-impact-of-macos-11-big-sur-on-users/"><u>[Updated] Understanding the Impact of macOS 11 Big Sur on Users</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-blurring-techniques-for-cleaner-image-edits/"><u>2024 Approved Blurring Techniques for Cleaner Image Edits</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-understanding-instagrams-privacy-features-for-anonymous-livestreams/"><u>2024 Approved Understanding Instagram's Privacy Features for Anonymous Livestreams</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/camera-mastery-meets-excellence-in-design-with-the-huawei-p20-pro-smartphone-evaluation/"><u>Camera Mastery Meets Excellence in Design with the Huawei P20 Pro Smartphone Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-flagships-a-comprehensive-look-at-the-samsung-galaxy-s24-vs-s23-ultra/"><u>Comparing Flagships: A Comprehensive Look at the Samsung Galaxy S24 Vs. S23 Ultra</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-truecaller-application-analysis/"><u>Comprehensive Truecaller Application Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-asus-vivobook-11-ideal-inexpensive-everyday-laptop-choice/"><u>Evaluating the Asus VivoBook 11 - Ideal, Inexpensive Everyday Laptop Choice</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-cutting-edge-of-wellness-tracking-with-amazons-halo-technology/"><u>Exploring the Cutting-Edge of Wellness Tracking with Amazon's Halo Technology</u></a></li>
+<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-oppo-find-n3-flip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Oppo Find X6 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-professional-panoramas-and-cinematography-with-hero5-black/"><u>In 2024, Professional Panoramas & Cinematography with Hero5 Black</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mohu-leaf/"><u>Mohu Leaf</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/moto-g-power-assessment-where-attractiveness-and-incredible-battery-longevity-collide/"><u>Moto G Power Assessment: Where Attractiveness and Incredible Battery Longevity Collide</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolve-no-sound-error-when-your-speaker-is-connected-to-pc-in-windows-os/"><u>Resolve 'No Sound' Error When Your Speaker Is Connected to PC in Windows OS</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-mechanics-of-entry-into-facebooks-localized-spaces/"><u>The Mechanics of Entry Into Facebook's Localized Spaces</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-and-verdict-for-the-xp-pen-artist-16-pro-digital-sketchpad/"><u>Ultimate Guide & Verdict for the XP-Pen Artist 16 Pro Digital Sketchpad</u></a></li>
+</ul></div>
 

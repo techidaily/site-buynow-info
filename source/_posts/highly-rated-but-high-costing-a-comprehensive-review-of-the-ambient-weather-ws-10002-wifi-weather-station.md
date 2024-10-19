@@ -1,7 +1,7 @@
 ---
 title: Highly Rated but High Costing - A Comprehensive Review of the Ambient Weather WS-10002 WiFi Weather Station
-date: 2024-10-10T23:51:51.446Z
-updated: 2024-10-13T01:38:32.068Z
+date: 2024-10-13T06:05:44.827Z
+updated: 2024-10-19T02:56:50.959Z
 categories:
   - BestProducts
 description: This Article Describes Highly Rated but High Costing - A Comprehensive Review of the Ambient Weather WS-10002 WiFi Weather Station
@@ -46,6 +46,13 @@ Lifewire / Jonno Hill
 
 ![ClearStream 2V HDTV Antenna](https://www.lifewire.com/thmb/q2B57F3c717qLOPlnokMF7al1pA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_HeroSquare-b07d5067648049ecb987e39b62796406.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jonno Hill
 
 [View On Amazon $88](https://www.amazon.com/dp/B007RH5GZI/?tag=lifewire-onsite-prod-20&ascsubtag=4843109%7Cn245c3b842cae4efcb285c88c84d3394016%7CB007RH5GZI) [View On Walmart $88](https://www.walmart.com/ip/30312147) [View On Tractor Supply Co. $108](https://www.tractorsupply.com/tsc/product/antennas-direct-clearstream-2v-uhf-vhf-indoor-outdoor-dtv-antenna-with-mount-adic2vcjm?slfpid=3)
@@ -71,14 +78,20 @@ Lifewire / Jonno Hill
 
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/vY1j7QoS0FLwOKNhPlSfR3XMlmo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_02-e97897fe03b74f5faa2eefad3b3b7208.jpg)
 
- Lifewire / Jonno Hill
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Jonno Hill
 
 ## **Design: Glimpsing an ugly future**
 
@@ -88,6 +101,13 @@ Lifewire / Jonno Hill
 
  As you’ll see later though, this is because the ClearStream 2V Indoor/Outdoor HDTV Antenna doesn’t really care about looks. Everything is 100% about function. There are, however, a few little elements from a design perspective that help make the ClearStream a somewhat thoughtful device nonetheless. Once assembled, all the parts fit together nicely like a lego set.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup: Buckle up**
 
  Setup of the ClearStream 2V Indoor/Outdoor HDTV Antenna has by far the most complicated setup of the antennas that I tested in our roundup. The instructions that come included have illustrations that show how everything fits together, but it isn’t outlined in the simplest manner possible.
@@ -95,13 +115,6 @@ Lifewire / Jonno Hill
  Like a piece of IKEA furniture, the specific orientation of a lot of parts matter, even if they appear to fit together multiple ways. The manual doesn’t do a fantastic job of explaining this, and I could see it leading to some frustration. Once you get the cage in place and secured, the rest of it comes together fairly easily though.
 
  Once the entire device is assembled, the real work begins in my opinion. Now you have to figure out how and where to mount this beast of an antenna. Antenna’s Direct has you covered here, including a hefty bracket and swiveling mast that will help you mount the antenna to just about anywhere with a flat surface that you don’t mind screwing some bolts into.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Top tier**
 
@@ -111,31 +124,24 @@ Lifewire / Jonno Hill
 
  In my channel acquisition test, the ClearStream managed 76 channels consistently, far and away the best result from any of the devices I tested. The worst antenna I tested picked up just 47 channels, and the second best, 69\. Needless to say, all the wires, cages, and bulbous plastic spheres are clearly doing something here, because this was the best result I saw.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Range: Extensive**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna is rated for up to 60 miles. These ratings are generally based on relatively unobstructed paths between the signal and your device. There is a lot less than 60 miles between me and my local TV broadcast source, but if the other results are any indication, the ClearStream has a fighting chance at living up to these claims.
 
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/NoQoQy3-EFUpi1z9oMTpD2JGWHQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_04-70f5a48ac9a347d286c71240b85cbc1c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 ## **Price: Performance doesn’t come cheap**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna has a list price of $120 and a 90-day rolling average price on Amazon of $83\. This is significantly more than any of the other antennas I tested, some of which could be had for around $25\. If you live far enough that you need a better performing antenna, however, it could easily be worth every penny. I would only caution buyers to make sure they really do need this performance before pulling the trigger on this very large antenna.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **ClearStream 2V Indoor/Outdoor HDTV Antenna vs 1byone Digital Amplified Indoor HD TV Antenna**
 
@@ -174,24 +180,19 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-chromes-new-soundscape-the-foremost-apps-for-voice-change-exploration-for-2024/"><u>[New] Chrome’s New Soundscape The Foremost Apps for Voice Change Exploration for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-low-end-devices-high-outputs-streamline-with-obs-for-2024/"><u>[New] Low-End Devices, High Outputs Streamline with OBS for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-step-by-step-to-snapchat-stardom-become-a-gif-virtuoso-for-2024/"><u>[Updated] Step-by-Step to Snapchat Stardom Become a GIF Virtuoso for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-masterpiece-creation-in-ae-with-top-tier-plugin-selection/"><u>2024 Approved Masterpiece Creation in AE with Top-Tier Plugin Selection</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-narrative-nexus-honor-roll-hindsight/"><u>2024 Approved Narrative Nexus – Honor Roll Hindsight</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-ultimate-guide-to-15-best-4k-recording-tools/"><u>2024 Approved Ultimate Guide to #15 Best 4K Recording Tools</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/expert-analysis-of-the-asus-b76n-csm-motherboard-how-its-csm-status-elevates-performance/"><u>Expert Analysis of the Asus B76n-CSM Motherboard: How Its CSM Status Elevates Performance</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-honor-play-7t-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Honor Play 7T</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-google-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Google Phone that is Locked?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-spotify-on-track-to-discontinue-their-innovative-car-thing-feature/"><u>Is Spotify on Track to Discontinue Their Innovative 'Car Thing' Feature?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-quick-image-transfer-printer-models-of-2024/"><u>Leading Quick Image Transfer Printer Models of 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/major-league-baseball-tv-goes-digital-mlb-network-launches-affordable-monthly-stream/"><u>Major League Baseball TV Goes Digital: MLB Network Launches Affordable Monthly Stream</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-the-art-of-choosing-games-tips-for-an-overloaded-steam-inventory/"><u>Mastering the Art of Choosing Games: Tips for an Overloaded Steam Inventory</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/nfl-sunday-ticket-fans-get-youtube-enhanced-with-new-viewing-options/"><u>NFL Sunday Ticket Fans Get YouTube Enhanced with New Viewing Options</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/post-excitement-analysis-how-the-steam-deck-is-transforming-play-experiences/"><u>Post-Excitement Analysis: How the Steam Deck Is Transforming Play Experiences</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/redbox-files-for-bankruptcy-ending-its-streaming-service-dream/"><u>Redbox Files for Bankruptcy, Ending Its Streaming Service Dream</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revitalize-your-system-how-software-updates-solve-most-issues/"><u>Revitalize Your System: How Software Updates Solve Most Issues</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionizing-gaming-with-a-curved-ultrawide-display/"><u>Revolutionizing Gaming with a Curved Ultrawide Display</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-beyond-views-a-triadic-approach-to-analyzing-youtube-income/"><u>[New] In 2024, Beyond Views A Triadic Approach to Analyzing YouTube Income</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/build-and-manage-dream-cities-in-cities-skylines-the-game-that-turned-players-into-city-planning-fiends/"><u>Build and Manage Dream Cities in Cities: Skylines - The Game That Turned Players Into City Planning Fiends</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/critical-thoughts-on-restored-computer-purchase/"><u>Critical Thoughts on Restored Computer Purchase</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/effortless-guide-to-reviving-the-deleted-efi-section-in-windows-10-systems/"><u>Effortless Guide to Reviving the Deleted EFI Section in Windows 10 Systems</u></a></li>
+<li><a href="https://android-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-motorola-moto-e13-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Motorola Moto E13 FRP Locks</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-nokia-c210-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Xiaomi Redmi Note 12R? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-itel-p55-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Itel P55 5G?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-step-by-step-guide-to-video-upgrade-version-22/"><u>In 2024, Step-by-Step Guide to Video Upgrade - Version 2.2</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/performance-excellence-with-the-clearstream-ehd-tv-antenna-functional-yet-not-pretty/"><u>Performance Excellence with the ClearStream eHD TV Antenna – Functional Yet Not Pretty</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stay-connected-anywhere-leading-wireless-travel-routers-ranked-best/"><u>Stay Connected Anywhere: Leading Wireless Travel Routers Ranked Best</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-verdict-on-microsofts-dual-screen-phone-expensive-flawed-and-frustrating/"><u>The Verdict on Microsoft's Dual-Screen Phone: Expensive, Flawed & Frustrating</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-6-websites-to-buy-your-next-television-set/"><u>Top 6 Websites to Buy Your Next Television Set</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-vivo-v30-lite-5g-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Vivo V30 Lite 5G | Dr.fone</u></a></li>
 </ul></div>
 
