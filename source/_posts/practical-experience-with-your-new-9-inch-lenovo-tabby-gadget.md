@@ -1,7 +1,7 @@
 ---
 title: Practical Experience with Your New 9-Inch Lenovo Tabby Gadget
-date: 2024-10-15T09:01:15.929Z
-updated: 2024-10-19T04:46:57.886Z
+date: 2024-10-17T16:53:48.956Z
+updated: 2024-10-25T01:09:33.996Z
 categories:
   - BestProducts
 description: This Article Describes Practical Experience with Your New 9-Inch Lenovo Tabby Gadget
@@ -47,23 +47,9 @@ Lifewire / Emily Isaacs
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Kinesis Freestyle2 Blue
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/wuNd6MsZiivoQ99Xm0JHB9iB4Rs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_HeroSquare-99f80025b0254cbebe67ed22575a90c5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -88,18 +74,18 @@ Lifewire / Emily Isaacs
 
 [The Best Ergonomic Keyboards of 2024](https://www.lifewire.com/best-ergonomic-keyboards-4147386)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design and Features: Freestyle2 breaks the mold**
 
  For people who are tethered to their[computers](https://www.lifewire.com/computer-and-laptop-reviews-4102643) , ergonomic keyboards are a must. These keyboards tend to be large thanks to the frequently employed swoop design that opens up the keys to provide additional spacing, so fingers feel less cramped, and a wrist-friendly position that prevents[repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) while typing. These keyboards are typically space hogs, taking up large portions of any surface that they’re placed on, often forcing users to reach further for[mice](https://www.lifewire.com/best-wireless-mice-6666207) . This can lead to shoulder injuries in place of wrist injuries—a trade-off no one wants.
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/C-YK_WPWu8Ujx1fwDLxvO6Epi-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_05-adcddc5fc05b415dbcd82396bc0ada77.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -117,9 +103,23 @@ Lifewire / Emily Isaacs
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/XHY6Xe9cdaO1U6Uj0wDY6rROlcA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_04-7fad98b589454e0388ecf48afe425e8c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  From here, we followed the instructions in the provided instructional pamphlet and enabled Bluetooth on our iPad. After about a minute of scanning, the Kinesis KB800MB-BT keyboard appeared as an available device. We simply tapped to connect. From here, it prompted us to input a numeric code and press return. Once we’d done this, setup was complete.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Features: Efficient hotkeys once you get used to them**
 
@@ -128,13 +128,6 @@ Lifewire / Emily Isaacs
  One pet peeve we had with the keyboard design was the Caps lock key. Instead of having a light on the button itself that glows when the function is enabled, this light is placed alongside the Bluetooth connectivity lights on the right-hand side of the keyboard. While this isn’t the end of the world by any means, it’s less intuitive since you need to retrain yourself on where to look to see if it’s enabled. Additionally, you should be aware that leaving this button on or using it frequently can lead to faster battery drain.
 
  Its split design is comfortable, following the natural arc of your fingers and hands as they rest upon its keys.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Battery: Plenty of juice so you’re never in a bind**
 
@@ -147,6 +140,13 @@ Lifewire / Emily Isaacs
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/vncgu0FEgBJ69UL6H8BjQ2QoGRI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_03-9055476d1d974c8bbe9b1c39d479b300.jpg)
 
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Kinesis Freestyle2 Blue vs. Microsoft Sculpt Ergonomic Keyboard**
 
@@ -197,14 +197,17 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/updated-the-freedom-from-costs-in-final-cut-pro/"><u>[Updated] The Freedom From Costs in Final Cut Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-garmin-forerunner-45-gps-running-watch/"><u>Expert Analysis of the Garmin Forerunner 45 GPS Running Watch</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-picks-top-scanning-solutions-for-your-memories-and-worksheets-2024-edition/"><u>Expert Picks: Top Scanning Solutions for Your Memories and Worksheets - 2024 Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-combination-of-traditional-elegance-and-current-enhancements-in-samsungs-galaxy-watch3-review/"><u>Exploring the Combination of Traditional Elegance and Current Enhancements in Samsung's Galaxy Watch3 Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/guide-sharing-your-gaming-library-with-pals-on-xbox-one/"><u>Guide: Sharing Your Gaming Library with Pals on Xbox One</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-do-you-remove-restricted-mode-on-apple-iphone-8-by-drfone-ios/"><u>In 2024, How Do You Remove Restricted Mode on Apple iPhone 8</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-itel-a60-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Itel A60 | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solved-overcoming-the-hurdle-of-launching-steam-games-on-windows-11/"><u>Solved! Overcoming the Hurdle of Launching Steam Games on Windows 11</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-quick-winner-guide-how-to-make-money-on-reddit-in-just-a-click/"><u>The Quick-Winner Guide How to Make Money on Reddit in Just a Click</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-cost-breakdown-for-youtube-ads/"><u>[New] In 2024, Cost Breakdown for YouTube Ads</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-your-blueprint-for-broadcasting-live-on-facebook/"><u>[Updated] 2024 Approved Your Blueprint for Broadcasting Live on Facebook</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-hashtag-wisdom-uncovering-the-best-tags-to-dominate-on-instagram/"><u>[Updated] In 2024, Hashtag Wisdom Uncovering the Best Tags to Dominate on Instagram</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-the-ultimate-guide-to-swift-and-smooth-ipad-recordings/"><u>2024 Approved The Ultimate Guide to Swift and Smooth iPad Recordings</u></a></li>
+<li><a href="https://extra-information.techidaily.com/exclusive-list-of-e-commerce-sites-for-one-of-a-kind-boxed-gifts/"><u>Exclusive List of E-Commerce Sites for One-of-a-Kind Boxed Gifts</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-oppo-reno-11f-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Oppo Reno 11F 5G PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/superior-puppy-vision-the-exclusive-furbo-dog-cam-breakdown/"><u>Superior Puppy Vision – The Exclusive Furbo Dog Cam Breakdown</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-tutorial-leveraging-the-preview-app-for-stunning-image-edits-on-macos/"><u>The Ultimate Tutorial: Leveraging the Preview App for Stunning Image Edits on macOS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-tips-for-optimal-placement-of-your-ps4-webcam/"><u>Top Tips for Optimal Placement of Your PS4 Webcam</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-walkthrough-and-review-of-the-stellaris-galactic-saga/"><u>Ultimate Walkthrough & Review of the Stellaris Galactic Saga</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unleashing-creativity-in-hd-windows-powered-visionary-editing-and-viewing-for-2024/"><u>Unleashing Creativity in HD Windows-Powered Visionary Editing & Viewing for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-lenovo-yoga-a940-a-series-detailed-review-of-specs-usability-and-design/"><u>Unveiling the Lenovo Yoga A940 ([A Series]): Detailed Review of Specs, Usability & Design</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Performance and Hardiness Testing for the CAT S42 Mobile Device: Sturdy but Not Swift"
-date: 2024-10-16T11:05:12.430Z
-updated: 2024-10-18T18:42:58.816Z
+date: 2024-10-23T04:51:43.329Z
+updated: 2024-10-24T21:02:39.479Z
 categories:
   - BestProducts
 description: "This Article Describes Performance and Hardiness Testing for the CAT S42 Mobile Device: Sturdy but Not Swift"
@@ -91,6 +91,13 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **Who else recommends it?** Digital Trends, TechRadar, CNET, ZDNet, and PCMag all recommend the Apple Watch Series 9.
 * **What do buyers think?** The Apple Watch Series 9 has over 2,400 ratings on Amazon, with 83% of those giving the watch five stars for an average rating of 4.7 out of 5.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Best Android Smartwatch
 
 [Samsung Galaxy Watch 6](https://www.amazon.com/SAMSUNG-Bluetooth-Smartwatch-Personalized-Advanced/dp/B0C792QRW6/?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0C792QRW6)
@@ -102,13 +109,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 [$190 at Amazon](https://www.amazon.com/SAMSUNG-Bluetooth-Smartwatch-Personalized-Advanced/dp/B0C792QRW6/?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0C792QRW6) [$229 at Walmart](https://www.walmart.com/ip/Samsung-Galaxy-Watch6-Smart-Watch-40mm-Small-Bluetooth-Graphite/3074183240?slpfid=3) [$300 at Samsung](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fus%2Fwatches%2Fgalaxy-watch6%2Fbuy%2F)
 
 **TL;DR:** Sleek and stylish, the Samsung Galaxy Watch 6 has some great features provided you’re an Android phone owner. Its body composition tool is a particular highlight.
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Why We Recommend This
 
@@ -140,13 +140,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **Who else recommends it?** TechRadar, BuzzFeed, PCMag, T3, Tom’s Guide, and Digital Trends all recommend the Samsung Galaxy Watch 6\.
 * **What do buyers think?** The Samsung Galaxy Watch 6 has over 3,900 ratings on Amazon, with 88% of those rating the watch either five or four stars. The overall average rating is 4.5 out of 5.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Easiest on the Budget
 
 [Garmin Vivoactive 5](https://www.amazon.com/Garmin-v%C3%ADvoactive-Fitness-Smartwatch-Display/dp/B0CG6NR413?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CG6NR413)
@@ -160,10 +153,16 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 **TL;DR:** More affordable than most Garmin watches, the Garmin Vivoactive 5 offers all the key features while not looking too sporty.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Why We Recommend This
@@ -198,6 +197,13 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **Who else recommends it?** PCMag, CNET, Trusted Reviews, Tom’s Guide, and Digital Trends recommend the Garmin Vivoactive 5.
 * **What do buyers think?** The Garmin Vivoactive 5 has over 1,800 ratings on Amazon, with 76% of them rating it five or four stars. Its average rating is 4.4 out of 5.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How We Test
 
  I reviewed each smartwatch based on the following factors:
@@ -212,13 +218,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
  I used all the devices for several weeks, with some smartwatches used for months. I wore them daily while working, exercising, relaxing, and asleep.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What to Look For
 
  Buying a smartwatch involves finding the right balance between looks and practicality. Consider where you plan on wearing it, such as in the office or when walking, and plan accordingly.
@@ -230,6 +229,13 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 [The Best Running Watches of 2024](https://www.lifewire.com/best-running-watches-8681631)
 
 [The Best Fitness Trackers of 2024](https://www.lifewire.com/best-fitness-trackers-8656291)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Other Smartwatches We Reviewed
 
@@ -266,20 +272,20 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-beginners-vlogging-toolkit-gear-and-software/"><u>[New] 2024 Approved Beginner's Vlogging Toolkit Gear and Software</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-ultimate-10-accessory-collection-for-sj4000/"><u>[Updated] In 2024, The Ultimate 10 Accessory Collection for SJ4000</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-optimize-youtube-watch-experience-boostslow-down-feature-usage/"><u>[Updated] Optimize YouTube Watch Experience Boost/Slow Down Feature Usage</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/a-comprehensive-guide-to-apple-iphone-15-blacklist-removal-tips-and-tools-drfone-by-drfone-ios/"><u>A Comprehensive Guide to Apple iPhone 15 Blacklist Removal Tips and Tools | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/free-download-complete-guide-to-corsair-mouse-setup-and-optimization/"><u>Free Download: Complete Guide to Corsair Mouse Setup & Optimization</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-step-by-step-perfecting-fbs-360-streams/"><u>In 2024, Step-by-Step Perfecting FB's 360 Streams</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-realme-v30-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Realme V30 Android SIM Unlock APK</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-map-my-ride-cycling-tracker/"><u>In-Depth Analysis of the Map My Ride Cycling Tracker</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/introducing-amazon-halo-a-revolutionary-approach-to-personal-fitness-monitoring/"><u>Introducing Amazon Halo – A Revolutionary Approach to Personal Fitness Monitoring</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-ups-solutions-ranked-the-ultimate-guide/"><u>Leading UPS Solutions Ranked: The Ultimate Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/lg-gram-17-takes-laptop-game-by-storm-a-detailed-look-at-this-ultra-lightweight-high-performing-device/"><u>LG Gram 17 Takes Laptop Game by Storm: A Detailed Look at This Ultra-Lightweight, High-Performing Device</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/outshining-competitors-a-comprehensive-look-at-nokias-impressive-model-72/"><u>Outshining Competitors: A Comprehensive Look at Nokia's Impressive Model 7.2</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/outstanding-and-budget-friendly-fossil-brand-evaluation/"><u>Outstanding and Budget-Friendly Fossil Brand Evaluation</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/top-5-gif-making-software-with-the-highest-ratings-for-2024/"><u>Top 5 GIF Making Software with the Highest Ratings for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/what-is-xinput13dll-and-what-to-do-when-its-missing/"><u>What Is XINPUT1_3.dll (and What to Do When It's Missing)</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-mastering-clear-webcam-footage-recording-and-editing-tips/"><u>[New] Mastering Clear Webcam Footage Recording & Editing Tips</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/enhancing-visual-content-descriptions-chatgpts-perspective/"><u>Enhancing Visual Content Descriptions (ChatGPT's Perspective)</u></a></li>
+<li><a href="https://win11.techidaily.com/epic-launcher-stability-stop-crashes-and-freezes-on-pcs/"><u>Epic Launcher Stability: Stop Crashes & Freezes on PCs</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/exhaustive-overview-insights-into-googles-podcast-application/"><u>Exhaustive Overview Insights Into Google's Podcast Application</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Oppo Find X6 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Samsung Galaxy F14 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Honor Magic 6 Pro? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-image-stabilization-in-sony-hdrcx405-camcorder/"><u>Innovative Image Stabilization in Sony HDRCX405 Camcorder</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-network-servers-stacks-and-cases-expert-reviews/"><u>Leading Network Servers Stacks & Cases - Expert Reviews</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/luxurious-design-and-ingenuity-in-the-latest-michael-kors-access-gen-5e-mkgo-watch-review/"><u>Luxurious Design and Ingenuity in the Latest Michael Kors Access Gen 5E MKGO Watch Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/making-smart-choices-7-crucial-motherboard-features/"><u>Making Smart Choices: 7 Crucial Motherboard Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximize-your-gameplay-the-asus-vg245h-monitor-unleashed/"><u>Maximize Your Gameplay: The Asus VG245H Monitor Unleashed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-your-network-an-in-depth-review-of-the-linksys-wrt1900acs-open-source-router/"><u>Maximizing Your Network: An In-Depth Review of the Linksys WRT1900ACS Open Source Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/modern-elegance-unveiling-the-stylish-features-of-taotronics-tt-dl16-led-lamp/"><u>Modern Elegance: Unveiling the Stylish Features of TaoTronics TT-DL16 LED Lamp</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/ultimate-guide-to-the-best-outboard-bd-drives/"><u>Ultimate Guide to the Best Outboard BD Drives</u></a></li>
 </ul></div>
 

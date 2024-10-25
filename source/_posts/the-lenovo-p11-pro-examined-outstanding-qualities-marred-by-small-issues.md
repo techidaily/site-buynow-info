@@ -1,7 +1,7 @@
 ---
 title: "The Lenovo P11 Pro Examined: Outstanding Qualities Marred by Small Issues"
-date: 2024-10-12T17:28:08.675Z
-updated: 2024-10-19T04:40:35.801Z
+date: 2024-10-21T04:39:25.465Z
+updated: 2024-10-25T05:21:41.299Z
 categories:
   - BestProducts
 description: "This Article Describes The Lenovo P11 Pro Examined: Outstanding Qualities Marred by Small Issues"
@@ -41,15 +41,34 @@ Lifewire / Rebecca Isaacs
 
 4.6
 
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Ergodriven Topo Standing Desk Mat
 
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/GZTKidZtByl51GvkYiB-jNjEjbE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Ergodriven-Topo-Comfort-Mat-1-ccd96f7c454945c3b974a2f5cba4fe79.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
@@ -74,13 +93,26 @@ Lifewire / Rebecca Isaacs
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/KYfJPJ0jHZhmy15IUeGxDL8kmRw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ergodriven-Topo-Comfort-Mat-2-547d9823c4ac47cbb5a360040866172a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Simply modern**
 
@@ -89,13 +121,6 @@ Lifewire / Rebecca Isaacs
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/0MLp0JKyXodrqDxUdun30XlUicQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ergodriven-Topo-Comfort-Mat-3-5e85cbed72974e018684fe954f0ddf1b-75abe4f41eba41c3b202cdf74fbf3caa.jpg)
 
 Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Flawed, but still solid**
 
@@ -116,13 +141,6 @@ Lifewire / Rebecca Isaacs
  At around $100 on Amazon, the Topo is in the higher price range for a standing desk mat. We could find models that don’t have the massage mound in the center, however, the steep power wedges in the back make it a reasonable investment for anyone who really wants to stretch out their legs.
 
  For a standing desk mat with some exercise features, the Ergodriven Topo is a fairly decent choice.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Topo Ergodriven vs. CubeFit TerraMat**
 
@@ -163,19 +181,24 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-preeminent-online-spaces-enhancing-youtube-traffic/"><u>[New] Preeminent Online Spaces Enhancing YouTube Traffic</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-swift-cinematic-skills-the-quickest-5-diy-hacks-for-success/"><u>[New] Swift Cinematic Skills The Quickest 5 DIY Hacks for Success</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-rotibox-beanie-hat-the-ultimate-guide-to-a-warm-stylish-and-high-fidelity-wireless-experience/"><u>Comprehensive Analysis of the Rotibox Beanie Hat: The Ultimate Guide to a Warm, Stylish, and High-Fidelity Wireless Experience</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/essential-steps-to-reset-and-refresh-your-windows-11-computer/"><u>Essential Steps to Reset and Refresh Your Windows 11 Computer</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-lava-agni-2-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Lava Agni 2 5G to New Phone | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-skyrocket-engagement-with-youtubes-powerful-featured-channels-strategy/"><u>In 2024, Skyrocket Engagement with Youtube’s Powerful Featured Channels Strategy</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-sony-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Sony Phone Password Without Factory Reset Full Guide Here</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-your-current-ipad-model-falling-behind-the-times/"><u>Is Your Current iPad Model Falling Behind the Times?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revving-up-a-comprehensive-listing-of-best-car-code-books-and-articles-released-so-far-in-new-york-city-book-four-of-fourth-series-rev/"><u>Revving Up: A Comprehensive Listing Of Best Car Code Books And Articles Released So Far In New York City, Book Four of Fourth Series (Rev.)</u></a></li>
-<li><a href="https://win-docs.techidaily.com/step-by-step-solution-changing-partition-scheme-on-your-usb-flash-failed-attempts/"><u>Step-by-Step Solution: Changing Partition Scheme on Your USB Flash Failed Attempts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-premier-selection-of-best-selling-handheld-consoles-year-in-review-2024/"><u>The Premier Selection of Best-Selling Handheld Consoles - Year In Review 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-synologys-rt2600ac-exceptional-long-range-wi-fi-and-built-in-parental-controls-unveiled/"><u>The Ultimate Guide to Synology's RT2600ac: Exceptional Long Range Wi-Fi & Built-In Parental Controls Unveiled</u></a></li>
-<li><a href="https://win-docs.techidaily.com/understanding-the-essentials-of-data-integrity-significance-and-implementation-strategies/"><u>Understanding the Essentials of Data Integrity: Significance & Implementation Strategies</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On OnePlus 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-chat-enhancement-course-turning-your-graphics-into-social-media-stickers/"><u>2024 Approved Chat Enhancement Course Turning Your Graphics Into Social Media Stickers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-smartphone-security-systems-apples-x-vs-samsungs-facial-tech/"><u>2024 Approved Smartphone Security Systems Apple’s X Vs. Samsung's Facial Tech</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-tecno-phantom-v-fold-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/advance-your-skills-with-improved-fps-techniques-in-tainted-grail-conquest/"><u>Advance Your Skills with Improved FPS Techniques in 'Tainted Grail: Conquest'</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/easy-guide-to-recording-live-tv-and-streams-on-your-computer/"><u>Easy Guide to Recording Live TV & Streams on Your Computer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-more-for-less-discover-the-ultimate-oneplus-prime-day-sales/"><u>Get More for Less: Discover the Ultimate OnePlus Prime Day Sales!</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-realme-11-5g-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Realme 11 5G?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hp-stream-14-in-depth-analysis-affordable-windows-laptop-with-trade-offs/"><u>HP Stream 14 In-Depth Analysis: Affordable Windows Laptop with Trade-Offs</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-top-5-time-lapse-screen-recorder/"><u>In 2024, Top 5 Time-Lapse Screen Recorder</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-imac-with-m1-experience-enhanced-performance-and-sleek-design/"><u>In-Depth Analysis of the iMac with M1: Experience Enhanced Performance & Sleek Design</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ipad-pro-vs-macbook-pro-a-thorough-showdown-for-tech-enthusiasts/"><u>IPad Pro Vs. MacBook Pro: A Thorough Showdown for Tech Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/j5s-pro-model-flashlight-version-1-unleashed-a-detailed-assessment-on-its-sturdy-small-sized-radiance/"><u>J5's Pro Model Flashlight Version 1 Unleashed - A Detailed Assessment on Its Sturdy, Small-Sized Radiance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/jabra-talk-45-insight-enhanced-clarity-prolonged-energy/"><u>Jabra Talk 45 Insight: Enhanced Clarity, Prolonged Energy</u></a></li>
+<li><a href="https://blog-min.techidaily.com/les-meilleurs-apps-de-taille-agrandie-des-photos-pour-optimiser-vos-albums-numeriques-en-francais/"><u>Les Meilleurs Apps De Taille Agrandie Des Photos Pour Optimiser Vos Albums Numériques en Français</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/manfrotto-befree-pro-series-elite-adjustable-tripod/"><u>Manfrotto Befree Pro Series: Elite Adjustable Tripod</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/master-the-art-of-tablet-selection-with-emphasis-on-size-and-weight-criteria/"><u>Master the Art of Tablet Selection with Emphasis on Size & Weight Criteria</u></a></li>
+<li><a href="https://games-able.techidaily.com/master-the-artillery-essential-online-fps-browser-gaming-tips/"><u>Master the Artillery: Essential Online FPS Browser Gaming Tips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/minecraft-overview-crafting-adventure-and-creativity-for-all-age-groups/"><u>Minecraft Overview: Crafting, Adventure & Creativity for All Age Groups</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/step-by-step-guide-retrieve-your-accidentally-removed-pictures-on-instagram/"><u>Step-by-Step Guide: Retrieve Your Accidentally Removed Pictures on Instagram</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Comprehensive BLH4100 Blade FPV RTF Indoor/Outdoor Copter Evaluation
-date: 2024-10-17T05:40:12.983Z
-updated: 2024-10-19T03:55:13.787Z
+date: 2024-10-24T04:35:01.112Z
+updated: 2024-10-24T21:17:06.818Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive BLH4100 Blade FPV RTF Indoor/Outdoor Copter Evaluation
@@ -46,13 +46,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jeffrey Daniel Chadwick
 
 [View On Amazon $100](https://www.amazon.com/Kensun-Performance-Portable-Compressor-Inflator/dp/B01J8Y91GC/?tag=lifewire-onsite-prod-20&ascsubtag=4776821%7Cn7137248c5e6f4b0b979879dcac87fc7908%7CB01J8Y91GC)
@@ -76,10 +69,10 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design and Features: Maximum portability, but not maximum flexibility**
@@ -110,6 +103,13 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Reliable, accurate, quick and loud**
 
  When we tested the tire inflator, we took it on a road trip that took us to the states of Nevada, Utah, Idaho, and Wyoming. Along the way, we stopped at rural rest areas and gas stations. In order to use them in the circumstances, they were designed for. Throughout it all, the Kensun Portable Tire Inflator never failed to work when we needed it.
@@ -131,10 +131,10 @@ Lifewire / Jeffrey Daniel Chadwick
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A decent buy considering its versatility**
@@ -142,16 +142,10 @@ Lifewire / Jeffrey Daniel Chadwick
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
@@ -193,18 +187,20 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-benq-bl2711u-the-artisans-choice-for-high-end-4k-display-enthusiasts/"><u>[New] BenQ BL2711U - The Artisan's Choice for High-End 4K Display Enthusiasts</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-top-2023-ps3-emulators-for-enhanced-gaming/"><u>[New] Top 2023 Ps3 Emulators for Enhanced Gaming</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-quick-steps-to-record-movies-on-your-tech-devices/"><u>[Updated] In 2024, Quick Steps to Record Movies on Your Tech Devices</u></a></li>
-<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-lava-yuva-3-pro-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Lava Yuva 3 Pro Wont Charge | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-saving-your-hangout-participation/"><u>2024 Approved Saving Your Hangout Participation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/advancing-laptop-display-with-new-graphics-cards/"><u>Advancing Laptop Display with New Graphics Cards</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/budget-meets-feature-in-the-nokia-71-premium-screen-and-camera-quality-worth-noting/"><u>Budget Meets Feature in the Nokia 7.1 - Premium Screen & Camera Quality Worth Noting</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comparing-top-tablets-amazon-fire-and-apple-ipad-which-one-suits-you-best/"><u>Comparing Top Tablets: Amazon Fire and Apple iPad - Which One Suits You Best?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/intriguingly-intimate-diving-into-amazons-revolutionary-fitness-gadget/"><u>Intriguingly Intimate - Diving Into Amazon's Revolutionary Fitness Gadget</u></a></li>
-<li><a href="https://network-issues.techidaily.com/mastered-gpu-settings-entry-point/"><u>Mastered: GPU Settings Entry Point</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mlb-the-show-19-analysis-stunning-visual-presentation-meets-unexpected-rpg-features/"><u>MLB The Show 19 Analysis: Stunning Visual Presentation Meets Unexpected RPG Features</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1723007173552-pc-gamers-conquer-stray-crashes-with-these-6-effective-remedies/"><u>PC Gamers, Conquer Stray Crashes with These 6 Effective Remedies!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unleash-high-speed-connectivity-and-slim-latency-with-the-innovative-extollo-lansocket-1500-reviewed/"><u>Unleash High-Speed Connectivity & Slim Latency with the Innovative Extollo LANSocket 1500 Reviewed!</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-audio-capturing-in-android-without-rooting-guide/"><u>[New] In 2024, Audio Capturing in Android - Without Rooting [Guide]</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-how-to-embed-a-youtube-playlist-on-a-website/"><u>[Updated] How to Embed A YouTube Playlist On a Website</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/10-best-webcam-recorders-windows-10-for-2024/"><u>10 Best Webcam Recorders Windows 10 for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/buzzword-bonanza-a-quick-guide-to-understanding-smart-acronyms/"><u>Buzzword Bonanza: A Quick Guide to Understanding SMART Acronyms</u></a></li>
+<li><a href="https://common-error.techidaily.com/diagnosing-and-repairing-non-functional-fn-buttons-on-an-asus-notebook/"><u>Diagnosing and Repairing Non-Functional Fn Buttons on an ASUS Notebook</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-vivo-x-fold-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Vivo X Fold 2 | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-transform-your-devices-tone-swiftly-with-these-leading-chrome-apps/"><u>In 2024, Transform Your Device's Tone Swiftly With These Leading Chrome Apps</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/remove-the-lock-screen-fingerprint-of-your-google-pixel-7a-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Google Pixel 7a</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-tech-marvel-samsung-galaxy-buds-pro-reviewed/"><u>The Tech Marvel: Samsung Galaxy Buds Pro Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-using-photoscape-for-professional-yet-budget-friendly-image-editing/"><u>The Ultimate Guide to Using Photoscape for Professional, Yet Budget-Friendly Image Editing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-ranking-linkedin-learning-classes/"><u>Top-Ranking LinkedIn Learning Classes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-amazonbasics-7-port-usb-30-hub-top-reviews-and-features/"><u>Ultimate Guide to AmazonBasics 7-Port USB 3.0 Hub - Top Reviews & Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-samsung-cf591-gaming-performance-and-value-assessment/"><u>Ultimate Guide: Samsung CF591 Gaming Performance and Value Assessment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-the-third-generation-apple-tv-4k-streamer/"><u>Unboxing and Testing the Third Generation Apple TV 4K Streamer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unfolding-the-potential-and-pitfalls-of-the-new-lenovo-thinkpad-x1-fold-laptop/"><u>Unfolding the Potential and Pitfalls of the New Lenovo ThinkPad X1 Fold Laptop</u></a></li>
 </ul></div>
 

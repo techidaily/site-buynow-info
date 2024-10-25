@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of WebEx's Strengths and Weaknesses in Online Meetings
-date: 2024-10-14T07:03:35.704Z
-updated: 2024-10-19T02:04:04.135Z
+date: 2024-10-17T18:09:54.555Z
+updated: 2024-10-25T02:07:24.436Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of WebEx's Strengths and Weaknesses in Online Meetings
@@ -41,23 +41,9 @@ Lifewire / Jordan Oloman
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Netgear Powerline PL1200
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/rYExgRawgStvNWLyEyCyiiEqyOI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_HeroSquare-d40232740fc34cdbb9b7197a7bda177d.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jordan Oloman
 
@@ -85,6 +71,13 @@ Lifewire / Jordan Oloman
 
  Lifewire / Jordan Oloman
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Sharp edges and frustration**
 
  The Netgear Powerline 1200 kit doesn’t really care about your living room or bedroom aesthetic. It’s a monolithic, white glossy plastic box that juts out of the wall. If you’re looking for something inoffensive and reserved, the Netgear offering doesn’t deliver. The edges are sharp and the adapter is quite large in order to house all of the technology and the Ethernet sockets necessary to complete the network.
@@ -102,10 +95,10 @@ Lifewire / Jordan Oloman
  Lifewire / Jordan Oloman
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Delightfully quick and efficient**
@@ -124,6 +117,13 @@ Lifewire / Jordan Oloman
 
  Lifewire / Jordan Oloman
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: A solid improvement**
 
  Using the device across our living room and bedroom, in two different setups across the course of a month, we found that the Netgear Powerline kit gave us a reliable upgrade to internet efficiency. Our initial connection speed (as per[Speedtest](https://www.speedtest.net/) ) offered a 68.4Mbps download speed, with 3.60Mbps upload speed, and sub-10-millisecond ping. The Netgear kit with an Ethernet cable attached to our laptop afforded us an 88Mbps download speeds and 6Mbps upload speeds.
@@ -136,16 +136,16 @@ Lifewire / Jordan Oloman
 
  You can create a secure and powerful network that boasts a dramatic upgrade in efficacy, all for a low price point, with a setup process that is actually plug and play.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Affordable for what you get**
 
  Out of the adapters we tested, the Netgear Powerline 1200 was one of the cheaper ones on Amazon, ranging between $70-$85\. You can see why when you study the design and the many aesthetic flaws that come with this product. Besides the fact it is bulky and doesn’t play nice with other plugs, it’s a reliable means to improve your home network through the wonders of Powerline. It’s still quite a hard sell at this price compared to other products that hover around the same and offer more ports and socket functionality, but it’s still a worthwhile purchase if you just want to plug and play.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Netgear Powerline 1200 vs. TP-Link AV2000 Powerline Adapter**
 
@@ -185,14 +185,21 @@ Lifewire / Jordan Oloman
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-the-secrets-of-seamless-zoom-communication-hacks-for-productive-remote-engagement/"><u>[New] In 2024, The Secrets of Seamless ZOOM Communication Hacks for Productive Remote Engagement</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-expert-strategies-for-home-based-podcast-recordings/"><u>[Updated] In 2024, Expert Strategies for Home-Based Podcast Recordings</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unveiling-channels-to-zero-cost-image-frames/"><u>[Updated] Unveiling Channels to Zero-Cost Image Frames</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elgoog-decoded-insights-into-googles-quirky-doppelganger-and-its-features-compared-to-the-search-giant/"><u>ElgooG Decoded: Insights Into Google's Quirky Doppelganger and Its Features Compared to The Search Giant</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/embrace-rejuvenating-slumber-unveiling-the-ihome-zenergy-sleep-aid-masterclass/"><u>Embrace Rejuvenating Slumber: Unveiling the IHome Zenergy Sleep Aid Masterclass</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/enjoy-vivid-visuals-on-a-tough-screen-the-sunbritetv-55-built-to-endure-and-excellent-in-4k-quality/"><u>Enjoy Vivid Visuals on a Tough Screen - The SunBriteTV 55, Built to Endure & Excellent in 4K Quality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/essential-guide-to-selecting-the-perfect-usb-wi-fi-receiver/"><u>Essential Guide to Selecting the Perfect USB Wi-Fi Receiver</u></a></li>
-<li><a href="https://common-error.techidaily.com/handling-and-solving-google-chrome-freezing-errors-solutions-overview/"><u>Handling and Solving Google Chrome Freezing Errors - Solutions Overview</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/navigating-through-the-challenges-and-hazards-of-artificial-intelligence/"><u>Navigating Through the Challenges and Hazards of Artificial Intelligence</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-comprehensive-guide-record-webcam-in-hd-via-vlc/"><u>[New] 2024 Approved Comprehensive Guide Record Webcam in HD via VLC</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-best-in-class-music-video-platforms-for-2024/"><u>[Updated] Best-in-Class Music Video Platforms for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-finns-fiscal-flow-income-insights-from-youtube-icon/"><u>[Updated] Finn's Fiscal Flow Income Insights From YouTube Icon</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-elite-metaverse-visor-choices-the-top-8-list/"><u>[Updated] In 2024, Elite Metaverse Visor Choices The Top 8 List</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-sparkling-vibrancy-the-android-video-brightening-guide/"><u>[Updated] In 2024, Sparkling Vibrancy The Android Video Brightening Guide</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discover-the-best-photoshop-free-editing-tools-top-6-picks/"><u>Discover the Best Photoshop-Free Editing Tools: Top 6 Picks</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/elevate-your-chat-with-discord-recording-techniques-for-2024/"><u>Elevate Your Chat with Discord Recording Techniques for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-how-the-samsung-galaxy-watch-active-is-revolutionizing-personal-health-monitoring/"><u>Expert Review: How the Samsung Galaxy Watch Active Is Revolutionizing Personal Health Monitoring</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-take-on-the-creative-labs-sound-blaster-zxr-2013-a-must-have-for-audio-enthusiasts/"><u>Expert Take on the Creative Lab's Sound Blaster ZxR (2013) - A Must-Have for Audio Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-best-features-in-nixplay-seed-smart-frames/"><u>Exploring the Best Features in Nixplay Seed Smart Frames</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/garmin-forerunner-745-review-a-premium-multisport-fitness-tracker/"><u>Garmin Forerunner 745 Review: A Premium Multisport Fitness Tracker</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-tab-s5e-top-of-the-line-android-tablet-unveiled/"><u>In-Depth Analysis of the Samsung Galaxy Tab S5e: Top-of-the-Line Android Tablet Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-apples-homepod-mini-features-on-music-and-siri/"><u>In-Depth Evaluation of Apple's HomePod Mini: Features on Music & Siri</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-mlb-the-show-19-analysis-beautiful-sportscraft-meets-unforeseen-role-playing-elements/"><u>In-Depth MLB The Show 19 Analysis: Beautiful Sportscraft Meets Unforeseen Role-Playing Elements</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/increasing-video-popularity-persisting-with-cc-on-youtube-for-2024/"><u>Increasing Video Popularity Persisting with CC on YouTube for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/modifying-password-policy-update-lockout-value-post-incorrect-attempts/"><u>Modifying Password Policy: Update Lockout Value Post Incorrect Attempts</u></a></li>
 </ul></div>
 

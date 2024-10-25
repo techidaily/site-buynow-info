@@ -1,7 +1,7 @@
 ---
 title: Syma S107G RC Helicopter Review
-date: 2024-10-12T20:33:45.014Z
-updated: 2024-10-18T20:49:41.671Z
+date: 2024-10-22T01:15:20.254Z
+updated: 2024-10-25T01:18:00.986Z
 categories:
   - BestProducts
 description: This Article Describes Syma S107G RC Helicopter Review
@@ -44,29 +44,9 @@ Lifewire / Andy Zahn
 
 4.3
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -112,22 +92,15 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Battery life: No worries**
@@ -144,6 +117,19 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Autofocus: Blazing fast**
 
  We were shocked by how fast and consistent the autofocus is in the SX70 HS, even in low-light situations. It rarely fails to lock on to your intended subject, and focus tracking works flawlessly.
@@ -153,10 +139,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
@@ -203,6 +189,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -234,6 +227,13 @@ Lifewire / Andy Zahn
  **A tremendously fun camera that is exceedingly well-rounded if a bit pricey.**
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -275,24 +275,15 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-best-practices-elevating-your-virtual-identity-on-facebook-for-2024/"><u>[New] Best Practices Elevating Your Virtual Identity on Facebook for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-how-to-change-your-voice-on-instagram/"><u>[New] How to Change Your Voice on Instagram?</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-mastering-iphoneipad-premium-podcast-recording-tips/"><u>[New] Mastering iPhone/iPad Premium Podcast Recording Tips</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-instant-guide-to-a-one-time-exit-tiktoks-goodbye/"><u>[Updated] 2024 Approved Instant Guide to a One-Time Exit TikTok's Goodbye</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-revolutionizing-fun-vr-applications-unveiled-for-2024/"><u>[Updated] Revolutionizing Fun VR Applications Unveiled for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-starting-with-social-giving-best-practices-for-fb-posts/"><u>[Updated] Starting with Social Giving Best Practices for FB Posts</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-elevate-your-gaming-experience-with-fbx-recording-tips/"><u>2024 Approved Elevate Your Gaming Experience with FBX Recording Tips</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-radar-detectors-for-budget-conscious-motorists-check-out-our-s55-analysis-from-scratch-to-screen/"><u>Affordable Radar Detectors for Budget-Conscious Motorists - Check Out Our 'S55' Analysis From Scratch to Screen</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-docooler-usb-20-camera-with-12mp-sensor-beyond-expectations/"><u>Comprehensive Analysis of the Docooler USB 2.0 Camera with 12MP Sensor - Beyond Expectations?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-amazon-fire-tv-cube-accelerated-streaming-device-appraisal/"><u>Comprehensive Guide to Amazon Fire TV Cube: Accelerated Streaming Device Appraisal</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-google-nest-wifi-fast-and-effortless-homewide-connectivity/"><u>Comprehensive Review of the Google Nest Wifi: Fast & Effortless Homewide Connectivity</u></a></li>
-<li><a href="https://win-dash.techidaily.com/enable-av1-codec-in-plex-media-server-a-comprehensive-guide/"><u>Enable AV1 Codec in Plex Media Server – A Comprehensive Guide</u></a></li>
-<li><a href="https://change-location.techidaily.com/honor-100-pro-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor 100 Pro Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-11x-5g-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Realme 11X 5G Phone without Any Data Loss</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-star-wars-squadrons-the-ultimate-guide-to-interstellar-battles/"><u>In-Depth Analysis of Star Wars: Squadrons - The Ultimate Guide to Interstellar Battles</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/protecting-your-macbook-pro-without-breaking-the-bank-a-critical-look-at-procases-affordable-option/"><u>Protecting Your MacBook Pro Without Breaking the Bank: A Critical Look at ProCase's Affordable Option</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/site-local-multicast-addresses-are-not-intended-for-routing-beyond-a-single-site/"><u>Site-Local Multicast Addresses Are Not Intended for Routing Beyond a Single Site.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-tranquil-turntables-and-listeners-hats/"><u>Top Tranquil Turntables & Listeners' Hats</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/understanding-the-distinctions-of-kindle-and-fire-tablets-by-amazon/"><u>Understanding the Distinctions of Kindle and Fire Tablets by Amazon</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-soundwave-success-adding-audio-to-your-instastory-for-2024/"><u>[New] Soundwave Success Adding Audio to Your InstaStory for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-quantum-leap-for-laptops-the-2020-apple-macbook-pro-with-m1-chip-comprehensive-review-and-verdict/"><u>A Quantum Leap for Laptops: The 2020 Apple MacBook Pro with M1 Chip – Comprehensive Review and Verdict</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-flight-experience-with-the-syma-x5c-remote-controlled-quadcopter-a-detailed-analysis/"><u>Affordable Flight Experience with the SYMA X5C Remote Controlled Quadcopter - A Detailed Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-netflixs-worthiness-with-five-key-points/"><u>Assessing Netflix's Worthiness with Five Key Points</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/at-lp120xusb-a-game-changer-for-vintage-record-lovers/"><u>AT-LP120XUSB - A Game Changer for Vintage Record Lovers</u></a></li>
+<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-oneplus-nord-ce-3-5g-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your OnePlus Nord CE 3 5G in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/in-depth-analysis-of-logitech-g-cloud-gaming-controller-near-perfection-amidst-challenges-a-comprehensive-zdnet-review/"><u>In-Depth Analysis of Logitech G Cloud Gaming Controller: Near Perfection Amidst Challenges - A Comprehensive ZDNet Review</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/mastering-solutions-for-the-timeout-expired-on-semaphore-resource-issue/"><u>Mastering Solutions for the 'Timeout Expired on Semaphore Resource' Issue</u></a></li>
+<li><a href="https://win-forum.techidaily.com/1722915403847-navigating-the-giants-of-social-networking-insights-on-facebook-twitter-instagram-and-youtube/"><u>Navigating the Giants of Social Networking: Insights on Facebook, Twitter, Instagram, and YouTube</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/simplified-guide-for-ios-users-transforming-images-to-pdfs-for-2024/"><u>Simplified Guide for iOS Users Transforming Images to PDFs for 2024</u></a></li>
 </ul></div>
 

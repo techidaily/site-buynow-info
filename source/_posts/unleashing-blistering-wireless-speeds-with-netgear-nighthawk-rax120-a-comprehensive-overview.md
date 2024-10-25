@@ -1,7 +1,7 @@
 ---
 title: Unleashing Blistering Wireless Speeds with Netgear Nighthawk RAX120 - A Comprehensive Overview
-date: 2024-10-14T07:12:44.632Z
-updated: 2024-10-18T18:19:30.634Z
+date: 2024-10-21T20:47:25.556Z
+updated: 2024-10-25T04:51:10.306Z
 categories:
   - BestProducts
 description: This Article Describes Unleashing Blistering Wireless Speeds with Netgear Nighthawk RAX120 - A Comprehensive Overview
@@ -41,22 +41,15 @@ Lifewire / Claire Cohen
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Netgear Nighthawk C7000 DOCSIS 3.0 AC1900 Wi-Fi Cable Modem Router
 
 ![Netgear Nighthawk C7000](https://www.lifewire.com/thmb/OV2nfW5mduqPEhexOyXCeTMKajo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4082541-4-9cd1eee50edf4975a739591263d7f54d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Claire Cohen
@@ -85,13 +78,6 @@ Lifewire / Claire Cohen
 
  We recently got the Netgear Nighthawk C7000 in for testing, so we can answer all of these questions and more. Let’s find out if this modem is worth the price of admission.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design: Lightweight and low-profile
 
  For such a high-end modem, the Netgear Nighthawk C7000 is surprisingly thin and light. Compared to the Xfinity modem that we have lying around, it’s a huge improvement.
@@ -103,6 +89,13 @@ Lifewire / Claire Cohen
 ![Netgear Nighthawk C7000](https://www.lifewire.com/thmb/XBxyGD8RCZUzuy5c-9PSfLF4OBY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4082541-3-a9db59bb3f7a4f6aa4d7b1d852f4ee99.jpg)
 
  Lifewire / Claire Cohen
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Setup: Easy for a modem
 
@@ -137,10 +130,10 @@ Lifewire / Claire Cohen
  Even less tech-literate users should be able to handle everything from setup to security without getting too lost.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Performance: Great for an all-in-one
@@ -152,6 +145,13 @@ Lifewire / Claire Cohen
  The wired performance, on the other hand, wasn’t quite as good. We were able to get a consistent 210 Mbps in most scenarios—which is more than enough for our typical usage—but even with a Cat7 Ethernet cable, we weren’t able to get our rated speeds.
 
  We should also note that the Netgear Nighthawk C7000 doesn’t support[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) or QoS capabilities, which is a disappointing omission in a device this expensive. However, we set up 6 different devices in our living room, all streaming HD video on YouTube. We then ran a speed test to see how it affected the network. We still got about 152 Mbps, even under all that stress. You won’t get full speed when everyone’s hitting the network hard, but it’ll still be serviceable.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Price: A premium that’s worth it
 
@@ -168,17 +168,17 @@ Lifewire / Claire Cohen
  **Recommended for anyone with a fast broadband connection.**
  The fact that this modem can pay for itself in time is really the main appeal. But with fantastic performance and good looks thrown in, the Nighthawk C7000 is a no brainer.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Netgear C3700 Cable Modem Router](https://www.lifewire.com/netgear-c3700-cable-modem-router-review-4686094)
 * [Motorola MG7700](https://www.lifewire.com/motorola-mg7700-review-4589346)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -214,19 +214,24 @@ Lifewire / Claire Cohen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-perfect-skype-recordings-mastering-the-art-of-obs/"><u>[New] 2024 Approved Perfect Skype Recordings Mastering the Art of OBS</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-nailing-instagram-aesthetics-tips-for-video-dimensions-for-2024/"><u>[New] Nailing Instagram Aesthetics Tips for Video Dimensions for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazon-basics-60-adjustable-tablet-mount-assessment-easy-to-stow-away-anywhere/"><u>Amazon Basics 60° Adjustable Tablet Mount Assessment – Easy to Stow Away Anywhere!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dji-robomasters-s1-unveiled-ultimate-fun-meets-innovative-battle-drones-and-coding-adventures/"><u>DJI Robomasters S1 Unveiled: Ultimate Fun Meets Innovative Battle Drones & Coding Adventures</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-solidness-of-bose-sportwireless-hp-gear/"><u>Evaluating the Solidness of Bose SportWireless HP Gear</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/how-to-create-professional-gopro-vlogs/"><u>How to Create Professional Gopro Vlogs</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-poco-x6-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Poco X6 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-moto-g-play-analysis-long-lasting-battery-life-meets-solid-processor-speed/"><u>In-Depth Moto G Play Analysis - Long-Lasting Battery Life Meets Solid Processor Speed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/inexpensive-yet-robust-meet-the-coolpix-w100/"><u>Inexpensive Yet Robust - Meet the Coolpix W100</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-conquering-complex-audioscapes-a-no-nonsense-guide-to-effective-track-combination-in-premiere-pro-for-2024/"><u>New Conquering Complex Audioscapes A No-Nonsense Guide to Effective Track Combination in Premiere Pro for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/reasons-to-steer-clear-of-chatgpt-mac-apps-what-you-need-to-know-before-downloading/"><u>Reasons to Steer Clear of ChatGPT Mac Apps - What You Need to Know Before Downloading</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-assassins-creed-valhalla-immersing-in-a-grand-saga-of-vikings-during-medieval-times/"><u>The Ultimate Review of Assassin's Creed: Valhalla – Immersing in a Grand Saga of Vikings During Medieval Times</u></a></li>
-<li><a href="https://media-tips.techidaily.com/top-tips-and-tricks-mastering-the-4th-generation-apple-watch-a-comprehensive-guide/"><u>Top Tips & Tricks: Mastering the 4Th Generation Apple Watch - A Comprehensive Guide</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-make-your-videos-pop-the-secret-to-adding-jaw-dropping-effects/"><u>Updated In 2024, Make Your Videos Pop The Secret to Adding Jaw-Dropping Effects</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-affordable-gaming-wonders-keyboards-under-100-reviewed/"><u>[New] Affordable Gaming Wonders Keyboards Under $100 Reviewed</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-next-gen-wraps-for-virtual-reality-enthusiasts/"><u>[New] In 2024, Next-Gen Wraps for Virtual Reality Enthusiasts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-harnessing-hashtag-magic-for-more-followers/"><u>[Updated] 2024 Approved Harnessing Hashtag Magic for More Followers</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-becoming-a-youtube-pro-the-ultimate-picture-post-guide/"><u>[Updated] Becoming a YouTube Pro The Ultimate Picture Post Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-snapscreen-videorecorder-tool/"><u>[Updated] SnapScreen Videorecorder Tool</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exclusive-strategies-for-photovideo-importers-in-win11-for-2024/"><u>Exclusive Strategies for Photo/Video Importers in Win11 for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-exit-recovery-mode-on-apple-iphone-13-pro-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit Recovery Mode on Apple iPhone 13 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-a24frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy A24FRP Lock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-5-most-crucial-questions-to-ask-yourself-when-buying-a-fitness-gadget/"><u>The 5 Most Crucial Questions to Ask Yourself When Buying a Fitness Gadget</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-apple-tv-4k-high-def-super-smart-features/"><u>The Best Apple TV 4K : High Def, Super Smart Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-most-cost-effective-options-for-a-quality-roku-setup-reviews-included/"><u>The Most Cost-Effective Options for a Quality Roku Setup – Reviews Included</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-power-of-compact-phones-a-comprehensive-review-of-the-iphone-n-12-mini/"><u>The Power of Compact Phones: A Comprehensive Review of the iPhone N 12 Mini</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-pursuit-of-flawlessness-an-in-depth-look-at-the-upgraded-dji-phantom-4-pro-v2/"><u>The Pursuit of Flawlessness: An In-Depth Look at the Upgraded DJI Phantom 4 Pro V2</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-reality-behind-the-midland-lxt500vp3-assessing-a-radio-with-high-potential-but-underwhelming-execution/"><u>The Reality Behind the Midland LXT500Vp3: Assessing a Radio with High Potential but Underwhelming Execution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-understanding-why-the-luxurious-amazon-kindle-oasis-is-worth-its-high-cost/"><u>The Ultimate Guide to Understanding Why the Luxurious Amazon Kindle Oasis Is Worth Its High Cost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-image-editing-secrets-comprehensive-guide-to-photo-print-features-in-photoshop/"><u>Unlocking Image Editing Secrets: Comprehensive Guide to Photo Print Features in Photoshop</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/unveiling-recmeisters-high-quality-screen-recording-capabilities-for-2024/"><u>Unveiling Recmeister's High-Quality Screen Recording Capabilities for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-michael-kors-gen-5e-mkgo-a-symbiosis-of-elegance-and-wisdom-in-style/"><u>Unveiling the Michael Kors Gen 5E MKGO: A Symbiosis of Elegance & Wisdom in Style</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/virtual-reality-technology-current-state-and-future-challenges/"><u>Virtual Reality Technology Current State and Future Challenges</u></a></li>
 </ul></div>
 

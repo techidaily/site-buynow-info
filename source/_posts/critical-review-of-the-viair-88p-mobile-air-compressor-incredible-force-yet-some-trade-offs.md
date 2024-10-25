@@ -1,7 +1,7 @@
 ---
 title: Critical Review of the Viair 88P Mobile Air Compressor - Incredible Force, Yet Some Trade-Offs
-date: 2024-10-16T21:43:39.728Z
-updated: 2024-10-19T12:31:00.893Z
+date: 2024-10-24T02:15:43.027Z
+updated: 2024-10-25T07:01:39.566Z
 categories:
   - BestProducts
 description: This Article Describes Critical Review of the Viair 88P Mobile Air Compressor - Incredible Force, Yet Some Trade-Offs
@@ -46,13 +46,6 @@ Lifewire / Todd Braylor
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Todd Braylor
 
 [View On Amazon $280](https://www.amazon.com/dp/B019HF60EI/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7CB019HF60EI) [View On Walmart $140](https://www.walmart.com/ip/Escort-Passport-S55-High-Performance-Pro-Radar-and-Laser-Detector-w-DSP/49140972)
@@ -74,6 +67,13 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -85,10 +85,10 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easy installation**
@@ -104,10 +104,10 @@ Lifewire / Todd Braylor
  It reliably delivers on its promise of long-distance sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
@@ -137,16 +137,10 @@ Lifewire / Todd Braylor
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -178,20 +172,24 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-ultimate-tutorial-for-posting-pics-on-ig/"><u>[New] 2024 Approved The Ultimate Tutorial for Posting Pics on IG</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-the-ultimate-guide-to-picture-purity-erasing-images-excesses/"><u>[New] In 2024, The Ultimate Guide to Picture Purity Erasing Images' Excesses</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/chromium-device-live-screen-recorder-for-2024/"><u>Chromium Device Live Screen Recorder for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-ambient-weather-ws-1002-wifi-exceptional-features-for-a-premium-cost/"><u>Expert Analysis of the Ambient Weather WS-1002-WiFi - Exceptional Features for a Premium Cost</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-motorola-one-hyper-a-stellar-choice-for-the-price-conscious-power-user/"><u>Exploring the Motorola One Hyper: A Stellar Choice for the Price-Conscious Power User</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/from-size-to-performance-exploring-the-features-of-the-apple-iphone-12-mini/"><u>From Size to Performance: Exploring the Features of the Apple iPhone 12 Mini</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-the-newest-evga-windows-drivers-installed-faster-and-smoother-performance/"><u>Get the Newest EVGA Windows Drivers Installed - Faster and Smoother Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/gmail-vs-outlook-face-off-analyzing-the-best-features-of-each-service-for-you/"><u>Gmail vs Outlook Face-Off: Analyzing the Best Features of Each Service for You</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-xiaomi-redmi-13c-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Xiaomi Redmi 13C Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-xiaomi-redmi-note-12-4g-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Xiaomi Redmi Note 12 4G to Laptop Without USB | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-dji-phantom-4-pro-v20-soaring-high-with-slight-improvements/"><u>In-Depth Analysis of DJI Phantom 4 Pro V2.0 - Soaring High With Slight Improvements</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-review-on-apples-compact-audio-genius-the-homepod-mini-experience-with-music-and-ai-capabilities/"><u>In-Depth Review on Apple's Compact Audio Genius: The HomePod Mini Experience with Music and AI Capabilities</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/insta360-one-x2-waterproof-durable-for-all-adventure-seekers/"><u>Insta360 One X2: Waterproof, Durable for All Adventure Seekers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/switching-sides-in-depth-look-at-nintendos-lite-vs-oled-versions/"><u>Switching Sides: In-Depth Look at Nintendo's Lite vs OLED Versions</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-if-final-cut-pro-x-doesnt-work-here-are-some-things-you-can-try-to-get-your-system-back-to-normal-in-no-time/"><u>Updated 2024 Approved If Final Cut Pro X Doesnt Work, Here Are some Things You Can Try to Get Your System Back to Normal in No Time</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-unpacking-the-features-and-shortcomings-of-samsung-image-editor/"><u>[New] 2024 Approved Unpacking the Features and Shortcomings of Samsung Image Editor</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-preserving-the-past-a-comprehensible-process-of-photograph-digitization-for-2024/"><u>[New] Preserving the Past A Comprehensible Process of Photograph Digitization for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-quick-methods-for-saving-vimeo-footage-for-2024/"><u>[New] Quick Methods for Saving Vimeo Footage for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-seamless-shifts-creating-timelapse-videos-on-samsung-devices/"><u>[New] Seamless Shifts Creating Timelapse Videos on Samsung Devices</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-essential-manual-for-personalizing-android-ringtones-and-sounds/"><u>[New] The Essential Manual for Personalizing Android Ringtones and Sounds</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-premier-fast-photo-viewing-software/"><u>[Updated] Premier Fast Photo Viewing Software</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Xiaomi Redmi Note 12R? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-elevate-your-channel-game-tubebuddy-insights/"><u>In 2024, Elevate Your Channel Game - TubeBuddy Insights</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/instant-fix-troubleshooting-missing-picture-problems-in-iphones/"><u>Instant Fix: Troubleshooting Missing Picture Problems in iPhones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-productivity-with-the-samsung-galaxy-tab-s4-an-android-tablet-exposed/"><u>Mastering Productivity with the Samsung Galaxy Tab S4: An Android Tablet Exposed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-survival-with-friends-in-dying-light-a-co-op-fps-that-pushes-your-limits-through-parkour-skills/"><u>Mastering Survival with Friends in 'Dying Light': A Co-Op FPS That Pushes Your Limits Through Parkour Skills</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nanocoatings-on-dental-implants-improve-osseointegration-enhancing-the-stability-and-lifespan-of-the-implant-within-the-patients-body/"><u>Nanocoatings on Dental Implants Improve Osseointegration, Enhancing the Stability and Lifespan of the Implant Within the Patient's Body</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/outstanding-performance-motorola-one-5g-ace-impressive-5g-connectivity-and-long-lasting-battery/"><u>Outstanding Performance: Motorola One ‌5G Ace - Impressive 5G Connectivity & Long-Lasting Battery</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/pc-video-editing-with-vn-a-short-review-for-2024/"><u>PC Video Editing with VN A Short Review for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/shooting-for-fun-in-the-cosmos-a-review-of-the-outer-worlds-sci-fi-tale/"><u>Shooting for Fun in the Cosmos: A Review of 'The Outer Worlds' Sci-Fi Tale</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/shooting-through-the-cosmos-unveiling-the-outer-worlds-engaging-science-fiction-tale/"><u>Shooting Through the Cosmos: Unveiling The Outer Worlds - Engaging Science Fiction Tale</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/singing-mastery-with-sml385btbk-top-rated-no-hassle-and-plug-n-play-karaoke-system/"><u>Singing Mastery with SML385BTBK: Top Rated, No Hassle & Plug 'N Play Karaoke System</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/surface-studio-2-reviewed-all-in-one-powerhouse-at-a-premium/"><u>Surface Studio 2 Reviewed: All-in-One Powerhouse at a Premium</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/synology-rt2600ac-wi-fi-router-evaluation-long-distance-connectivity-and-superior-child-safety-measures-included/"><u>Synology RT2600AC Wi-Fi Router Evaluation - Long Distance Connectivity and Superior Child Safety Measures Included</u></a></li>
 </ul></div>
 

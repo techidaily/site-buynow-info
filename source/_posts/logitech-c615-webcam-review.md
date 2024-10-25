@@ -1,7 +1,7 @@
 ---
 title: Logitech C615 Webcam Review
-date: 2024-10-15T09:33:59.000Z
-updated: 2024-10-19T06:22:08.570Z
+date: 2024-10-21T00:40:14.740Z
+updated: 2024-10-24T16:32:25.050Z
 categories:
   - BestProducts
 description: This Article Describes Logitech C615 Webcam Review
@@ -46,6 +46,13 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 [View On Walmart $29](https://www.walmart.com/ip/612208092)
@@ -78,20 +85,19 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup: Easier than most**
 
@@ -111,13 +117,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Range: Could be better**
 
  My test home is in a rural area, and there’s a lot of tree cover on the property. The omnidirectional Antop AT-127 has a 40-mile range, which was enough to pick up local channels from neighboring cities.
@@ -126,20 +125,27 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -182,22 +188,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-interpreting-the-purpose-behind-a-facebooks-blue-video-icon/"><u>[New] 2024 Approved Interpreting the Purpose Behind a Facebook's Blue Video Icon</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-mastering-gif-a-step-by-step-guide/"><u>[New] Mastering GIF A Step-by-Step Guide</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-essential-qanda-on-quantum-hdr-technology/"><u>2024 Approved The Essential Q&A on Quantum HDR Technology</u></a></li>
-<li><a href="https://driver-install.techidaily.com/acer-drivers-update-in-windows-10-easy-and-fast/"><u>Acer Drivers Update in Windows 10 - Easy & Fast</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/analyzing-performance-and-capabilities-of-the-midland-lxt500vp3-transceiver-a-detailed-review/"><u>Analyzing Performance & Capabilities of The Midland LXT500VP3 Transceiver: A Detailed Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/arching-over-competition-how-tp-links-archer-ax6000-stands-against-the-nighthawk-ax12/"><u>Arching Over Competition: How TP-Link's Archer AX6000 Stands Against the Nighthawk AX12?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/breaking-down-the-timeless-appeal-a-deep-dive-into-the-iconic-lg-watch-style-powered-by-wear-os-nv20/"><u>Breaking Down the Timeless Appeal: A Deep Dive Into the Iconic LG Watch Style Powered by Wear OS Nv20</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-2-ways-to-monitor-apple-iphone-15-pro-max-activity-drfone-by-drfone-virtual-ios/"><u>In 2024, 2 Ways to Monitor Apple iPhone 15 Pro Max Activity | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Vivo X Flip? | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-vlc-capture-tool-assessment/"><u>In 2024, VLC Capture Tool Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ipad-pro-2021-m1-where-tablets-meet-desktop-specs-a-detailed-review/"><u>IPad Pro (2021, M1) - Where Tablets Meet Desktop Specs: A Detailed Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-size-really-everything-discover-how-the-tiny-yet-mighty-samsung-galaxy-s10e-packs-a-punch/"><u>Is Size Really Everything? Discover How the Tiny Yet Mighty Samsung Galaxy S10e Packs a Punch</u></a></li>
-<li><a href="https://common-error.techidaily.com/optimizing-performance-fixing-excessive-disk-utilization-caused-by-compatibility-telemetry-in-windows-10/"><u>Optimizing Performance: Fixing Excessive Disk Utilization Caused by Compatibility Telemetry in Windows 10</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/phone-evolution-to-upgrade-or-not/"><u>Phone Evolution: To Upgrade or Not?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-definitive-guide-to-asus-rog-gt-ac5300-a-match-made-in-tech-heaven-for-gamers-and-experts/"><u>The Definitive Guide to Asus ROG GT-AC5300 - A Match Made in Tech Heaven for Gamers and Experts</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unveiling-the-secrets-of-using-live-photos-features-with-ios-16s-new-functionality/"><u>Unveiling the Secrets of Using Live Photos Features with iOS 16'S New Functionality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-top-contenders-the-best-17-inch-laptops-edition/"><u>Unveiling the Top Contenders: The Best 17-Inch Laptops Edition</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-tenfold-video-recording-tricks-on-your-windows-11-system/"><u>[Updated] 2024 Approved Tenfold Video Recording Tricks on Your Windows 11 System</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-best-practices-for-writing-captivating-episode-summaries/"><u>[Updated] Best Practices for Writing Captivating Episode Summaries</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/error-free-computing-correcting-missing-fm20dll-files-on-your-pc/"><u>Error-Free Computing: Correcting Missing fm20.dll Files on Your PC</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-itel-a60-frp-by-drfone-android/"><u>Full Guide to Bypass Itel A60 FRP</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-install-the-latest-windows-10-april-2020-update-with-conexant-drivers/"><u>How to Install the Latest Windows 10 April 2020 Update with Conexant Drivers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-pictures-from-samsung-galaxy-a24-by-fonelab-android-recover-pictures/"><u>How to Rescue Lost Pictures from Samsung Galaxy A24?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-gmail-password-on-vivo-v27-pro-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Vivo V27 Pro Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-renewable-energy-the-most-efficient-power-inverters-of-2024-revealed/"><u>Mastering Renewable Energy: The Most Efficient Power Inverters of 2024 Revealed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/microsoft-surface-laptop-go-unveiled-the-portable-affordable-ultrabook-that-doesnt-compromise-performance/"><u>Microsoft Surface Laptop Go Unveiled: The Portable, Affordable Ultrabook That Doesn't Compromise Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-shortcomings-in-pioneer-bdr-xd05b-external-blu-ray-burner-design/"><u>Reviewing the Shortcomings in Pioneer BDR-XD05B External Blu-Ray Burner Design</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/runners-companion-garmin-forerunner/"><u>Runner's Companion: Garmin Forerunner</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sound-quality-upgrade-is-premium-worth-the-investment/"><u>Sound Quality Upgrade: Is Premium Worth the Investment?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-of-both-worlds-top-reviews-on-budget-friendly-and-quality-fossil-sports-apparel/"><u>The Best of Both Worlds: Top Reviews on Budget-Friendly & Quality Fossil Sports Apparel</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-faces-to-watch-top-cosmetic-creatives-for-2024/"><u>The Faces to Watch Top Cosmetic Creatives for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-pros-guide-evaluating-gamers-technology-options/"><u>The Pro's Guide: Evaluating Gamers’ Technology Options</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-apc-be600m1-battery-ups-features-and-built-in-charger-benefits/"><u>The Ultimate Guide to the APC BE600M1 Battery UPS: Features and Built-In Charger Benefits</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-ankers-powercoreplus-26800-battery-pack-sleek-and-efficient-for-on-the-go-charging/"><u>The Ultimate Review of Anker's PowerCore+ 26800 Battery Pack: Sleek & Efficient for On-the-Go Charging</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/0-historical-youtube-hubs-essential-viewing-for-students-and-enthusiasts-for-2024/"><u>Top 10 Historical YouTube Hubs Essential Viewing For Students & Enthusiasts for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/free-ogv-to-webm-online-tool/"><u>오그비드/위블미로 바꾸기 - FREE OGV to WebM Online Tool</u></a></li>
 </ul></div>
 

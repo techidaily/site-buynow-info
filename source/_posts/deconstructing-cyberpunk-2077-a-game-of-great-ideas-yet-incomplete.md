@@ -1,7 +1,7 @@
 ---
 title: "Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
-date: 2024-10-18T00:38:41.720Z
-updated: 2024-10-19T02:57:37.807Z
+date: 2024-10-20T05:20:33.912Z
+updated: 2024-10-25T02:46:26.300Z
 categories:
   - BestProducts
 description: "This Article Describes Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
@@ -47,13 +47,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
 
 [View On Steampowered.com](https://store.steampowered.com/app/464920/Surviving%5FMars/) [View On G2a.com](https://www.g2a.com/en-us/surviving-mars-first-colony-edition-steam-key-global-i10000147752001?)
@@ -73,13 +66,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -89,6 +75,13 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Humans have never been so annoying**
 
@@ -103,13 +96,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  In over twenty hours of gameplay, I learned the hard way that humans in this game are not only picky, but they demand the life of luxury the second they step off the rocket and into the dome. It didn’t matter that only twelve called a single dome home. It didn’t matter that there was barely enough of them to cover operating the grocery store and space bar. A lack of space for these amenities fell upon deaf ears. They wanted access to their art stores, electronics, and fine dining immediately. In that regard, I’m a little conflicted; as much as I wanted more shopping options for Mars, I realized not long after humans arrived that Haemimont Games, in reality, gave me a blessing by keeping a bland palate. Plus, more buildings and items become available as research, funding, and planetary discoveries allow.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -129,13 +115,40 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Other city-building games**
 
@@ -148,13 +161,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  **A interesting new take on city-builders, if you can stomach the micromanagement.**
 
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -183,24 +189,18 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-does-immediate-subscription-enhance-user-engagement-on-youtube/"><u>[New] 2024 Approved Does Immediate Subscription Enhance User Engagement on Youtube?</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-strategic-approach-to-advertising-on-spotify/"><u>[New] The Strategic Approach to Advertising on Spotify</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-comprerante-guide-to-sierras-cloud-file-accessibility/"><u>[Updated] In 2024, Comprerante Guide to Sierra's Cloud File Accessibility</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-unlocking-the-magic-advanced-techniques-for-tiktok-videos/"><u>2024 Approved Unlocking the Magic Advanced Techniques for TikTok Videos</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-vivo-y100-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Vivo Y100 to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/chrome-on-the-go-and-laptop-in-one-unpacking-the-lenovo-chromebook-duets-features/"><u>Chrome on the Go and Laptop in One: Unpacking the Lenovo Chromebook Duet's Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-lenovo-ideapad-130s-balancing-low-power-with-remarkable-usability-features/"><u>Exploring the Lenovo IdeaPad 130S - Balancing Low Power with Remarkable Usability Features</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/free-online-converter-change-image-format-from-pgm-to-jpg-with-movavi/"><u>Free Online Converter: Change Image Format From PGM to JPG with Movavi</u></a></li>
-<li><a href="https://games-able.techidaily.com/furtive-gaming-behavior-on-steam/"><u>Furtive Gaming Behavior on Steam</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Xiaomi Redmi Note 12 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-vivo-y27-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Vivo Y27 5G without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-fitbit-charge-4-a-perfect-blend-of-design-and-performance/"><u>In-Depth Analysis of Fitbit Charge 4: A Perfect Blend of Design & Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-lihans-lhfm1039-bluetooth-fm-transmitter-elevating-your-driving-experience/"><u>In-Depth Review of Lihan's LHFM1039 Bluetooth FM Transmitter: Elevating Your Driving Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/lenovo-thinkpad-x1-titanium-yoga-evaluation-the-ultimate-hybrid-laptop-for-loyal-thinkpad-enthusiasts/"><u>Lenovo ThinkPad X1 Titanium Yoga Evaluation: The Ultimate Hybrid Laptop for Loyal ThinkPad Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-programming-explore-best-rated-e-learning-platforms/"><u>Mastering Programming: Explore Best-Rated E-Learning Platforms</u></a></li>
-<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-samsung-galaxy-f54-5g-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Samsung Galaxy F54 5G Black and White | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/silly-satisfying-and-strategic-review-of-plants-vs-zombies-battle-for-neighborville-ideal-for-casual-gamers/"><u>Silly, Satisfying, and Strategic! Review of Plants Vs. Zombies: Battle for Neighborville - Ideal for Casual Gamers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-definitive-ranking-of-highest-quality-wireless-range-boosters-for-the-year-2024/"><u>The Definitive Ranking of Highest Quality Wireless Range Boosters for the Year 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-kobo-nia-reviewed-a-strong-contender-in-the-kindle-marketplace/"><u>The Kobo Nia Reviewed: A Strong Contender in the Kindle Marketplace</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-fix-coffee-stain-distortions-on-iphones-in-a-flash-for-free/"><u>[Updated] Fix Coffee Stain Distortions on iPhones in a Flash, for Free</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/247-activity-monitoring-with-the-fitbit-inspire-hr-comprehensive-review/"><u>24/7 Activity Monitoring with the Fitbit Inspire HR - Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-aerial-adventures-with-the-holy-stone-hs17n-predator-mini-rc-drone-our-thorough-review/"><u>Affordable Aerial Adventures with the Holy Stone HS17n Predator Mini RC Drone – Our Thorough Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/avoid-pitfalls-in-tablet-buying-master-these-8-critical-insights-first/"><u>Avoid Pitfalls in Tablet Buying - Master These 8 Critical Insights First</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/beat-overheating-and-boost-performance-top-review-of-havit-5-adjustable-fans-for-your-gaming-rig/"><u>Beat Overheating and Boost Performance: Top Review of HAVIT 5 Adjustable Fans for Your Gaming Rig</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-motorola-moto-g-5g-2023-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Motorola Moto G 5G (2023).</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-14-pro-without-swiping-up-6-ways-drfone-by-drfone-ios/"><u>How To Unlock iPhone 14 Pro Without Swiping Up? 6 Ways | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-amplify-your-vlog-presence-with-tubebuddys-tools/"><u>In 2024, Amplify Your Vlog Presence with TubeBuddy's Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-thanks-techniques-for-30-languages-156/"><u>Multilingual Thanks: Techniques for 30 Languages (156)</u></a></li>
+<li><a href="https://extra-information.techidaily.com/one-on-one-youtube-streams-on-mobile-without-thousanders-club/"><u>One-on-One Youtube Streams on Mobile Without Thousanders' Club</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/unveiling-the-finest-8-android-based-digital-audio-workstations-of-this-year-for-2024/"><u>Unveiling the Finest 8 Android-Based Digital Audio Workstations of This Year for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-pros-and-cons-of-the-google-pixel-6-through-our-thorough-review/"><u>Unveiling the Pros and Cons of the Google Pixel 6 Through Our Thorough Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/value-for-money-tp-link-re250-ac900-wi-fi-range-extender-comprehensive-review/"><u>Value for Money TP-Link RE250 AC900 Wi-Fi Range Extender: Comprehensive Review</u></a></li>
 </ul></div>
 

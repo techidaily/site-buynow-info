@@ -1,7 +1,7 @@
 ---
 title: "Reviewing the Rugged Cat S42: Extensive Armor but Modest Performance Levels"
-date: 2024-10-16T11:44:59.814Z
-updated: 2024-10-19T11:01:16.719Z
+date: 2024-10-21T17:20:45.281Z
+updated: 2024-10-25T04:47:11.089Z
 categories:
   - BestProducts
 description: "This Article Describes Reviewing the Rugged Cat S42: Extensive Armor but Modest Performance Levels"
@@ -48,13 +48,6 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Emily Ramirez
 
 [View On Amazon](https://www.amazon.com/dp/B009ISU33E?tag=lifewire-onsite-prod-20&ascsubtag=4769837%7Cnf4d47b24328e45aa9d01315a6a6b3e1211%7CB009ISU33E)
@@ -93,13 +86,6 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process/Installation: Easy install, irritating setup**
 
  To install the hardware, we popped open our mid-size PC tower and inserted the sound card and daughter board into two available PCIe slots. Creative Labs had the foresight to build the main card with a PCIe 1x slots, giving the user flexibility in where they connect their cards to the motherboard. Once the cards were secured, we plugged the headphones and microphone into the corresponding jacks.
@@ -110,7 +96,21 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
 
@@ -131,16 +131,10 @@ Lifewire / Emily Ramirez
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Unjustified expense**
@@ -148,10 +142,10 @@ Lifewire / Emily Ramirez
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
@@ -174,17 +168,17 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -224,20 +218,16 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-understanding-the-role-and-impact-of-b-roll-in-editing/"><u>[New] 2024 Approved Understanding the Role and Impact of B Roll in Editing</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-the-power-of-active-listening-in-interviews-for-2024/"><u>[New] The Power of Active Listening in Interviews for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-stream-your-audiovid-creations-here/"><u>2024 Approved Stream Your AudioVid Creations Here</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/anthem-of-adventure-engaging-sci-fi-action-and-humor-in-the-outer-worlds/"><u>Anthem of Adventure: Engaging Sci-Fi Action and Humor in The Outer Worlds</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/asus-rog-ac5300-network-adapter-tested-top-performance-gear-for-the-hardcore-gamer-and-technology-pros/"><u>Asus ROG AC5300 Network Adapter Tested: Top Performance Gear for the Hardcore Gamer & Technology Pros</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-google-nest-hub-max-exploring-facial-id-technology-and-smart-packaging/"><u>Comprehensive Analysis of the Google Nest Hub Max: Exploring Facial ID Technology & Smart Packaging</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-unveiling-the-top-features-of-apples-latest-gem-iphone-12/"><u>Comprehensive Guide: Unveiling the Top Features of Apple's Latest Gem - iPhone 12!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-tropico-6-analysis-mastering-island-governance-amidst-exotic-challenges/"><u>Comprehensive Tropico 6 Analysis: Mastering Island Governance Amidst Exotic Challenges</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-affordable-luxury-with-hisenses-50-inch-4k-hdr-smart-tv-detailed-reviews/"><u>Discover Affordable Luxury with Hisense's 50-Inch 4K HDR Smart TV - Detailed Reviews</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-most-economical-vuebell-smart-doorbell-on-the-market/"><u>Discover the Most Economical VueBell Smart Doorbell on the Market</u></a></li>
-<li><a href="https://techidaily.com/hard-reset-honor-80-pro-straight-screen-edition-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Honor 80 Pro Straight Screen Edition in 3 Efficient Ways | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-oppo-a1x-5g-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Oppo A1x 5G FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/real-time-webcam-and-screen-melding-tips/"><u>Real-Time Webcam & Screen Melding Tips</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/standout-literary-book-videos/"><u>Standout Literary Book Videos</u></a></li>
-<li><a href="https://fox-making.techidaily.com/1728493143797-windows-11/"><u>Windows 11上のマイクロソフトストア起動失敗:解決策と詳しいガイド</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nnovative-concepts-for-youtube-success-and-inspiration/"><u>[New] Innovative Concepts for YouTube Success and Inspiration</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-gearing-up-for-a-leisurely-view-three-methods-to-tame-video-speed-on-youtube-60-chars-minor-exception-due-to-title-length-but-offers-comprehensive-i/"><u>[Updated] Gearing Up for a Leisurely View Three Methods to Tame Video Speed on YouTube (60 Chars, Minor Exception Due to Title Length but Offers Comprehensive Insight)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/all-about-the-fitbit-inspire-hr-an-ultimate-review-of-a-247-wearable-tracker-for-active-lifestyles/"><u>All About The Fitbit Inspire HR: An Ultimate Review of a 24/7 Wearable Tracker for Active Lifestyles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/complete-ipad-showdown-which-one-wins/"><u>Complete iPad Showdown: Which One Wins?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-lg-k51-critique-impressive-style-hindered-by-inadequate-cpu-power/"><u>Comprehensive LG K51 Critique: Impressive Style Hindered By Inadequate CPU Power</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-dreame-bot-l10-pro-the-advanced-autonomous-cleaning-system-using-lidar-technology/"><u>Comprehensive Review of Dreame Bot L10 Pro: The Advanced Autonomous Cleaning System Using LiDAR Technology</u></a></li>
+<li><a href="https://games-able.techidaily.com/exploring-xboxs-anti-fairness-measures/"><u>Exploring Xbox’s Anti-Fairness Measures</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-fix-oem-unlock-missing-on-motorola-moto-g-stylus-5g-2023-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Motorola Moto G Stylus 5G (2023)?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-comprehensively-tackling-the-sony-fdr-x1000-action-gear/"><u>In 2024, Comprehensively Tackling the Sony FDR-X1000 Action Gear</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-definitive-review-of-samsung-galaxy-s20-fe-5g-captivating-all-who-love-5g-technology/"><u>The Definitive Review of Samsung Galaxy S20 FE 5G - Captivating All Who Love 5G Technology</u></a></li>
+<li><a href="https://blog-min.techidaily.com/topo-das-melhores-ferramentas-de-graca-para-gravar-dvds-em-windows-10-e-11-guia-detalhado/"><u>Topo Das Melhores Ferramentas De Graça Para Gravar DVDs Em Windows 10 E 11: Guia Detalhado</u></a></li>
 </ul></div>
 

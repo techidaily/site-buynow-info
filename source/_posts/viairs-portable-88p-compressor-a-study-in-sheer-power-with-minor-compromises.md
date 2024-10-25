@@ -1,7 +1,7 @@
 ---
 title: "Viair's Portable 88P Compressor: A Study in Sheer Power with Minor Compromises"
-date: 2024-10-13T03:50:19.257Z
-updated: 2024-10-19T02:06:21.572Z
+date: 2024-10-19T23:39:04.484Z
+updated: 2024-10-24T21:00:54.844Z
 categories:
   - BestProducts
 description: "This Article Describes Viair's Portable 88P Compressor: A Study in Sheer Power with Minor Compromises"
@@ -101,18 +101,18 @@ PHOTO: Amazon
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/mUdXUjWxeupVqNR_y43_eFTC0ic=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-02-69b93dc934684ef5b71a40215f6162f2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
  The jumper cable features over-voltage protection, auto power off, short circuit protection, reverse polarity protection, reverse current protection, timer circuit protection, and jumper cable spark protection. The charger also doubles as a car emergency kit. It has an LED light, jumper cables, and a carrying pouch, making it an excellent tool for your glove box.
 
 [Halo Bolt Portable Charger/Jump Starter Review](https://www.lifewire.com/halo-bolt-portable-charger-jump-starter-review-5071993)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Versatile
 
@@ -151,10 +151,16 @@ Lifewire / Gannon Burgett
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/aab2LeeqDhnHWsxLWYdgueO7v1Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-03-1530f666df824f6281040c2ae3285eb2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
@@ -166,28 +172,28 @@ Lifewire / Andrew Hayward
  When picking a portable laptop battery charger, one of your primary considerations should be its capacity to store energy (measured in mAh)—this denotes the device’s battery life before it needs to be recharged. Be sure that the battery has equal or more capacity than the one already inside your machine so that you can expect a full charge.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Output
 
  Some portable chargers can be a bit slow when outputting a charge, so be sure that the battery you’re purchasing has an output equal to or higher than the wattage of your typical laptop charger.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Connectors
 
  It’s critical to ensure you can plug your laptop into your new portable charger. Check the type of inputs the charger supports—whether that’s a standard wall outlet plug, a USB-C port, or other universal solutions.
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/QOfV3Sc5THi3Z0gKZq0e-ciPUEE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-5-000854ae3c4347b7adc13130dcb9d1b9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -231,21 +237,19 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-tips.techidaily.com/new-iphones-guide-to-night-photography-excellence/"><u>[New] IPhone's Guide to Night Photography Excellence</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-capture-your-skype-conversations-on-any-system/"><u>[Updated] 2024 Approved Capture Your Skype Conversations on Any System</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-jumpstart-your-journey-to-tiktok-fame-with-these-hits-for-2024/"><u>[Updated] Jumpstart Your Journey to TikTok Fame with These Hits for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-samsung-galaxy-s24plus-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Samsung Galaxy S24+ to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/free-from-watermarks-the-best-video-joining-software-for-2024/"><u>Free From Watermarks The Best Video Joining Software for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-vivo-y77t-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Vivo Y77t Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-liberating-video-files-free-mp4-and-hd-from-facebook-posts/"><u>In 2024, Liberating Video Files Free MP4 & HD From Facebook Posts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-quintessential-guide-to-understanding-the-legendary-lg-watch-style-and-its-role-in-shaping-wearable-gadget-innovation-with-wear-os/"><u>The Quintessential Guide to Understanding the Legendary LG Watch Style and Its Role in Shaping Wearable Gadget Innovation with Wear OS</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-travelers-best-friend-a-comprehensive-look-at-the-portable-prowess-of-the-msi-mp161-e2-monitor/"><u>The Traveler's Best Friend: A Comprehensive Look at the Portable Prowess of the MSI MP161 E2 Monitor</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-lenovo-ideapad-320-laptop-review-stunning-aesthetics-and-mobility-meet-lenovos-iconic-keyboard/"><u>Top Lenovo IdeaPad 320 Laptop Review: Stunning Aesthetics & Mobility Meet Lenovo's Iconic Keyboard</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-tp-link-ac1200-wi-fi-expander-re305-features-and-functionality-insights/"><u>Top TP-Link AC1200 Wi-Fi Expander (RE305) Features and Functionality Insights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/transform-your-tech-upgrading-windows-10-home-to-pro-edition/"><u>Transform Your Tech: Upgrading Windows 10 Home to Pro Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/transform-your-typing-experience-with-2024s-top-ergonomic-keyboard-selections/"><u>Transform Your Typing Experience with 2024'S Top Ergonomic Keyboard Selections</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-tips-for-fixing-bungie-destiny-2-server-connectivity-issues/"><u>Troubleshooting Tips for Fixing Bungie Destiny 2 Server Connectivity Issues</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-conquer-the-wild-in-monster-hunter-world-reviews-and-tips/"><u>Ultimate Guide: Conquer the Wild in 'Monster Hunter: World' - Reviews & Tips</u></a></li>
-<li><a href="https://win-trending.techidaily.com/ultimate-step-by-step-guide-the-3-best-techniques-for-securing-your-data-with-qnap-cloud-backups/"><u>Ultimate Step-by-Step Guide: The 3 Best Techniques for Securing Your Data with QNAP Cloud Backups</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-elevate-your-presentations-with-professional-screencasts/"><u>[New] Elevate Your Presentations with Professional Screencasts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-essential-knowledge-for-instagram-success-a-guide-to-behind-the-scenes-metrics/"><u>[New] Essential Knowledge for Instagram Success A Guide to Behind-the-Scenes Metrics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-extract-translate-and-save-youtube-subtitles-for-free/"><u>[New] In 2024, Extract, Translate & Save YouTube Subtitles for FREE</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-top-10-free-web-based-video-chatting-tools/"><u>[New] In 2024, Top 10 Free Web-Based Video Chatting Tools</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-kootek-laptop-cooling-pad-top-selection-reviewed-here/"><u>Comprehensive Guide to Kootek Laptop Cooling Pad – Top Selection Reviewed Here!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-thermaltake-massive-t-laptop-cooler-high-rewards-steep-cost/"><u>Expert Analysis of the Thermaltake Massive T Laptop Cooler - High Rewards, Steep Cost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-unveiling-the-features-and-benefits-of-the-latest-amazon-kindle-paperwhite/"><u>Expert Review: Unveiling the Features and Benefits of the Latest Amazon Kindle Paperwhite</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/expertly-tested-and-reviewed-leading-gaming-laptops-for-the-upcoming-year-2024/"><u>Expertly Tested and Reviewed: Leading Gaming Laptops for the Upcoming Year 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/futureproof-your-streams-with-the-leading-mic-selection-for-202-cufflinks-year-a-comprehensive-review-by-zdnet/"><u>Futureproof Your Streams with the Leading Mic Selection for 202 Cufflinks Year: A Comprehensive Review by ZDNet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-the-apple-ipad-air-2019-revolutionizes-your-media-experience-expert-insights/"><u>How the Apple iPad Air (2019) Revolutionizes Your Media Experience: Expert Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-budget-friendly-mobvoi-ticwatch-e2-is-cheap-enough/"><u>In-Depth Analysis of Budget-Friendly Mobvoi TicWatch E2: Is Cheap Enough?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-lenovo-ideapad-320-stunning-aesthetics-meet-functional-portability-and-renowned-keyboard-comfort/"><u>In-Depth Analysis of the Lenovo IdeaPad 320: Stunning Aesthetics Meet Functional Portability & Renowned Keyboard Comfort</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/soluciones-efectivas-para-recuperar-al-escritor-del-sistema-que-falta-en-la-copia-de-seguridad/"><u>Soluciones Efectivas Para Recuperar Al Escritor Del Sistema Que Falta en La Copia De Seguridad</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-contacts-from-oppo-by-fonelab-android-recover-contacts/"><u>Undelete lost contacts from Oppo .</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "B550-XT Explored: Commanding Control & Quiet Output"
-date: 2024-10-15T03:54:35.148Z
-updated: 2024-10-18T19:21:38.557Z
+date: 2024-10-23T22:41:22.831Z
+updated: 2024-10-25T06:08:22.822Z
 categories:
   - BestProducts
 description: "This Article Describes B550-XT Explored: Commanding Control & Quiet Output"
@@ -42,23 +42,9 @@ Lifewire / Jonno Hill
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## YONGNUO YN560 IV Wireless Flash Speedlite Master
 
 ![Yongnuo YN560 IV Wireless Flash Speedlite Master](https://www.lifewire.com/thmb/UOD6afkRh-xS-Dh1-iagOeoOSdY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_3LW4072366-Yongnuo-YN560-1-33b6547cc9014731ab6e144b0613aaef.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -82,13 +68,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Punching above the price point**
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master features a robust design that doesn’t feel like the manufacturer skimped on build quality — one of our biggest concerns with budget-minded flashes like this. When adjusting the position of the[flash head](https://www.lifewire.com/using-the-dslr-pop-up-flash-492975) through its 90 degrees of vertical and 270 degrees of horizontal range, it felt very solid.
@@ -100,6 +79,19 @@ Lifewire / Jonno Hill
  Finally, on the rear of the device users will see the LCD display and a suite of buttons and indicators, which we will cover in the next section.
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Features & Functionality: Full suite manual control**
 
@@ -121,6 +113,13 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup: A lot of reading before use**
 
  Once you unpack your flash and install the four AA batteries, you’re going to want to familiarize yourself with the buttons and menu system a little. The YN560 IV has a lot of functionality, but it doesn’t have the most intuitive interface. The front of the device contains a top row of four buttons (a Light/Music icon, Mode, a Wi-Fi icon, and Zoom). Below this is a charge indicator button marked “PILOT”, a direction pad, and an On/Off button.
@@ -135,18 +134,18 @@ Lifewire / Jonno Hill
 
  Overall, the YN560 IV gives you a lot of functionality and control, but definitely requires some reading and troubleshooting before you can master the device.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Significant savings for manual users**
 
  Buyers that need a lot of manual control for complex flash setups will be very pleased with what the get for the approximately $60 the YN560 IV costs. It sits at a price that’s a fraction of its TTL-enabled Canon and Nikon counterparts, but twice that of even simpler options. Do you need all the functionality that the YN560 IV offers? Are you willing to troubleshoot a bit with returns to make sure you get good, non-defective units? If the answer to those questions is yes, this is definitely the flash for you.
 
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Yongnuo YN560 IV Wireless Flash Speedlite Master vs Neewer TT560 Flash Speedlite**
 
@@ -167,6 +166,13 @@ Lifewire / Jonno Hill
 * [Canon Speedlite 430EX III-RT Flash](https://www.lifewire.com/canon-speedlite-430ex-iii-rt-flash-review-4686835)
 * [Nikon D3400](https://www.lifewire.com/nikon-d3400-review-4776644)
 * [Fovitec SPK10-037 Softbox Lighting Kit](https://www.lifewire.com/fovitec-spk10-037-softbox-lighting-kit-review-4692503)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -200,17 +206,20 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-invisible-hand-decoding-instagrams-update-effects/"><u>[New] The Invisible Hand Decoding Instagram’s Update Effects</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-achieving-perfect-synchronization-google-upload/"><u>[Updated] 2024 Approved Achieving Perfect Synchronization Google Upload</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-boosting-engagement-on-youtube-edit-update-and-enhance-metadata-for-2024/"><u>[Updated] Boosting Engagement on YouTube Edit, Update & Enhance Metadata for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-amazonbasics-versatile-and-reliable-7-port-usb-30-hub/"><u>Expert Insights on AmazonBasics' Versatile and Reliable 7 Port USB 3.0 Hub</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-apple-ipad-pro-with-m1-processor-unleashing-new-potentials-in-tablet-technology/"><u>Expert Insights on Apple iPad Pro with M1 Processor – Unleashing New Potentials in Tablet Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/get-your-hands-on-savings-without-compromising-quality-the-moto-g-stylus-reviewed/"><u>Get Your Hands on Savings Without Compromising Quality – The Moto G Stylus Reviewed!</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-ultimate-guide-to-selecting-a-superior-camcorder/"><u>In 2024, Ultimate Guide to Selecting a Superior Camcorder</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-and-insights-on-apc-back-ups-pro-1500va-exceptional-power-backup-with-multiple-outlets-and-effortless-battery-replacement/"><u>In-Depth Analysis & Insights on APC Back-UPS Pro 1500VA - Exceptional Power Backup with Multiple Outlets & Effortless Battery Replacement</u></a></li>
-<li><a href="https://win-cloud.techidaily.com/schnelle-migration-von-iphone-aufnahmen-auf-deinen-pc-4-effektive-strategien/"><u>Schnelle Migration Von iPhone-Aufnahmen Auf Deinen PC: 4 Effektive Strategien</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/start-saving-youtube-videos-as-screen-captures-today-completely-free/"><u>Start Saving YouTube Videos as Screen Captures Today - Completely Free</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/the-ultimate-resource-for-computer-hardware-guided-by-toms-tech-wisdom/"><u>The Ultimate Resource for Computer Hardware - Guided by Tom's Tech Wisdom</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/transforma-tu-video-webm-al-estandar-de-calidad-mpeg-para-la-web-sin-gastos-utiliza-movavi-como-herramienta-efectiva/"><u>Transforma Tu Vídeo Webm Al Estándar De Calidad MPEG Para La Web Sin Gastos, Utiliza Movavi Como Herramienta Efectiva</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-marketers-insight-sifting-through-false-social-endorsements-for-2024/"><u>[New] Marketer’s Insight Sifting Through False Social Endorsements for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-ultimate-8k-showcase-cameras-at-the-forefront-for-2024/"><u>[Updated] Ultimate 8K Showcase Cameras at the Forefront for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-video-editing-virtuosity-mastering-the-fade-inout/"><u>[Updated] Video Editing Virtuosity Mastering the Fade-In/Out</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-unveiling-trillers-unique-strategy-in-the-world-of-online-videos/"><u>2024 Approved Unveiling Triller's Unique Strategy in the World of Online Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/all-about-the-latest-apple-silicon-delving-into-the-release-date-and-impressive-specs-of-the-apple-m4-chip/"><u>All About the Latest Apple Silicon: Delving Into the Release Date & Impressive Specs of the Apple M4 Chip</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assassins-creed-valhalla-a-riveting-saga-of-viking-quests-in-a-historical-setting/"><u>Assassin's Creed Valhalla - A Riveting Saga of Viking Quests in a Historical Setting</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-chromebook-flip-c302ca-a-superior-choice-for-budget-conscious-consumers-seeking-versatility-and-quality/"><u>ASUS Chromebook Flip C302CA: A Superior Choice for Budget-Conscious Consumers Seeking Versatility & Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/battery-booster-behemoth-a-comprehensive-guide-to-the-beatit-bt-d11-jump-starter/"><u>Battery Booster Behemoth - A Comprehensive Guide to the Beatit BT-D11 Jump Starter</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boosting-your-pc-gameplay-the-comprehensive-review-of-apcs-high-end-gaming-ups-system/"><u>Boosting Your PC Gameplay: The Comprehensive Review of APC's High-End Gaming UPS System</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/breaking-down-the-benefits-of-apples-new-imac-m1-excellence-in-display-and-powerful-processing-combined/"><u>Breaking Down the Benefits of Apple's New iMac M1 - Excellence in Display and Powerful Processing Combined</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/compact-brilliance-unleashed-a-thorough-review-of-the-features-in-apple-iphone-12-mini/"><u>Compact Brilliance Unleashed - A Thorough Review of the Features in Apple iPhone 12 Mini</u></a></li>
+<li><a href="https://article-tips.techidaily.com/elevate-your-display-with-these-8-macbook-backgrounds/"><u>Elevate Your Display with These 8 MacBook Backgrounds</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-lava-blaze-2-5g-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Lava Blaze 2 5G Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-stream-reversal-hacks-an-overview-of-eight-simple-steps/"><u>In 2024, Stream Reversal Hacks An Overview of Eight Simple Steps</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-top-video-trailer-creation-tools-for-2024/"><u>New Top Video Trailer Creation Tools for 2024</u></a></li>
 </ul></div>
 
