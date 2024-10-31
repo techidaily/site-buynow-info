@@ -1,7 +1,7 @@
 ---
 title: In-Depth Testing and Verdict on the Exceptional Netgear Nighthawk C7000 Range Extender
-date: 2024-09-09T14:00:08.111Z
-updated: 2024-09-10T14:00:08.111Z
+date: 2024-10-30T04:12:08.173Z
+updated: 2024-10-30T19:36:52.591Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Testing and Verdict on the Exceptional Netgear Nighthawk C7000 Range Extender
@@ -17,12 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/u28QJwO8P8d4SJKP5ALsv-qP0Ao=/400x300/fi
 
 ![Netgear Nighthawk X10 AD7200](https://www.lifewire.com/thmb/qU5CSGt_Rfj9LA-RPz9fQEylRoU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_HeroSquare-885945bb208b49a583aca8da1aa09378.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jeremy Laukkonen
 
  What We Like
@@ -48,6 +42,13 @@ thumbnail: https://www.lifewire.com/thmb/u28QJwO8P8d4SJKP5ALsv-qP0Ao=/400x300/fi
 ## Netgear Nighthawk X10 AD7200 Router
 
 ![Netgear Nighthawk X10 AD7200](https://www.lifewire.com/thmb/0rm8vUox5EoeaGCQJw0E5XQxwck=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_HeroSquare-885945bb208b49a583aca8da1aa09378.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -87,26 +88,8 @@ thumbnail: https://www.lifewire.com/thmb/u28QJwO8P8d4SJKP5ALsv-qP0Ao=/400x300/fi
 
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/I8vaunCMjxEzWH-oM1U7fsSYe9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_04-abc45a63844e4ebe8f43e4f6facbd601-d54874ec8e984393b51c0bea9803c849.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Zero hassle from start to finish**
 
  Setting up the Netgear Nighthawk X10 AD7200 was easy, from unboxing to plugging it into my network. Unlike most routers, the Nighthawk X10 comes completely assembled. Each antenna comes sheathed in a bit of protective plastic, but even that slips right off. The router is basically ready to go right out of the box, which is a big time saver.
@@ -118,25 +101,14 @@ Lifewire / Jeremy Laukkonen
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/RfTANl22rAcY7Xy986eYa_62r44=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_02-1721b933d315435f98631847bf3ebb0b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Connectivity: AD7200 tri-band with MU-MIMO and 10G SFP+**
 
  The Netgear Nighthawk X10 AD7200 is an AD7200 tri-band router, which means it’s capable of providing 1733Mbps over a 5GHz wireless network, 800Mbps over a 2.4GHz network, and a blistering 4600Mbps over a 60Hz network. That last one is the key feature here, as only 802.11ad routers like this one feature a super-high-speed 60GHz network.
@@ -151,12 +123,6 @@ Lifewire / Jeremy Laukkonen
 
  For physical connectivity, the Nighthawk X10 features six Ethernet ports, two of which can be used together to create a single 2Gbps connection. You also get two USB 3.0 ports for connecting USB drives and a single 10Gbps SFP+ LAN port. This final port is potentially the most interesting, and also most niche since it allows you to connect a high-speed NAS server, a secondary switch for more Ethernet ports, or other devices that require a bunch of high-speed bandwidth.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Network Performance: Fantastic 5GHz performance, WiGig leaves a bit to be desired**
 
  Since this is an 802.11ad router, and the 60GHz WiGig network is the key feature here, that’s where I’m going to start. All of my tests are performed using a 1Gbps Mediacom cable internet connection, so any testing done on an 802.11ad router like this involves data transfer speeds within my network, not the internet connection. For testing purposes, I have a[laptop](https://www.lifewire.com/best-laptops-to-buy-4043650) that I retrofitted with a network interface card featuring the QCA9005 chipset.
@@ -169,12 +135,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/Jwl6BD38cWznmN0op6bpzAmBs_U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_03-4cfe683a7cf94e94b14c0ec2be12da50.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jeremy Laukkonen
 
  To the Nighthawk X10’s credit, the 5GHz network performance exceeded my wildest expectations. Using my 1Gbps Mediacom cable internet connection, I measured a relatively mediocre 373Mbps down and 73.6Mbps up. At the same time, using a wired connection to the same router, I measured 536.8Mbps down.
@@ -186,6 +146,13 @@ Lifewire / Jeremy Laukkonen
  The Nighthawk X10 held strong though, dropping the download speed to 38.8Mbps and the upload speed to 13.1Mbps, but without touching the ping, barely increasing jitter, and introducing just 1.2 percent packet loss. Strangely enough, this 802.11ad router’s strongest selling point might be the impressively robust nature of its 5GHz network.
 
  Strangely enough, this 802.11ad router’s strongest selling point might be the impressively robust nature of its 5 GHz network.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Netgear’s web interface and web app, plus Plex and more**
 
@@ -201,6 +168,13 @@ Lifewire / Jeremy Laukkonen
 
  I plugged in one of my media-filled SSD USB drives and had no trouble streaming to any of the Plex clients I have on my network.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Not bad if you really need 802.11ad**
 
  With an MSRP of $500, and a street price closer to $250, the Nighthawk X10 AD7200 is a tough sell to most consumers. It features a wireless technology that hasn’t really caught on, and which most consumers just won’t be able to take advantage of. For the money you’d spend on this router, you could get a high-end 802.11ax router.
@@ -210,11 +184,12 @@ Lifewire / Jeremy Laukkonen
  By way of comparison, the Nighthawk Pro Gaming XR700 has similar specifications, swaps out Plex Media Server for some gaming-centric quality of life (QoL) features, and has a street price that’s close to $400.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Netgear Nighthawk X10 AD7200 vs. Netgear Nighthawk RAX80**
 
  With an MSRP of $400, and a street price closer to $350, the Nighthawk RAX80 (see on[Amazon](https://www.amazon.com/dp/B01MQDZXA4?linkCode=ogi&th=1&psc=1&tag=lifewire-onsite-prod-20&ascsubtag=4846418%7Cnd55a891e250641509ef77229001ead8021%7C) ) is in the same general territory as the Nighthawk X10\. The big difference between these competing Nighthawk devices is that one is an 802.11ad router, and the other is an 802.11ax router.
@@ -256,8 +231,6 @@ Lifewire / Jeremy Laukkonen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -265,4 +238,26 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-clearer-brighter-videos-mastering-the-v22-technique/"><u>[New] Clearer, Brighter Videos Mastering the V2.2 Technique</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-5-essential-strategies-to-avoid-a-dark-screen-during-obs-recordings/"><u>[Updated] 2024 Approved 5 Essential Strategies to Avoid a Dark Screen During OBS Recordings</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-complete-guide-to-camstudio-screencap-mastery/"><u>[Updated] 2024 Approved Complete Guide to CamStudio Screencap Mastery</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2021-apple-tv-4k-assessment-experience-crystal-clear-hd-with-intuitive-siri-voice-command/"><u>2021 Apple TV 4K Assessment: Experience Crystal Clear HD with Intuitive Siri Voice Command</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722601786644-2024s-best-selection-of-extended-format-desk-mouse-covers-find-your-perfect-match/"><u>2024'S Best Selection of Extended-Format Desk Mouse Covers: Find Your Perfect Match!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/5-critical-points-to-ponder-prior-to-acquiring-a-wearable-exercise-monitor/"><u>5 Critical Points to Ponder Prior to Acquiring a Wearable Exercise Monitor</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/5-most-exceptional-web-based-programming-lessons-to-excel-this-year/"><u>5 Most Exceptional Web-Based Programming Lessons to Excel This Year</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-critical-look-at-google-stadia-pathways-to-progress-and-betterment/"><u>A Critical Look at Google Stadia: Pathways to Progress and Betterment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-deep-dive-into-the-insignia-ns-43df710na19-featuring-fire-tv-alexa-and-ultra-hd-at-a-budget-price/"><u>A Deep Dive Into the Insignia NS-43DF710NA19 - Featuring Fire TV, Alexa, and Ultra HD at a Budget Price</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-feast-of-mayhem-exploring-every-bite-with-an-overcooked-2-review/"><u>A Feast of Mayhem: Exploring Every Bite with an Overcooked! 2 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-tech-savvy-reviewer-dissects-the-features-of-netatmos-innovative-and-stylish-weather-station/"><u>A Tech Savvy Reviewer Dissects the Features of Netatmo's Innovative and Stylish Weather Station</u></a></li>
+<li><a href="https://win-able.techidaily.com/banishing-shadows-effective-solutions-to-tackle-star-wars-battlefront-2s-menacing-black-screens/"><u>Banishing Shadows: Effective Solutions to Tackle Star Wars Battlefront 2’S Menacing Black Screens</u></a></li>
+<li><a href="https://games-able.techidaily.com/clearing-roblox-problem-262/"><u>Clearing Roblox: Problem 262</u></a></li>
+<li><a href="https://techtrends.techidaily.com/effective-solutions-for-correcting-missing-or-not-detected-mfc71dll-errors/"><u>Effective Solutions for Correcting 'Missing' Or 'Not Detected' mfc71.dll Errors</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/electric-cars-unveiled-enjoy-exclusive-parking-and-hov-lane-benefits-on-the-go/"><u>Electric Cars Unveiled: Enjoy Exclusive Parking & HOV Lane Benefits on the Go!</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Huawei Nova Y71 | Dr.fone</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/powerpoint-dateien-wiederherstellen-die-im-letzten-moment-in-windows-gesperrt-wurden-tipps-und-tricks/"><u>PowerPoint Dateien Wiederherstellen, Die Im Letzten Moment in Windows Gesperrt Wurden - Tipps Und Tricks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722787216906-tcls-gamechanger-the-50s425-50-roku-smart-tv-2019-in-all-its-value-and-features-revealed/"><u>TCL's Gamechanger: The 50S425 50 Roku Smart TV (2019) in All Its Value and Features, Revealed!</u></a></li>
+</ul></div>
 

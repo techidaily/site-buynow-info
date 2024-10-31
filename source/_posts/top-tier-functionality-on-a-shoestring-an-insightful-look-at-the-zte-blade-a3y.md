@@ -1,7 +1,7 @@
 ---
 title: Top-Tier Functionality on a Shoestring - An Insightful Look at the ZTE Blade A3Y
-date: 2024-09-09T14:01:29.274Z
-updated: 2024-09-10T14:01:29.274Z
+date: 2024-10-27T04:15:22.603Z
+updated: 2024-10-30T19:42:31.067Z
 categories:
   - BestProducts
 description: This Article Describes Top-Tier Functionality on a Shoestring - An Insightful Look at the ZTE Blade A3Y
@@ -9,38 +9,14 @@ excerpt: This Article Describes Top-Tier Functionality on a Shoestring - An Insi
 thumbnail: https://www.lifewire.com/thmb/4FK97gxtsYkMazciU73ZS05l6Lc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ZTE_BLADE_A3Y_HeroHoriz-c533d37a50494311a6d3905bdb5738af.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Ultimate Guide to the Urban Armor Gear MacBook Pro Carrier – Tough Meets Functional Design
 
 5
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Urban Armor Gear UAG MacBook Pro 13-inch Laptop Case
 
 ![Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/thmb/FNlfCYB_21wFeQmfHx1o2Di2Jmc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4153328-1-7cd2eca904ca419e9039c9fdcbdfbbcd.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Hayley Prokos
 
  What We Like
@@ -67,11 +43,12 @@ Lifewire / Hayley Prokos
 ![Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/thmb/FtpULeJDToDCBy6PB_Y8rD7mqOg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4153328-1-7cd2eca904ca419e9039c9fdcbdfbbcd.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Lifewire / Hayley Prokos
 
 [View On Amazon](https://www.amazon.com/MacBook-13-inch-Feather-Light-Rugged-Military/dp/B01N2WBO24/?tag=lifewire-onsite-prod-20&ascsubtag=4689954%7Cne33448c113cd493c9d279e510369ac2000%7CB01N2WBO24) [View On Best Buy $80](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fuag-top-and-rear-cover-for-apple-macbook-pro-13-3-transparent-ice%2F5711963.p%3Fcmp%3DRMX%26skuId%3D5711963) [View On B&H Photo Video $80](https://www.bhphotovideo.com/c/product/1314774-REG/uag%5Fmbp13%5F4g%5Fl%5Fic%5Fmacbook%5Fpro%5F13%5Flate.html)
@@ -98,11 +75,12 @@ Lifewire / Hayley Prokos
 ![Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/thmb/fDMp2JRg--bQrlqwhfek_u8CqRE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4153328-3-c586304cdf4944919286e35a760d720f.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Hayley Prokos
 
 ## **Design: Rugged looks**
@@ -120,6 +98,19 @@ Lifewire / Hayley Prokos
  The style of the case is naturally more utilitarian than it is sleek, but that’s usually the tradeoff for something that offers such protection. And despite the extra protection, there seems to be a sufficient amount of ventilation on the bottom of the case.
 
 ![Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/thmb/8sq4AYsbhOuB90hMOUtdeXMcaFg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4153328-2-5987a4064c7a4932a172493350ec5000.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Hayley Prokos
 
@@ -140,11 +131,12 @@ Lifewire / Hayley Prokos
 ![Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/thmb/9Y7LLmqrhHo_Pbzks49nRtjt4ws=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4153328-4-49105513ae5d4a97ac284ce462185b5d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Hayley Prokos
 
 ## **Durability: As tough as it gets**
@@ -156,11 +148,12 @@ Lifewire / Hayley Prokos
  We dropped the case from standing height on a variety of surfaces … and it sustained virtually no damage (a few superficial scratches at most).
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: A small sum to pay to protect such expensive hardware**
 
  The Urban Armor Gear MacBook Pro 13-Inch Laptop Case retails for $79.95, which is definitely on the more expensive end of the spectrum for a laptop case. But if you are taking your laptop into rugged conditions or you’re simply accident-prone, we think $80 seems a fair amount to pay to keep your far-more-pricey MacBook safe.
@@ -179,12 +172,6 @@ Lifewire / Hayley Prokos
 
  The Under Armor Gear (UAG) MacBook Pro 13-inch Laptop Case is an excellent option for those seeking maximum protection. This case may not be for you if you’ll need to remove and reinstall it regularly, which is both a hassle and a potential risk for damage.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
@@ -209,8 +196,6 @@ Lifewire / Hayley Prokos
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -218,4 +203,26 @@ Lifewire / Hayley Prokos
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-enhancing-facebook-viewership-with-obs-broadcasts/"><u>[New] Enhancing Facebook Viewership with OBS Broadcasts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-exploring-the-depths-of-ifunnys-meme-experience/"><u>[New] Exploring the Depths of iFunny's Meme Experience</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-fb-video-audio-extraction-made-simple-for-mp3-lovers-for-2024/"><u>[New] FB Video Audio Extraction Made Simple for MP3 Lovers for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-breaking-down-asus-pa32u-a-4k-professional-review/"><u>[Updated] In 2024, Breaking Down ASUS PA32U A 4K Professional Review</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-realme-narzo-60-pro-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Realme Narzo 60 Pro 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/complete-premiere-pro-full-screen-insight/"><u>Complete Premiere Pro Full Screen Insight</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/for-beginners-top-8-point-and-shoot-and-35mm-cameras-for-2024/"><u>For Beginners Top 8 Point-and-Shoot and 35Mm Cameras for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-13-ultra-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on 13 Ultra</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insights-and-evaluation-the-google-voice-calling-experience-unveiled/"><u>Insights and Evaluation: The Google Voice Calling Experience Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/interactive-elements/"><u>Interactive Elements</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/keep-your-furry-friend-fed-on-time-every-day-using-arfs-smart-pet-feeder/"><u>Keep Your Furry Friend Fed on Time Every Day Using Arf's Smart Pet Feeder</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-handheld-game-devices-of-2024-the-ultimate-guide/"><u>Leading Handheld Game Devices of 2024: The Ultimate Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-flaws-in-a-compact-package-detailed-assessment-of-criacrs-bluetooth-fm-transmitter-model-cp24/"><u>Navigating Flaws in a Compact Package: Detailed Assessment of Criacr's Bluetooth FM Transmitter - Model CP24</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-best-marathon-timers-2024s-finest-running-watches/"><u>Navigating the Best Marathon Timers: 2024’S Finest Running Watches</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-through-comfort-and-clarity-the-ultimate-guide-to-the-rotibox-bluetooth-headset-hat/"><u>Navigating Through Comfort and Clarity: The Ultimate Guide to the Rotibox Bluetooth Headset Hat</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nba-2k19-top-tier-basketball-gaming-simulation/"><u>NBA 2K19: Top-Tier Basketball Gaming Simulation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/next-level-wearable-tech-with-samsung-galaxy-watch-active2-an-in-depth-review/"><u>Next-Level Wearable Tech with Samsung Galaxy Watch Active2 - An In-Depth Review</u></a></li>
+<li><a href="https://program-issues.techidaily.com/persistent-issues-in-pathfinders-latest-title-wrath-of-the-righteous-keeps-crashing-down/"><u>Persistent Issues in Pathfinder's Latest Title - Wrath of the Righteous Keeps Crashing Down</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/resolved-error-code-0x807800c5-in-creating-backup-on-windows-11/"><u>Resolved: Error Code 0X807800c5 in Creating Backup on Windows 11</u></a></li>
+</ul></div>
 

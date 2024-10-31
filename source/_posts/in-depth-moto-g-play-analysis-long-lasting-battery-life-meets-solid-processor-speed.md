@@ -1,7 +1,7 @@
 ---
 title: In-Depth Moto G Play Analysis - Long-Lasting Battery Life Meets Solid Processor Speed
-date: 2024-10-11T18:46:54.034Z
-updated: 2024-10-18T22:06:11.086Z
+date: 2024-10-24T23:26:29.332Z
+updated: 2024-10-30T16:17:03.619Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Moto G Play Analysis - Long-Lasting Battery Life Meets Solid Processor Speed
@@ -43,16 +43,16 @@ thumbnail: https://www.lifewire.com/thmb/HEdY5z0upwUmisddzAWTi0WyYpQ=/400x300/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/AfRhNgqeOD7JfcVqpjzm5LwPSB4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -78,6 +78,19 @@ thumbnail: https://www.lifewire.com/thmb/HEdY5z0upwUmisddzAWTi0WyYpQ=/400x300/fi
 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -99,10 +112,10 @@ thumbnail: https://www.lifewire.com/thmb/HEdY5z0upwUmisddzAWTi0WyYpQ=/400x300/fi
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -123,13 +136,6 @@ thumbnail: https://www.lifewire.com/thmb/HEdY5z0upwUmisddzAWTi0WyYpQ=/400x300/fi
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -138,18 +144,18 @@ thumbnail: https://www.lifewire.com/thmb/HEdY5z0upwUmisddzAWTi0WyYpQ=/400x300/fi
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: More than most**
 
  The Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender is listed at $250, although it’s being sold for $220 at multiple retailers as of this writing. That’s definitely on the higher end for an extender.
 
  Should you really spend that much on an extender? If you don’t already have a new Wi-Fi 6 router, then probably not. You might see higher peaks of speed as I did, but rather than trying to mix and match old and new tech, you’re probably better off investing in a new Wi-Fi mesh system that can cover the entire house. Netgear’s Orbi is a favorite, as is Google’s similar Nest Wi-Fi system.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Netgear Nighthawk AX8 vs. Netgear Nighthawk X6S (EX8000)**
 
@@ -187,22 +193,22 @@ thumbnail: https://www.lifewire.com/thmb/HEdY5z0upwUmisddzAWTi0WyYpQ=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-premier-pick-top-10-apps-to-catch-football-and-tennis-in-the-moment/"><u>[New] In 2024, Premier Pick Top 10 Apps to Catch Football and Tennis in the Moment</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-7-ideas-to-improve-the-unboxing-experience/"><u>[Updated] In 2024, 7 Ideas to Improve the Unboxing Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ai-showdown-alexa-vs-google-assistant-which-one-deserves-a-spot-in-your-home/"><u>AI Showdown: Alexa Vs. Google Assistant – Which One Deserves a Spot in Your Home?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/b550-xt-breakthrough-speech-control-and-noise-suppression/"><u>B550-XT Breakthrough: Speech Control & Noise Suppression</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/capability-meets-value-in-our-in-depth-look-at-the-google-pixel-4a-5g-smartphone/"><u>Capability Meets Value in Our In-Depth Look at the Google Pixel 4a 5G Smartphone</u></a></li>
-<li><a href="https://facebook.techidaily.com/fresh-laws-on-the-horizon-for-americas-big-tech-firms/"><u>Fresh Laws on the Horizon for America's Big Tech Firms</u></a></li>
-<li><a href="https://games-able.techidaily.com/gaming-giants-collide-ps5-vs-xbox-series-x-battle/"><u>Gaming Giants Collide - PS5 V/S Xbox Series X Battle</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-iphone-8-plus-from-backup-when-itunes-backup-is-corrupt-or-not-compatible-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Restore iPhone 8 Plus from Backup when iTunes Backup is Corrupt or not compatible | Stellar</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-from-idea-to-execution-a-comprehensive-youtube-video-guide/"><u>In 2024, From Idea to Execution A Comprehensive YouTube Video Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-review-how-the-xbox-one-elite-series-ncontroller-dominates-game-controls/"><u>In-Depth Review: How the Xbox One Elite Series nController Dominates Game Controls</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ipad-air-analysis-surprisingly-superior-making-me-question-my-choice-of-the-ipad-pro-expert-insights-on-tech/"><u>IPad Air Analysis: Surprisingly Superior, Making Me Question My Choice of the iPad Pro - Expert Insights on Tech</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/key-points-to-evaluate-prior-to-acquiring-the-latest-printing-device/"><u>Key Points to Evaluate Prior to Acquiring the Latest Printing Device</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-the-skagen-falster-3s-features-a-fusion-of-classic-charm-and-cutting-edge-tech/"><u>Navigating the Skagen Falster 3'S Features: A Fusion of Classic Charm & Cutting-Edge Tech</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/smart-spending-on-literature-a-2019-amazon-kindle-review-for-cost-conscious-bookworms/"><u>Smart Spending on Literature: A 2019 Amazon Kindle Review for Cost-Conscious Bookworms</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/step-by-step-guide-to-installing-the-latest-asus-vg248qe-drivers-for-your-pc/"><u>Step-by-Step Guide to Installing the Latest Asus VG248QE Drivers for Your PC</u></a></li>
-<li><a href="https://windows11.techidaily.com/strategizing-windows-11-service-management-safely/"><u>Strategizing Windows 11 Service Management Safely</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-complete-guide-to-the-garmin-forerunner-945-a-revolutionary-multi-sport-tracking-device/"><u>The Complete Guide to the Garmin Forerunner 945 - A Revolutionary Multi-Sport Tracking Device</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-capture-gameplay-prowess-on-android-screens/"><u>[New] In 2024, Capture Gameplay Prowess on Android Screens</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-next-gen-gamers-wealth-wave-predictions/"><u>[New] Next-Gen Gamers' Wealth Wave Predictions</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-best-writing-across-the-spectrum-8-film-categories-for-2024/"><u>[Updated] Best Writing Across the Spectrum 8 Film Categories for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-exclusive-moba-selection-for-android-gamers/"><u>[Updated] In 2024, Exclusive MOBA Selection for Android Gamers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-memorable-moments-downloading-tweets-emotive-graphics/"><u>2024 Approved Memorable Moments Downloading Tweets’ Emotive Graphics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/acurite-weather-station-model-01036m-tested-and-reviewed-quick-installation-sturdy-design-explained/"><u>AcuRite Weather Station Model 01036M Tested & Reviewed: Quick Installation, Sturdy Design Explained</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elegant-seafaring-the-alluring-charm-of-skagen-falster-2-over-apple/"><u>Elegant Seafaring: The Alluring Charm of Skagen Falster 2 Over Apple</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-kensun-mobile-tire-pump-a-combination-of-strength-and-portability/"><u>Evaluating the Kensun Mobile Tire Pump – A Combination of Strength and Portability</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-leading-no-tangle-call-devices-your-definitive-selection-guide/"><u>Exploring Leading No-Tangle Call Devices - Your Definitive Selection Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-sonys-affordable-hd-camcorder-features/"><u>Exploring Sony's Affordable HD Camcorder Features</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-the-silent-play-how-to-restore-audio-in-roblox-on-win11-and-win10/"><u>Fixing the Silent Play: How to Restore Audio in Roblox on Win11 and Win10</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-elevating-audience-excitement-with-top-ideas/"><u>In 2024, Elevating Audience Excitement with Top Ideas</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-narzo-n53-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Realme Narzo N53 Phone without Google Account?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-realme-gt-5-pro-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Realme GT 5 Pro Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-the-echo-dot-4th-generation-innovative-design-unveiled/"><u>Review of the Echo Dot 4Th Generation: Innovative Design Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sound-powered-by-logitech-g533-a-game-changer/"><u>Sound Powered by Logitech G533: A Game Changer?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-most-innovative-and-fastest-wireless-commute-routers-in-202e4-a-consumers-guide/"><u>Unveiling the Most Innovative and Fastest Wireless Commute Routers in 202E4: A Consumer's Guide</u></a></li>
 </ul></div>
 

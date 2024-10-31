@@ -1,7 +1,7 @@
 ---
 title: Is Swapping Out Phone Power Worthwhile?
-date: 2024-09-09T14:01:45.564Z
-updated: 2024-09-10T14:01:45.564Z
+date: 2024-10-29T23:59:36.767Z
+updated: 2024-10-30T23:53:52.996Z
 categories:
   - BestProducts
 description: This Article Describes Is Swapping Out Phone Power Worthwhile?
@@ -41,12 +41,6 @@ Lifewire / Scott Gercken
 
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/0KtwvTBY-2P8KkZ_aO3Di4x-41c=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_HeroSquare-191df3b949f947dc9398373d6f610c19.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Scott Gercken
 
 [View On Amazon](https://www.amazon.com/dp/B01I06JJZM/?tag=lifewire-onsite-prod-20&ascsubtag=4774592%7Cndcdcb6695c0f483b9cdb00c2d3a1335107%7CB01I06JJZM)
@@ -75,6 +69,13 @@ Lifewire / Scott Gercken
 
  Check out our buyers guide for more information on what you should look for in an optical drive.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Solid construction for portability**
 
  The Pioneer BDR-XS06 Blu-ray Burner is a shiny, silver drive. It’s a tiny 5.3" square, only .7” tall, with a silver top and sides, and a black underside. The bottom has two rubberized feet that run the width of the device, keeping it stable on slippery surfaces, nice if you’re using it away from your desk. The silver outer shell doesn’t smudge easily, so it’ll look nice without constant cleaning.
@@ -85,13 +86,14 @@ Lifewire / Scott Gercken
 
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/LB5BA5cM1cVQB_sK6BgcOEl3l9k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_02-60d78cf22bf04b52979d5f65437a35e8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Scott Gercken
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: So easy**
 
@@ -104,11 +106,12 @@ Lifewire / Scott Gercken
  Even without the software, the BDR-XS06 worked right away. This model works right out of the box with both Windows and MacOS with little to no additional fuss. It’s one of the most plug-and-play burners we’ve tested.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: As advertised**
 
  Like most Blu-ray burners, the BDR-XS06 slows down its read speed when you put in a movie or audio disc. That keeps the noise level low for those media. When it reads data discs, however, the speed picks up, which means more noise. The noise while installing Roxio Toast Lite got to an annoyingly loud level. It might not be too much in a busy office, but it was surprising in the quiet room where we tested it.
@@ -119,30 +122,12 @@ It’s one of the most plug-and-play burners we’ve tested.
 
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/hYWwVcK8E-FSog7TpOTOgE-hYnY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_03-df0bfb492ead4e86a35df19618bcd5d4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Scott Gercken
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Image Quality: Decent quality for an optical drive**
 
  While Blu-ray burners and[optical drives](https://www.lifewire.com/what-is-an-optical-disc-drive-2618157) aren’t exactly designed to play movies, we tried it anyway. We used a free Blu-ray player for Mac, and the picture was pretty good. On the Mac, it was sharp, almost as good as a[Blu-ray player](https://www.lifewire.com/best-blu-ray-players-1846400) designed for the TV. Next, we connected an HDMI cable to the Mac to see what it would look like on an[HDTV](https://www.lifewire.com/best-tvs-to-buy-4061107) . It wasn’t as good as on the computer, but it wasn’t bad either. The TV reported that the resolution was 768p at 60hz, not as good as a Blu-ray player built for that purpose, but better than SD.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Sound Quality: Blu-ray quality sound**
 
  While many people rave about[HD](https://www.lifewire.com/what-you-need-to-see-hd-1847338) image quality, we think that the depth of sound is the most exciting feature of the Blu-ray format. When you get all the high-end and low-end sound, it feels more immersive, and the Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner delivered the audio quality you’d expect from a Blu-ray. If you don’t mind the reduction in image quality vs. a dedicated player, the BDR-XS06 could double as a Blu-ray player for your PC or TV.
@@ -158,21 +143,22 @@ It’s one of the most plug-and-play burners we’ve tested.
  That extra durability is worth the slightly higher cost than this drive’s competitors.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Good value for the speed and portability**
 
  For the price, it delivers strong performance and portability. At an MSRP of $120, the BDR-XS06 is a little more expensive than some of its competition, but it feels more solid than even Pioneer’s own models in this price range. That extra durability is worth the slightly higher cost than this drive’s competitors.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: A step ahead**
 
 **_Pioneer BDR-XD05B 6x Slim Portable USB 3.0 Blu-ray Burner_ :** The Pioneer BDR-XD05B is Pioneer’s new model of external Blu-ray burners. It has a clamshell case, which means the top pops open so you can place the Blu-ray into the drive. The drive is black and a smudge magnet, and it also doesn’t feel as sturdy as the Pioneer BDR-XS06\. In general, we prefer the BDR-XS06 for its sturdy, smudge-free design, but the BDR-XD05B is a fine choice if your main concern is price.
@@ -191,18 +177,19 @@ It’s one of the most plug-and-play burners we’ve tested.
 
  The Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner is a solid, portable Blu-ray burner. It’s small enough to pack up to take on a trip, and it’s solid enough to give us confidence that it can endure some jostling on the way. It costs a little more than its competitors, but we think the solid construction is worth it.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [OWC Mercury Pro External USB 3.1 Gen 1 Optical Drive](https://www.lifewire.com/owc-mercury-pro-review-4774690)
 * [Asus BW-16D1X-U Blu-ray Drive](https://www.lifewire.com/asus-bw-16d1x-u-blu-ray-drive-review-4774686)
 * [NAVISKAUTO 12" Portable DVD Player](https://www.lifewire.com/naviskauto-12-portable-dvd-player-review-4691953)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  BDR-XS06 Slot Loading Portable Blu-ray Burner
@@ -220,14 +207,11 @@ It’s one of the most plug-and-play burners we’ve tested.
 * Warranty  1 year
 * Color options  Silver
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -236,4 +220,20 @@ It’s one of the most plug-and-play burners we’ve tested.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-interactive-media-exchange-twitter-to-snapchat-videos-for-2024/"><u>[New] Interactive Media Exchange Twitter to Snapchat Videos for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-harmony-a-comprehensive-song-selection-methodology-for-2024/"><u>[Updated] Instagram Harmony A Comprehensive Song Selection Methodology for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-video-production-evolution-prime-lenses-for-youtube-enthusiasts/"><u>2024 Approved Video Production Evolution Prime Lenses for YouTube Enthusiasts</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/come-configurare-il-tuo-disco-di-ripristino-per-windows-11-con-due-configurazioni-diverse/"><u>Come Configurare Il Tuo Disco Di Ripristino per Windows 11 Con Due Configurazioni Diverse</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-classic-charm-of-withings-move-the-perfect-blend-of-traditional-and-modern-in-a-smartwatch/"><u>Experience the Classic Charm of Withings Move - The Perfect Blend of Traditional and Modern in a Smartwatch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-classic-innovation-in-lg-watch-style-a-deep-dive-into-wear-os-version-20/"><u>Exploring Classic Innovation in LG Watch Style – A Deep Dive Into Wear OS Version 2.0</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixed-guide-eliminating-the-dark-scene-in-helldivers-ii-upon-boot-up/"><u>Fixed Guide: Eliminating the Dark Scene in Helldivers II upon Boot-Up</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-battery-powered-google-wireless-nest-doorbell-performance/"><u>In-Depth Analysis: Battery Powered Google Wireless Nest Doorbell Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-fitbit-charge-4-when-aesthetics-and-utility-unite/"><u>In-Depth Look at the Fitbit Charge 4: When Aesthetics and Utility Unite</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/kidizoom-cam-series-joyful-exploration/"><u>Kidizoom Cam Series: Joyful Exploration</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/master-the-trick-to-keep-your-cs-go-game-running-smoothly/"><u>Master the Trick to Keep Your CS GO Game Running Smoothly</u></a></li>
+<li><a href="https://blog-min.techidaily.com/step-by-step-guide-transforming-vob-files-into-imovie-compatible-formats/"><u>Step-by-Step Guide: Transforming VOB Files Into iMovie Compatible Formats</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-xiaomi-redmi-note-12-4g-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Xiaomi Redmi Note 12 4G Phone Hassle-Free</u></a></li>
+</ul></div>
 

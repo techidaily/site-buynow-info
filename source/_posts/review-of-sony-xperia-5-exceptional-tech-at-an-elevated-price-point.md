@@ -1,7 +1,7 @@
 ---
 title: "Review of Sony Xperia 5: Exceptional Tech at an Elevated Price Point"
-date: 2024-10-13T08:35:43.038Z
-updated: 2024-10-19T01:08:58.509Z
+date: 2024-10-29T21:40:41.659Z
+updated: 2024-10-30T20:10:02.653Z
 categories:
   - BestProducts
 description: "This Article Describes Review of Sony Xperia 5: Exceptional Tech at an Elevated Price Point"
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/367ee4c24820f3014ce079b27a52261c1491c40b5
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/EEEMCdq2FsBPMcT8nPUgndDIw4A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 [View On Amazon](https://www.amazon.com/dp/B078WG6DBH/?tag=lifewire-onsite-prod-20&ascsubtag=4796693%7Cn899f0376278d4881a5af76b596b54aa000%7CB078WG6DBH) [View On EBay](https://www.ebay.com/itm/Sony-XBR65X850F-65-Inch-4K-Ultra-HD-Smart-LED-TV-2018-Model/312237520273)
@@ -70,6 +77,13 @@ thumbnail: https://thmb.techidaily.com/367ee4c24820f3014ce079b27a52261c1491c40b5
 
  Though Sony panels are sometimes on the expensive end of the spectrum, there are some older Sony 4K TVs that can be had for a nice little discount. One such TV is Sony’s XBR65X850F from their X850F series. This specific model has now been replaced by the X850G, but that doesn’t mean you necessarily need to go with the most current model. In fact, snagging one of these earlier generation sets can save you some cash without forcing you to compromise too much.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Standard Sony**
 
  The XBR65X850F's design is a combination of sleek and workmanlike. The stand on this Sony is pretty common for TVs these days, with two V-shaped feet that stick out to either side. While they look aluminum, these are actually plastic too, with merely an aluminum finish. They are decently steady, but we noticed a bit of wobble if you move the TV around. It should be plenty sturdy for most, though you will need a fairly wide stand for them to rest on since they stick out so far. There’s also no room for adjusting the unit up or down, but they’re tall enough to fit a soundbar underneath if you want. They also flip open on the top if you want to use them for some clever cable management.
@@ -90,13 +104,6 @@ thumbnail: https://thmb.techidaily.com/367ee4c24820f3014ce079b27a52261c1491c40b5
 
  On the front of the screen, the bezels are a little thicker than some of the 4K TVs we’ve reviewed, but they’re pretty thin and shouldn’t distract. There’s your standard anti-glare coating found on the screen here too.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Stick to the on-screen instructions**
 
  Setting up pretty much any modern-day smart TV is an easy process, so just stick to the on-screen instructions and you’ll be golden. Go ahead and unpack it all, tear off that plastic film, plug in the power cable, and turn on the device.
@@ -104,10 +111,10 @@ thumbnail: https://thmb.techidaily.com/367ee4c24820f3014ce079b27a52261c1491c40b5
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vvIZMf3BNAr8JmiDAVdv4o3ceHg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-2-7eabd63fb6c0415ab75fd927d664a841.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -116,6 +123,13 @@ thumbnail: https://thmb.techidaily.com/367ee4c24820f3014ce079b27a52261c1491c40b5
 
  With the initial process done, you will likely need to run a quick update check. This should automatically pop up, but check under the settings tab if it doesn’t. An update to the firmware should improve things considerably, especially if you need to upgrade to the latest version of Android TV. Updating takes a bit of time to do, so maybe go watch some TV while…oh right. Well, whatever you do during this process, just remember not to unplug the power while it’s running through updates.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Image Quality: Impressive 4K for IPS with some shortcomings**
 
  This section is perhaps the most important for a TV, and while the XBR65X850F performs pretty well in some aspects here, it also has a few weak points.
@@ -123,6 +137,13 @@ thumbnail: https://thmb.techidaily.com/367ee4c24820f3014ce079b27a52261c1491c40b5
  Starting off with some of this unit’s strengths, this particular series uses an IPS panel for the screen, which means you’re going to get vibrant colors, a nice backlight for viewing in bright rooms, and excellent viewing angles. This all adds up to a superb experience if you’ve got a big living room that’s brightly lit by windows, where viewers might not be able to sit completely centered.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/r5reh9LkA7QvieX1JzBg5J8qNjY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-5-00a73edbf91c48c6aa2718ab211f2e5d.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -138,40 +159,13 @@ thumbnail: https://thmb.techidaily.com/367ee4c24820f3014ce079b27a52261c1491c40b5
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Audio Quality: Loud, but distorted**
 
  Built-in speakers are never going to be great, but they’re nice to have if you’re lacking an[external sound system](https://www.lifewire.com/connect-tv-to-external-audio-system-1846816) like a soundbar. While we’d recommend getting an external setup for the best experience, let’s take a quick look at what the XBR65X850F has to offer with the included setup.
 
  Right off the bat, this TV can get quite loud and you shouldn’t run into any volume issues. That being said, the overall experience is mediocre at best. The louder you turn it up, the more distortion is added. These speakers should suffice in quiet environments if you’re primarily looking for nice clear dialogue with treble and mid, but the bass is not so good.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: A bit sluggish but good enough**
 
@@ -242,19 +236,20 @@ thumbnail: https://thmb.techidaily.com/367ee4c24820f3014ce079b27a52261c1491c40b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-examining-the-perks-and-pitfalls-of-vr/"><u>[New] 2024 Approved Examining the Perks and Pitfalls of VR</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-extracting-youtube-videos-simplified/"><u>[New] 2024 Approved Extracting YouTube Videos Simplified</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-unveil-the-finest-vr-cycling-worlds-for-2024/"><u>[New] Unveil the Finest VR Cycling Worlds for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-reviving-past-joy-on-fb-the-look-back-video-editing-path/"><u>[Updated] 2024 Approved Reviving Past Joy on FB The Look Back Video Editing Path</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/before-buying-reflect-on-these-essential-dash-cam-qualities/"><u>Before Buying, Reflect on These Essential Dash Cam Qualities</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-of-the-best-superior-wireless-routers-offering-maximum-coverage/"><u>Best of the Best: Superior Wireless Routers Offering Maximum Coverage</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/elevate-your-ios-experience-top-5-ps2-simulators-for-2024/"><u>Elevate Your iOS Experience Top 5 PS2 Simulators for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/emoji-insights-that-will-blow-your-mind-a-list-of-10-unexpected-facts/"><u>Emoji Insights That Will Blow Your Mind: A List of 10 Unexpected Facts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/get-the-most-bang-for-your-buck-with-the-pruveeo-f5-1080p-hd-dashcam-expert-review-inside/"><u>Get the Most Bang for Your Buck with The Pruveeo F5 1080P HD Dashcam: Expert Review Inside</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-xiaomi-13t-pro-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Xiaomi 13T Pro FRP Bypass Instantly</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Realme GT Neo 5 SE? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-apple-iphone-12-why-its-a-game-changer/"><u>In-Depth Analysis of the Apple iPhone 12: Why It's a Game Changer</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-j5-tactical-prov1-the-ultimate-compact-flashlight-with-enhanced-durability-and-brilliant-illumination/"><u>Review of J5 Tactical ProV1 - The Ultimate Compact Flashlight with Enhanced Durability and Brilliant Illumination</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-showdown-features-and-reviews-of-google-nest-audio-vs-apple-homepod/"><u>The Ultimate Showdown: Features and Reviews of Google Nest Audio Vs. Apple HomePod</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-9-essential-apps-for-pulling-youtube-videos-android/"><u>[New] In 2024, 9 Essential Apps for Pulling YouTube Videos (Android)</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-unmatched-collection-10-excellent-platforms-for-vimeo-video-downloaders/"><u>[Updated] 2024 Approved Unmatched Collection 10 Excellent Platforms for Vimeo Video Downloaders</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-ideal-4k-recorder-software-selections/"><u>2024 Approved Ideal 4K Recorder Software Selections</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/android-essentials-for-immersive-video-and-vr-content-for-2024/"><u>Android Essentials for Immersive Video and VR Content for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/app-alert-chatgpt-now-on-ios/"><u>App Alert: ChatGPT Now on iOS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-portable-gaming-computers-power-in-a-pocket-sized-package/"><u>Best Portable Gaming Computers: Power in a Pocket-Sized Package</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/head-to-head-battle-features-and-differences-between-google-nest-audio-and-nest-mini/"><u>Head-to-Head Battle: Features and Differences Between Google Nest Audio and Nest Mini</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-t2x-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo T2x 5G Location by Number | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-maximizing-your-walls-with-windows-11-a-guide-to-changing-backdrops/"><u>In 2024, Maximizing Your Walls with Windows 11 A Guide to Changing Backdrops</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/overcooked-2-analysis-a-culinary-chaos-adventure/"><u>Overcooked! 2 Analysis: A Culinary Chaos Adventure</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/streamline-your-screen-time-step-by-step-towards-a-well-curated-playlist-for-2024/"><u>Streamline Your Screen Time Step-by-Step Towards a Well-Curated Playlist for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-enhancing-signal-strength-testing-the-netgear-ex3700-ac750-range-extender/"><u>The Ultimate Guide to Enhancing Signal Strength: Testing the Netgear Ex3700 AC750 Range Extender</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unleash-your-potential-with-fitbit-versa-3-comprehensive-wellness-applications-and-built-in-gps-for-maximum-motivation/"><u>Unleash Your Potential with Fitbit Versa 3: Comprehensive Wellness Applications and Built-In GPS for Maximum Motivation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-pros-and-cons-in-depth-look-at-the-google-pixel-5-flagship-experience/"><u>Unveiling the Pros and Cons: In-Depth Look at the Google Pixel 5 Flagship Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/your-all-in-one-wellness-partner-unveiling-the-samsung-galaxy-fit2-portability-meets-fitness-tracking/"><u>Your All-in-One Wellness Partner - Unveiling the Samsung Galaxy Fit2: Portability Meets Fitness Tracking</u></a></li>
 </ul></div>
 

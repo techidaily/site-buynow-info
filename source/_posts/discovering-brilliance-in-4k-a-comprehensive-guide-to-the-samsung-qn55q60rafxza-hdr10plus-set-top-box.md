@@ -1,7 +1,7 @@
 ---
 title: "Discovering Brilliance in 4K: A Comprehensive Guide to the Samsung QN55Q60RAFXZA HDR10+ Set-Top Box"
-date: 2024-09-09T14:00:09.553Z
-updated: 2024-09-10T14:00:09.553Z
+date: 2024-10-25T01:25:35.119Z
+updated: 2024-10-30T22:27:43.076Z
 categories:
   - BestProducts
 description: "This Article Describes Discovering Brilliance in 4K: A Comprehensive Guide to the Samsung QN55Q60RAFXZA HDR10+ Set-Top Box"
@@ -9,18 +9,6 @@ excerpt: "This Article Describes Discovering Brilliance in 4K: A Comprehensive G
 thumbnail: https://thmb.techidaily.com/5b7228f82dd55952004c9e54eccc979f0193c694cfbf96a3723eb54169ea5205.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Experience Next-Level Gaming with the Affordable HP OMEN Obelisk - Comprehensive Analysis Inside
 
 4
@@ -49,12 +37,6 @@ Lifewire / Jonno Hill
 
 4
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## HP Omen Obelisk
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/ltgwwtDrSkLcZMSVU6VX1rKcbaA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_HP-OMEN-Obelisk-Gaming-Desktop-Computer-1-56ba747009334162a328f46d8b4743af.jpg)
@@ -87,13 +69,14 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/OXMiCXvzh8P7esVvbjPoSorzoxM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-2-7b14850c2ca84af39d5fd116ab483d5d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design** : **Nice looks and small footprint, with many reservations**
 
@@ -117,26 +100,15 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/gfeGQoUwG35q5t-JwO07Ax4jm5I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-3-f4e655ec9e684a47855e9ee7373ba4b6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance** :**Great components for gaming and productivity**
 
  The HP OMEN Obelisk that I tested featured a 9th Gen Intel Core i9 9900K, 32GB of RAM, a 1TB SSD, and the Nvidia GTX GeForce 2080 Super graphics card. This is a potent combination of components in a gaming PC, and I was appropriately impressed by the results.
@@ -146,11 +118,12 @@ Lifewire / Jonno Hill
  The Omen comes equipped with a 1TB[NVMe SSD](https://www.lifewire.com/what-is-m2-833453) and 32GB of DDR4 2666 memory. This is definitely more RAM than games alone will call for, but it’s merely an adequate amount of RAM for some creative professionals working with more demanding software like Adobe After Effects. Keep in mind though, even those that don’t normally need a lot of RAM can still benefit from having more. Among other things, it gives you the luxury of keeping all of your browser tabs and background applications running without having to start juggling applications on and off, which can be helpful from a productivity standpoint.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Gaming** :**Great for the most demanding titles**
 
  Gaming performance is great on the HP OMEN Obelisk thanks to the Nvidia GTX GeForce 2080 Super and Intel i9-9900K combo. I tested a number of games on my 3440x1440 monitor to get a sense of performance. To put this in perspective, this resolution is roughly 60 percent of the pixels of a 4K monitor.
@@ -166,6 +139,13 @@ Lifewire / Jonno Hill
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Network** :**Great speeds, but software that doesn’t do much**
 
@@ -183,12 +163,6 @@ Lifewire / Jonno Hill
 
  The option to overclock your system has you first run a nondescript benchmark, which produces a score with no reference point (to establish a baseline). While it’s nice to have the option, this really,_sincerely_ isn’t a system you want to be overclocking. The i9-9900K CPU already runs alarmingly hot, even with its pre-installed water cooling solution. There also isn’t enough room for anything beyond a 120mm AIO watercooler, and not nearly enough clearance for a popular air heatsink like the Noctua NH-D15.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Highly competitive**
 
  The HP OMEN Obelisk with the same specs as this one can be found for around $2,000, at least when it’s in stock. Despite a lot of flaws that I can point to a nit-pick about, the price is one of the main reasons I still consider the OMEN to be a solid deal. I went through the trouble of parting out a similar build on PCPartPicker, going as far as to cut corners where I usually wouldn’t, and still arrived at just under $1800 before tax.
@@ -212,11 +186,12 @@ Lifewire / Jonno Hill
  The HP OMEN Obelisk delivers fantastic value for gamers shopping for a high-performance, pre-built PC. HP has come a long way, and now offers a much more compelling solution that will appeal to a much broader set of buyers. That said, there is work to be done still, as the case suffers from poor airflow, poor thermals, and not a lot of meaningful ways to improve them.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Omen Obelisk
@@ -236,14 +211,11 @@ Lifewire / Jonno Hill
 * Network  Wi-Fi 5 (2x2), Gigabit Ethernet, Bluetooth 4.2
 * Warranty  1 year limited
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -252,4 +224,26 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-mastering-the-art-of-visual-flow-with-kinemaster/"><u>[New] In 2024, Mastering the Art of Visual Flow with Kinemaster</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-avoiding-the-common-path-the-route-to-unique-streamer-identities/"><u>[Updated] Avoiding the Common Path The Route to Unique Streamer Identities</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-entering-the-virtual-realm-google-meet/"><u>[Updated] In 2024, Entering the Virtual Realm Google Meet</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-close-up-communication-the-art-of-zoom-on-teams/"><u>2024 Approved Close-Up Communication The Art of Zoom on Teams</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-full-review-for-gopro-hero4-sliver/"><u>2024 Approved Full Review for GoPro Hero4 Sliver</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-protection-in-depth-analysis-of-the-procase-macbook-pro-13-sleeve/"><u>Affordable Protection: In-Depth Analysis of the ProCase MacBook Pro 13 Sleeve</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-tvs-competitors-streaming-world/"><u>Apple TV's Competitors Streaming World</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-pioneer-bdr-xd05b-blu-ray-drive-assessment-identifying-key-flaws/"><u>Comprehensive Pioneer BDR-XD05B Blu-Ray Drive Assessment: Identifying Key Flaws</u></a></li>
+<li><a href="https://win11.techidaily.com/detailed-walkthrough-restoring-default-search-features-in-windows-11/"><u>Detailed Walkthrough: Restoring Default Search Features in Windows 11</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/global-content-makers-conference-for-2024/"><u>Global Content Makers' Conference for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1723013590253-hearthstone-update-resolves-pc-game-crashes-play-smoothly-now/"><u>Hearthstone Update Resolves PC Game Crashes - Play Smoothly Now!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/iphone-vs-samsung-faceoff-tips-for-making-the-right-purchase-decision/"><u>IPhone Vs. Samsung Faceoff: Tips for Making the Right Purchase Decision</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-it-worth-it-an-in-depth-examination-of-the-nook-glowlight-4-tablet-e-reader/"><u>Is It Worth It? An In-Depth Examination of the Nook GlowLight 4 Tablet E-Reader</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/life-q30-examination-ankers-economical-approach-to-noise-cancellation/"><u>Life Q30 Examination - Anker’s Economical Approach to Noise Cancellation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/moto-g-power-review-fantastic-battery-life-in-an-attractive-package/"><u>Moto G Power Review: Fantastic Battery Life in an Attractive Package</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/navigating-the-thrilling-world-of-drone-racing-and-premium-fpv-units-for-2024/"><u>Navigating the Thrilling World of Drone Racing & Premium FPV Units for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-omnicharge-omni-20-your-all-in-one-qi-wireless-portable-charger-reviewed/"><u>The Ultimate Guide to Omnicharge Omni 20 - Your All-in-One Qi Wireless Portable Charger Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-photoscape-a-thorough-assessment-for-budget-friendly-visual-adjustments/"><u>The Ultimate Guide to PhotoScape: A Thorough Assessment for Budget-Friendly Visual Adjustments</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/yahoo-windows/"><u>Yahooメール Windows パソコンにおけるバックアップ手順 三通り</u></a></li>
+</ul></div>
 

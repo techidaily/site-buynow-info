@@ -1,7 +1,7 @@
 ---
 title: Lenovo ThinkPad X12 Convertible Laptop - An In-Depth Examination of the Superior Keyboard and Exceptional Dual Functionality
-date: 2024-10-22T01:34:56.138Z
-updated: 2024-10-24T20:29:10.578Z
+date: 2024-10-28T00:45:15.640Z
+updated: 2024-10-30T20:06:04.046Z
 categories:
   - BestProducts
 description: This Article Describes Lenovo ThinkPad X12 Convertible Laptop - An In-Depth Examination of the Superior Keyboard and Exceptional Dual Functionality
@@ -41,15 +41,22 @@ Lifewire / Danny Chadwick
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Z-Edge Z3 Plus Dashcam
 
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/sE7fZzxcPjZXohzroVqLVr5l4qs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
@@ -113,13 +120,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Camera Quality: Beyond high definition**
 
  The Z3 Plus has outstanding recording abilities for a camera this size and can capture footage up to 2560 x 1440 resolution. However, this will fill up your camera quite fast, so you can set it as low as 720p if you don’t need super high-resolution footage. You can also adjust the frame rate to 30 and 60 frames per second (for resolutions exceeding 1920 x 1080, only 30 fps is available).
@@ -132,6 +132,13 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Never failed**
 
  We tested the Z-Edge Z3 Plus on a six-hour road trip, and throughout the drive, the Z3 Plus nor the suction cup failed. So long as it was plugged into power, it functioned flawlessly.
@@ -140,22 +147,15 @@ Lifewire / Danny Chadwick
 
  We did experience one strange glitch at the end of our testing—a couple of minutes after we had boxed up the Z3 Plus and put it away, we noticed loud, rapid beeping coming from the box. We took the Z3 Plus back out and it was frozen on the power-up screen. We couldn’t get it to turn off (or stop beeping) until the battery died a few minutes later. The camera appeared to work fine after that and we weren’t able to replicate the problem, but it was something of an alarming glitch from such a new device.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Fair price for a fair product**
 
  As of the time of this writing, you can pick up this dashcam from Z-Edge for between $120 and $140, which seems like a good value to us. Given its features, tools, and image quality, it’s a fair price for a useful and reliable device.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Z-Edge Z3 Plus vs. Apeman C450 Dash Camera**
@@ -206,17 +206,18 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-efficient-techniques-for-screen-shotting-and-video-recording/"><u>[Updated] 2024 Approved Efficient Techniques for Screen Shotting and Video Recording</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-elevate-your-online-experience-with-the-best-screen-recorders-ranked/"><u>[Updated] 2024 Approved Elevate Your Online Experience with the Best Screen Recorders Ranked</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-honor-play-8t-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Honor Play 8T Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/comprehensive-snappydriver-v113-software-analysis/"><u>Comprehensive SnappyDriver v1.13 Software Analysis</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/demystifying-advanced-features-of-llama-2-software/"><u>Demystifying Advanced Features of Llama 2 Software</u></a></li>
-<li><a href="https://common-error.techidaily.com/efficient-strategies-for-fixing-windows-1903-feature-update-complications/"><u>Efficient Strategies for Fixing Windows 1903 Feature Update Complications</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/eliminating-dcom-errors-in-directinputdll-techniques-and-best-practices/"><u>Eliminating DCOM Errors in Directinput.dll: Techniques and Best Practices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722793339583-revolutionizing-road-safety-with-ddpai-mini3-a-fascinating-review/"><u>Revolutionizing Road Safety with DDpai Mini3 – A Fascinating Review!</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/toms-computer-gear-the-ultimate-guide/"><u>Tom's Computer Gear: The Ultimate Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-best-smart-speaker-for-melody-lovers-the-nest-audio-assessment/"><u>Unveiling the Best Smart Speaker for Melody Lovers - The Nest Audio Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/visual-delights-and-enhanced-efficiency-in-the-latest-imac-m1-powerhouse/"><u>Visual Delights and Enhanced Efficiency in the Latest iMac M1 Powerhouse</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/witness-your-pets-world-with-petcubes-economical-hd-device/"><u>Witness Your Pet's World with Petcube’s Economical HD Device</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-15-innovative-choices-for-action-cams-excluding-gopro/"><u>[New] In 2024, 15 Innovative Choices for Action Cams, Excluding GoPro</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-snap-your-way-unique-discover-over-120-private-story-creation-tips-and-tricks/"><u>[Updated] 2024 Approved Snap Your Way Unique Discover over 120 Private Story Creation Tips and Tricks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-fading-audio-tips-for-better-mixes-in-ableton/"><u>[Updated] Fading Audio Tips for Better Mixes in Ableton</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-full-review-of-razers-high-definition-webcam/"><u>[Updated] In 2024, Full Review of Razer's High Definition Webcam</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dash-and-go-robotics-the-ultimate-review-of-the-wonderful-innovative-dash-playset/"><u>Dash & Go Robotics – The Ultimate Review of the Wonderful, Innovative Dash Playset</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-samsung-galaxy-s20-fe-with-5g-why-its-a-top-choice-for-tech-enthusiasts/"><u>Expert Analysis of the Samsung Galaxy S20 FE with 5G - Why It's a Top Choice for Tech Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-microsoft-surface-go-a-budget-friendly-tablet-struggling-with-its-purpose/"><u>Exploring the Microsoft Surface Go: A Budget-Friendly Tablet Struggling with Its Purpose</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-up-close-with-the-new-apple-iphone-15-pro-a-hands-on-review/"><u>Get Up Close with the New Apple iPhone 15 Pro: A Hands-On Review</u></a></li>
+<li><a href="https://os-tips.techidaily.com/how-to-fast-remove-iphone-game-files-and-clear-cache-simple-methods-revealed/"><u>How To Fast Remove iPhone Game Files and Clear Cache: Simple Methods Revealed</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-xiaomi-redmi-note-12t-pro-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Xiaomi Redmi Note 12T Pro FRP</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/say-goodbye-to-older-methods-with-newly-released-pink-caulking-gel-the-optimal-solution-for-filling-components-voids-and-replacing-thermal-pads/"><u>Say Goodbye to Older Methods with Newly Released Pink Caulking Gel - The Optimal Solution for Filling Components Voids and Replacing Thermal Pads</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211234544-9781637843840-together-with-my-sisters-begin-again/"><u>Together With My Sisters: Begin Again | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: In-Depth Review of the Mohu Leaf 30 TV Antenna's Price Vs. Performance Ratio
-date: 2024-10-21T03:26:08.232Z
-updated: 2024-10-25T03:56:12.871Z
+date: 2024-10-29T16:26:16.228Z
+updated: 2024-10-31T01:41:44.564Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Review of the Mohu Leaf 30 TV Antenna's Price Vs. Performance Ratio
@@ -71,13 +71,20 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/t8wI_yN2s_uIQ1leo87MmOnXxb4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-5-0c39ec4e89eb45b094471681efec0e7d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Dark, sturdy, and feature-packed**
@@ -108,19 +115,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Comfort: Hefty, but darn comfy**
 
  The original Elite was perhaps the most comfortable controller I’ve ever used, so with the Series 2, I had high hopes in this department. Thanks to some clever but subtle changes by the Microsoft team, this controller is even better.
@@ -138,10 +132,10 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process and Software: Bluetooth, at long last**
@@ -163,13 +157,6 @@ Lifewire / Zach Sweat
  If you plan to buy this controller to use with other electronics that support Bluetooth devices, make sure you do some research before committing to it, as it doesn’t always work with everything. That said, we did manage to pair the controller with a couple other devices that weren’t officially supported.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -195,6 +182,13 @@ Lifewire / Zach Sweat
 
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Like buying a brand new console**
 
  Right now, the Elite Series 2 controller retails at an MSRP of $249.99, about $100 more than its predecessor. This price tag makes it not only the most expensive first-party controller around, but also nearly the cost of a brand new Xbox One S console (or three brand new titles). That can be a tough sell for your average gamer.
@@ -208,10 +202,10 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
@@ -260,19 +254,17 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-10-best-alternatives-to-vimeo-cameo-video-editor-for-2024/"><u>[New] 10 Best Alternatives to Vimeo Cameo Video Editor for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-a-convenient-approach-to-changing-the-main-image-of-your-fb-page/"><u>[Updated] 2024 Approved A Convenient Approach to Changing the Main Image of Your FB Page</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-essential-steps-to-record-films-on-computersmacs-and-phones/"><u>[Updated] Essential Steps to Record Films on Computers/Macs & Phones</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/10-best-video-calling-software-on-phone-and-pc-for-2024/"><u>10 Best Video Calling Software on Phone and PC for 2024</u></a></li>
-<li><a href="https://win-web3.techidaily.com/windows-word/"><u>如何查找 Windows 上 Word 的默认自动保存文件路径</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Motorola Moto G14 | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-honor-90-lite-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Honor 90 Lite Phone</u></a></li>
-<li><a href="https://common-error.techidaily.com/solving-the-common-crashes-in-call-of-duty-black-ops-4/"><u>Solving the Common Crashes in Call of Duty: Black Ops 4</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-auditory-adventure-best-24-audio-gear-guide/"><u>The Ultimate Auditory Adventure: Best '24 Audio Gear Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-selection-of-cutting-edge-bluetooth-phones-for-this-year/"><u>The Ultimate Selection of Cutting-Edge Bluetooth Phones for This Year</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-of-lgs-basic-4k-tv-model-um73eekv1-a-savvy-buyers-guide/"><u>Unveiling the Features of LG's Basic 4K TV Model, UM73eekv1: A Savvy Buyer’s Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-performance-of-a-budget-beast-a-comprehensive-review-of-the-tp-link-archer-c80-router/"><u>Unveiling the Performance of a Budget Beast: A Comprehensive Review of the TP-Link Archer C80 Router</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/vanguard-voyager-full-featured-hefty-stand-explored/"><u>Vanguard Voyager: Full-Featured, Hefty Stand Explored</u></a></li>
-<li><a href="https://discover-docs.techidaily.com/1725287829041-windows/"><u>Windows上の最新グラフィックカードドライバーアップデート手順</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-leading-cloud-services-with-best-price/"><u>[New] 2024 Approved The Leading Cloud Services with Best Price</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-ace-gaming-the-top-4k-tvs-on-market/"><u>[Updated] Ace Gaming The Top 4K TVs on Market</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-rendering-reality-realistic-3d-text-effects/"><u>[Updated] Rendering Reality Realistic 3D Text Effects</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/clever-design-meets-functionality-in-the-twelve-south-bookbook-v2-macbook-protector-a-detailed-look/"><u>Clever Design Meets Functionality in the Twelve South BookBook V2 MacBook Protector - A Detailed Look</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-opinion-on-the-latest-apple-watch-series-nine-features-and-performance/"><u>Expert Opinion on the Latest Apple Watch Series Nine Features and Performance</u></a></li>
+<li><a href="https://android-frp.techidaily.com/full-guide-to-bypass-lava-blaze-2-5g-frp-by-drfone-android/"><u>Full Guide to Bypass Lava Blaze 2 5G FRP</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/on-the-road-and-on-a-budget-the-best-bluetooth-earpiece-guide-for-drivers/"><u>On the Road and on a Budget: The Best Bluetooth Earpiece Guide for Drivers</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-infinix-hot-30i-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Infinix Hot 30i</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/resolving-the-d3dx92edll-file-not-found-issue/"><u>Resolving the d3dx9_2e.dll File Not Found Issue</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/showdown-of-tech-titans-iphone-15-plus-versus-pro-max-specifications/"><u>Showdown of Tech Titans: IPhone 15 Plus Versus Pro Max Specifications</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/solution-to-mitigate-arc-blow-at-high-current-settings-a-welder-can-adjust-ground-clamp-positioning-turn-off-interfering-components-and-modify-their-welding106/"><u>Solution: To Mitigate Arc Blow at High Current Settings, a Welder Can Adjust Ground Clamp Positioning, Turn Off Interfering Components, and Modify Their Welding Technique by Altering Travel Speed and Electrode Angle</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-compatible-receiver-use-with-your-logitech-wireless-mouse/"><u>Step-by-Step Guide: Compatible Receiver Use with Your Logitech Wireless Mouse</u></a></li>
 </ul></div>
 

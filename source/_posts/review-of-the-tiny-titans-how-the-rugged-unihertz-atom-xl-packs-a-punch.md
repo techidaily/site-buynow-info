@@ -1,7 +1,7 @@
 ---
 title: "Review of the Tiny Titans: How the Rugged Unihertz Atom XL Packs a Punch"
-date: 2024-10-17T17:06:18.021Z
-updated: 2024-10-25T02:17:39.502Z
+date: 2024-10-30T03:07:48.525Z
+updated: 2024-10-30T17:42:46.917Z
 categories:
   - BestProducts
 description: "This Article Describes Review of the Tiny Titans: How the Rugged Unihertz Atom XL Packs a Punch"
@@ -43,6 +43,13 @@ Lifewire / Yoona Wagener
 [View On Amazon](https://www.amazon.com/dp/B07L7168W9/?tag=lifewire-onsite-prod-20&ascsubtag=4766870%7Cn4d8585d7485f4f72aafd3d2cb40e105b12%7CB07L7168W9) [View On Walmart](https://www.walmart.com/ip/Withings-Move-Activity-Tracker-Black/727305177) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fwithings-move-activity-tracker-coral%2F6351601.p%3FskuId%3D6351601)
 
 3.8
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Withings Withings Move Hybrid Smartwatch
 
@@ -94,10 +101,10 @@ Lifewire / Yoona Wagener
 ![Withings Move](https://www.lifewire.com/thmb/Qz1dlsE8jl99mXc7-kQ5LCVoiK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-3-b1e97631284d40829bd5714c59dc5f2a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
@@ -112,13 +119,6 @@ Lifewire / Yoona Wagener
 
  First, we paired the Withings Move with our phone via Bluetooth, which was instantaneous. Next, we provided profile information for better activity metrics, downloaded an update, made sure the watch dials were working and the time was set correctly, and we were good to go.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Comfort: Light as a feather, even while sleeping**
 
  Some watches can feel heavy by the end of the day, but we didn’t encounter that weighed-down feeling with the Withings Move. The watch is really lightweight and the band is soft, flexible, and slim, which made sleeping with it a non-issue. It was also easy to achieve a good fit—especially for smaller wrists—thanks to the plentiful notches and the tab to keep the band in place.
@@ -129,14 +129,14 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/WIXFA6BpXvAMWLdKpJ_jmzZh6o4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-5-cbc0f43d847b453bbfae994f03374cdb.jpg)
 
- Lifewire / Yoona Wagener
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Yoona Wagener
 
 ## **Performance: Limited activity tracking**
 
@@ -154,21 +154,7 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/vaUmI1isQP98tmL8uIZSghmAWGs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-6-259d8034cfb64485be60f9c5754fec79.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Yoona Wagener
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Battery: Long-lasting and hassle-free**
 
@@ -177,6 +163,13 @@ Lifewire / Yoona Wagener
 ![Withings Move](https://www.lifewire.com/thmb/02bkMrpkzqBOue1ffhHNfQqaIuk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-4-df866fafd70a44c592e0e06e0ea53ae7.jpg)
 
  Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: An emphasis on general wellness**
 
@@ -191,10 +184,10 @@ Lifewire / Yoona Wagener
  There are also a number of other supplemental programs you can sign up for through the Health Connect app in order to up your general wellness. Most of these programs, which are free to join, require a specific type of Withings device, but others, like a meditation and pregnancy tracking program, don’t need any additional equipment.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A bargain for the value**
@@ -216,6 +209,13 @@ Lifewire / Yoona Wagener
 **Best for those who prefer the analog experience.**
 
  The Withings Move is a strong entry-level fitness tracker for the person who wants to track activities without going all-in on a smartwatch. It’s inexpensive, sporty, and subtle, which makes it compelling for those who don’t want to be distracted by notifications and all the hands-on features smartwatches bring to the table.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -244,20 +244,20 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-unlock-the-potential-of-paid-endorsements-with-these-tips/"><u>[New] 2024 Approved Unlock the Potential of Paid Endorsements with These Tips</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-expert-review-of-vivacuts-latest-edits-and-enhancements/"><u>[New] Expert Review of VivaCut's Latest Edits and Enhancements</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-the-abcs-of-facebook-cover-video-production/"><u>[Updated] In 2024, The ABCs of Facebook Cover Video Production</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/gratis-herramientas-de-edicion-de-video-remplazo-al-windows-movie-maker/"><u>Gratis Herramientas De Edición De Video: Remplazo Al Windows Movie Maker</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-messages-files-from-infinix-note-30-vip-by-fonelab-android-recover-messages/"><u>How To Restore Missing Messages Files from Infinix Note 30 VIP</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-free-frameworks-for-every-movie-epilogue-you-dream/"><u>In 2024, Free Frameworks for Every Movie Epilogue You Dream</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-meme-manifestation-station/"><u>In 2024, Meme Manifestation Station</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/macbook-showdown-pros-and-cons-of-macbook-air-and-macbook-pro-to-find-the-perfect-fit-for-you/"><u>MacBook Showdown: Pros and Cons of MacBook Air & MacBook Pro to Find the Perfect Fit for You</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/overcooked-2-revealed-a-mouthwatering-journey-through-mayhem/"><u>Overcooked! 2 Revealed: A Mouthwatering Journey Through Mayhem</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/panasonics-sharpest-video-in-wxf991/"><u>Panasonic's Sharpest Video in WXF991</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/poweradd-pilot-pro2-unleashed-innovative-device-charger-tested-for-ultimate-power-efficiency/"><u>POWERADD Pilot Pro2 Unleashed: Innovative Device Charger Tested for Ultimate Power Efficiency</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-body-cams-of-2024/"><u>The Best Body Cams of 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-samsung-galaxy-fit-exposed-a-reliable-wearable-for-those-who-love-to-stay-moving/"><u>The Samsung Galaxy Fit Exposed: A Reliable Wearable for Those Who Love to Stay Moving</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-syma-x5c-quadcopter-tested-a-detailed-assessment-of-an-affordable-drone-for-hobbyists/"><u>The SYMA X5C Quadcopter Tested: A Detailed Assessment of an Affordable Drone for Hobbyists</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-elevate-your-videos-auditory-experience-on-youtube/"><u>[New] 2024 Approved Elevate Your Video's Auditory Experience on YouTube</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-the-founders-flowchart-for-launching-a-review-video-channel/"><u>[New] In 2024, The Founder's Flowchart for Launching a Review Video Channel</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-transform-vimeo-footage-into-visual-wonders-easily/"><u>[Updated] Transform Vimeo Footage Into Visual Wonders Easily</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-lava-yuva-2-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ofits-unveiled-how-much-do-creators-make-on-youtube-for-2024/"><u>Ad Profits Unveiled How Much Do Creators Make on Youtube for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-sleek-and-contemporary-taotronics-tt-dl16-led-light-fixture/"><u>Comprehensive Review of the Sleek & Contemporary TaoTronics TT-DL16 LED Light Fixture</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/dvdac3dts/"><u>DVDファイルを簡単にAC3やDTS形式にアップコンバートするためのヒント</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expertly-curated-best-smart-speakers-of-the-year-2024-edition/"><u>Expertly Curated Best Smart Speakers of the Year - 2024 Edition</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/flvto-understanding-its-safety-and-legality-a-comprehensive-guide/"><u>FLVTO: Understanding Its Safety & Legality - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-the-new-amazon-fire-hd-8-worth-it-comprehensive-price-and-performance-analysis/"><u>Is The New Amazon Fire HD 8 Worth It? Comprehensive Price & Performance Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-your-home-network-with-the-powerful-linksys-ea9500-an-experts-perspective/"><u>Maximizing Your Home Network with the Powerful Linksys EA9500 - An Expert's Perspective</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/photoscape-appraisal-top-rated-no-cost-image-manipulation-tool/"><u>PhotoScape Appraisal: Top Rated No-Cost Image Manipulation Tool</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-new-wave-of-streaming-reviewing-the-apple-tv-4k-3rd-generation/"><u>The New Wave of Streaming: Reviewing the Apple TV 4K (3Rd Generation)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-performance-of-amazonbasics-12-sheet-ultra-secure-document-shredder-user-reviews-and-insights/"><u>Unpacking the Performance of AmazonBasics' 12-Sheet Ultra-Secure Document Shredder - User Reviews and Insights</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/volcanoes-and-hot-air-dispelling-the-natural-fears/"><u>Volcanoes and Hot Air: Dispelling the Natural Fears</u></a></li>
 </ul></div>
 

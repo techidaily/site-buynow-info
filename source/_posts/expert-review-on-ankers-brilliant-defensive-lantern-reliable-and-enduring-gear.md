@@ -1,7 +1,7 @@
 ---
 title: Expert Review on Anker's Brilliant Defensive Lantern – Reliable and Enduring Gear
-date: 2024-10-23T04:01:45.232Z
-updated: 2024-10-25T07:01:07.017Z
+date: 2024-10-30T02:18:53.562Z
+updated: 2024-10-30T17:18:13.171Z
 categories:
   - BestProducts
 description: This Article Describes Expert Review on Anker's Brilliant Defensive Lantern – Reliable and Enduring Gear
@@ -46,13 +46,6 @@ Andy Zahn / Lifewire
 [View On Amazon $55](https://www.amazon.com/dp/B07T8BP118/?tag=lifewire-onsite-prod-20&ascsubtag=5113844%7Cn1caa6f424ed249b0ba9a31e582ec71b217%7CB07T8BP118) [View On Steampowered.com](https://store.steampowered.com/app/1091500/Cyberpunk%5F2077/) [View On Gamestop.com](https://www.gamestop.com/video-games/pc-gaming/games/products/cyberpunk-2077/11094594.html)
 
 4.2
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Cyberpunk 2077
 
@@ -101,13 +94,6 @@ Andy Zahn / Lifewire
 
  Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Gameplay: Fun, but deeply flawed
 
  As with the game as a whole, Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows. It does some things very well and stumbles bafflingly in other regards. The game mostly takes place in the first person, with third-person view being an option while driving.
@@ -115,6 +101,13 @@ Andy Zahn / Lifewire
  Driving is not what I’d call a perfect experience in either third or first-person modes. Though beautifully designed and widely varied, vehicles tend to have little weight to them, and you really have to work to avoid careening about the road, running over pedestrians, and attracting the tepid attention of the police. They all also seem to be in desperate need of a new set of brakes, and to make matters worse the AI for the NPC vehicles is very simple indeed. Park your car with a bit of it sticking out into the road and a line will quickly build up as these simpletons exhibit infinite patience rather than simply go around.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/NwK7qVv8XDmr_i0b9XzULnmPZ9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-5-664cae2e38304560a7d6fc3ce2a84335.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -131,10 +124,10 @@ Andy Zahn / Lifewire
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/ByBdwophc_bSfdD-P0CfbqJgbwY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-7-e6be7e2c1ae24ac3a1c5dbfd4a5b595a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
@@ -150,13 +143,6 @@ Andy Zahn / Lifewire
  It may sound as though I hated playing Cyberpunk 2077, with as much complaining as I’m doing about gameplay, but the truth is that I had a blast despite the bugs. Driving through Night City is still exciting after dozens of hours, and I’m still finding new weapons that offer new ways to approach combat.
 
  Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Customization: Lots to tinker with
 
@@ -176,6 +162,13 @@ Andy Zahn / Lifewire
 
 At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Bugs: Welcome to Glitch City
 
  At launch Cyberpunk 2077 is something of a bug-riddled mess. Even a few months and a few patches later it’s very noticeably in need of major fixes. Right out of the gate I found a collectible card that can only be picked up during the intro, but the game refused to allow me to pick it up, so I was forced to leave it sitting there forlornly, forever gnawing at the completionist streak in me.
@@ -189,13 +182,20 @@ At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/JM3cD1pX6maee1yiQYZnSgc-9pw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-4-624da4fa8225434eb59ba999a53dafd6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Mature content: Pushing the boundaries
 
@@ -225,6 +225,13 @@ Andy Zahn / Lifewire
 
  An alternative worth considering if you have a robust high-speed internet connection is streaming the game on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) . This will allow you to experience the game at its best without having to invest in a two thousand dollar PC. However, it does leave your ability to play the game at the mercy of your ability to access a strong internet connection.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Graphics: Ahead of its time
 
  The star of the show in Cyberpunk 2077 are the visuals, and if you have a PC with the hardware to render the game at its maximum quality while maintaining playable frame rates the world of Night City is absolutely jaw-dropping. Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
@@ -246,22 +253,15 @@ Andy Zahn / Lifewire
 Andy Zahn / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Multiplayer: Absent for the moment
 
  At launch and for long after Cyberpunk 2077 will be a single-player game. However, CDPR has said that a few years down the road they will be launching a multiplayer mode, and a lot of people are looking forward to that. Of course, it is impossible to predict if this will be any good or if some circumstances might prevent its release, but there is a lot of potential for Cyberpunk to become a better experience when Night City goes online. With that said, CDPR really needs to fix the single-player game before they even think about launching multiplayer.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Price: A refreshing lack of micro-transactions
 
@@ -305,24 +305,21 @@ Andy Zahn / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-innovative-copywriting-routines-adopting-three-key-approaches-to-fb-advertising/"><u>[New] 2024 Approved Innovative Copywriting Routines Adopting Three Key Approaches to FB Advertising</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-photo-editing-mastery-leveraging-photoshops-background-eraser-tool-to-perfection/"><u>[New] Photo Editing Mastery Leveraging Photoshop's Background Eraser Tool to Perfection</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-screen-grab-analysis-a-comparative-look-at-leading-software-for-2024/"><u>[New] Screen Grab Analysis A Comparative Look at Leading Software for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-pioneering-youtube-visibility-through-strategic-thumbnails/"><u>[Updated] Pioneering YouTube Visibility Through Strategic Thumbnails</u></a></li>
-<li><a href="https://windows11.techidaily.com/how-to-add-a-full-battery-charge-notification-to-windows-11-and-11/"><u>How to Add a Full Battery Charge Notification to Windows 11 & 11</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Oppo Find X7 Ultra | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Honor Magic Vs 2 | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-vivo-y100t-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Vivo Y100t for Streaming | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/issues-playing-h265-hevc-video-on-moto-g04-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Issues playing H.265 HEVC video on Moto G04</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/nanotechnology-enables-the-development-of-dental-materials-with-improved-mechanical-properties-and-antibacterial-activity-at-a-nanoscale-level/"><u>Nanotechnology Enables the Development of Dental Materials with Improved Mechanical Properties and Antibacterial Activity at a Nanoscale Level</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/next-level-visuals-discover-philips-ultra-wide-49-gaming-monitor-with-stunning-oled-technology/"><u>Next-Level Visuals: Discover Philips' Ultra-Wide 49” Gaming Monitor with Stunning OLED Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionary-advancements-in-the-latest-amazon-echo-gen-4-device-reviewed/"><u>Revolutionary Advancements in the Latest Amazon Echo Gen 4 Device Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/samsunga20review-exceptional-performance-at-a-wallet-friendly-price-point/"><u>SamsungA20Review - Exceptional Performance at a Wallet-Friendly Price Point</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sony-xperia-5-analysis-compact-yet-pricey-design/"><u>Sony Xperia 5 Analysis: Compact Yet Pricey Design</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-value-for-your-buck-a-thorough-look-at-the-z-edge-z3plus-camera/"><u>The Best Value for Your Buck: A Thorough Look at the Z-Edge Z3+ Camera</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-poweradd-pilot-pro2-unveiled-innovative-solutions-for-powering-your-tech-expert-insight/"><u>The POWERADD Pilot Pro2 Unveiled: Innovative Solutions for Powering Your Tech - Expert Insight</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-a-value-packed-ergonomic-microsoft-sculpt-keyboard/"><u>The Ultimate Guide to Choosing a Value-Packed, Ergonomic Microsoft Sculpt Keyboard</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-oneplus-nord-n10-5g-expert-insights/"><u>The Ultimate Verdict on OnePlus Nord N10 5G – Expert Insights</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/top-online-spaces-for-youtube-traffic-increase-for-2024/"><u>Top Online Spaces for YouTube Traffic Increase for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hannel-personality-complimentary-youtube-graphics/"><u>[New] Channel Personality Complimentary YouTube Graphics</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-defining-your-digital-dna-a-guide-to-youtubing-personal-branding/"><u>[Updated] In 2024, Defining Your Digital DNA A Guide to YouTubing Personal Branding</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-unveiling-the-secrets-of-timelapse-video-shooting-with-hero5/"><u>[Updated] In 2024, Unveiling the Secrets of Timelapse Video Shooting with Hero5</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-best-practices-for-identifying-premier-free-srt-translation-services/"><u>2024 Approved Best Practices for Identifying Premier Free SRT Translation Services</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-vivo-t2-5g-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Vivo T2 5G Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-ipad-102-inch-7th-generation-review/"><u>Apple iPad 10.2-Inch (7Th Generation) Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-the-fitbit-charge-3-is-it-still-worth-buying-in-depth-review/"><u>Assessing the Fitbit Charge 3: Is It Still Worth Buying ? - In-Depth Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bluetooth-enabled-moko-versatile-collapsible-keyboard-for-on-the-go-users/"><u>Bluetooth-Enabled MoKo Versatile Collapsible Keyboard for On-the-Go Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-journey-through-the-lens-of-life-and-technology/"><u>Facebook’s Journey Through the Lens of Life and Technology</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Samsung Galaxy A24? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-note-30-pro-phone-without-google-account-by-drfone-android/"><u>How to Unlock Infinix Note 30 Pro Phone without Google Account?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-philips-hf3505-the-ultimate-sunrise-simulation-alarm-clock/"><u>In-Depth Evaluation of Philips HF3505 - The Ultimate Sunrise Simulation Alarm Clock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-integration-in-action-a-deep-dive-into-the-arlo-video-doorbell-experience-and-benefits/"><u>Innovative Integration in Action: A Deep Dive Into the Arlo Video Doorbell Experience and Benefits</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/relive-the-retro-era-with-the-nintendo-game-and-watch-a-deep-dive-into-super-mario-bros/"><u>Relive the Retro Era with the Nintendo Game & Watch: A Deep Dive Into Super Mario Bros</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-marvels-spider-man-miles-morales-compact-story-significant-effect/"><u>Reviewing Marvel's Spider-Man: Miles Morales - Compact Story, Significant Effect</u></a></li>
+<li><a href="https://some-tips.techidaily.com/thank-you-in-motion-templates-for-every-budget-level-for-2024/"><u>Thank You in Motion Templates for Every Budget Level for 2024</u></a></li>
 </ul></div>
 

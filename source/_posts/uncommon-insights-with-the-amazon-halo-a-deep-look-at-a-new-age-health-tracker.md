@@ -1,7 +1,7 @@
 ---
 title: Uncommon Insights with the Amazon Halo – A Deep Look at a New Age Health Tracker
-date: 2024-10-16T17:07:07.279Z
-updated: 2024-10-18T16:36:37.394Z
+date: 2024-10-26T20:50:29.656Z
+updated: 2024-10-30T23:12:28.798Z
 categories:
   - BestProducts
 description: This Article Describes Uncommon Insights with the Amazon Halo – A Deep Look at a New Age Health Tracker
@@ -48,6 +48,13 @@ Lifewire / Erika Rawes
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/_gP-SgRbIGXPYdlmqqhNJSxhmSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_HeroSquare-61fda9713bb44c89bf3c2f1f74386bee.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 [View On Amazon $199](https://www.amazon.com/dp/B07P3FGKYD?tag=lifewire-onsite-prod-20&ascsubtag=4942498%7Cn31dea18fa28a4d9a88e5e3a62470a49720%7CB07P3FGKYD) [View On Adorama.com $450](https://www.adorama.com/nerax120100n.html?utm%5Fsource=google&utm%5Fmedium=organic&utm%5Fcampaign=organicshopping&utm%5Fsource=adl-gbase-hometech) [View On B&H Photo Video $399](https://www.bhphotovideo.com/c/product/1469206-REG/netgear%5Frax120%5Fnighthawk%5Fax12%5F12%5Fstream%5Fwifi.html)
@@ -74,6 +81,13 @@ Lifewire / Erika Rawes
 
  The[Netgear](https://www.lifewire.com/best-netgear-routers-4159862) Nighthawk RAX120 is supposed to provide lightning-fast speeds while serving as one of the[best long-range wireless routers](https://www.lifewire.com/best-long-range-routers-4122554) currently on the market. Fully loaded with[Wi-Fi 6 technology](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , smart home connectivity, and a slew of other features, the AX12 should be an ideal router for small businesses, very large homes, or for homes with multiple devices. I tested the Netgear Nighthawk RAX120 to see how well it performs in the real world.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Batman’s router**
 
  The Netgear Nighthawk RAX120 has a futuristic design—angular, with clean lines. It looks like a cross between a spaceship and the Batmobile. It’s matte black and rectangular, but instead of the multiple antennas you’d typically see protruding from the top of a Nighthawk router, it has two wing-like extensions that come from each side.
@@ -84,25 +98,11 @@ Lifewire / Erika Rawes
 
 Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: Quick and easy**
 
  The Netgear Nighthawk app walks you through the setup process. There’s a QR code sticker on the router, as well as a temporary network name and password on the label, which allow you to connect quickly and easily.
 
  The app guides you through creating separate 2.4 and 5GHz networks, but you can also take advantage of a feature called smart connect, which combines your networks and designates your devices based on optimal performance. You can create a guest network, as well as manage and monitor your devices individually. The initial setup process took me about ten minutes in total.
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Connectivity: Superfast speeds**
 
@@ -113,13 +113,6 @@ Lifewire / Erika Rawes
  The RAX120 has four Gigabit Ethernet ports on the back (two of which can be combined to support a larger file transfer rate of 2 GB) and a multigig Ethernet port that supports speeds up to 5 gigs. I was impressed overall with the location and specifications of the ports, but I would have liked to see more Ethernet ports on a router this expensive.
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/y2V4Ncx3Z1ul8B-4lsc_IeiyCRQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_04-9e452ddedd2b4a46893fddd147c06d4f.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -147,24 +140,37 @@ Lifewire / Erika Rawes
 
  The router has two USB 3.0 storage ports on the back for connecting an external hard drive.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software: Nighthawk App**
 
  In the Nighthawk app, you can change your router’s settings, create a guest network, control your router remotely, manage your devices individually, and you can test your network speeds. However, when testing my network speeds, they consistently clock much faster on the Nighthawk app than on other platforms like Ookla and VeeApps.
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/MPwp1LtMC7Ua30t8VnJy7bjuqn4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_02-94fbae95ca5d4851a1cf40b197da4161.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Price: Expensive**
 
  The Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router will cost you a pretty penny—it sells for $400, which is $100 lower than its original retail price of $500\. But it’s still on the higher end of the price spectrum, especially considering it doesn’t include any sort of mesh points, and you only get the router, power supply, and an Ethernet cable.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Netgear Nighthawk RAX120 vs. TP-Link Archer AX6000**
 
@@ -177,10 +183,16 @@ Lifewire / Erika Rawes
  The Nighthawk RAX120 performs impressively, but it‘s costly and lacks some user-friendly features like strong parental controls and easy-to-manage antivirus, so it’ll be more desirable for those with heavier networking demands than the average user.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -221,18 +233,22 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-facebook-cover-video-all-you-need-to-know/"><u>2024 Approved Facebook Cover Video All You Need to Know</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/galaxy-s23plus-examined-does-this-new-release-truly-enhance-your-smartphone-experience/"><u>Galaxy S23+ Examined: Does This New Release Truly Enhance Your Smartphone Experience?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-remove-iphone-15-pro-face-id-by-drfone-ios-unlock-ios-unlock/"><u>How to Remove iPhone 15 Pro Face ID?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-diy-lol-gameplay-tapes-mastering-three-methods/"><u>In 2024, DIY LOL Gameplay Tapes Mastering Three Methods</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-nubia-red-magic-9-proplus-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Nubia Red Magic 9 Pro+</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-guide-the-hauntingly-beautiful-realm-of-bloodborne/"><u>In-Depth Guide: The Hauntingly Beautiful Realm of Bloodborne</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/macbook-pro-vs-ipad-pro-a-comprehvean-analysis-of-their-functionalities/"><u>MacBook Pro Vs. IPad Pro: A Comprehvean Analysis of Their Functionalities</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastery-of-melodies-and-beats-with-the-soundbot-sb210-a-seasonal-assessment-for-high-quality-audio-delivery/"><u>Mastery of Melodies and Beats with the Soundbot SB210: A Seasonal Assessment for High-Quality Audio Delivery</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/netgears-c3000-modemrouter-tested-a-review-for-the-modern-user/"><u>Netgear's C3000 Modem/Router Tested – A Review for the Modern User</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/professional-streaming-boost-unveiling-best-9-live-stream-filters-for-2024/"><u>Professional Streaming Boost Unveiling Best 9 Live-Stream Filters for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-nhl-19-online-play-immersive-and-captivating-interactive-fun/"><u>Review of NHL '19 Online Play: Immersive and Captivating Interactive Fun</u></a></li>
-<li><a href="https://win-forum.techidaily.com/step-by-step-guide-cutting-out-text-segments-using-microsoft-excel/"><u>Step-by-Step Guide: Cutting Out Text Segments Using Microsoft Excel</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlock-hidden-gems-adding-new-titles-to-your-nes-classic-console/"><u>Unlock Hidden Gems: Adding New Titles to Your NES Classic Console</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-the-comprehensible-guide-to-augmented-snap-editing/"><u>[New] In 2024, The Comprehensible Guide to Augmented Snap Editing</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-step-by-step-approach-to-saving-instagram-stories/"><u>[New] Step-by-Step Approach to Saving Instagram Stories</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-swiftly-upload-to-twitter-premium-video-convertors-guide/"><u>2024 Approved Swiftly Upload to Twitter Premium Video Convertors Guide</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/altitude-assurance-choosing-between-copilot-and-copilot-pro/"><u>Altitude Assurance: Choosing Between CoPilot and Copilot Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/building-an-empire-in-space-an-expert-review-of-the-offworld-trading-company-gameplay/"><u>Building an Empire in Space: An Expert Review of the Offworld Trading Company Gameplay</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-best-microsoft-office-competing-solutions/"><u>Comprehensive Review of the Best Microsoft Office Competing Solutions</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/curated-lists-of-websites-offering-youtube-tone-purchases/"><u>Curated Lists of Websites Offering YouTube Tone Purchases</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/detailed-breakdown-navigating-with-google-maps-on-the-ios-platform/"><u>Detailed Breakdown: Navigating with Google Maps on the iOS Platform</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-extended-display-size-an-in-depth-review-of-barnes-and-nobles-newest-nook-ereader/"><u>Discovering the Extended Display Size: An In-Depth Review of Barnes & Noble's Newest Nook eReader</u></a></li>
+<li><a href="https://win-data.techidaily.com/how-to-produce-free-educational-video-guides-easily/"><u>How to Produce Free Educational Video Guides Easily</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-resolve-windows-11s-continuous-active-mode-dilemma/"><u>How to Resolve Windows 11’S Continuous Active Mode Dilemma</u></a></li>
+<li><a href="https://win-answers.techidaily.com/step-by-step-solution-when-vlc-cannot-adjust-video-zoom-heres-what-to-do/"><u>Step-by-Step Solution: When VLC Cannot Adjust Video Zoom, Here's What to Do!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-compact-marvel-g7x-ii-takes-center-stage/"><u>The Compact Marvel - G7X II Takes Center Stage</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-nest-audio-evaluation-the-ultimate-sound-experience-for-avid-listeners/"><u>Top Nest Audio Evaluation: The Ultimate Sound Experience for Avid Listeners</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-picks-premium-wi-fi-routers-for-seamless-travel/"><u>Top Picks: Premium Wi-Fi Routers for Seamless Travel</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/uncovering-the-potency-of-halo-bolts-power-bank-and-jump-starter-in-depth-review-revealed/"><u>Uncovering the Potency of Halo Bolt's Power Bank and Jump Starter - In-Depth Review Revealed</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/unlocking-insights-and-improvements-through-cookiebot-technology/"><u>Unlocking Insights and Improvements Through Cookiebot Technology</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: M1 Surge Protector - Robust Power Management with Built-In Charging Capabilities for Your Devices
-date: 2024-10-20T18:39:48.729Z
-updated: 2024-10-24T18:05:28.524Z
+date: 2024-10-28T03:40:28.211Z
+updated: 2024-10-30T19:23:21.029Z
 categories:
   - BestProducts
 description: This Article Describes M1 Surge Protector - Robust Power Management with Built-In Charging Capabilities for Your Devices
@@ -45,16 +45,16 @@ Lifewire / Jeremy Laukkonen
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Omni 20+ Wireless Power Bank
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/_EV0MTLRfFPHdqFJ2gKyMJff5YY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-HERO-SQ-e459d44e1a2c432f80fec058b858ccfe.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -83,20 +83,13 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/lFGiT6009F_OKGOJ-sLcNKNylt0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-2-9a3217b3ee154a3ebcb38e61aac3be52.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Slick all-black appearance that’s dulled a bit by soft-touch rubber**
@@ -126,6 +119,13 @@ Lifewire / Jeremy Laukkonen
  Once you’ve fully charged the Omni 20+, you need to discharge and then charge it again to completely calibrate the battery. The USB-C port is plug and play, meaning you can plug any USB-C device in and power it up without changing any settings, but you do have to use the somewhat confusing LCD display if you want to charge using the power outlet, barrel connector, or the USB-A ports. None of this is terribly complicated, but I did need to download an instructions PDF from the official Omnicharge site.
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/QOfV3Sc5THi3Z0gKZq0e-ciPUEE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-5-000854ae3c4347b7adc13130dcb9d1b9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -168,10 +168,10 @@ Lifewire / Jeremy Laukkonen
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Charging Speed: True fast charging available for some USB-C devices**
@@ -188,16 +188,16 @@ Lifewire / Jeremy Laukkonen
 
  The built-in Qi charger is capable of putting out 10 watts, and I found it to work just as well as other 10 watt Qi chargers I’ve used. It is a bit touchy in terms of positioning, but I was able to get the hang of it pretty fast.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: High end**
 
  With an MSRP of $200, Omni 20+ is a high-end battery bank with a high-end price. You get a whole lot of functionality for that price, but the device does lag behind in terms of both battery capacity and included accessories. The glaring issue is that you can find more powerful battery banks for less money, even if you won’t find one with the exact same functionality.
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Omni 20+ vs. Pilot Pro 2**
 
@@ -241,21 +241,20 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-enliven-youtube-images-a-burst-of-neon-flair/"><u>[New] Enliven YouTube Images A Burst of Neon Flair</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-ideal-approaches-to-stream-and-record-major-sports-games/"><u>[New] Ideal Approaches to Stream and Record Major Sports Games</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-best-practices-for-producing-eye-catching-slow-motion-videos-on-instagram-for-2024/"><u>[Updated] Best Practices for Producing Eye-Catching Slow-Motion Videos on Instagram for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-rules-of-engagement-on-youtube-for-2024/"><u>[Updated] Essential Rules of Engagement on YouTube for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-in-depth-analysis-of-excellent-zoom-screen-recorders/"><u>[Updated] In 2024, In-Depth Analysis of Excellent Zoom Screen Recorders</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-momentary-motion-picture-manuscript/"><u>[Updated] Momentary Motion Picture Manuscript</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-tiny-powerhouse-on-your-pocket-in-depth-insights-into-the-samsung-galaxy-s10e/"><u>A Tiny Powerhouse on Your Pocket: In-Depth Insights Into the Samsung Galaxy S10e</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-value-gaming-and-work-keyboard-in-depth-guide-to-fellowes-microban-wired-model/"><u>Best Value Gaming and Work Keyboard: In-Depth Guide to Fellowes Microban Wired Model</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/can-the-asus-rt-ac88u-revolutionize-your-online-battles-an-authoritative-review-awaits/"><u>Can the Asus RT-AC88U Revolutionize Your Online Battles? An Authoritative Review Awaits</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-experience-the-robust-connectivity-with-asus-zenwifi-xt8-ax6600-mesh-system/"><u>Comprehensive Review: Experience the Robust Connectivity with ASUS ZenWifi XT8 AX6600 Mesh System</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-ring-alarm-solutions-the-ultimate-guide-to-the-doorbell-pro/"><u>Comprehensive Ring Alarm Solutions: The Ultimate Guide to the Doorbell Pro</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-13-pro-max-with-imei-code-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 13 Pro Max with IMEI Code?</u></a></li>
-<li><a href="https://win-dash.techidaily.com/secure-and-fast-internet-with-newly-downloaded-dell-wlan-driver/"><u>Secure & Fast Internet with Newly Downloaded Dell WLAN Driver</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/step-by-step-guide-using-dism-command-line-to-fix-windows-11-issues/"><u>Step-by-Step Guide: Using DISM Command Line to Fix Windows 11 Issues</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-powerhouse-in-depth-review-of-garmins-premium-forerunner-745-tracker/"><u>Unveiling the Powerhouse: In-Depth Review of Garmin's Premium Forerunner 745 Tracker</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/why-the-samsung-galaxy-a51-is-a-must-have-in-the-budget-friendly-5g-phone-category/"><u>Why the Samsung Galaxy A51 Is a Must-Have in the Budget-Friendly 5G Phone Category</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-flawless-soundscapes-in-the-world-of-social-media-videos/"><u>[New] 2024 Approved Flawless Soundscapes in the World of Social Media Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagrams-backward-glimpse-reverse-video-tips/"><u>[New] In 2024, Instagram's Backward Glimpse Reverse Video Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-navigating-numbers-essential-online-stock-market-guides/"><u>[New] Navigating Numbers Essential Online Stock Market Guides</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-drone-tech-present-implementation-and-future-vision/"><u>[Updated] Drone Tech Present Implementation & Future Vision</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-premier-image-stabilization-action-recorders/"><u>[Updated] Premier Image Stabilization Action Recorders</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-music-services-explained-contrasting-prime-vs-unlimited-offerings-for-streamers/"><u>Amazon Music Services Explained: Contrasting Prime Vs. Unlimited Offerings for Streamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/are-you-prepared-recognizing-the-signals-to-move-beyond-mobile-gaming-with-advanced-handheld-systems/"><u>Are You Prepared? Recognizing the Signals to Move Beyond Mobile Gaming with Advanced Handheld Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/avoid-imposters-ensure-authenticity-in-your-next-switch-gaming-purchase/"><u>Avoid Imposters: Ensure Authenticity in Your Next Switch Gaming Purchase</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-free-movie-streaming-apps-for-smartphones-watch-your-favorites-without-paying/"><u>Best Free Movie Streaming Apps for Smartphones: Watch Your Favorites Without Paying</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/complete-tutorial-on-viewing-international-swim-events-online/"><u>Complete Tutorial on Viewing International Swim Events Online</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/craft-your-own-crosswords-with-ease-using-excel-expert-tutorial-inside/"><u>Craft Your Own Crosswords with Ease Using Excel – Expert Tutorial Inside!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enjoy-retro-gaming-on-ios-free-ways-to-play-classics-without-jailbreaking/"><u>Enjoy Retro Gaming on iOS: Free Ways to Play Classics Without Jailbreaking</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-asus-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Asus Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-itel-p40plus-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Itel P40+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-pros-and-cons-of-tiktok-and-youtube-shorts-for-personal-usage/"><u>The Pros & Cons of TikTok and YouTube Shorts for Personal Usage</u></a></li>
 </ul></div>
 

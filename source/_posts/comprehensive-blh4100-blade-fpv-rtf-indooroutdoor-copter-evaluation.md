@@ -1,7 +1,7 @@
 ---
 title: Comprehensive BLH4100 Blade FPV RTF Indoor/Outdoor Copter Evaluation
-date: 2024-10-24T04:35:01.112Z
-updated: 2024-10-24T21:17:06.818Z
+date: 2024-10-25T18:45:07.242Z
+updated: 2024-10-30T22:03:14.628Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive BLH4100 Blade FPV RTF Indoor/Outdoor Copter Evaluation
@@ -42,9 +42,23 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -69,10 +83,10 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design and Features: Maximum portability, but not maximum flexibility**
@@ -97,18 +111,18 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: T-minus one minute**
 
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
 
  Lifewire / Jeffrey Daniel Chadwick
-
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
 
@@ -130,23 +144,9 @@ Lifewire / Jeffrey Daniel Chadwick
 
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
@@ -187,20 +187,22 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-audio-capturing-in-android-without-rooting-guide/"><u>[New] In 2024, Audio Capturing in Android - Without Rooting [Guide]</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-how-to-embed-a-youtube-playlist-on-a-website/"><u>[Updated] How to Embed A YouTube Playlist On a Website</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/10-best-webcam-recorders-windows-10-for-2024/"><u>10 Best Webcam Recorders Windows 10 for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/buzzword-bonanza-a-quick-guide-to-understanding-smart-acronyms/"><u>Buzzword Bonanza: A Quick Guide to Understanding SMART Acronyms</u></a></li>
-<li><a href="https://common-error.techidaily.com/diagnosing-and-repairing-non-functional-fn-buttons-on-an-asus-notebook/"><u>Diagnosing and Repairing Non-Functional Fn Buttons on an ASUS Notebook</u></a></li>
-<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-vivo-x-fold-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Vivo X Fold 2 | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-transform-your-devices-tone-swiftly-with-these-leading-chrome-apps/"><u>In 2024, Transform Your Device's Tone Swiftly With These Leading Chrome Apps</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/remove-the-lock-screen-fingerprint-of-your-google-pixel-7a-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Google Pixel 7a</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-tech-marvel-samsung-galaxy-buds-pro-reviewed/"><u>The Tech Marvel: Samsung Galaxy Buds Pro Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-using-photoscape-for-professional-yet-budget-friendly-image-editing/"><u>The Ultimate Guide to Using Photoscape for Professional, Yet Budget-Friendly Image Editing</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-ranking-linkedin-learning-classes/"><u>Top-Ranking LinkedIn Learning Classes</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-amazonbasics-7-port-usb-30-hub-top-reviews-and-features/"><u>Ultimate Guide to AmazonBasics 7-Port USB 3.0 Hub - Top Reviews & Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-samsung-cf591-gaming-performance-and-value-assessment/"><u>Ultimate Guide: Samsung CF591 Gaming Performance and Value Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-the-third-generation-apple-tv-4k-streamer/"><u>Unboxing and Testing the Third Generation Apple TV 4K Streamer</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unfolding-the-potential-and-pitfalls-of-the-new-lenovo-thinkpad-x1-fold-laptop/"><u>Unfolding the Potential and Pitfalls of the New Lenovo ThinkPad X1 Fold Laptop</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-ultimate-hues-handbook-theory-meets-technique/"><u>[New] In 2024, Ultimate Hues Handbook Theory Meets Technique</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-ignite-youtube-branding-get-free-design-samples/"><u>[Updated] In 2024, Ignite YouTube Branding Get FREE Design Samples</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/battle-of-the-smart-speakers-pros-and-cons-of-google-nest-audio-vs-apple-homepod/"><u>Battle of the Smart Speakers: Pros and Cons of Google Nest Audio Vs. Apple HomePod</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-powerhouse-expert-evaluation-of-the-tp-link-archer-a6-ac1200-wireless-router/"><u>Budget-Friendly Powerhouse: Expert Evaluation of the TP-Link Archer A6 AC1200 Wireless Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-insight-into-the-anker-powercoreplus-26800-charger-bundle-slim-and-efficient/"><u>Comprehensive Insight Into the Anker PowerCore+ 26800 Charger Bundle - Slim & Efficient</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experts-weigh-in-what-you-need-to-know-about-the-apple-watch-series-9/"><u>Experts Weigh In: What You Need to Know About the Apple Watch Series 9</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-latest-radeon-rx-470-drivers-and-updates-easy-steps-to-optimize-your-graphics-card/"><u>Get the Latest Radeon RX 470 Drivers & Updates - Easy Steps to Optimize Your Graphics Card</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-20-must-have-mp4-devices/"><u>In 2024, 20 Must-Have MP4 Devices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-ultimate-unlimited-fb-photomovie-builder/"><u>In 2024, Ultimate Unlimited FB Photo/Movie Builder</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-pioneer-bdr-xs06-blu-ray-disc-recorder-balancing-mobility-with-top-notch-functionality/"><u>In-Depth Analysis of Pioneer BDR-XS06 Blu-Ray Disc Recorder: Balancing Mobility with Top-Notch Functionality</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/is-a-step-up-worth-it-ps5-versus-enhanced-ps4-pro/"><u>Is a Step Up Worth It? PS5 Versus Enhanced PS4 Pro</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/naver/"><u>NAVER動画の記録とダウンロード手順 - ナレッジがあなたの右に!</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigating-the-asus-bios-enhancement-seamless-integration-of-microsofts-light-control-technology/"><u>Navigating the Asus BIOS Enhancement: Seamless Integration of Microsoft's Light Control Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sony-ps5-performance-analysis-a-leap-beyond-enhanced-graphics/"><u>Sony PS5 Performance Analysis: A Leap Beyond Enhanced Graphics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-dji-mavic-3-setting-new-standards-for-airborne-photography-and-video/"><u>The Ultimate Guide to DJI Mavic 3: Setting New Standards for Airborne Photography & Video</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-review-the-versatile-msi-pro-mp161-e2-compact-screen-for-on-the-go-productivity/"><u>Ultimate Review: The Versatile MSI Pro MP161 E2 Compact Screen for On-The-Go Productivity</u></a></li>
 </ul></div>
 

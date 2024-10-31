@@ -1,7 +1,7 @@
 ---
 title: Inexpensive Yet Robust - Meet the Coolpix W100
-date: 2024-10-12T10:42:22.001Z
-updated: 2024-10-18T17:19:34.631Z
+date: 2024-10-26T02:22:37.361Z
+updated: 2024-10-30T18:18:07.030Z
 categories:
   - BestProducts
 description: This Article Describes Inexpensive Yet Robust - Meet the Coolpix W100
@@ -43,13 +43,6 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 3.5
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## TP-Link RE200 AC750 Wi-Fi Range Extender
 
 ![TPLInk Network Extender RE200](https://www.lifewire.com/thmb/kJVLlJFDWoRIQXYy8IO30U8ybaE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_HeroSquare-307b31f9d0a4494d8a3d563c761542d5.jpg)
@@ -88,6 +81,13 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
  It doesn’t have a pass-through plug for your wall outlet, but thankfully the compact design should only take up one plug on your outlet.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: It’s straightforward**
 
  You have three different options for setting up the TP-Link RE200, all of which are pretty straightforward. With all three options, you’ll begin setup in close proximity to your router. The first setup option, which is what I chose, is to use TP-Link’s Tether app for iOS or Android devices. You’ll connect to the extender’s own Wi-Fi network, as indicated in the instructions, and then complete the steps to link to your home Wi-Fi network(s).
@@ -98,13 +98,20 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 ![TP-Link AV1300 Powerline](https://www.lifewire.com/thmb/04F8fDpm18B1nKg67KGE62zSjHI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_02-66c2a71ae40f45de8466ab23b5f96c09.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: Solid performance**
@@ -134,10 +141,16 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 ![TP-Link AV1300 Powerline](https://www.lifewire.com/thmb/iIfxo6VdIGO0JQzuzz4G5WeBKA8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_03-a1f202abd7e945a18b08ae3013c9d664.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -157,13 +170,6 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
  **Small, cheap, and potentially good enough to get the job done.**
 
  If you have modest broadband speeds and just need a little help to stretch your Wi-Fi network into certain spaces, then the TP-Link RE200 AC750 Wi-Fi Range Extender may be an appealing option. It’s definitely_less_ appealing if you can’t take advantage of TP-Link’s OneMesh hardware platform, and it won’t be able to replicate the full extent of a very high-speed broadband connection. Still, for a lot of people, this cheap, simple extender could be enough.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -191,20 +197,22 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2023s-best-rated-ps3-virtual-players-for-pc/"><u>[New] 2023'S Best-Rated PS3 Virtual Players for PC</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-mediamasher-suite/"><u>[New] 2024 Approved MediaMasher Suite</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/tep-by-step-wirecast-livestream-on-youtube/"><u>[New] Step-by-Step WireCast Livestream on YouTube</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-financial-investment-for-youtube-ads-success/"><u>[Updated] 2024 Approved Financial Investment for Youtube Ads Success</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-novice-to-vlogger-the-top-10-editing-techniques/"><u>[Updated] 2024 Approved From Novice to Vlogger The Top 10 Editing Techniques</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-undetected-consumer-of-life-streams-fb/"><u>2024 Approved Undetected Consumer of Life Streams (FB)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/advanced-wi-fi-reach-expanders-top-performing-models-for-enhanced-connectivity/"><u>Advanced Wi-Fi Reach Expanders: Top Performing Models for Enhanced Connectivity</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/comprehensive-techniques-to-downsize-android-footage-without-compromising-image-clarity/"><u>Comprehensive Techniques to Downsize Android Footage Without Compromising Image Clarity</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-xiaomi-redmi-note-12-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Xiaomi Redmi Note 12 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-the-cryptographers-guide-to-masked-recordings/"><u>In 2024, The Cryptographer's Guide to Masked Recordings</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/m1-chip-ipad-pro-2021-review-experience-powerhouse-portability/"><u>M1 Chip iPad Pro 2021 Review: Experience Powerhouse Portability</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/skyrim-review-for-the-nintendo-switch-dive-into-an-enchanting-richly-crafted-game-world/"><u>Skyrim Review for the Nintendo Switch - Dive Into an Enchanting, Richly Crafted Game World.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sony-xbr65x850f-4k-television-stunning-visuals-at-an-unbelievable-price-point-review/"><u>Sony XBR65X850F 4K Television: Stunning Visuals at an Unbelievable Price Point Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-the-sleek-powerhouse-comprehensive-review-of-the-thinkpad-x1-nano-by-lenovo/"><u>Unboxing the Sleek Powerhouse: Comprehensive Review of the ThinkPad X1 Nano by Lenovo</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/weather-enthusiasts-rejoice-with-the-impeccable-netatmo-station-review-a-technophiles-dream-come-true/"><u>Weather Enthusiasts Rejoice with the Impeccable Netatmo Station Review – A Technophile's Dream Come True!</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-igtv-mastery-best-video-editors-for-social-media-for-2024/"><u>[New] IGTV Mastery Best Video Editors for Social Media for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-stepping-up-your-game-on-instagram-for-2024/"><u>[New] Stepping Up Your Game on Instagram for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-leading-6-virtual-venues-propelling-professional-connections/"><u>[Updated] In 2024, Leading 6 Virtual Venues Propelling Professional Connections</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/a-deeper-dive-into-vsdc-plus-its-top-alternatives-for-2024/"><u>A Deeper Dive Into VSDC, Plus Its Top Alternatives for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/alexa-or-google-assistant-finding-your-ideal-smart-home-ally/"><u>Alexa or Google Assistant? Finding Your Ideal Smart Home Ally</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-value-reviews-for-budget-friendly-iseebell-video-doorbells/"><u>Best Value Reviews for Budget-Friendly ISeeBell Video Doorbells</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-poweradd-pilot-pro2-unit-the-ultimate-solution-for-multi-device-power-needs/"><u>Expert Analysis: POWERADD Pilot Pro2 Unit - The Ultimate Solution for Multi-Device Power Needs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hisense-40h5590f-smart-tv-review-a-solid-budget-set/"><u>Hisense 40H5590F Smart TV Review: A Solid Budget Set</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-tecno-spark-10-pro-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Tecno Spark 10 Pro Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-samsung-galaxy-f04-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Samsung Galaxy F04 FRP Bypass</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-the-docooler-usb-20-with-12-megapixel-sensor-living-up-to-its-promises-a-detailed-review/"><u>Is the Docooler USB 2.0 with 12 Megapixel Sensor Living Up to Its Promises? - A Detailed Review</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/primetrackings-smart-tiny-tracker-the-discreet-and-effective-anti-theft-solution-user-experiences-reveal/"><u>PrimeTracking's Smart Tiny Tracker: The Discreet & Effective Anti-Theft Solution – User Experiences Reveal</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-a71-5g-an-in-depth-evaluation-of-a-budget-friendly-flagship-rival/"><u>Samsung Galaxy A71 5G: An In-Depth Evaluation of a Budget-Friendly Flagship Rival</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-showdown-s24-ultra-vs-s23-ultra-specs-and-performance-review/"><u>Samsung Galaxy Showdown: S24 Ultra Vs. S23 Ultra Specs and Performance Review</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-free-video-clippers-for-pc-and-mac-best-tools-to-remove-unwanted-footage-on-windows-11-8-7/"><u>Top FREE Video Clippers for PC & Mac - Best Tools to Remove Unwanted Footage on Windows 11, 8, 7</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unveiling-the-elite-selection-the-8-greatest-mobile-games/"><u>Unveiling the Elite Selection: The 8 Greatest Mobile Games</u></a></li>
 </ul></div>
 

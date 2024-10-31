@@ -1,7 +1,7 @@
 ---
 title: Practical Experience with Your New 9-Inch Lenovo Tabby Gadget
-date: 2024-10-17T16:53:48.956Z
-updated: 2024-10-25T01:09:33.996Z
+date: 2024-10-23T22:20:40.338Z
+updated: 2024-10-30T20:22:45.646Z
 categories:
   - BestProducts
 description: This Article Describes Practical Experience with Your New 9-Inch Lenovo Tabby Gadget
@@ -51,6 +51,13 @@ Lifewire / Emily Isaacs
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/wuNd6MsZiivoQ99Xm0JHB9iB4Rs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_HeroSquare-99f80025b0254cbebe67ed22575a90c5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Emily Isaacs
 
 [View On Amazon $99](https://www.amazon.com/dp/B00NMVJYEW/?tag=lifewire-onsite-prod-20&ascsubtag=4780187%7Cnf95833ce2d2845368fd2b0eac089080a01%7CB00NMVJYEW) [View On Walmart $89](https://www.walmart.com/ip/Kinesis-KB800PB-us-Freestyle2-Ergonomic-Split-Keyboard-for-PC/41539324?slfpid=3) [View On Office Depot $113](https://www.officedepot.com/a/products/989638/Kinesis-Freestyle2-Ergonomic-Keyboard-For-PC/?cm%5Fmmc=PLA-%5F-Google-%5F-Computer%5FTablet%5FAccessories-%5F-989638&gclid=EAIaIQobChMIv7HKttKB6QIVUl8NCh2Afg94EAQYBCABEgJKIvD%5FBwE&gclsrc=aw.ds)
@@ -80,13 +87,6 @@ Lifewire / Emily Isaacs
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/C-YK_WPWu8Ujx1fwDLxvO6Epi-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_05-adcddc5fc05b415dbcd82396bc0ada77.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  The Kinesis Freestyle2 Blue for Mac breaks free of these norms by using a split, modular design that features two keyboard halves, one for each hand, connected via a 9 or 20-inch cable depending upon the chosen model. These pieces were designed with comfort in mind. They may be used separately or connected with a pivot tether at the top of the two halves. This allows you the opportunity to customize your setup and maximize your comfort, whether that’s by placing the halves closer together or further apart.
@@ -104,22 +104,15 @@ Lifewire / Emily Isaacs
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/XHY6Xe9cdaO1U6Uj0wDY6rROlcA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_04-7fad98b589454e0388ecf48afe425e8c.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
  From here, we followed the instructions in the provided instructional pamphlet and enabled Bluetooth on our iPad. After about a minute of scanning, the Kinesis KB800MB-BT keyboard appeared as an available device. We simply tapped to connect. From here, it prompted us to input a numeric code and press return. Once we’d done this, setup was complete.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Features: Efficient hotkeys once you get used to them**
 
@@ -133,6 +126,13 @@ Lifewire / Emily Isaacs
 
  The battery life on the Freestyle2 is excellent. It arrives with a partial charge, so it’s important to remember to fully charge it after receiving it. Once charged, the battery life can last up to 300 plus hours of regular use. The Freestyle2 does an excellent job of letting you know when its battery is getting low—battery lights will flash red to indicate when there are about four hours of battery life remaining. This ensures you’re never left hanging.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Excellent for the features**
 
  Full-size ergonomic keyboards tend to retail anywhere from $50 to $200, depending on the features involved. Generally retailing for about $100 on Amazon, the Freestyle2 sits comfortably at the front of this curve. While $100 may seem expensive for a keyboard, consider the features involved. Its travel-friendly build, adjustable setup options, extended battery life, and ability to switch quickly and smoothly between multiple connected devices make it an excellent choice for the features.
@@ -142,10 +142,10 @@ Lifewire / Emily Isaacs
  Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Kinesis Freestyle2 Blue vs. Microsoft Sculpt Ergonomic Keyboard**
@@ -197,17 +197,18 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-cost-breakdown-for-youtube-ads/"><u>[New] In 2024, Cost Breakdown for YouTube Ads</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-your-blueprint-for-broadcasting-live-on-facebook/"><u>[Updated] 2024 Approved Your Blueprint for Broadcasting Live on Facebook</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-hashtag-wisdom-uncovering-the-best-tags-to-dominate-on-instagram/"><u>[Updated] In 2024, Hashtag Wisdom Uncovering the Best Tags to Dominate on Instagram</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-the-ultimate-guide-to-swift-and-smooth-ipad-recordings/"><u>2024 Approved The Ultimate Guide to Swift and Smooth iPad Recordings</u></a></li>
-<li><a href="https://extra-information.techidaily.com/exclusive-list-of-e-commerce-sites-for-one-of-a-kind-boxed-gifts/"><u>Exclusive List of E-Commerce Sites for One-of-a-Kind Boxed Gifts</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-oppo-reno-11f-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Oppo Reno 11F 5G PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/superior-puppy-vision-the-exclusive-furbo-dog-cam-breakdown/"><u>Superior Puppy Vision – The Exclusive Furbo Dog Cam Breakdown</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-tutorial-leveraging-the-preview-app-for-stunning-image-edits-on-macos/"><u>The Ultimate Tutorial: Leveraging the Preview App for Stunning Image Edits on macOS</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-tips-for-optimal-placement-of-your-ps4-webcam/"><u>Top Tips for Optimal Placement of Your PS4 Webcam</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-walkthrough-and-review-of-the-stellaris-galactic-saga/"><u>Ultimate Walkthrough & Review of the Stellaris Galactic Saga</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unleashing-creativity-in-hd-windows-powered-visionary-editing-and-viewing-for-2024/"><u>Unleashing Creativity in HD Windows-Powered Visionary Editing & Viewing for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-lenovo-yoga-a940-a-series-detailed-review-of-specs-usability-and-design/"><u>Unveiling the Lenovo Yoga A940 ([A Series]): Detailed Review of Specs, Usability & Design</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-perfect-your-unboxing-game-8-tips-from-experts/"><u>[New] In 2024, Perfect Your Unboxing Game 8 Tips From Experts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-elevated-engagement-awards-on-video-realms/"><u>[Updated] 2024 Approved Elevated Engagement Awards on Video Realms</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-seamless-acquisition-of-everyday-online-footage-fb-status-videos/"><u>[Updated] In 2024, Seamless Acquisition of Everyday Online Footage FB Status Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-flipping-the-script-in-photography-how-angles-can-make-or-break-your-insta-posts/"><u>2024 Approved Flipping the Script in Photography How Angles Can Make or Break Your Insta Posts</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/achieving-flexible-desktop-size-with-window-11-updates/"><u>Achieving Flexible Desktop Size with Window 11 Updates</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-infinix-note-30-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Infinix Note 30 Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-every-aspect-of-the-samsung-gear-s3-frontier-a-rigorous-assessment-of-its-extensive-features/"><u>Exploring Every Aspect of the Samsung Gear S3 Frontier - A Rigorous Assessment of Its Extensive Features</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-motorola-g24-power-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Motorola G24 Power Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Nokia C210? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-17-portable-computers-for-professionals-gamers-and-students-2024-edition/"><u>Leading 17 Portable Computers for Professionals, Gamers & Students - 2024 Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-powershot-companion-elph-190/"><u>The Ultimate PowerShot Companion: ELPH 190</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ling-success-the-best-tools-for-youtube-seo-and-keyword-research-for-2024/"><u>Unveiling Success The Best Tools for YouTube SEO and Keyword Research for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-apples-most-affordable-ever-102-ipad-8th-gen-deserves-a-spot-in-your-tech-collection-a-thorough-review/"><u>Why Apple's Most Affordable Ever 10.2 iPad (8Th Gen) Deserves a Spot in Your Tech Collection - A Thorough Review!</u></a></li>
 </ul></div>
 

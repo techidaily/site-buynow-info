@@ -1,7 +1,7 @@
 ---
 title: TP-Link Travel Router (TL-WR902AC) - Compact Powerhouse of WiFi Connectivity for Nomads
-date: 2024-09-09T14:00:07.022Z
-updated: 2024-09-10T14:00:07.022Z
+date: 2024-10-24T00:57:01.198Z
+updated: 2024-10-30T22:00:02.371Z
 categories:
   - BestProducts
 description: This Article Describes TP-Link Travel Router (TL-WR902AC) - Compact Powerhouse of WiFi Connectivity for Nomads
@@ -9,22 +9,10 @@ excerpt: This Article Describes TP-Link Travel Router (TL-WR902AC) - Compact Pow
 thumbnail: https://www.lifewire.com/thmb/22WjFUPJyfDyoiQncgDsnN0FJoQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_TP-Link-TL-WR902AC-Wifi-Extender-1-25be3f3771a84649828a4e0ace059a70.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Top Score Review on Amplifi HD Wi-Fi Extender Kit: Bid Farewell to Connectivity Dead Zones
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Ubiquiti Amplifi HD Mesh Wi-Fi System
 
 ![Amplifi HD](https://www.lifewire.com/thmb/qzQaLlac--q8GkxuTKk83OA0RKQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_HeroSquare-fdb67079a06b415b98467919ec8e34a6.jpg)
@@ -55,12 +43,6 @@ Lifewire / Erika Rawes
 
 ![Amplifi HD](https://www.lifewire.com/thmb/Njd1HQu0FsmaveVCH4FDT0Spa6c=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_HeroSquare-fdb67079a06b415b98467919ec8e34a6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Erika Rawes
 
 [View On Walmart $426](https://www.walmart.com/ip/976428400) [View On Staples $449](https://www.staples.com/Ubiquiti-Amplifi-AFIHD-High-Density-Router-with-2-Mesh-Point-1750-Mbps/product%5F2620679?cid=AFF%3A2620679&slfpid=3) [View On Quill.com $455](https://www.quill.com/ubiquiti-amplifi-home-wi-fi-system-afi-hd-ac1750-dual-band-wireless-ethernet-router-white-afi-hd/cbs/55340637.html?effort%5Fcode=550&cm%5Fmmc=AFF%5F55340637&slfpid=3)
@@ -93,12 +75,6 @@ Lifewire / Erika Rawes
 
 ![Amplifi HD](https://www.lifewire.com/thmb/s87ZCkRIGWmpbjF2kUOXJRQtOl4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_02-1a111a806ad7495ba9f36d51121fe5b0.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 ## **Setup: Couldn’t get any easier**
@@ -106,6 +82,13 @@ Lifewire / Erika Rawes
  The setup for the Amplifi HD system is probably the easiest setup process I’ve encountered. The app walks you through the process step-by-step, with pictures to guide you on each instruction. The most difficult part was deciding where to place the two mesh points in my test home. I placed one in the far bedroom and one in my office, two rooms that notoriously experience drop-offs.
 
  By default, the app creates a dual (2.4 and 5Ghz) network, which directs traffic based on the most efficient pathways. You can create separate 2.4 and 5Ghz networks, or make other adjustments as you see fit though. You can change the band on the mesh points (from 2.4 to 5Ghz), create additional SSIDs, and more. For the purpose of testing, I used the default combined network and allowed the system to direct network traffic between bands.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: Lags when you add too many devices**
 
@@ -115,12 +98,6 @@ Lifewire / Erika Rawes
 
  In my test home, speeds from my ISP max out at 500 Mbps. In the same room as the main router, Ookla measured the speed at 131 Mbps. The speed remained consistent throughout the home, even in rooms that typically experience drop offs with other routers. However, outside in the backyard, the speed reduced to 111 Mbps.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Key Features: A display screen**
 
  The touchscreen on the front of the main router can display the time, total GB, WAN and Router IP addresses, internet speeds, and port statuses. You touch the screen to cycle through the different screen options. The power cable connects via[USB-C](https://www.lifewire.com/usb-c-4149490) , and there’s a USB 2.0 port as well, but it doesn’t allow you to connect an external hard drive (the port is reserved for future use).
@@ -130,11 +107,12 @@ Lifewire / Erika Rawes
  The app creates a dual (2.4 and 5Ghz) network, which directs traffic based on the most efficient pathways.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Software: Amplifi App**
 
  In the Amplifi App, you can set up a guest network, manage devices, pause the internet, check the health of the system, and check your speeds on your entire network and on individual devices. You can optimize the priority level for each of your devices between normal, streaming, or gaming.
@@ -145,9 +123,23 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: A little steep**
 
  The Amplifi HD system isn’t cheap. The package I tested, which came with the router and two mesh points, retails for $340\. You can find mesh systems for much less, and of course, some mesh systems are much more expensive. But, the Amplifi system’s design, easy setup, and feature set help justify the price.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Amplifi HD vs. Nest Wi-Fi**
 
@@ -159,12 +151,6 @@ Lifewire / Erika Rawes
 
  The Amplifi HD mesh system is attractive and does provide coverage for a huge area, but it doesn’t deliver lightning-fast speeds in a home with dozens of connected devices.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Amplifi HD Mesh Wi-Fi System
@@ -183,14 +169,11 @@ Lifewire / Erika Rawes
 * Remote connect  Yes
 * What’s included  Amplifi HD Router, two mesh points, power and Ethernet cables, guides
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -199,4 +182,20 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-go-green-integrate-subscriptions-in-ads/"><u>[Updated] In 2024, Go Green Integrate Subscriptions in Ads</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-seamlessly-switch-from-gif-to-video-with-top-5-online-tools/"><u>[Updated] Seamlessly Switch From GIF to Video with Top 5 Online Tools</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-leading-document-and-photograph-scanning-devices-of-2024/"><u>Discover The Leading Document and Photograph Scanning Devices of 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhance-your-iphone-security-explore-the-best-6-antivirus-applications-tailored-for-ios/"><u>Enhance Your iPhone Security: Explore the Best 6 Antivirus Applications Tailored for iOS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhanced-visual-experience-in-the-iconic-demons-souls-an-in-depth-review/"><u>Enhanced Visual Experience in the Iconic Demon’s Souls – An In-Depth Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-asus-rog-rapture-gt-ax11000-router-superior-gaming-capabilities-and-lightning-quick-speeds-unveiled/"><u>Evaluating the Asus ROG Rapture GT-AX11000 Router: Superior Gaming Capabilities and Lightning-Quick Speeds Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-kootek-desktop-fan-a-powerful-and-versatile-solution/"><u>Evaluating the Kootek Desktop Fan: A Powerful and Versatile Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-philips-hf352easy-and-effective-hf3520-alarm-clock-an-affordable-choice-for-everyone/"><u>Evaluating the Philips HF352easy & Effective HF3520 Alarm Clock - An Affordable Choice for Everyone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-logitech-brio-webcam-driver-update-for-modern-windows-systems-1187/"><u>Get Your Logitech BRIO Webcam Driver Update for Modern Windows Systems (11/8/7)</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-unveiling-the-secrets-of-enhancing-video-sessions-in-google-meet/"><u>In 2024, Unveiling the Secrets of Enhancing Video Sessions in Google Meet</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/metaverse-and-multimeva-a-comparative-study-of-features/"><u>Metaverse and Multimeva A Comparative Study of Features</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/seamless-chatgpt-history-syncing-the-best-extensions-you-need/"><u>Seamless ChatGPT History Syncing - The Best Extensions You Need</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-guide-to-repairing-d3dx933dll-missing-or-corrupted-files/"><u>The Ultimate Guide to Repairing 'd3dx9_33.dll' Missing or Corrupted Files</u></a></li>
+</ul></div>
 

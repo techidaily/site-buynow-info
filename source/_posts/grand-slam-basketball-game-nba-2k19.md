@@ -1,7 +1,7 @@
 ---
 title: "Grand Slam Basketball Game: NBA 2K19"
-date: 2024-10-21T16:51:59.234Z
-updated: 2024-10-24T20:25:51.721Z
+date: 2024-10-27T00:05:32.193Z
+updated: 2024-10-30T16:59:13.315Z
 categories:
   - BestProducts
 description: "This Article Describes Grand Slam Basketball Game: NBA 2K19"
@@ -42,22 +42,15 @@ Lifewire / Jeremy Laukkonen
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lenovo Tab M10 FHD Plus (2nd Gen)
 
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/dbD4xoAS3V_HdF9dkFJwAPoswK0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_HeroSquare-fd396d12e6ec48668ead96bed2f790fb.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -93,10 +86,10 @@ Lifewire / Jeremy Laukkonen
  The Tab M10 FHD Plus (2020) is one successor to 2019’s Tab M10\. It packs a slightly more powerful processor, bigger battery, and batter cameras. The display remains unchanged in resolution, but the Tab M10 FHD Plus (2020) does have a slightly bigger display. The price tag of the Tab M10 FHD Plus (2020) is also a bit smaller.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Design: Attractive metal design feels solid in the hand
@@ -119,13 +112,6 @@ Lifewire / Jeremy Laukkonen
 
  The back of the tablet has the aforementioned cutouts on the top and bottom, and the single rear-facing camera in the upper left corner. Aside from the Lenovo logo, Dolby logo, and an informational sticker that you’re free to remove, that’s it.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Display: Great-looking full HD screen
 
  Like the first generation of Lenovo’s M10 hardware, the Tab M10 FHD Plus features a full HD display. The 10.3-inch IPS LCD panel has a resolution of 1920 x 1200 for a display ratio of 16:10 and a pixel density of about 220 ppi. The result is a bright, colorful, beautiful display that looks great even when viewed from right up close.
@@ -146,6 +132,13 @@ Lifewire / Jeremy Laukkonen
 
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/tt3HD9uM-f4_vqoAxok0dfwOVb8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_02-264a43b354b148d7bfeea1a952ddcb71.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
  For more specific benchmarks, the Tab M10 FHD Plus scored 5,266 in web browsing, 4,360 in writing, and 3,851 in data manipulation. That’s a great web browsing score, but the writing and data manipulation scores are a bit disappointing. The Tab M10 HD, which is a second generation M-series tablet that’s priced lower than the Tab M10 FHD Plus, scored a bit better in those areas.
@@ -160,13 +153,6 @@ Lifewire / Jeremy Laukkonen
 
  I also used it for a handful of[Discord](https://www.lifewire.com/discord-4174046) video calls, but the low quality selfie cam failed to impress in that department. It works well enough in a pinch, but I wouldn’t recommend it as a primary device for word processing, video conferencing, or anything along those lines.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Audio: Stereo sound with Dolby Atmos
 
  The Tab M10 FHD Plus includes stereo speakers located on opposite ends of the device and support for Dolby Atmos. While it isn’t the best-sounding tablet I’ve ever tested, it's great for a device in this price range. There isn’t a whole lot of bass, but everything sounded quite clear without any harsh tones or strange vibrations.
@@ -174,10 +160,10 @@ Lifewire / Jeremy Laukkonen
  When I loaded up YouTube Music and turned up the volume all the way, I found that the Tab M10 FHD Plus was loud enough to easily fill a large room. I didn’t notice a whole lot of distortion at the highest volume, but it was loud enough that I found it more comfortable to listen to at three quarters volume or less.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Network: Good Wi-Fi network speeds with an LTE option
@@ -213,10 +199,10 @@ Lifewire / Jeremy Laukkonen
  The battery is the same one found in the less expensive Tab M10 HD, and it should really be bigger due to the increased power consumption of the bigger display.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Software: Originally shipped with Android Pie, now comes with Android 10
@@ -233,7 +219,21 @@ Lifewire / Jeremy Laukkonen
 
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/6jtXbNEbp6IeWqkD4Bs-0KjGx4Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_05-afa4a59fc67343c785979e6eb3f67c48.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lenovo Tab M10 FHD Plus (2020) vs. Lenovo Tab M10 HD
 
@@ -290,22 +290,18 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-earnings-exploration-how-much-does-pewdiepie-earn-for-2024/"><u>[New] Earnings Exploration How Much Does PewDiePie Earn for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-the-ultimate-guide-to-reducing-shakiness-on-your-gopro-movie/"><u>[Updated] 2024 Approved The Ultimate Guide to Reducing Shakiness on Your GoPro Movie</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-comprehensive-strategies-for-tracking-yt-traffic-and-gains/"><u>[Updated] In 2024, Comprehensive Strategies for Tracking YT Traffic and Gains</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-best-budget-friendly-ticking-clocks-online/"><u>2024 Approved Best Budget-Friendly Ticking Clocks Online</u></a></li>
-<li><a href="https://games-able.techidaily.com/connecting-controllers-perfectly-on-android-platforms/"><u>Connecting Controllers Perfectly on Android Platforms</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cool-down-your-game-the-ultimate-review-on-the-havit-5-high-performance-laptop-cooler-with-five-precision-fans/"><u>Cool Down Your Game: The Ultimate Review on the HAVIT #5 High-Performance Laptop Cooler with Five Precision Fans</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cut-the-wires-for-classic-vinyl-bk-turntable-talk/"><u>Cut the Wires for Classic Vinyl: BK Turntable Talk</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-excellence-of-msfsx-gold-edition-the-ultimate-flight-simulation-experience-evaluated/"><u>Discover the Excellence of MSFSX Gold Edition: The Ultimate Flight Simulation Experience Evaluated</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discovering-the-features-of-the-affordable-alcatel-joy-tab-2-with-integrated-lte-technology/"><u>Discovering the Features of the Affordable Alcatel Joy Tab 2 with Integrated LTE Technology</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/enhanced-traffic-with-dynamic-ads-the-power-of-cookiebot/"><u>Enhanced Traffic with Dynamic Ads: The Power of Cookiebot</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/excellent-manfrotto-befree-7-way-adjustment-system-versatile-design/"><u>Excellent Manfrotto Befree 7-Way Adjustment System: Versatile Design</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-picks-top-uninterruptible-power-supplies-to-secure-your-tech/"><u>Expert Picks: Top Uninterruptible Power Supplies to Secure Your Tech</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/happy-paws-abroad-petcubes-second-adventure/"><u>Happy Paws Abroad: Petcube's Second Adventure</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/head-to-head-battle-which-is-better-switch-lite-or-switch-oled/"><u>Head-to-Head Battle: Which Is Better, Switch Lite or Switch OLED?</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-fix-iphone-15-plus-could-not-be-activatedreached-issue-by-drfone-ios/"><u>How To Fix iPhone 15 Plus Could Not Be Activated/Reached Issue</u></a></li>
-<li><a href="https://win-forum.techidaily.com/how-to-perform-a-dns-flush-on-windows-10-and-windows-11-a-detailed-walkthrough/"><u>How to Perform a DNS Flush on Windows 10 and Windows 11: A Detailed Walkthrough</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unveiling-the-secrets-to-successful-zoom-calls-with-android/"><u>[New] Unveiling the Secrets to Successful Zoom Calls with Android</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-from-zero-to-hero-your-first-time-streaming-to-youtube/"><u>[Updated] In 2024, From Zero to Hero Your First Time Streaming to Youtube</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-realms-of-play-top-10-costless-online-roleplayers/"><u>[Updated] Realms of Play Top 10 Costless Online Roleplayers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ultimate-camera-picks-for-aspiring-youtubers/"><u>[Updated] Ultimate Camera Picks for Aspiring YouTubers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-youtube-video-ranking-breakdown-how-it-works/"><u>[Updated] YouTube Video Ranking Breakdown How It Works</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/echo-dot-2019-update-introducing-the-new-style-in-smart-home-devices/"><u>Echo Dot 2019 Update: Introducing the New Style in Smart Home Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exclusive-in-depth-look-at-the-xiaomi-mi-smart-band-4-a-budget-friendly-fitness-tracker-review/"><u>Exclusive In-Depth Look at the Xiaomi Mi Smart Band 4: A Budget-Friendly Fitness Tracker Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-review-how-the-corsair-one-pro-reignites-creativity-in-efficient-pc-gaming/"><u>Expert Review: How the Corsair One Pro Reignites Creativity in Efficient PC Gaming</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-reliable-choice-in-travel-essentials-review-of-kensuns-mini-air-inflator/"><u>The Reliable Choice in Travel Essentials: Review of Kensun's Mini Air Inflator</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-highest-quality-bluetooth-telephones-of-2-comparison-chart-discover-the-most-advanced-wire-free-communicators/"><u>The Ultimate Guide to the Highest Quality Bluetooth Telephones of 2# Comparison Chart: Discover the Most Advanced Wire-Free Communicators</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-latest-a-closer-look-at-the-updated-microsoft-surface-pro-7-performance-review/"><u>Unboxing the Latest: A Closer Look at the Updated Microsoft Surface Pro 7 Performance Review</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-tecno-pop-7-pro-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Tecno Pop 7 Pro Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-superior-wired-headphones-2024-edition/"><u>Unveiling the Superior Wired Headphones, 2024 Edition</u></a></li>
 </ul></div>
 

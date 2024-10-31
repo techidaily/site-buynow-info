@@ -1,7 +1,7 @@
 ---
 title: The Troublesome Journey with Google's Pixel Slate and Its ChromeOS Hurdles
-date: 2024-10-24T02:41:24.938Z
-updated: 2024-10-24T23:18:30.168Z
+date: 2024-10-29T22:31:07.067Z
+updated: 2024-10-30T17:41:35.326Z
 categories:
   - BestProducts
 description: This Article Describes The Troublesome Journey with Google's Pixel Slate and Its ChromeOS Hurdles
@@ -47,6 +47,13 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
 [View On Steampowered.com](https://store.steampowered.com/app/464920/Surviving%5FMars/) [View On G2a.com](https://www.g2a.com/en-us/surviving-mars-first-colony-edition-steam-key-global-i10000147752001?)
@@ -66,6 +73,13 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -73,13 +87,6 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
  As for a real plotline, there isn’t really one—the only kind of plot in the game is the objective to colonize Mars. There are challenges which you can do if you’re feeling particularly adventurous, which is nice, but they’re not a real plotline, and only serve to give you a different angle to colonizing the planet.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -96,13 +103,6 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
  In over twenty hours of gameplay, I learned the hard way that humans in this game are not only picky, but they demand the life of luxury the second they step off the rocket and into the dome. It didn’t matter that only twelve called a single dome home. It didn’t matter that there was barely enough of them to cover operating the grocery store and space bar. A lack of space for these amenities fell upon deaf ears. They wanted access to their art stores, electronics, and fine dining immediately. In that regard, I’m a little conflicted; as much as I wanted more shopping options for Mars, I realized not long after humans arrived that Haemimont Games, in reality, gave me a blessing by keeping a bland palate. Plus, more buildings and items become available as research, funding, and planetary discoveries allow.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -122,26 +122,32 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Other city-building games**
@@ -183,18 +189,15 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-time-saving-ways-to-log-vimeo-media/"><u>[New] In 2024, Time-Saving Ways to Log Vimeo Media</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-top-pages-for-stylish-shiny-3d-type-creations/"><u>[New] Top Pages for Stylish, Shiny 3D Type Creations</u></a></li>
-<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-honor-100-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Honor 100 Pro | Dr.fone</u></a></li>
-<li><a href="https://discover-guides.techidaily.com/dynamisches-kopieren-von-windows-11-festplatten-zwei-effektive-techniken-erklart/"><u>Dynamisches Kopieren Von Windows 11-Festplatten: Zwei Effektive Techniken Erklärt</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-torment-tides-of-numenera-in-depth-game-review-and-insights-into-its-unique-sci-fi-setting/"><u>Exploring 'Torment: Tides of Numenera' - In-Depth Game Review & Insights Into Its Unique Sci-Fi Setting</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/furbos-masterclass-in-canine-cameras-a-complete-review-for-pet-lovers/"><u>Furbo's Masterclass in Canine Cameras: A Complete Review for Pet Lovers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/intuitive-audio-experience-sony-wireless/"><u>Intuitive Audio Experience - Sony Wireless</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/linkedin-premium-is-the-added-value-worth-it/"><u>LinkedIn Premium: Is the Added Value Worth It?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/low-price-high-performance-the-ultimate-guide-to-using-the-asus-chromebook-flip-c302ca/"><u>Low Price, High Performance: The Ultimate Guide to Using the Asus Chromebook Flip C302CA</u></a></li>
-<li><a href="https://fox-search.techidaily.com/mastering-multimedia-conversion-how-to-turn-your-ppts-into-engaging-page-turning-flash-animations-using-flipbuilder/"><u>Mastering Multimedia Conversion: How to Turn Your PPTs Into Engaging Page-Turning Flash Animations Using FlipBuilder</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/techniques-for-elongated-iphone-photography/"><u>Techniques for Elongated iPhone Photography</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/transfer-your-apple-iphone-6s-apps-to-new-iphone-drfone-by-drfone-transfer-from-ios/"><u>Transfer your Apple iPhone 6s Apps to New iPhone | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlock-honor-magic-5-lite-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Honor Magic 5 Lite Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-discovering-10-must-love-aspects-in-filmora-editing/"><u>2024 Approved Discovering 10 Must-Love Aspects in Filmora Editing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/delving-into-the-samsung-galaxy-tab-a-2020-identifying-its-notable-absence/"><u>Delving Into the Samsung Galaxy Tab A (2020): Identifying Its Notable Absence</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-depths-of-easy-and-secure-reading-with-the-waterproof-kobo-libra-ereader-our-insightful-review/"><u>Exploring the Depths of Easy and Secure Reading with the Waterproof Kobo Libra eReader – Our Insightful Review</u></a></li>
+<li><a href="https://fox-http.techidaily.com/illustration-insights-elevating-text-in-three-dimensions-for-2024/"><u>Illustration Insights Elevating Text in Three Dimensions for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/kobo-clara-colour-unboxed-an-insiders-e-reader-review/"><u>Kobo Clara Colour Unboxed: An Insider's E-Reader Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-wireless-internet-gadgets-for-travelers-2024-picks/"><u>Leading Wireless Internet Gadgets for Travelers: 2024 Picks</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/recovering-deleted-conversations-a-guide-to-restoring-your-chatgpt-history/"><u>Recovering Deleted Conversations: A Guide to Restoring Your ChatGPT History</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-ultimate-blueprint-for-branding-success-on-snapchat/"><u>The Ultimate Blueprint for Branding Success on SnapChat</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-tier-writing-structure-space/"><u>Top-Tier Writing Structure Space</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unraveling-the-power-of-superzoom-with-canon-sx70-hs-review/"><u>Unraveling the Power of Superzoom with Canon SX70 HS Review</u></a></li>
 </ul></div>
 

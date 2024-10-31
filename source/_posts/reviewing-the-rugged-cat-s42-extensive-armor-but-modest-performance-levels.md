@@ -1,7 +1,7 @@
 ---
 title: "Reviewing the Rugged Cat S42: Extensive Armor but Modest Performance Levels"
-date: 2024-10-21T17:20:45.281Z
-updated: 2024-10-25T04:47:11.089Z
+date: 2024-10-28T20:12:23.718Z
+updated: 2024-10-30T22:33:27.304Z
 categories:
   - BestProducts
 description: "This Article Describes Reviewing the Rugged Cat S42: Extensive Armor but Modest Performance Levels"
@@ -84,6 +84,13 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
 ## **Setup Process/Installation: Easy install, irritating setup**
@@ -96,20 +103,13 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
@@ -120,7 +120,21 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Lots of options with mixed utility**
 
@@ -130,23 +144,9 @@ Lifewire / Emily Ramirez
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
 
@@ -169,10 +169,10 @@ Lifewire / Emily Ramirez
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -218,16 +218,17 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/nnovative-concepts-for-youtube-success-and-inspiration/"><u>[New] Innovative Concepts for YouTube Success and Inspiration</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-gearing-up-for-a-leisurely-view-three-methods-to-tame-video-speed-on-youtube-60-chars-minor-exception-due-to-title-length-but-offers-comprehensive-i/"><u>[Updated] Gearing Up for a Leisurely View Three Methods to Tame Video Speed on YouTube (60 Chars, Minor Exception Due to Title Length but Offers Comprehensive Insight)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/all-about-the-fitbit-inspire-hr-an-ultimate-review-of-a-247-wearable-tracker-for-active-lifestyles/"><u>All About The Fitbit Inspire HR: An Ultimate Review of a 24/7 Wearable Tracker for Active Lifestyles</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/complete-ipad-showdown-which-one-wins/"><u>Complete iPad Showdown: Which One Wins?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-lg-k51-critique-impressive-style-hindered-by-inadequate-cpu-power/"><u>Comprehensive LG K51 Critique: Impressive Style Hindered By Inadequate CPU Power</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-dreame-bot-l10-pro-the-advanced-autonomous-cleaning-system-using-lidar-technology/"><u>Comprehensive Review of Dreame Bot L10 Pro: The Advanced Autonomous Cleaning System Using LiDAR Technology</u></a></li>
-<li><a href="https://games-able.techidaily.com/exploring-xboxs-anti-fairness-measures/"><u>Exploring Xbox’s Anti-Fairness Measures</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-fix-oem-unlock-missing-on-motorola-moto-g-stylus-5g-2023-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Motorola Moto G Stylus 5G (2023)?</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-comprehensively-tackling-the-sony-fdr-x1000-action-gear/"><u>In 2024, Comprehensively Tackling the Sony FDR-X1000 Action Gear</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/the-definitive-review-of-samsung-galaxy-s20-fe-5g-captivating-all-who-love-5g-technology/"><u>The Definitive Review of Samsung Galaxy S20 FE 5G - Captivating All Who Love 5G Technology</u></a></li>
-<li><a href="https://blog-min.techidaily.com/topo-das-melhores-ferramentas-de-graca-para-gravar-dvds-em-windows-10-e-11-guia-detalhado/"><u>Topo Das Melhores Ferramentas De Graça Para Gravar DVDs Em Windows 10 E 11: Guia Detalhado</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-optimizing-your-mac-for-big-sur-release-for-2024/"><u>[New] Optimizing Your Mac for Big Sur Release for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-aurora-vs-traditional-hdr-the-battle-for-best-quality/"><u>[Updated] In 2024, Aurora vs Traditional HDR The Battle for Best Quality</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-captivate-with-voice-intros-that-intrigue/"><u>2024 Approved Captivate with Voice Intros That Intrigue</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-latest-series-captivating-qanda-for-podcast-audience/"><u>2024 Approved Latest Series Captivating Q&A for Podcast Audience</u></a></li>
+<li><a href="https://win-able.techidaily.com/discord-cam-errors-demystified-effective-fixes-to-restore-your-webcam/"><u>Discord Cam Errors Demystified: Effective Fixes to Restore Your Webcam</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-finest-price-cuts-for-roku-streaming-devices-during-amazons-prime-day-extravaganza/"><u>Discover the Finest Price-Cuts for Roku Streaming Devices During Amazon's Prime Day Extravaganza</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-of-nokia-31-your-gateway-to-modern-communication/"><u>Expert Review of Nokia 3.1 - Your Gateway to Modern Communication</u></a></li>
+<li><a href="https://win-hot.techidaily.com/guide-to-hd-video-capture-how-to-use-your-macs-built-in-webcam-with-excellent-quality/"><u>Guide to HD Video Capture: How to Use Your Mac's Built-In Webcam with Excellent Quality</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-vivo-s18-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Vivo S18? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/prime-backdrops-for-effective-virtual-gatherings-for-2024/"><u>Prime Backdrops for Effective Virtual Gatherings for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/professional-insights-on-the-logitech-c920-pro-hd-camcorder-a-comprehensive-guide/"><u>Professional Insights on the Logitech C920 Pro HD Camcorder: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/smart-and-cost-effective-watch-choice-in-depth-look-at-fitbit-versa/"><u>Smart and Cost-Effective Watch Choice: In-Depth Look at Fitbit Versa</u></a></li>
 </ul></div>
 

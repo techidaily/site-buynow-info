@@ -1,7 +1,7 @@
 ---
 title: "Discovering Android's True Identity Through The Google Pixel 3: A Comprehensive Review"
-date: 2024-10-17T22:37:39.954Z
-updated: 2024-10-19T12:21:08.943Z
+date: 2024-10-24T02:23:36.642Z
+updated: 2024-10-30T21:12:40.445Z
 categories:
   - BestProducts
 description: "This Article Describes Discovering Android's True Identity Through The Google Pixel 3: A Comprehensive Review"
@@ -46,10 +46,10 @@ Lifewire / Jonno Hill
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/0gXsFyigpZzsnNAEj3tIrKImB8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
@@ -76,10 +76,10 @@ Lifewire / Jonno Hill
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/AbdriPZwiRfd8iHxT9N5E6Ae2hk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_03-d434cf7b4c5f4f73b08c8c220fd0d43e.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
@@ -100,20 +100,33 @@ Lifewire / Jonno Hill
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Range: Fair to middling**
 
  Antenna’s Direct rates the ClearStream Eclipse Antenna for up to 35 miles of range, although I’ve seen reports of people getting good results from further, or having trouble from much closer. My apartment is well within the supported range, so my sentiments reflect its use in city settings more than suburbs or exurbs.
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Not bad for the performance**
 
@@ -128,13 +141,6 @@ Lifewire / Jonno Hill
 **The best unpowered indoor antenna.**
 
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -163,16 +169,22 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ecoding-youtubes-economic-strategy-the-rise-of-short-videos/"><u>[New] Decoding YouTube’s Economic Strategy The Rise of Short Videos</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-top-strategies-for-efficient-mobizen-screencasting/"><u>[New] In 2024, Top Strategies for Efficient Mobizen Screencasting</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-mobile-media-upload-share-videos-on-twitter-without-retweeting/"><u>[Updated] In 2024, Mobile Media Upload Share Videos on Twitter Without Retweeting</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apple-watch-showdown-gps-capabilities-versus-built-in-cellular-options/"><u>Apple Watch Showdown: GPS Capabilities Versus Built-In Cellular Options</u></a></li>
-<li><a href="https://fox-metric.techidaily.com/berbagai-langkah-untuk-mengenai-file-dan-folder-yang-hapus-tidak-menunjukkan-di-tempat-pemotongan/"><u>Berbagai Langkah Untuk Mengenai File Dan Folder Yang Hapus, Tidak Menunjukkan Di Tempat Pemotongan</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-discover-the-brilliance-of-samsungs-qn55q60rafxza-tv-with-4k-and-hdr10plus/"><u>Comprehensive Review: Discover the Brilliance of #Samsung's QN55Q60RAFXZA TV with 4K and HDR10+</u></a></li>
-<li><a href="https://facebook.techidaily.com/data-purge-and-its-implications-for-privacy-protection-in-social-media/"><u>Data Purge and Its Implications for Privacy, Protection in Social Media</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/future-ready-expansion-with-the-netgear-nighthawk-ax8-an-in-depth-review-of-the-latest-wi-fi-emesh-technology/"><u>Future-Ready Expansion with the Netgear Nighthawk AX8: An In-Depth Review of the Latest Wi-Fi eMesh Technology</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/retrieve-stored-login-credentials-securely-on-macos-devices/"><u>Retrieve Stored Login Credentials Securely on macOS Devices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-the-latest-addition-to-the-ring-home-security-lineup/"><u>The Ultimate Verdict on the Latest Addition to the Ring Home Security Lineup</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/update-completed-origin-username-and-password-problems-fixed/"><u>Update Completed: Origin Username & Password Problems Fixed</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-making-waves-in-the-social-media-world-via-fb/"><u>[New] Making Waves in the Social Media World via FB</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-nurture-harmony-and-well-being-the-finest-yogic-channels-alive-for-2024/"><u>[Updated] Nurture Harmony & Well-Being - The Finest Yogic Channels Alive for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/capturing-moments-with-powershot-g9xiis-timeless-style/"><u>Capturing Moments with PowerShot G9XII's Timeless Style</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-your-listening-game-with-spotify-pro-subscription/"><u>Elevate Your Listening Game with Spotify Pro Subscription</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-lightning-fast-internet-on-the-go-review-of-motorola-one-5g-aces-speedy-and-long-lasting-battery-life/"><u>Experience Lightning-Fast Internet on the Go - Review of Motorola One 5G Ace's Speedy and Long-Lasting Battery Life</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Fixing Foneazy MockGo Not Working On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-tecno-camon-20-premier-5g-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Tecno Camon 20 Premier 5G Phone | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hunt-for-the-best-deals-on-apple-devices-this-prime-day/"><u>Hunt for the Best Deals on Apple Devices This Prime Day</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-adobe-premiere-pro-101-for-youtube-clips-and-edits/"><u>In 2024, Adobe Premiere Pro 101 for YouTube Clips and Edits</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-essential-techniques-for-efficient-iphone-7-recording/"><u>In 2024, Essential Techniques for Efficient iPhone 7 Recording</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-explore-our-picks-of-budget-friendly-and-high-quality-video-viewing-tools-pcmobile/"><u>In 2024, Explore Our Picks of Budget-Friendly and High-Quality Video Viewing Tools (PC/Mobile)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-top-anker-usb-30-superhub-unleashing-full-power-capacity/"><u>In-Depth Analysis of the Top Anker USB 3.0 SuperHub: Unleashing Full Power Capacity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/iphone-evolution-continues-analyzing-the-advancements-in-the-new-iphone-15-plus-and-pro-max-models/"><u>IPhone Evolution Continues: Analyzing the Advancements in the New iPhone 15 Plus and Pro Max Models</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-critiques-and-praises-a-breakdown-of-recent-viber-out-testimonials/"><u>Top Critiques & Praises: A Breakdown of Recent Viber Out Testimonials</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-value-cameras-s-shooting/"><u>Top Value Cameras 'S Shooting</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/trouble-with-iphone-14-swipe-up-try-these-11-solutions-drfone-by-drfone-ios/"><u>Trouble with iPhone 14 Swipe-Up? Try These 11 Solutions | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unlocking-the-power-of-hashtags-in-youtube-gaming-culture/"><u>Unlocking the Power of Hashtags in YouTube Gaming Culture</u></a></li>
 </ul></div>
 

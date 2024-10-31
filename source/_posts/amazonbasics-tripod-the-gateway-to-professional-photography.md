@@ -1,7 +1,7 @@
 ---
 title: AmazonBasics Tripod - The Gateway to Professional Photography
-date: 2024-10-16T12:42:16.655Z
-updated: 2024-10-19T02:08:33.136Z
+date: 2024-10-25T02:20:23.783Z
+updated: 2024-10-30T19:12:01.013Z
 categories:
   - BestProducts
 description: This Article Describes AmazonBasics Tripod - The Gateway to Professional Photography
@@ -68,13 +68,6 @@ Lifewire / Andrew Hayward
 
  The TopMate C302 is a strong example of the latter. It’s affordable and solidly effective, but the plastic design feels a bit flimsy. I wouldn’t bet on it lasting for the long haul without gentle handling, but given the price, you might not worry about it too much.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Design: Light and a little flimsy
 
  The C302 measures just over 14 inches wide and is designed for laptops with screens up to 15.6 inches diagonal. It’s primarily made of lightweight plastic, with a thin metal grate on the top above the two 4.9-inch fans to help dissipate heat.
@@ -82,6 +75,13 @@ Lifewire / Andrew Hayward
  The entire pad weighs only 1.1 pounds, but the downside to it being so lightweight is that it feels a bit flimsy and rickety. It’ll do just fine holding your laptop and sitting on a desk, but I wouldn’t bet on it surviving a hard fall without some damage.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3qjwZzxQ2KVhmQJOdD2R9jBegvI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_03-ed7074949b6f4e4794ce30be2d582058.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -99,20 +99,13 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Performance: It makes a difference
@@ -129,6 +122,13 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Xs71AyeThjZwy-vZJ9LfxIhuXJc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_04-eadbaf270b874af9bb8843b95efe8ca7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
  Lastly, UNIGINE’s Heaven Benchmark hit 162 degrees internally and 109 degrees externally on the Razer Blade 15 alone, and dropped to 154 degrees internally and 105 degrees externally when using the C302\. All told, this lightweight and affordable pad delivered solid cooling power that helped cut down on both the internal and external temperature of the laptop while under significant stress.
@@ -136,10 +136,10 @@ Lifewire / Andrew Hayward
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Price: It’s very affordable
@@ -149,10 +149,10 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
@@ -201,20 +201,17 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-revolutionize-your-feed-with-these-10-insta-tools-for-2024/"><u>[New] Revolutionize Your Feed with These 10 Insta-Tools for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-guide-to-creating-free-youtube-outros-1-6/"><u>[New] The Ultimate Guide to Creating FREE YouTube Outros #1-6</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-navigate-your-gaming-world-with-steams-switch-controller/"><u>[Updated] In 2024, Navigate Your Gaming World with Steam's Switch Controller</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/boost-your-fitness-journey-with-the-fitbit-versa-3s-inbuilt-gps-and-comprehensive-health-apps-for-enhanced-motivation/"><u>Boost Your Fitness Journey with the Fitbit Versa 3'S Inbuilt GPS & Comprehensive Health Apps for Enhanced Motivation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-methods-to-secure-preview-photos-embedded-in-word-files/"><u>Comprehensive Methods to Secure Preview Photos Embedded in Word Files</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/garmin-forerunner-945-evaluation-all-inclusive-features-of-an-advanced-sports-smartwatch/"><u>Garmin Forerunner 945 Evaluation: All-Inclusive Features of an Advanced Sports Smartwatch</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/i-tried-both-ring-vs-nest-doorbell/"><u>I Tried Both: Ring vs Nest Doorbell</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/mastering-the-art-of-virality-the-ultimate-10-techniques-for-instagram-success/"><u>Mastering the Art of Virality: The Ultimate 10 Techniques for Instagram Success</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-tradeoffs-in-asus-x441ba-a-full-reveal-on-large-display-device/"><u>Navigating Tradeoffs in Asus X441BA: A Full Reveal on Large Display Device</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/omni-angle-mounting-mechanisms/"><u>Omni-Angle Mounting Mechanisms</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/power-up-anywhere-thorough-examination-of-maxoaks-high-capacity-battery-185whr-50k-mah-a-travelers-essential-guide/"><u>Power Up Anywhere: Thorough Examination of MaxOak's High Capacity Battery (185W/Hr / 50K mAh) - A Traveler's Essential Guide</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Nokia XR21 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/primary-speaking-language-of-croatia/"><u>Primary Speaking Language of Croatia</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-truth-about-m3-macbook-airs-value/"><u>The Truth About M3 MacBook Air’s Value</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-ultimate-lg-screen-chronicles-a-complete-review-of-4k-quality/"><u>[New] The Ultimate LG Screen Chronicles A Complete Review of 4K Quality</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-expert-reviews-best-game-capture-apps-for-2024/"><u>[Updated] Expert Reviews Best Game Capture Apps for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/expert-insights-evaluating-performance-and-reliability-of-thermaltakes-1350w-toughpower-gf3-power-supply-unit/"><u>Expert Insights: Evaluating Performance and Reliability of Thermaltake's 1350W Toughpower GF3 Power Supply Unit</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-honor-magic-6-pro-bootloader-easily-by-drfone-android/"><u>How to Unlock Honor Magic 6 Pro Bootloader Easily</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-12-without-passcode-or-face-id-by-drfone-ios/"><u>How to Unlock iPhone 12 without Passcode or Face ID</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-asus-rog-gt-ac5300-the-perfect-device-for-gamers-and-technology-aficionados/"><u>In-Depth Analysis of Asus ROG GT-AC5300 - The Perfect Device for Gamers & Technology Aficionados</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-budget-friendly-samsung-galaxy-a2-pros-and-cons-revealed/"><u>In-Depth Analysis of the Budget-Friendly Samsung Galaxy A2#: Pros & Cons Revealed!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-budget-routers-our-review-of-tp-links-high-performance-archer-a9-under-a-hundred-dollars/"><u>Navigating Budget Routers: Our Review of TP-Link's High-Performance Archer A9 Under a Hundred Dollars</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/quick-and-easy-installation-epson-printer-drivers-for-windows/"><u>Quick and Easy Installation: Epson Printer Drivers for Windows</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-of-both-worlds-in-the-nokia-71-premium-camera-and-screen-quality-for-less/"><u>The Best of Both Worlds in the Nokia 7.1: Premium Camera and Screen Quality for Less</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transforming-console-play-an-in-depth-look-at-the-playstation/"><u>Transforming Console Play: An In-Depth Look at the PlayStation</u></a></li>
 </ul></div>
 

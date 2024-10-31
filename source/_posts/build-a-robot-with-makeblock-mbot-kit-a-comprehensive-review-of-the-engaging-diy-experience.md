@@ -1,7 +1,7 @@
 ---
 title: "Build-a-Robot with Makeblock mBot Kit: A Comprehensive Review of the Engaging DIY Experience"
-date: 2024-10-16T16:47:57.172Z
-updated: 2024-10-18T20:46:11.794Z
+date: 2024-10-26T20:55:32.146Z
+updated: 2024-10-31T02:19:46.501Z
 categories:
   - BestProducts
 description: "This Article Describes Build-a-Robot with Makeblock mBot Kit: A Comprehensive Review of the Engaging DIY Experience"
@@ -68,7 +68,21 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/AbdriPZwiRfd8iHxT9N5E6Ae2hk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_03-d434cf7b4c5f4f73b08c8c220fd0d43e.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Inoffensive but unexceptional**
 
@@ -86,13 +100,6 @@ Lifewire / Jonno Hill
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Range: Fair to middling**
 
  Antenna’s Direct rates the ClearStream Eclipse Antenna for up to 35 miles of range, although I’ve seen reports of people getting good results from further, or having trouble from much closer. My apartment is well within the supported range, so my sentiments reflect its use in city settings more than suburbs or exurbs.
@@ -100,24 +107,30 @@ Lifewire / Jonno Hill
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Not bad for the performance**
 
  The ClearStream Eclipse Antenna lands at an MSRP of $40, putting it towards the high end of the price spectrum, especially where non-powered antennas are concerned. It did do one of the best jobs of supporting as many channels as possible, so the price is somewhat justified. Then again, every single one of the indoor antennas I’ve tested was able to handle the major network channels clearly and without issue, so a high channel number might not mean more than peace of mind in practical terms.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **ClearStream Eclipse Antenna vs Winegard FL5500A FlatWave Antenna**
 
@@ -128,13 +141,6 @@ Lifewire / Jonno Hill
 **The best unpowered indoor antenna.**
 
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -163,22 +169,18 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-art-of-instagram-video-clipping-and-trimming/"><u>[New] 2024 Approved The Art of Instagram Video Clipping and Trimming</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-harnessing-the-power-of-spotless-image-resources-for-2024/"><u>[New] Harnessing the Power of Spotless Image Resources for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-unlocking-full-access-to-itunes-radio-features/"><u>[New] Unlocking Full Access to iTunes Radio Features</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-captivating-content-at-your-fingertips-download-youtube-for-ios/"><u>[Updated] Captivating Content at Your Fingertips Download YouTube for iOS</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-lava-blaze-curve-5g-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Lava Blaze Curve 5G System Crash Issue | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/channel-your-creativity-crafting-youtube-trailers-in-filmora/"><u>Channel Your Creativity Crafting YouTube Trailers in Filmora</u></a></li>
-<li><a href="https://techidaily.com/different-methods-for-resetting-oppo-a1-5g-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Oppo A1 5G Phones with Screen Locked and Not | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/googles-password-manager-security-insights-required/"><u>Google's Password Manager: Security Insights Required</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/he-has-been-working-in-this-industry-for-10-years/"><u>He Has Been Working in This Industry for 10 Years.</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-infinix-hot-30i-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on Infinix Hot 30i</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-nook-glowlight-4-a-comprehensive-user-guide/"><u>In-Depth Analysis of the Nook GlowLight 4 - A Comprehensive User Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-the-tablet-world-comparing-amazon-fire-versus-samsung-choices/"><u>Navigating the Tablet World: Comparing Amazon Fire Versus Samsung Choices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reviewing-the-poweradd-pilot-pro2-a-high-capacity-charging-solution-for-laptops-and-gadgets/"><u>Reviewing the POWERADD Pilot Pro2 - A High-Capacity Charging Solution for Laptops & Gadgets</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/skagen-falster-2-showdown-a-stylish-contender-against-the-iconic-apple-phone/"><u>Skagen Falster 2 Showdown: A Stylish Contender Against the Iconic Apple Phone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ming-service-comparison-facebook-live-vs-youtube-live-and-spaces-for-2024/"><u>Streaming Service Comparison Facebook LIVE Vs. YouTube Live & Spaces for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-100-camera-guide-for-instant-shots/"><u>The Ultimate $100 Camera Guide for Instant Shots</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unraveling-the-thrills-of-space-warfare-in-star-wars-squadrons-our-comprehensive-review/"><u>Unraveling the Thrills of Space Warfare in Star Wars: Squadrons – Our Comprehensive Review</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-enabling-youtube-and-facebook-on-apple-tv/"><u>[New] 2024 Approved Enabling YouTube and Facebook on Apple TV</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-effortless-techniques-to-edit-multisnapping-videos/"><u>[New] In 2024, Effortless Techniques to Edit Multisnapping Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-step-by-step-including-in-apples-premium-catalog/"><u>[Updated] 2024 Approved Step-by-Step Including in Apple's Premium Catalog</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-capturing-sound-on-iphone-voice-memo-basics/"><u>2024 Approved Capturing Sound on iPhone Voice Memo Basics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/analyzing-status-bt-budget-friendly-but-needs-some-upgrades/"><u>Analyzing Status BT: Budget-Friendly but Needs Some Upgrades</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-mid-range-pricing-options-on-escortselfs-latest-long-range-radar-reviews-for-drivers/"><u>Discover Mid-Range Pricing Options on Escort’self's Latest Long Range Radar Reviews for Drivers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-leading-game-console-innovations-a-comprehensive-breakdown/"><u>Exploring the Leading Game Console Innovations : A Comprehensive Breakdown</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Lava Blaze 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-navigating-live-streams-on-youtube-and-twitch-with-ease-via-obs/"><u>In 2024, Navigating Live Streams on YouTube & Twitch with Ease via OBS</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/memorable-narratives-in-book-videos/"><u>Memorable Narratives in Book Videos</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/the-ultimate-review-of-cubefit-terramat-unlocking-active-living-from-anywhere-with-just-a-stand/"><u>The Ultimate Review of CubeFit TerraMat: Unlocking Active Living From Anywhere with Just a Stand</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-compactness-on-a-budget-our-take-on-the-latest-microsoft-surface-laptop-go/"><u>Ultimate Compactness on a Budget: Our Take on the Latest Microsoft Surface Laptop Go</u></a></li>
 </ul></div>
 

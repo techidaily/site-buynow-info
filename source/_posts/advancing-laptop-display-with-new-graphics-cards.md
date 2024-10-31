@@ -1,7 +1,7 @@
 ---
 title: Advancing Laptop Display with New Graphics Cards
-date: 2024-10-15T00:48:20.305Z
-updated: 2024-10-18T17:53:15.027Z
+date: 2024-10-27T16:07:00.398Z
+updated: 2024-10-31T00:41:00.926Z
 categories:
   - BestProducts
 description: This Article Describes Advancing Laptop Display with New Graphics Cards
@@ -74,14 +74,14 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/OXMiCXvzh8P7esVvbjPoSorzoxM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-2-7b14850c2ca84af39d5fd116ab483d5d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design** : **Nice looks and small footprint, with many reservations**
 
@@ -106,20 +106,19 @@ Lifewire / Jonno Hill
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/gfeGQoUwG35q5t-JwO07Ax4jm5I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-3-f4e655ec9e684a47855e9ee7373ba4b6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance** :**Great components for gaming and productivity**
 
@@ -145,6 +144,13 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Network** :**Great speeds, but software that doesn’t do much**
 
  The HP Omen Obelisk has gigabit LAN and a Wi-Fi 5 (2x2) networking, the latter supporting a maximum speed of 866 Mbps. Everything functioned smoothly from a networking standpoint during my tests.
@@ -162,10 +168,10 @@ Lifewire / Jonno Hill
  The option to overclock your system has you first run a nondescript benchmark, which produces a score with no reference point (to establish a baseline). While it’s nice to have the option, this really,_sincerely_ isn’t a system you want to be overclocking. The i9-9900K CPU already runs alarmingly hot, even with its pre-installed water cooling solution. There also isn’t enough room for anything beyond a 120mm AIO watercooler, and not nearly enough clearance for a popular air heatsink like the Noctua NH-D15.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Highly competitive**
@@ -178,6 +184,13 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **HP OMEN Obelisk vs Corsair One Pro**
 
  If you want something even smaller, and even more monolithic, the[Corsair One Pro](https://www.lifewire.com/corsair-one-pro-review-5072820) (see on[Corsair](https://www.corsair.com/us/en/Categories/Products/Systems/CORSAIR-ONE/CORSAIR-ONE-PRO-i180-Compact-Workstation-Grade-PC/p/CS-9040001-NA) ) manages to pack a high-end gaming rig in a minuscule 12-liter case, making even the HP OMEN seem large by comparison. It has a very solid construction and manages to fit water cooling for both the CPU and GPU inside its small frame.
@@ -189,13 +202,6 @@ Lifewire / Jonno Hill
  **High performance and fantastic value, but upsetting thermals.**
 
  The HP OMEN Obelisk delivers fantastic value for gamers shopping for a high-performance, pre-built PC. HP has come a long way, and now offers a much more compelling solution that will appeal to a much broader set of buyers. That said, there is work to be done still, as the case suffers from poor airflow, poor thermals, and not a lot of meaningful ways to improve them.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -231,18 +237,18 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2023s-premier-ios-emulators-excellent-psp-gaming-choices-for-2024/"><u>[Updated] 2023'S Premier iOS Emulators Excellent PSP Gaming Choices for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazfit-bip-unveiled-a-comprehensive-review-for-entry-level-wearable-tech-enthusiasts/"><u>Amazfit BIP Unveiled: A Comprehensive Review for Entry-Level Wearable Tech Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-mobvoo-ticwatch-e2-inexpensive-but-subpar-performance/"><u>Comprehensive Review of Mobvoo TicWatch E2: Inexpensive but Subpar Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-how-the-samsung-galaxy-tab-s7-measures-up-in-the-mid-tier-android-tablet-category/"><u>Comprehensive Review: How the Samsung Galaxy Tab S7 Measures Up in the Mid-Tier Android Tablet Category</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/effective-solutions-to-reestablish-connection-with-your-stadia-headset/"><u>Effective Solutions to Reestablish Connection with Your Stadia Headset</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/first-impressions-of-the-amazfit-bip-the-ultimate-beginners-guide-to-a-smarth-wearable/"><u>First Impressions of the Amazfit Bip: The Ultimate Beginner's Guide to a Smarth Wearable</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-oneplus-open-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On OnePlus Open Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-nubia-z50s-pro-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Nubia Z50S Pro FRP Without Computer</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-the-ultimate-11-easy-to-operate-kids-wet-weather-camcorders/"><u>In 2024, The Ultimate 11 Easy-to-Operate Kids' Wet Weather Camcorders</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-how-tp-links-deco-p9-revolutionizes-home-mesh-wi-fi-setup/"><u>In-Depth Analysis: How TP-Link's Deco P9 Revolutionizes Home Mesh Wi-Fi Setup</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-entertainment-on-a-budget-with-the-caixun-4k-android-tv-75-inch-model-an-in-depth-analysis/"><u>Maximizing Entertainment on a Budget with the Caixun 4K Android TV 75-Inch Model - An In-Depth Analysis.</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-the-ultimate-guide-to-mts-video-editing-5-best-tools/"><u>New The Ultimate Guide to MTS Video Editing 5 Best Tools</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/the-future-in-your-hands-screenflows-role-in-macos-innovation-for-2024/"><u>The Future in Your Hands ScreenFlow's Role in MacOS Innovation for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-accelerate-your-facebook-video-journey-in-depth-app-and-extension-guide/"><u>[New] In 2024, Accelerate Your Facebook Video Journey In-Depth App & Extension Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-building-an-audience-on-ig-steps-to-reach-1k-in-one-month-for-2024/"><u>[Updated] Building an Audience on IG Steps to Reach 1K in One Month for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-podcast-perfection-elite-webcam-selection-guide-for-2024/"><u>[Updated] Podcast Perfection Elite Webcam Selection Guide for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/econosounds-experience-comprehensive-examination-of-oneplus-buds/"><u>EconoSounds Experience - Comprehensive Examination of OnePlus Buds</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-new-frontier-of-wellness-with-amazons-cutting-edge-halo-fitness-device/"><u>Exploring the New Frontier of Wellness with Amazon's Cutting-Edge Halo Fitness Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/finding-value-in-apples-flagship-tablets-the-ipad-air-vs-ipad-pro-examined/"><u>Finding Value in Apple's Flagship Tablets: The iPad Air Vs. IPad Pro Examined</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-speeding-up-youtube-quick-video-rendering-and-transfer-tips/"><u>In 2024, Speeding Up YouTube Quick Video Rendering & Transfer Tips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-streamline-your-soundtrack-with-these-playlist-tips-for-youtube/"><u>In 2024, Streamline Your Soundtrack with These Playlist Tips for YouTube</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-home-security-reviewed-google-nest-hellos-features-explained-from-identifying-visitors-to-detecting-deliveries/"><u>Innovative Home Security Reviewed: Google Nest Hello’s Features Explained - From Identifying Visitors to Detecting Deliveries</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcoming-syncing-hurdles-for-your-xbox-one-controller-a-comprehensive-guide/"><u>Overcoming Syncing Hurdles for Your Xbox One Controller - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/synology-rt2600ac-wireless-router-reviewed-discovering-the-power-of-long-range-signals-and-comprehensive-parent-protection-options/"><u>Synology RT2600ac Wireless Router Reviewed: Discovering the Power of Long Range Signals & Comprehensive Parent Protection Options</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-steps-solving-among-us-pc-voice-chat-issues/"><u>Troubleshooting Steps: Solving 'Among Us' PC Voice Chat Issues</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-capabilities-of-the-garmin-gpsmap-64st-the-ultimate-portable-navigation-solution/"><u>Unveiling the Capabilities of the Garmin GPSMAP 64St: The Ultimate Portable Navigation Solution</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Viair's Portable 88P Compressor: A Study in Sheer Power with Minor Compromises"
-date: 2024-10-19T23:39:04.484Z
-updated: 2024-10-24T21:00:54.844Z
+date: 2024-10-25T23:33:26.535Z
+updated: 2024-10-30T16:26:33.822Z
 categories:
   - BestProducts
 description: "This Article Describes Viair's Portable 88P Compressor: A Study in Sheer Power with Minor Compromises"
@@ -101,18 +101,18 @@ PHOTO: Amazon
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/mUdXUjWxeupVqNR_y43_eFTC0ic=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-02-69b93dc934684ef5b71a40215f6162f2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
  The jumper cable features over-voltage protection, auto power off, short circuit protection, reverse polarity protection, reverse current protection, timer circuit protection, and jumper cable spark protection. The charger also doubles as a car emergency kit. It has an LED light, jumper cables, and a carrying pouch, making it an excellent tool for your glove box.
 
 [Halo Bolt Portable Charger/Jump Starter Review](https://www.lifewire.com/halo-bolt-portable-charger-jump-starter-review-5071993)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Versatile
 
@@ -140,6 +140,13 @@ PHOTO: Amazon
 
 ![Max Oak](https://www.lifewire.com/thmb/2J2B95OEgddwTnTPqs5dxy5QN28=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/maxoak-5x4-5db32562b89e462f84a77a28b9065dfa.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Gannon Burgett
 
  Our tester also liked that it measures 8.1 x 5.3 x 1.3 inches and weighs 2.77 pounds, so it could easily fit into your camping bag and won’t be that much heavier. Finally, it includes 14 types of laptop connectors, so it covers most models but not those powered via[USB-C](https://www.lifewire.com/usb-c-4149490) .
@@ -150,20 +157,14 @@ Lifewire / Gannon Burgett
 
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/aab2LeeqDhnHWsxLWYdgueO7v1Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-03-1530f666df824f6281040c2ae3285eb2.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What to Look For in a Portable Laptop Battery Charger
 
@@ -172,22 +173,15 @@ Lifewire / Andrew Hayward
  When picking a portable laptop battery charger, one of your primary considerations should be its capacity to store energy (measured in mAh)—this denotes the device’s battery life before it needs to be recharged. Be sure that the battery has equal or more capacity than the one already inside your machine so that you can expect a full charge.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Output
 
  Some portable chargers can be a bit slow when outputting a charge, so be sure that the battery you’re purchasing has an output equal to or higher than the wattage of your typical laptop charger.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Connectors
 
@@ -237,19 +231,20 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-elevate-your-presentations-with-professional-screencasts/"><u>[New] Elevate Your Presentations with Professional Screencasts</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-essential-knowledge-for-instagram-success-a-guide-to-behind-the-scenes-metrics/"><u>[New] Essential Knowledge for Instagram Success A Guide to Behind-the-Scenes Metrics</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-extract-translate-and-save-youtube-subtitles-for-free/"><u>[New] In 2024, Extract, Translate & Save YouTube Subtitles for FREE</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-top-10-free-web-based-video-chatting-tools/"><u>[New] In 2024, Top 10 Free Web-Based Video Chatting Tools</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-guide-to-kootek-laptop-cooling-pad-top-selection-reviewed-here/"><u>Comprehensive Guide to Kootek Laptop Cooling Pad – Top Selection Reviewed Here!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-thermaltake-massive-t-laptop-cooler-high-rewards-steep-cost/"><u>Expert Analysis of the Thermaltake Massive T Laptop Cooler - High Rewards, Steep Cost</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-unveiling-the-features-and-benefits-of-the-latest-amazon-kindle-paperwhite/"><u>Expert Review: Unveiling the Features and Benefits of the Latest Amazon Kindle Paperwhite</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/expertly-tested-and-reviewed-leading-gaming-laptops-for-the-upcoming-year-2024/"><u>Expertly Tested and Reviewed: Leading Gaming Laptops for the Upcoming Year 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/futureproof-your-streams-with-the-leading-mic-selection-for-202-cufflinks-year-a-comprehensive-review-by-zdnet/"><u>Futureproof Your Streams with the Leading Mic Selection for 202 Cufflinks Year: A Comprehensive Review by ZDNet</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-the-apple-ipad-air-2019-revolutionizes-your-media-experience-expert-insights/"><u>How the Apple iPad Air (2019) Revolutionizes Your Media Experience: Expert Insights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-budget-friendly-mobvoi-ticwatch-e2-is-cheap-enough/"><u>In-Depth Analysis of Budget-Friendly Mobvoi TicWatch E2: Is Cheap Enough?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-lenovo-ideapad-320-stunning-aesthetics-meet-functional-portability-and-renowned-keyboard-comfort/"><u>In-Depth Analysis of the Lenovo IdeaPad 320: Stunning Aesthetics Meet Functional Portability & Renowned Keyboard Comfort</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/soluciones-efectivas-para-recuperar-al-escritor-del-sistema-que-falta-en-la-copia-de-seguridad/"><u>Soluciones Efectivas Para Recuperar Al Escritor Del Sistema Que Falta en La Copia De Seguridad</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-contacts-from-oppo-by-fonelab-android-recover-contacts/"><u>Undelete lost contacts from Oppo .</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-simple-definition-of-storytelling/"><u>2024 Approved Simple Definition of Storytelling</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazfit-gts-analysis-when-style-meets-endurance-training-is-it-a-perfect-match/"><u>Amazfit GTS Analysis: When Style Meets Endurance Training – Is It a Perfect Match?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/analyzing-the-legacy-the-pros-and-cons-of-the-netgear-c3000-modem-router-dual-unit/"><u>Analyzing the Legacy: The Pros & Cons of the Netgear C3000 Modem-Router Dual Unit</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/at-127-antenna-test-drive-premium-television-on-a-chic-dish-an-antop-reveal/"><u>AT-127 Antenna Test Drive: Premium Television on a Chic Dish - An Antop Reveal</u></a></li>
+<li><a href="https://win-community.techidaily.com/complete-guide-eliminating-unwanted-default-apps-on-windows-11/"><u>Complete Guide: Eliminating Unwanted Default Apps on Windows 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/echo-dot-vs-homepod-mini-face-off-features-and-functionality-compared/"><u>Echo Dot Vs. HomePod Mini Face-Off: Features and Functionality Compared</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-competency-the-edge-of-being-bilingualmultilingual/"><u>Global Competency: The Edge Of Being Bilingual/Multilingual</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/gratis-3gp-to-3g2-converter-online-professioneel-en-gemakkelijk-met-movavi/"><u>Gratis 3GP-to-3G2 Converter Online - Professioneel en Gemakkelijk Met Movavi</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-htc-u23-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your HTC U23 Phone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-the-basics-of-print-settings-in-adobe-photoshop/"><u>Mastering the Basics of Print Settings in Adobe Photoshop</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcoming-game-security-infraction-error-message-successfully/"><u>Overcoming 'Game Security Infraction' Error Message Successfully</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/realigning-captions-from-srt-to-subcap/"><u>Realigning Captions From SRT to SUBCAP</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-repair-making-your-rainbow-six-siege-voice-chat-functional-again-in-the-latest-patch/"><u>Step-by-Step Repair: Making Your Rainbow Six Siege Voice Chat Functional Again in the Latest Patch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-pick-mirari-childrens-alarm-clock-ok-to-wake-in-depth-product-assessment/"><u>Top Pick: Mirari Children's Alarm Clock 'Ok to Wake!' In-Depth Product Assessment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-amazon-primes-true-worth-for-shoppers/"><u>Unlocking Amazon Prime’s True Worth for Shoppers</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Expert Analysis on the Toshiba 55LF711U20 – A Gamer and Amazon Subscriber's Dream TV
-date: 2024-09-09T14:03:36.232Z
-updated: 2024-09-10T14:03:36.232Z
+date: 2024-10-26T02:12:07.998Z
+updated: 2024-10-30T20:21:39.799Z
 categories:
   - BestProducts
 description: This Article Describes Expert Analysis on the Toshiba 55LF711U20 – A Gamer and Amazon Subscriber's Dream TV
@@ -13,12 +13,6 @@ thumbnail: https://www.lifewire.com/thmb/_u8kF67ouXIHvMBLVrEteH7dySQ=/400x300/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Watch Dogs: Legion
 
 ![Watch Dogs: Legion](https://www.lifewire.com/thmb/U5ORlS3mu37z0H9kyUjZmri_r7c=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Watch-Dogs-Legion-PC-1-4cb0288b78324a52bf9ccce096ab5218.jpg)
@@ -47,18 +41,6 @@ thumbnail: https://www.lifewire.com/thmb/_u8kF67ouXIHvMBLVrEteH7dySQ=/400x300/fi
 
 ![Watch Dogs: Legion](https://www.lifewire.com/thmb/Qr_SiCRONOchw7xBWly6nRwi4qM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Watch-Dogs-Legion-PC-1-4cb0288b78324a52bf9ccce096ab5218.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 [View On Amazon $53](https://www.amazon.com/Watch-Dogs-Legion-Standard-Digital/dp/B07SR1FMMC/?tag=lifewire-onsite-prod-20&ascsubtag=5085469%7Cn3b401040a24e4adbb87768f638d99c1a06%7CB07SR1FMMC) [View On Walmart $9](https://www.walmart.com/ip/Watch-Dogs-Legion-PlayStation-4-PlayStation-5/210835769?slfpid=3) [View On Best Buy $15](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fwatch-dogs-legion-standard-edition-playstation-4-playstation-5%2F6350606.p%3FskuId%3D6350606)
@@ -77,12 +59,6 @@ thumbnail: https://www.lifewire.com/thmb/_u8kF67ouXIHvMBLVrEteH7dySQ=/400x300/fi
 
  Watch Dogs: Legion is the latest installment in Ubisoft’s[Watch Dogs](https://www.liveabout.com/watch-dogs-2-cheats-codes-and-walkthroughs-4773695) series, and you can literally play as any character you encounter in the open world. Although Watch Dogs: Legion released without online gameplay (it became available in December 2020), you can play the campaign mode on PC or[console](https://www.lifewire.com/best-gaming-consoles-4154610) right now. Is this game worth the time and monetary investment? I played Watch Dogs: Legion for 30 hours to find out, evaluating its story, gameplay, graphics, to see how it compares to other titles.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setting and Plot: Fun, but predictable**
 
  Watch Dogs: Legion is set in a near-future version of London. The game accurately depicts landmarks, as well as the overall vibe of the city, but it’s a fictional version of London with a heavy tech theme. You have a few different enemies — a group consisting of private military, state operatives, and organized crime, as well as a hacker group called Zero Day. Zero Day pulls off a major terrorist operation in London. This causes the government to give power to a military group (Albion), and that group promptly implements a martial law type system of oppression.
@@ -99,12 +75,6 @@ thumbnail: https://www.lifewire.com/thmb/_u8kF67ouXIHvMBLVrEteH7dySQ=/400x300/fi
 
 ![Watch Dogs: Legion spider drone](https://www.lifewire.com/thmb/UOpYTu-WYh_4Z_Icu9ZD7aLW78Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-4-a1beafe90fe7494b84b19f97e292c2ab.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
  Once you complete the opening scene, the game is presented like most open world games — pick a mission, drive to it, complete the mission, and repeat. There are plenty of distractions and side missions to take part in like collecting text and audio files, finding the tech points which allow you to upgrade, participating in bare-knuckle fighting, delivering packages, and drinking a beer, and applying paste-ups. You can also shop for clothes.
@@ -114,11 +84,12 @@ thumbnail: https://www.lifewire.com/thmb/_u8kF67ouXIHvMBLVrEteH7dySQ=/400x300/fi
  Watch Dogs: Legion looks incredible, with great draw distances, and an incredibly detailed world.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Gameplay: Cool character engine, redundant missions**
 
  Watch Dogs: Legion is an open world action-adventure game. I played on PC, and I used an[Xbox controller](https://www.lifewire.com/games-console-reviews-4102640) . The controls were tight, intuitive, and consistently responsive. It felt natural to run through the world, climb, and drive. I was especially impressed with the vehicles, as you can feel the difference when you’re driving a sports car versus when you’re driving a bus.
@@ -126,6 +97,13 @@ thumbnail: https://www.lifewire.com/thmb/_u8kF67ouXIHvMBLVrEteH7dySQ=/400x300/fi
  Fighting is simple yet satisfying, with a dodge and counter system that feels realistic, and interesting finishing moves. Shooting feels pretty ok too— the aiming works well, and the duck and cover system feels natural. Cut scenes are very well done. They don’t feel arbitrarily thrown in, and they’re well integrated in the game engine. The main storyline takes around 20 hours, but it’ll take much longer if you play all the side missions.
 
 ![Watch Dogs: Legion character creation](https://www.lifewire.com/thmb/fT7PRS6tGlloKdqVFXl8H-TPrVY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-2-ed238e68324c450997c310f225ff57a6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -139,6 +117,13 @@ thumbnail: https://www.lifewire.com/thmb/_u8kF67ouXIHvMBLVrEteH7dySQ=/400x300/fi
 
  Most missions wound up feeling pretty redundant, especially after playing for a while. I’d approach a building, hack cameras and set traps, send in the spider drones for some easy knockouts, then go in and complete the area. There were some fun missions along the main story which offered some variety, but most missions are best completed with stealth, which can slow down the game sometimes.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Graphics: Top notch**
 
  Watch Dogs: Legion looks incredible, with great draw distances, and an incredibly detailed world. Everything visually works, and I really enjoyed looking at the people and landmarks in the world.
@@ -147,13 +132,14 @@ thumbnail: https://www.lifewire.com/thmb/_u8kF67ouXIHvMBLVrEteH7dySQ=/400x300/fi
 
 ![Watch Dogs: Legion mission](https://www.lifewire.com/thmb/K-AWpBjCaRJlrJ0G-xBMEG92pQo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-7-87aeabc18ddb4bca8252d33fcb1f20bf.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Erika Rawes / Lifewire
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: The usual $60**
 
@@ -163,12 +149,6 @@ thumbnail: https://www.lifewire.com/thmb/_u8kF67ouXIHvMBLVrEteH7dySQ=/400x300/fi
 
  The story kept me interested, although the plot bordered on predictable.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Watch Dogs: Legion vs. Grand Theft Auto Series**
 
  It feels as though Ubisoft is definitely going for a GTA vibe here—go see a person, start a mission, complete the mission, rinse, and repeat. In addition to its visually interesting world, Watch Dogs: Legion adds in the ability to play as anyone you encounter, and that’s perhaps its biggest draw. The next GTA may not arrive for quite a while, so for those who want a new open world right now, Watch Dogs: Legion might be a viable alternative.
@@ -191,8 +171,6 @@ thumbnail: https://www.lifewire.com/thmb/_u8kF67ouXIHvMBLVrEteH7dySQ=/400x300/fi
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -200,4 +178,18 @@ thumbnail: https://www.lifewire.com/thmb/_u8kF67ouXIHvMBLVrEteH7dySQ=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/our-entry-level-equipment-checklist-for-youtube-success/"><u>[New] Your Entry-Level Equipment Checklist for YouTube Success</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-ideal-bandicam-replacements-for-mac-users/"><u>[Updated] In 2024, Ideal Bandicam Replacements for Mac Users</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-vivavideo-review-insights-and-impressions-for-2024/"><u>[Updated] VivaVideo Review Insights and Impressions for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-unlocking-the-secrets-to-parallel-playback-prowess/"><u>In 2024, Unlocking the Secrets to Parallel Playback Prowess</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/mirroring-your-android-device-on-an-apple-tv-a-step-by-step-guide/"><u>Mirroring Your Android Device on an Apple TV: A Step-by-Step Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/premier-live-concert-streamers-for-2024/"><u>Premier Live Concert Streamers for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-capabilities-of-rca-video-doorbell-a-detailed-product-review/"><u>Unveiling the Capabilities of RCA Video Doorbell: A Detailed Product Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-fashionable-garmin-vivomove-hr-your-companion-for-active-living/"><u>Unveiling the Fashionable Garmin Vivomove HR: Your Companion for Active Living</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-mobvoi-ticwatch-pro-3-dual-display-tech-and-long-lasting-power-reviewed/"><u>Unveiling the Mobvoi TicWatch Pro 3: Dual Display Tech and Long-Lasting Power Reviewed!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/urban-mobility-unleashed-a-deep-dive-into-the-gotrax-gxl-v2-electric-commuter/"><u>Urban Mobility Unleashed: A Deep Dive Into the Gotrax GXL V2 Electric Commuter</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/value-for-money-with-oneplus-nord-n100-detailed-review-and-insights/"><u>Value for Money with OnePlus Nord N100: Detailed Review and Insights</u></a></li>
+</ul></div>
 

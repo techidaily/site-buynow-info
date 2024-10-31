@@ -1,7 +1,7 @@
 ---
 title: "Midland LXT500VP3 Handheld Radios: An Insightful Review on a Product with Many Features but Poor Performance"
-date: 2024-10-17T19:52:43.818Z
-updated: 2024-10-25T06:50:57.149Z
+date: 2024-10-29T20:05:13.400Z
+updated: 2024-10-31T02:28:17.855Z
 categories:
   - BestProducts
 description: "This Article Describes Midland LXT500VP3 Handheld Radios: An Insightful Review on a Product with Many Features but Poor Performance"
@@ -44,16 +44,16 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -78,13 +78,6 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: A lot of power packed into a small frame**
 
  The Beatit Jump Starter D11’s main unit's effectively a small black brick with red accents. Roughly the size of a small paperback book, the unit's constructed out of durable plastic and features a flashlight at one end. Along one of the long sides there's a small display that shows battery status, the on/off switch, two USB power outputs, and the device’s charging port. On the opposing side a rubber flap covers the jumper cable port; a unique port that the jumper cable accessory plugs in to.
@@ -95,13 +88,6 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: It can’t realistically be much simpler**
 
  Should you find yourself in a situation where you need to use the jump start functionality of the Beatit Jump Starter D11, you'll find it quite easy to use. On our Elantra test vehicle we simply had to pop the hood, bring the unit over, and plug the jumper cable accessory into its port. Once in place getting a proper connection is a simple matter of attaching the red clamp to the positive battery terminal and then the black clamp to the negative terminal. With a firm connection in place we simply had to set the unit down someplace where the vibration of the engine wouldn’t make it slide and then start the car. With the unit in place the car immediately started with zero hesitation, at which point we could disconnect the unit and get back on the road.
@@ -110,6 +96,13 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Plenty of power for all your needs**
 
  Time and again, the Beatit Jump Starter D11 was able to get a car with a very[depleted battery](https://www.lifewire.com/car-batteries-are-made-to-die-534765) started. Even after repeated testing the unit’s own battery only dropped down to 85% capacity.
@@ -117,13 +110,6 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  Charging a phone with a jump starter seems like overkill, and the unit’s ability to charge at 1,200mAh confirms that impression. At such an elevated level of charging your phone or other device will likely get its battery topped off in very little time. With 18,000mAh of capacity you can fully charge a modern phone at least twice, and still leave the unit with the juice it needs in order to start a car.
 
  Lifewire / Tony Mitera
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
@@ -138,6 +124,13 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
@@ -154,6 +147,13 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 **For the price, it's perfect.**
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -186,24 +186,22 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-comprehensive-list-of-non-udemy-e-learning-success-stories/"><u>[New] Comprehensive List of Non-Udemy E-Learning Success Stories</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-how-to-activatedeactivate-pip-in-ios-web-experience/"><u>[Updated] 2024 Approved How to Activate/Deactivate PIP in iOS Web Experience</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-efficiently-implementing-youtube-end-screens-for-2024/"><u>[Updated] Efficiently Implementing Youtube End Screens for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-in-depth-exploration-of-final-cut-pros-powerful-tools-and-features/"><u>2024 Approved In-Depth Exploration of Final Cut Pro’s Powerful Tools and Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-buyers-selection-of-ergonomic-keyboard-cushions-top-picks/"><u>A Buyer's Selection of Ergonomic Keyboard Cushions: Top Picks</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Vivo Y27s | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazon-halo-an-unusual-almost-invasive-fitness-tracker/"><u>Amazon Halo: An Unusual, Almost Invasive Fitness Tracker</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/arlo-video-doorbell-review/"><u>Arlo Video Doorbell Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/boost-performance-a-guide-to-moving-from-windows-8-to-11/"><u>Boost Performance: A Guide to Moving From Windows 8 to 11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/canons-mini-marvel-unveiling-the-powershot-sx740-hs/"><u>Canon's Mini Marvel: Unveiling the PowerShot SX740 HS</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-acers-r-11-chromebook-sleek-design-ultraportable/"><u>Comprehensive Analysis of Acer's R 11 Chromebook - Sleek Design, Ultraportable</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fix-your-frozen-windows-spotlight-with-these-simple-steps/"><u>Fix Your Frozen Windows Spotlight with These Simple Steps</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722717806006-for-non-circular-shapes-express-all-dimensions-through-a-single-variable-for-ease-of-calculation/"><u>For Non-Circular Shapes, Express All Dimensions Through a Single Variable for Ease of Calculation.</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-effortless-hulu-recordings-for-windows-mac-and-mobile-users/"><u>In 2024, Effortless Hulu Recordings for Windows, Mac & Mobile Users</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-innovative-approaches-to-capturing-skype-calls-on-obs/"><u>In 2024, Innovative Approaches to Capturing Skype Calls on OBS</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/step-by-step-tutorial-transform-mp4-files-into-dvd-ready-vobs-on-your-mac/"><u>Step-by-Step Tutorial: Transform MP4 Files Into DVD-Ready VOBs on Your Mac</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/transforming-passion-into-a-fulfilling-design-career-for-2024/"><u>Transforming Passion Into a Fulfilling Design Career for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-pros-and-cons-of-viber-out-calls-a-detailed-analysis/"><u>Unveiling the Pros & Cons of Viber Out Calls - A Detailed Analysis</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-zte-blade-a3y-outstanding-capabilities-for-cost-conscious-consumers/"><u>Unveiling the ZTE Blade A3Y: Outstanding Capabilities for Cost-Conscious Consumers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-5-amazing-free-youtube-intro-makers-ranked/"><u>[New] 2024 Approved 5 Amazing Free YouTube Intro Makers Ranked</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-many-movies-fit-in-128gb-memory/"><u>[New] How Many Movies Fit in 128GB Memory</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-10-viral-tweets-dominating-social-media/"><u>[Updated] 2024 Approved 10 Viral Tweets Dominating Social Media</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-increase-length-of-your-youtube-production/"><u>[Updated] Increase Length of Your YouTube Production</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/answers-you-need-the-comprehensive-echo-dot-vs-homepod-mini-face-off/"><u>Answers You Need: The Comprehensive Echo Dot Vs. HomePod Mini Face-Off</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-the-ultimate-guide-to-the-onetastic-add-in-for-microsoft-onenote/"><u>Comprehensive Analysis: The Ultimate Guide to the Onetastic Add-In for Microsoft OneNote</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/ejemplo-claro-y-efectivo-sobre-como-transferir-dvds-sin-perdida-de-calidad-usando-un-mac-big-sur/"><u>Ejemplo Claro Y Efectivo Sobre Cómo Transferir DVDs Sin Pérdida De Calidad Usando Un Mac Big Sur</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/freestyle2-blue-on-macs-a-must-have-application-for-apple-fans-revealed-in-our-detailed-review/"><u>Freestyle2 Blue on Macs: A Must-Have Application for Apple Fans, Revealed in Our Detailed Review</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-add-a-visual-disk-space-analyzer-tool-to-the-context-menu-in-windows-11-and-11/"><u>How to Add a Visual Disk Space Analyzer Tool to the Context Menu in Windows 11 & 11</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-ditch-input-lag-top-fixes-for-faster-typing-on-microsoft-os/"><u>How to Ditch Input Lag: Top Fixes for Faster Typing on Microsoft OS</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-samsung-galaxy-m14-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Samsung Galaxy M14 5G FRP Bypass</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-samsung-galaxy-s20-fe-your-go-to-choice-for-5g-excellence/"><u>In-Depth Look at the Samsung Galaxy S20 FE - Your Go-To Choice for 5G Excellence</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mmock-1000a-car-revitalizer-analysis-a-deep-dive-into-an-exceptional-18000mah-charger/"><u>MMOCK 1000A Car Revitalizer Analysis - A Deep Dive Into an Exceptional 18000mAh Charger</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/swift-solution-to-lidadll-glitch/"><u>Swift Solution to Lida.dll Glitch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-connectivity-game-changer-4-compelling-starlink-perks/"><u>The Ultimate Connectivity Game-Changer? 4 Compelling Starlink Perks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-rechargeable-battery-chargers-in-2marketing-course2024/"><u>Top Rated Rechargeable Battery Chargers in 2#Marketing-Course_2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlock-affordable-entertainment-with-karaoke-usa-less-than-150-for-endless-singing-joy/"><u>Unlock Affordable Entertainment with Karaoke USA: Less Than $150 for Endless Singing Joy!</u></a></li>
 </ul></div>
 

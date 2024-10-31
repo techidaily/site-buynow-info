@@ -1,7 +1,7 @@
 ---
 title: "The Holy Stone HS170: A Cost-Effective Gateway to Aerial Adventure - Thorough Review"
-date: 2024-10-23T05:13:59.465Z
-updated: 2024-10-25T01:57:06.954Z
+date: 2024-10-29T16:40:40.847Z
+updated: 2024-10-30T21:35:34.902Z
 categories:
   - BestProducts
 description: "This Article Describes The Holy Stone HS170: A Cost-Effective Gateway to Aerial Adventure - Thorough Review"
@@ -46,19 +46,6 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/ral6yRtba1CN2dg2W4Log4OcjAg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Nintendo-Switch-Lite-1-66fc3642c4d448b18f4a0775c059247d.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Zach Sweat
 
 [View On Walmart $165](https://www.walmart.com/ip/Nintendo-Switch-Lite-Console-Turquoise/306029956) [View On Best Buy $200](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnintendo-switch-32gb-lite-turquoise%2F6257139.p%3FskuId%3D6257139) [View On Macy's $240](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.macys.com%2Fshop%2Fproduct%2Fswitch-gaming-console-32gb-lite%3FID%3D10316544%26pla%255Fcountry%3DUS%26CAGPSPN%3Dpla%26slpfid%3D3)
@@ -84,13 +71,6 @@ Lifewire / Zach Sweat
  Although I appreciate what Nintendo has done here with the Lite, a few key missing features might not make it the optimal choice for everyone.
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/EUqklfDyxuB1ye8-DBboDrjzkUw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-2-225f5107c7b74f159afecba8c3f6174a.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -123,16 +103,10 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Hit the switch**
@@ -199,19 +173,6 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/KxMaFgooi4rm3qbImmLKatuUtVI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-4-ef84dbbbde3d48ff97515e5c6b9981a4.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 ## **Software: Still a bit drab, but smooth and snappy**
@@ -233,10 +194,10 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Battery Life: Slightly better, but not the best**
@@ -261,13 +222,20 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7XA6hgAK2B4hDSlWdmB8VQddrjw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-7-Comparison-44dcf88ec51247a2b0756445a3c7884d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Nintendo Switch Lite vs. Nintendo Switch**
@@ -290,6 +258,13 @@ Lifewire / Zach Sweat
 
  Despite being stripped of some of the Switch’s more unique features and strengths, the Switch Lite is a perfect console for gamers on the go or those who prefer handheld. It features an extensive library of exclusives that are perfect for a highly mobile system like Animal Crossing—and it’s hard to argue with the price.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 [Nintendo Switch Review](https://www.lifewire.com/nintendo-switch-review-4707563)
@@ -299,6 +274,13 @@ Lifewire / Zach Sweat
 [Xbox Series S Review](https://www.lifewire.com/xbox-series-s-review-5085770)
 
 [Sony PlayStation 5 Review](https://www.lifewire.com/sony-playstation-5-review-5088394)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -332,17 +314,24 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-laughs-at-your-service-web/"><u>[New] Laughs at Your Service (Web)</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-streamline-your-travel-narratives-top-ios-techniques-for-podcasting/"><u>[Updated] 2024 Approved Streamline Your Travel Narratives Top iOS Techniques for Podcasting</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/hear-the-future-with-sony-headsets/"><u>Hear the Future with Sony Headsets</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/high-speed-5g-connectivity-meets-long-lasting-power-in-the-motorola-one-5g-ace-reviewed/"><u>High-Speed 5G Connectivity Meets Long-Lasting Power in the Motorola One 5G Ace - Reviewed!</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-manually-install-a-hardware-driver-on-windows-11-and-10-by-drivereasy-guide/"><u>How to Manually Install a Hardware Driver on Windows 11 & 10</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-to-set-up-a-unique-nintendo-network-id-for-your-nintendo-3ds-gaming-experience/"><u>How to Set Up a Unique Nintendo Network ID for Your Nintendo 3DS Gaming Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-to-spot-the-best-for-gaming-notebooks/"><u>How to Spot the Best for Gaming Notebooks</u></a></li>
-<li><a href="https://win-top.techidaily.com/how-to-successfully-retrieve-lost-movies-from-your-sd-card-without-spending-a-penny/"><u>How to Successfully Retrieve Lost Movies From Your SD Card Without Spending a Penny</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-itel-p55t-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Itel P55T to New Phone | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/huawei-p20-pro-evaluation-exceptional-photography-experience-with-an-impressive-smartphone/"><u>Huawei P20 Pro Evaluation: Exceptional Photography Experience with an Impressive Smartphone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Samsung Galaxy S24+? | Dr.fone</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/screen-streaming-showdown-choose-between-obs-and-shadowgl/"><u>Screen Streaming Showdown Choose Between OBS & ShadowGL</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-tiktok-versus-youtube-shorts-assessing-personal-usage-value/"><u>[New] 2024 Approved TikTok versus YouTube Shorts Assessing Personal Usage Value</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-trick-automated-audiences-into-authentic-engagement/"><u>[Updated] Trick Automated Audiences Into Authentic Engagement</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/adjust-your-android-images-right-here-for-2024/"><u>Adjust Your Android Images Right Here for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-hearing-upgrade-the-activbuds-story/"><u>Affordable Hearing Upgrade: The ActivBuds Story</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-rog-rapture-gt-ax110th-router-analysis-top-performance-for-gamers/"><u>Asus ROG Rapture GT-AX110^th Router Analysis - Top Performance for Gamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cost-effective-apeman-c450-dash-cam-analysis-a-smart-choice-for-economical-shoppers/"><u>Cost-Effective Apeman C450 Dash Cam Analysis: A Smart Choice for Economical Shoppers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/critical-considerations-prior-to-acquiring-a-non-tethered-telecom-gadget/"><u>Critical Considerations Prior to Acquiring a Non-Tethered Telecom Gadget</u></a></li>
+<li><a href="https://fox-that.techidaily.com/detailed-evaluation-of-the-gaomon-pd1560-stylus-tablet/"><u>Detailed Evaluation of the Gaomon PD1560 Stylus Tablet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fiscal-friendly-fluffy-filmmakers-examination/"><u>Fiscal Friendly Fluffy Filmmakers Examination</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On ZTE Nubia Flip 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-transition-windows-10-home-to-pro-edition/"><u>Navigating the Transition: Windows 10 Home to Pro Edition</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/navigating-the-world-of-ifunny-memes/"><u>Navigating the World of iFunny Memes</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/pivot-point-shifting-your-onedrive-save-destination-on-pc/"><u>Pivot Point: Shifting Your OneDrive Save Destination on PC</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rayman-legends-game-analysis-exceptional-2d-platforming-experience/"><u>Rayman Legends Game Analysis: Exceptional 2D Platforming Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/saving-pennies-securing-peace-of-mind-the-complete-analysis-of-the-practical-procase-macbook-pro-n-caseto-budget-sleeve-review/"><u>Saving Pennies, Securing Peace of Mind: The Complete Analysis of the Practical ProCase MacBook Pro N-Caseto-Budget Sleeve Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-lenovo-tab-m10-fhd-plus-2020-high-quality-budget-friendly-tablet-reviewed/"><u>The Ultimate Guide to the Lenovo Tab M10 FHD Plus (2020): High-Quality, Budget-Friendly Tablet Reviewed</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/transforming-your-home-workspace-with-the-ipad-pro-a-comprehensive-guide-tips-and-tricks/"><u>Transforming Your Home Workspace with the iPad Pro: A Comprehensive Guide - Tips and Tricks</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/understanding-ffpm-in-firefox-today-for-2024/"><u>Understanding FFPM in Firefox Today for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-here-are-10-best-webm-to-mp4-converters-on-the-market-that-you-can-use-to-convert-video-from-webm-to-mp4-format/"><u>Updated 2024 Approved Here Are 10 Best WebM to MP4 Converters on the Market that You Can Use to Convert Video From WebM to MP4 Format</u></a></li>
 </ul></div>
 

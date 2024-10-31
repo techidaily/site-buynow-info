@@ -1,7 +1,7 @@
 ---
 title: "Master the Art of Coding & Combat: An In-Depth Review of DJI Robomaster S1, The Fun & Educational Battle Drone"
-date: 2024-10-18T06:46:03.476Z
-updated: 2024-10-25T05:56:00.807Z
+date: 2024-10-28T18:20:35.308Z
+updated: 2024-10-30T19:51:20.056Z
 categories:
   - BestProducts
 description: "This Article Describes Master the Art of Coding & Combat: An In-Depth Review of DJI Robomaster S1, The Fun & Educational Battle Drone"
@@ -42,13 +42,6 @@ Lifewire / Fred Meyer
 
 4
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Netgear AC1200 Wireless WiFi Range Extender (EX6200)
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/ypwoGr7PKp9XOfm_EgF2BsvzZkg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-2LW4043312-1-5c924aa1c9e77c0001e11e41.jpg)
@@ -78,10 +71,10 @@ Lifewire / Fred Meyer
  We spent a week testing it, evaluating the design, ease of setup, network performance, and software.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: A router’s aesthetics**
@@ -100,6 +93,13 @@ Lifewire / Fred Meyer
 
  For example, our[router](https://www.lifewire.com/what-is-a-router-2618162) sits in the living room entertainment center against one wall. On the opposite side of the wall sits an entertainment center in our bedroom. Now, we could run an Ethernet cord around the wall, through the bedroom door, and to the entertainment center, which would be around 60 feet or so, or we could drill through the wall and install an Ethernet socket. However, with the EX6200 we didn’t have to do either. Since it's right on the other side of the wall, we can set up the EX6200 and get the full signal to hardwire our TV,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and Xbox One, which gives better speed and reliability than if we used them with WiFi-only.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: A familiar process**
 
  Getting the EX6200 up and running is the same process used with pretty much every wireless extender on the market. Pull the thing out of the box, plug it in within 10-15 feet of your Wi-Fi router, and hit the WPS button. Then head over to your router and hit the corresponding WPS button on it. Voila! You're good to go.
@@ -107,6 +107,13 @@ Lifewire / Fred Meyer
  Alternatively, you can either plug into one of the Ethernet ports, or connect via the temporary network the EX6200 creates when you first turn it on. Check the manual for the web address to access the extender's interface (<www.mynetext.net>), and the bottom of the router for the default username and password (change this immediately), log in and follow the wizard that loads to get connected.
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/Lny9pSzLcp1hItabWfQAbx8cAoc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-2-5c924b5846e0fb0001f8d14a.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Fred Meyer
 
@@ -123,13 +130,6 @@ Lifewire / Fred Meyer
  All-in-all, the Netgear Genie software isn't going to blow your mind, but it's straightforward, and since most network configuration settings are done at the router, you don't need a ton of options.
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/C3GG9BATc7pjzGQZsIXmC4hlBTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-4-5c924c5046e0fb000146ae2c-e8aa858c433c410696d08b615cdee234.jpeg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Fred Meyer
 
@@ -151,6 +151,13 @@ Lifewire / Fred Meyer
 
 Lifewire / Fred Meyer
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Network Performance: Adequate but not spectacular**
 
  Again, the EX6200 is a mid-range unit with a great design and a few bonuses, so don't buy it thinking you're going to get high-end performance. We found the unit performed adequately, but didn't exceed expectations. Most of the time, the EX6200 hovered around 500 to 700 Mbps up to the 50 feet mark. By the time we had reached 75 feet that speed had more than halved to 200-250 Mbps. At 85-90 feet the speed had dropped to 50 to 70 Mbps and we started experiencing intermittent disconnects.
@@ -162,13 +169,6 @@ Lifewire / Fred Meyer
 ## **Price: A solid balance**
 
  At $99.99 (MSRP) the EX6200 isn't exactly cheap. You can get extenders for $30 or lower that get the job done, but that's all they'll do. We found that the EX6200 struck a good balance between price and features, and is an excellent extender for most use cases.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Middle of the road choice**
 
@@ -184,17 +184,17 @@ Lifewire / Fred Meyer
 
  If you're in the market for an extender, the EX6200 is one of our favorites. It doesn't excel in any category, but it does everything it’s designed to do well.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008)
 * [TP-Link AC1200 RE305](https://www.lifewire.com/tp-link-ac1200-wifi-range-extender-re305-review-4589559)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -231,20 +231,15 @@ Lifewire / Fred Meyer
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/elving-into-past-our-top-10-picks-of-history-channels-online-for-2024/"><u>[New] Delving Into Past Our Top 10 Picks of History Channels Online for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-ace-ios-selection-of-best-psp-emulators/"><u>[New] In 2024, Ace iOS Selection of Best PSP Emulators</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-launchpad-to-success-establishing-your-own-food-flavor-blogchannel/"><u>2024 Approved Launchpad to Success Establishing Your Own Food Flavor Blog/Channel</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-smart-security-the-ultimate-guide-to-the-iseebell-video-doorbell-under-50/"><u>Affordable Smart Security: The Ultimate Guide to the ISeeBell Video Doorbell Under $50</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/all-in-one-info-on-the-upcoming-apple-m4-chip-announcement-date-capabilities-and-core-benefits-exposed/"><u>All-in-One Info on the Upcoming Apple M4 Chip: Announcement Date, Capabilities, and Core Benefits Exposed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apeman-c450-inspection-a-comprehensive-look-at-this-economical-dash-cam-option/"><u>Apeman C450 Inspection: A Comprehensive Look at This Economical Dash Cam Option</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/behind-the-wheel-remotely-testing-and-evaluating-the-galaxy-ford-f150-rc-truck/"><u>Behind the Wheel, Remotely: Testing and Evaluating the Galaxy Ford F150 RC Truck</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/budget-friendly-powerhouse-the-apple-ipad-air-4-unveiled/"><u>Budget-Friendly Powerhouse: The Apple iPad Air 4 Unveiled</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/canon-speedlite-430ex-iii-rt-flags-building-excellence/"><u>Canon Speedlite 430EX III-RT Flags Building Excellence</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/choosing-between-iphone-and-samsung-smartphones-a-comprehve-comparison-guide/"><u>Choosing Between iPhone & Samsung Smartphones: A Comprehve Comparison Guide</u></a></li>
-<li><a href="https://discover-awesome.techidaily.com/comprendre-les-specifications-dune-resolution-de-dvd-guide-faq/"><u>Comprendre Les Spécifications D'une Résolution De DVD - Guide FAQ</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-xiaomi-redmi-12-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Xiaomi Redmi 12 to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/prepare-for-success-essential-trends-in-facebook-ads-24-for-2024/"><u>Prepare for Success Essential Trends in Facebook Ads '24 for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tech-insight-navigating-and-utilizing-the-features-on-the-iphone-15-pro/"><u>Tech Insight: Navigating and Utilizing the Features on the iPhone 15 Pro</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/unveiling-the-power-of-the-netgear-nighthawk-x6-ac3200-the-fastest-and-most-secure-wifi-router-for-families/"><u>Unveiling the Power of the Netgear Nighthawk X6 AC3200: The Fastest and Most Secure WiFi Router for Families</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-essential-tips-for-enhancing-images-on-snapchat/"><u>[New] Essential Tips for Enhancing Images on Snapchat</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-create-hit-facebook-song-vids-10-edition-for-2024/"><u>[New] How to Create Hit Facebook Song Vids - #10 Edition for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-deciphering-the-language-of-youtube-live-images/"><u>[New] In 2024, Deciphering the Language of YouTube Live Images</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-unveiling-the-art-of-smoothing-zoom-screenshots-for-2024/"><u>[New] Unveiling the Art of Smoothing Zoom Screenshots for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-apple-iphone-x-fix-now-drfone-by-drfone-virtual-ios/"><u>In 2024, 3uTools Virtual Location Not Working On Apple iPhone X? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-affordable-audio-speakers-ultimate-list-for-2aster-2023/"><u>Top Rated Affordable Audio Speakers - Ultimate List for 2Aster 2023</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-android-vpn-services-a-comprehensive-guide/"><u>Top Rated Android VPN Services: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-action-cameras-a-buyers-guide/"><u>Top-Rated Action Cameras : A Buyer's Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-automatic-floor-cleaners/"><u>Top-Rated Automatic Floor Cleaners</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/vlog-versus-channels-choosing-between-obs-and-twitch-for-2024/"><u>Vlog Versus Channels Choosing Between OBS & Twitch for 2024</u></a></li>
 </ul></div>
 

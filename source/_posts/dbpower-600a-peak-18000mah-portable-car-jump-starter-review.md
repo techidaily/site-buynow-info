@@ -1,7 +1,7 @@
 ---
 title: DBPOWER 600A Peak 18000mAh Portable Car Jump Starter Review
-date: 2024-09-09T14:00:08.532Z
-updated: 2024-09-10T14:00:08.532Z
+date: 2024-10-28T00:22:22.777Z
+updated: 2024-10-30T18:57:43.541Z
 categories:
   - BestProducts
 description: This Article Describes DBPOWER 600A Peak 18000mAh Portable Car Jump Starter Review
@@ -9,12 +9,6 @@ excerpt: This Article Describes DBPOWER 600A Peak 18000mAh Portable Car Jump Sta
 thumbnail: https://www.lifewire.com/thmb/jW9dJTpk3iyrWiSj4xxjbVltEZg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DBPower_JumpStarter_5LW4140286_HeroSquare-4defda07335a4d7bafb41bb20cacee2f.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Power Up Your Day with the Mighty Beatit BT-D11 Jump Starter Reviewed
 
 4.8
@@ -23,12 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/jW9dJTpk3iyrWiSj4xxjbVltEZg=/400x300/fi
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/OIHJ0F8VMR0yFUpC8veJBJ39E6A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Tony Mitera
 
  What We Like
@@ -55,12 +43,6 @@ thumbnail: https://www.lifewire.com/thmb/jW9dJTpk3iyrWiSj4xxjbVltEZg=/400x300/fi
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Tony Mitera
 
 [View On EBay](https://www.ebay.com/p/563813511)
@@ -84,6 +66,13 @@ thumbnail: https://www.lifewire.com/thmb/jW9dJTpk3iyrWiSj4xxjbVltEZg=/400x300/fi
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: A lot of power packed into a small frame**
 
  The Beatit Jump Starter D11’s main unit's effectively a small black brick with red accents. Roughly the size of a small paperback book, the unit's constructed out of durable plastic and features a flashlight at one end. Along one of the long sides there's a small display that shows battery status, the on/off switch, two USB power outputs, and the device’s charging port. On the opposing side a rubber flap covers the jumper cable port; a unique port that the jumper cable accessory plugs in to.
@@ -103,11 +92,12 @@ thumbnail: https://www.lifewire.com/thmb/jW9dJTpk3iyrWiSj4xxjbVltEZg=/400x300/fi
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: Plenty of power for all your needs**
 
  Time and again, the Beatit Jump Starter D11 was able to get a car with a very[depleted battery](https://www.lifewire.com/car-batteries-are-made-to-die-534765) started. Even after repeated testing the unit’s own battery only dropped down to 85% capacity.
@@ -116,12 +106,6 @@ thumbnail: https://www.lifewire.com/thmb/jW9dJTpk3iyrWiSj4xxjbVltEZg=/400x300/fi
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
  There aren’t a ton of other features present with the Beatit Jump Starter D11 but there are some of note, including the unit’s built-in flashlight. It’s a nice addition to have if you must jump start a car in the middle of the night, but it doesn’t put out of a ton of light and the beam is pretty narrow. You can pick the unit up and use it as a large flashlight, though doing so while also trying to get the clamps attached is cumbersome.
@@ -130,17 +114,18 @@ thumbnail: https://www.lifewire.com/thmb/jW9dJTpk3iyrWiSj4xxjbVltEZg=/400x300/fi
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: A ton of value for a tiny cost**
 
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
@@ -157,6 +142,13 @@ thumbnail: https://www.lifewire.com/thmb/jW9dJTpk3iyrWiSj4xxjbVltEZg=/400x300/fi
 **For the price, it's perfect.**
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -180,8 +172,6 @@ thumbnail: https://www.lifewire.com/thmb/jW9dJTpk3iyrWiSj4xxjbVltEZg=/400x300/fi
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -189,4 +179,24 @@ thumbnail: https://www.lifewire.com/thmb/jW9dJTpk3iyrWiSj4xxjbVltEZg=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-leading-apps-for-dji-video-manipulation-and-mixing/"><u>[New] Leading Apps for DJi Video Manipulation and Mixing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-perfecting-music-in-instagram-videos-and-stories/"><u>[Updated] In 2024, Perfecting Music in Instagram Videos & Stories</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-apples-latest-giants-iphone-15-plus-vs-pro-max/"><u>Comparing Apple's Latest Giants: IPhone 15 Plus Vs. Pro Max</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/critical-assessment-of-oneplus-9-falling-short-in-the-math-department/"><u>Critical Assessment of OnePlus 9: Falling Short in the Math Department</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/discover-the-best-free-iphone-organizers-on-windows-11-ranked-1-10/"><u>Discover the Best Free iPhone Organizers on Windows 11, Ranked #1-10!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-why-acer-aspire-e-15-is-crowned-as-the-finest-choice-for-thrifty-tech-enthusiasts-seeking-premium-performance/"><u>Discover Why Acer Aspire E 15 Is Crowned as the Finest Choice for Thrifty Tech Enthusiasts Seeking Premium Performance</u></a></li>
+<li><a href="https://win11.techidaily.com/enhance-real-time-performance-of-yuzu-emulator/"><u>Enhance Real-Time Performance of Yuzu Emulator</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fujitsu-scansnap-ix1600-review-a-robust-desktop-scanner-for-documents/"><u>Fujitsu ScanSnap iX1600 Review: A Robust Desktop Scanner for Documents</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-the-art-of-freezing-the-action-in-win-os/"><u>In 2024, The Art of Freezing the Action in Win OS</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-poco-x5-pro-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Poco X5 Pro Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/kindle-oasis-by-amazon-unveiled-stunning-design-or-overpriced-gadget-our-review-finds-out/"><u>Kindle Oasis by Amazon Unveiled - Stunning Design or Overpriced Gadget? Our Review Finds Out!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reveal-of-applee-powerhouse-processor-the-m4-microchip-release-info-and-detailed-specs-unpacked/"><u>Reveal of Apple'e Powerhouse Processor: The M4 Microchip – Release Info & Detailed Specs Unpacked</u></a></li>
+<li><a href="https://win-webster.techidaily.com/schritt-fur-schritt-anleitung-zum-einrichten-von-hyper-v-in-windows-11/"><u>Schritt-Für-Schritt-Anleitung Zum Einrichten Von Hyper-V in Windows 11</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solved-microsoft-visual-cplusplus-runtime-library-error-in-windows-10/"><u>Solved: Microsoft Visual C++ Runtime Library Error in Windows 10</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-samsung-galaxy-a15-5g-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Samsung Galaxy A15 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-trustworthy-basics-of-ups-in-depth-review-of-the-cyberpower-cp685avrg/"><u>The Trustworthy Basics of UPS: In-Depth Review of the Cyberpower CP685AVRG</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-and-performance-review-of-the-blade-blh4100-120-rc-helicopter-perfect-for-outdoor-adventures/"><u>Unboxing and Performance Review of the Blade BLH4100 120 R/C Helicopter: Perfect For Outdoor Adventures</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: LG Gram 15.6-Inch (2018) Review
-date: 2024-10-21T00:52:30.571Z
-updated: 2024-10-24T19:00:09.852Z
+date: 2024-10-23T23:14:45.326Z
+updated: 2024-10-30T23:44:40.096Z
 categories:
   - BestProducts
 description: This Article Describes LG Gram 15.6-Inch (2018) Review
@@ -88,14 +88,14 @@ Lifewire / Jordan Provost
 
 ![Ipad Pro 11-Inch](https://www.lifewire.com/thmb/TpucPEgB2OHgSplLwk2Q6sbI6Yo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_5-a6f20cf2b7b84caf8a6290fcb5e9fb5f.jpg)
 
- Lifewire / Jordan Provost
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Jordan Provost
 
 ## **Accessories: Useful for productivity**
 
@@ -109,6 +109,13 @@ Lifewire / Jordan Provost
 
  Top 3 Tablets On the Market
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Fast and easy**
 
  Setting up the 11-inch iPad Pro is quick and painless, and strikingly similar to many of Apple’s other products. Once unboxed, we took the iPad out of its case and held down on the power button which led to the setup screen.
@@ -119,18 +126,18 @@ Lifewire / Jordan Provost
 
  Lifewire / Jordan Provost
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Display: Rich colors and smooth motion**
 
  Apple is well known for its gorgeous screens, and the iPad Pro absolutely delivers. The display is what Apple is calling ‘Liquid Retina’, an upgraded version of the technology that drives the screen on the iPhone XR. Wonderfully rich color reproduction, crisp text can be found across all of Apple’s proprietary apps and third-party optimized software. Reading articles and watching video content on streaming services is wonderful, and it even fares well amidst glare from sunlight. It’s still an LCD screen though, so OLED tablets will still have better-looking blacks and richer, more saturated colors. Fortunately for Apple, there aren’t many of those in the market.
 
  There’s also some nifty usability features that come packed with the iPad Pro. True Tone is a feature that helps match the display to the color temperature of your surroundings, which makes the screen easier on your eyes. The 120Hz Pro Motion technology alters the refresh rate of the screen depending on your usage, which results in extremely fluid motion, from scrolling, to playing games, or watching video. It’s difficult to find a poor viewing angle, though you still can’t watch 4K video on YouTube, which is a crying shame given the power of the screen, but more of a problem between Apple and Google rather than a knock to the device itself.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Powerhouse processor**
 
@@ -147,20 +154,13 @@ Lifewire / Jordan Provost
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/KXfYew06x6vujxu5asiFMPptK_k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_1-a6ce9e62649048d7a20596066576c2c5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Productivity: Not a laptop replacement just yet**
 
@@ -186,13 +186,6 @@ Lifewire / Jordan Provost
 
 ![IPad- Pro 11 Inch](https://www.lifewire.com/thmb/D-1-WC_wIDqzRZLb8mDOgpjal6c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_3-e425a67865fc461fb805e648294dadf8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jordan Provost
 
 ## **Camera: A decent backup**
@@ -211,13 +204,20 @@ Lifewire / Jordan Provost
 
 ![IPad Pro 11 Inch](https://www.lifewire.com/thmb/Q4zUu4bRCg_V0xhMi5Yh7Ns7znc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_4-bef539783bbd48ae98e1becea11ce4dc.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: The best yet**
@@ -228,18 +228,18 @@ Lifewire / Jordan Provost
 
  iOS 12 is by far and away the best version of the operating system yet, but there are still some blatant compromises that eat away at the possibility of the iPad Pro being a laptop replacement.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Well worth the money if you can justify it**
 
  As far as tablets go, one of the main reasons many people are put off by the iPad Pro is the existence of far cheaper options. Our review model (11-inch, 64GB) retails for $799, and you may well be inclined to upgrade both the size and the capacity to suit your needs. This doesn’t factor in some of the more essential accessories with jaw-dropping prices like the Apple Pencil, Smart Keyboard, and the Bluetooth headphones necessary to navigate the lack of a headphone jack. That can lead to a very expensive purchase, and with Apple products, it can be hard to tell whether they are worth it case by case.
 
  Luckily, the 11-inch iPad Pro is such a revolutionary upgrade on most tablets that you do truly get what you pay for here. The A12X Bionic puts it leagues ahead of the competition, making it the most powerful productivity machine for professional creatives on the market. There is nothing really competing at this price range beyond.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Hard to beat**
 
@@ -253,18 +253,18 @@ Lifewire / Jordan Provost
 
  With utterly seamless navigation and playback, fantastic speakers and world-class accessories and performance, this is a beautifully designed piece of hardware. Unfortunately, whilst the power is there, it is held back by its own operating system, forcing you into busywork or compromising missteps. It cannot replace your laptop just yet, but it may well make it redundant based on your use case.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Apple iPad 10.2-inch (7th Generation)](https://www.lifewire.com/apple-ipad-10-2-inch-7th-generation-review-4772313)
 * [Microsoft Surface Go](https://www.lifewire.com/microsoft-surface-go-review-4690827)
 * [Apple iPad Mini (2019)](https://www.lifewire.com/apple-ipad-mini-2019-review-4688991)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -294,17 +294,18 @@ Lifewire / Jordan Provost
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-foremost-zooid-beginnings-guide/"><u>[Updated] In 2024, Foremost Zooid Beginnings Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-excellence-oneplus-nord-n100-smartphone-evaluation/"><u>Affordable Excellence: OnePlus Nord N100 Smartphone Evaluation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/bring-out-the-best-with-nixplay-iris-and-its-cloud-capability/"><u>Bring Out the Best with Nixplay Iris and Its Cloud Capability</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-breakdown-the-true-price-of-a-podcast/"><u>In 2024, Expert Breakdown The True Price of a Podcast</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-realme-gt-3-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Realme GT 3? Fixed | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-quick-video-growth-top-20-hacks-for-instant-impact/"><u>In 2024, Quick Video Growth Top 20 Hacks for Instant Impact</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lexical-exchange-a-universal-story-of-language-adaptation/"><u>Lexical Exchange: A Universal Story of Language Adaptation</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-ultimate-guide-to-hash-trackers-fb-twt-and-ig-networks/"><u>The Ultimate Guide to Hash Trackers FB, Twt & IG Networks</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-audacity-effective-remedies-for-errors-when-opening-sound-devices-five-options/"><u>Troubleshooting Audacity: Effective Remedies for Errors When Opening Sound Devices – Five Options</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unfolding-the-lenovo-thinkpad-x1-experience-a-breakthrough-yet-imperfect-device-reviewed/"><u>Unfolding the Lenovo ThinkPad X1 Experience: A Breakthrough Yet Imperfect Device Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlocking-fun-with-the-syma-s111g-remote-controlled-helicopter-your-indoor-adventure-awaits/"><u>Unlocking Fun with the Syma S111G Remote-Controlled Helicopter - Your Indoor Adventure Awaits!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-and-performance-of-the-new-samsung-galaxy-tab-s7plus/"><u>Unveiling the Features and Performance of the New Samsung Galaxy Tab S7+</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-essential-tools-for-crafting-a-competitive-business-plan-for-2024/"><u>[New] Essential Tools for Crafting a Competitive Business Plan for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-your-ultimate-companion-for-mastering-mov-recordings-on-windows-10/"><u>[Updated] Your Ultimate Companion for Mastering MOV Recordings on Windows 10</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-essential-techniques-for-quiet-filming/"><u>2024 Approved Essential Techniques for Quiet Filming</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazing-value-with-the-hisense-50h8f-tv-the-top-4k-hdr-screen-for-savvy-shoppers/"><u>Amazing Value with the Hisense 50H8F TV: The Top 4K HDR Screen for Savvy Shoppers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-escort-max-360-advanced-radar-detector-with-built-in-gps/"><u>Comprehensive Review of Escort Max 360: Advanced Radar Detector with Built-In GPS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elgoog-examined-in-depth-analysis-and-critique-of-the-premier-reflection-engine/"><u>ElgooG Examined: In-Depth Analysis & Critique of the Premier Reflection Engine</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fresh-nickelodeon-cartoon-makes-its-grand-entrance-in-america-celebrated-at-kids-choice-honors/"><u>Fresh Nickelodeon Cartoon Makes Its Grand Entrance in America - Celebrated At Kid's Choice Honors</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-signal-reach-performance-and-features-of-the-netgear-ex6200-wireless-ac1200-range-extender-analyzed/"><u>Maximizing Signal Reach: Performance and Features of the Netgear EX6200 Wireless AC1200 Range Extender Analyzed</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ritaglia-e-converti-mp3-in-formato-3gpp-senza-costi-con-movavi-soluzione-rapida-per-laudio-mobile/"><u>Ritaglia E Converti MP3 in Formato 3GPP Senza Costi Con Movavi - Soluzione Rapida per L'audio Mobile</u></a></li>
+<li><a href="https://driver-download.techidaily.com/troubleshoot-and-fix-ralink-wifi-connectivity-issues-with-windows-driver-update-instructions/"><u>Troubleshoot and Fix Ralink WiFi Connectivity Issues with Windows Driver Update Instructions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/your-essential-guide-to-selecting-premier-home-weather-instruments-this-year/"><u>Your Essential Guide to Selecting Premier Home Weather Instruments This Year</u></a></li>
 </ul></div>
 
