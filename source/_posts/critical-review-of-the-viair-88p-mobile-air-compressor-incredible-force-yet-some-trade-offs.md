@@ -1,7 +1,7 @@
 ---
 title: Critical Review of the Viair 88P Mobile Air Compressor - Incredible Force, Yet Some Trade-Offs
-date: 2024-10-29T16:15:57.662Z
-updated: 2024-10-31T00:37:10.799Z
+date: 2024-10-31T19:03:29.222Z
+updated: 2024-11-05T20:00:47.053Z
 categories:
   - BestProducts
 description: This Article Describes Critical Review of the Viair 88P Mobile Air Compressor - Incredible Force, Yet Some Trade-Offs
@@ -43,15 +43,22 @@ Lifewire / Todd Braylor
 3.8
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -84,13 +91,6 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Easy installation**
 
  The S55 is straightforward and easy to install. Simply stick the windshield mount in place and plug the SmartCord lighter adapter into your car's DC cigarette lighter input. Plugging the modular jack into the S55 will automatically power on the radar detector and you can quickly customize settings for display brightness, detector sensitivity levels, and volume. Then you're ready to hit the road.
@@ -111,6 +111,13 @@ Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
@@ -118,10 +125,10 @@ Lifewire / Todd Braylor
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
@@ -135,13 +142,6 @@ Lifewire / Todd Braylor
  **A basic radar detector that's ideal for beginners or anyone on a budget.**
 
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -172,19 +172,18 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-optimizing-inner-spaces-with-sunshine/"><u>2024 Approved Optimizing Inner Spaces with Sunshine</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/awaken-refreshed-with-ihome-zenergy-comprehensive-sleep-therapy-appliance-evaluation/"><u>Awaken Refreshed with IHome Zenergy: Comprehensive Sleep Therapy Appliance Evaluation</u></a></li>
-<li><a href="https://techidaily.com/best-fixes-for-samsung-galaxy-m14-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Samsung Galaxy M14 5G Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/compact-disc-audio-excellence-reviews/"><u>Compact Disc Audio Excellence Reviews</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/decoding-the-best-a-comparative-analysis-of-chatgpt-and-gemini-for-coding-feats/"><u>Decoding the Best: A Comparative Analysis of ChatGPT and Gemini for Coding Feats</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/game-on-with-the-best-a-comprehensive-review-of-nvidia-shield-tv-pro-as-a-gamers-dream-streamer/"><u>Game On with the Best? A Comprehensive Review of Nvidia Shield TV Pro as a Gamer’s Dream Streamer</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-oneplus-ace-2-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of OnePlus Ace 2 Without PUK Codes</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-tecno-spark-10c-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Tecno Spark 10C Phone Network-Ready</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/selecting-a-tablet-pc-the-crucial-role-of-processor-power/"><u>Selecting a Tablet PC: The Crucial Role of Processor Power</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-truth-behind-lg-k92-5g-smartphone-why-you-should-think-twice-before-buying/"><u>The Truth Behind LG K92 5G Smartphone: Why You Should Think Twice Before Buying</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-professional-development-classes-on-linkedin/"><u>Top-Rated Professional Development Classes on LinkedIn</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-rated-vpns-for-macos-users-comprehensive-reviews-and-comparisons-techradar/"><u>Top-Rated VPNs for macOS Users: Comprehensive Reviews & Comparisons - TechRadar</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-webm-to-mp3-made-easy-10-reliable-converter-options-for-2024/"><u>Updated WebM to MP3 Made Easy 10 Reliable Converter Options for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-picks-8-mirrorless-cameras-that-shine-in-vlogs/"><u>[New] Top Picks 8 Mirrorless Cameras That Shine in Vlogs</u></a></li>
+<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-motorola-edge-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Motorola Edge 2023 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-seamless-workouts-and-personalized-soundtracks-using-the-innovative-garmin-vivoactive-3-tracker/"><u>Discover Seamless Workouts and Personalized Soundtracks Using the Innovative Garmin Vivoactive 3 Tracker</u></a></li>
+<li><a href="https://win-dash.techidaily.com/downloading-hp-stream-printerscanner-drivers-in-seconds-click-to-begin/"><u>Downloading HP Stream Printer/Scanner Drivers in Seconds – Click to Begin</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/email-warfare-deciding-between-gmail-and-outlookcom-services/"><u>Email Warfare: Deciding Between Gmail and Outlook.com Services</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/embracing-next-gen-wireless-technology-the-promise-of-verizon-5g/"><u>Embracing Next-Gen Wireless Technology: The Promise of Verizon 5G</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/enhancing-playback-of-corrupted-mov-files-on-mac/"><u>Enhancing Playback of Corrupted MOV Files on Mac</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-roundup-top-performing-key-finder-gadgets/"><u>Expert Roundup: Top-Performing Key Finder Gadgets</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/guia-de-solucoes-de-suporte-tecnico-do-programa-de-resgate-de-dados-aomei-backupper/"><u>Guia De Soluções De Suporte Técnico Do Programa De Resgate De Dados AoMei Backupper</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-edited-essence-unlocking-techniques-for-visual-impact/"><u>In 2024, The Edited Essence Unlocking Techniques for Visual Impact</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/smartphone-life-span-and-renewal-timing/"><u>Smartphone Life Span and Renewal Timing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-review-acer-aspire-e-15-the-ultimate-value-for-money-gaming-and-workstation-laptop/"><u>Top Review: Acer Aspire E 15 - The Ultimate Value-for-Money Gaming and Workstation Laptop</u></a></li>
+<li><a href="https://techtrends.techidaily.com/traveling-with-ease-using-roku-devices-to-enhance-your-hotel-or-university-experience/"><u>Traveling with Ease: Using Roku Devices to Enhance Your Hotel or University Experience</u></a></li>
 </ul></div>
 

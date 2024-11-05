@@ -1,7 +1,7 @@
 ---
 title: "The Economic Speedy Flash: Introducing the Affordable & Feature-Rich YN560IV"
-date: 2024-10-28T20:37:47.250Z
-updated: 2024-10-30T17:52:58.257Z
+date: 2024-10-30T21:00:32.127Z
+updated: 2024-11-05T20:27:31.249Z
 categories:
   - BestProducts
 description: "This Article Describes The Economic Speedy Flash: Introducing the Affordable & Feature-Rich YN560IV"
@@ -44,22 +44,15 @@ Lifewire / Emily Isaacs
 4.5
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Nintendo Game & Watch: Super Mario Bros
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/Gqz0Wb1wB-1ecipbSoEbqeuT3EU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_HeroSquare-c0176be04bfb4d83b2f7724b1332c18b.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -106,13 +99,6 @@ Lifewire / Emily Isaacs
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/IzTLcGKhslJLE9YpMMkMKBV1BME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_03-5ca824e25f85464a83c9187541b0f059.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Emily Isaacs
 
 ## Gameplay: Challenging, but fun
@@ -125,6 +111,13 @@ Lifewire / Emily Isaacs
 
  The Ball game is the only included Game & Watch title in the product. Balls bounce back and forth in the air as you juggle them to keep them from hitting the ground. Instead of the classic Ball character design, Mario’s head has been superimposed on the character. It’s a much simpler game, and it’s OK, but this game loses its allure fairly quickly due to the repetitive gameplay.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Audio: Surprisingly loud and crisp
 
  The included mono speaker is surprisingly loud and crisp, emitting 8-bit chiptunes. It’s located on the left-hand side of the device, nestled into the case’s trim. While I thought my hands might get in the way and block the sound a bit during play, that didn’t turn out to be true.
@@ -135,14 +128,14 @@ Lifewire / Emily Isaacs
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/PvTcnsQLDp7SFCPIeHreGfS-dgM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_05-01b731a5406d4cbfa37be90277c6e89b.jpg)
 
-Lifewire / Emily Isaacs
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Lifewire / Emily Isaacs
 
 ## Price: Great value for the price
 
@@ -151,10 +144,10 @@ Lifewire / Emily Isaacs
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/Te3HyEg18zLT9zKT-eZuFtev8So=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_02-6af770f871344e16ad3f45320d46d52a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
@@ -174,6 +167,13 @@ Lifewire / Emily Isaacs
  **A nostalgic throwback that collectors and gamers will love.**
 
  The Nintendo Game & Watch: Super Mario Bros. is a throwback to an older, simpler era of gaming that packs a wallop of a punch, bringing the challenge of the original Super Mario games and the original Game & Watch Ball title while making them accessible to a whole new generation of players. While we do wish Nintendo had included additional titles—who doesn’t want_more_ classic options when these are so fun—it’s no showstopper for enjoying this product.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -212,24 +212,18 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-optimize-your-workflow-streamlined-processes-for-skype-calls-recording/"><u>[Updated] Optimize Your Workflow Streamlined Processes for Skype Calls Recording</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-converting-sdr-video-to-hdr-a-comprehensive-tutorial/"><u>2024 Approved Converting SDR Video to HDR - A Comprehensive Tutorial</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/clearing-up-tips-for-preventing-gopro-haze-for-2024/"><u>Clearing Up Tips for Preventing GoPro Haze for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/critical-considerations-a-guide-to-picking-the-perfect-activity-monitor-for-you/"><u>Critical Considerations: A Guide to Picking the Perfect Activity Monitor for You</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dji-robomaster-s1-unveiled-a-thrilling-combination-of-play-coding-and-battle-royale/"><u>DJI RoboMaster S1 Unveiled – A Thrilling Combination of Play, Coding, and Battle Royale!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-evaluation-of-the-nook-glowlight-4-your-guide-to-choosing-the-right-tablet/"><u>Expert Evaluation of the Nook GlowLight 4 - Your Guide to Choosing the Right Tablet</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/garmins-stylish-vivomove-hr-the-daily-wrist-companion-for-fitness-enthusiasts/"><u>Garmin's Stylish Vivomove HR: The Daily Wrist Companion for Fitness Enthusiasts</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-high-speed-capture-device-with-preloaded-narrations/"><u>In 2024, High-Speed Capture Device with Preloaded Narrations</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Nokia C22? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6s-passcode-without-itunes-without-knowing-passcode-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 6s Passcode without iTunes without Knowing Passcode?</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/magic-meets-machine-apples-groundbreaking-on-device-image-creator-eclipses-dall-e/"><u>Magic Meets Machine: Apple's Groundbreaking On-Device Image Creator Eclipses DALL-E</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/mastering-quick-shots-effective-techniques-for-taking-a-screenshot-on-your-lenovo-device/"><u>Mastering Quick Shots: Effective Techniques for Taking a Screenshot on Your Lenovo Device</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-the-best-external-storage-solutions-optical-drive-edition-2024/"><u>Navigating the Best External Storage Solutions - Optical Drive Edition, 2024</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/sharing-your-favorite-tunes-3-simple-methods-to-transfer-songs-from-one-iphone-to-another-via-itunes/"><u>Sharing Your Favorite Tunes: 3 Simple Methods to Transfer Songs From One iPhone to Another via iTunes</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/stylish-stride-meets-exercise-endurance-in-our-amazfit-gts-assessment/"><u>Stylish Stride Meets Exercise Endurance in Our Amazfit GTS Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-a-small-affordable-all-in-one-laptop-asus-vivobook-11-test-drive/"><u>The Ultimate Guide to Choosing a Small, Affordable, All-in-One Laptop: Asus Vivobook 11 Test Drive</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-picks-for-affordable-excellence-in-fossil-sport-timepieces-reviews-inside/"><u>Top Picks for Affordable Excellence in Fossil Sport Timepieces – Reviews Inside</u></a></li>
-<li><a href="https://techtrends.techidaily.com/transform-your-photography-skills-with-iphone-ios-nvestigating-the-latest-photo-cutout-capabilities/"><u>Transform Your Photography Skills with iPhone (iOS Nvestigating the Latest Photo Cutout Capabilities</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/understanding-ios-version-progression-for-upgradable-phones/"><u>Understanding iOS Version Progression for Upgradable Phones</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-fortnite-thumbnail-blitz-a-30-second-guide/"><u>[Updated] 2024 Approved Fortnite Thumbnail Blitz A 30-Second Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagram-savvy-top-5-methods-for-building-a-thriving-influencer-profile/"><u>[Updated] 2024 Approved Instagram Savvy Top 5 Methods for Building a Thriving Influencer Profile</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-partedlens-overview-for-2024/"><u>[Updated] PartedLens Overview for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-elevate-your-filmmaking-top-strategies-for-gopro-timelapses/"><u>2024 Approved Elevate Your Filmmaking Top Strategies for GoPro Timelapses</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/crafting-audio-with-chatgpt-tips-for-daw-integration/"><u>Crafting Audio with ChatGPT - Tips for DAW Integration</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/docooler-usb-flash-drive-with-hd-camera-12-mp-is-it-worth-your-investment/"><u>Docooler USB Flash Drive with HD Camera (12 MP): Is It Worth Your Investment?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/for-literary-nomads-discover-a-game-changer-the-portable-and-practical-kobo-clara-hd-reader/"><u>For Literary Nomads, Discover a Game-Changer: The Portable and Practical Kobo Clara HD Reader</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-examination-of-ankers-roav-dashcam-c1-for-enhanced-vehicle-security/"><u>In-Depth Examination of Anker's Roav DashCam C1 for Enhanced Vehicle Security</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-brand-comparisons-selecting-the-best-cable-modem-and-router-combo-of-2024/"><u>Leading Brand Comparisons: Selecting the Best Cable Modem and Router Combo of 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-review-of-the-poweradd-pilot-pro2-charger-for-multiple-devices/"><u>Top Review of the POWERADD Pilot Pro2 Charger for Multiple Devices</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-guide-fixing-freezing-issues-in-halo-infinite/"><u>Troubleshooting Guide: Fixing Freezing Issues in Halo Infinite</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/user-ratings-and-insights-a-look-into-google-maps-for-apples-mobile-os/"><u>User Ratings and Insights: A Look Into Google Maps for Apple's Mobile OS</u></a></li>
 </ul></div>
 

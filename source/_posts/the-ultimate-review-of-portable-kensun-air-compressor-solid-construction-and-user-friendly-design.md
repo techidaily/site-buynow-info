@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Review of Portable Kensun Air Compressor – Solid Construction & User-Friendly Design
-date: 2024-09-09T14:00:13.068Z
-updated: 2024-09-10T14:00:13.068Z
+date: 2024-10-31T16:59:03.812Z
+updated: 2024-11-05T21:01:35.640Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Review of Portable Kensun Air Compressor – Solid Construction & User-Friendly Design
@@ -9,12 +9,6 @@ excerpt: This Article Describes The Ultimate Review of Portable Kensun Air Compr
 thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Ultimate Guide to Kensun Portable Air Compressor: Durability and Mobility Tested
 
 4.2
@@ -23,12 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/NWhMBmuK3pkL9EGvdNCEAF8sWEo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jeffrey Daniel Chadwick
 
  What We Like
@@ -49,9 +37,29 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.2
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -76,11 +84,12 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -103,23 +112,18 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: T-minus one minute**
 
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
 
  Lifewire / Jeffrey Daniel Chadwick
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
 
@@ -145,12 +149,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
  The Kensun Portable Tire Inflator is similar to the Jaco Digital Tire Inflator, they have similar cord and hose lengths, and can continually run for about half an hour. But the Kensun is more than twice the size of the Jaco, so it can deliver more power to fill your tires faster. Additionally, the Jaco lacks the ability to plug into an AC socket, so you can only use it in your car.
@@ -165,12 +163,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  AC/DC Portable Air Pump Tire Inflator
@@ -187,8 +179,6 @@ Lifewire / Jeffrey Daniel Chadwick
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -196,4 +186,21 @@ Lifewire / Jeffrey Daniel Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-mastering-your-mac-creating-captivating-style-videography/"><u>[New] 2024 Approved Mastering Your Mac Creating Captivating Style Videography</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-resolving-partial-muting-in-facebook-video-chats-updated-guide/"><u>[New] In 2024, Resolving Partial Muting in Facebook Video Chats (Updated Guide)</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-convert-ppt-to-motion-picture/"><u>[Updated] 2024 Approved Convert PPT to Motion Picture</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-crafting-conversations-that-captivate-google-meet-edition/"><u>[Updated] 2024 Approved Crafting Conversations that Captivate Google Meet Edition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-overlooked-masterpieces-unique-free-speech-to-text-apps-for-mac/"><u>[Updated] 2024 Approved Overlooked Masterpieces Unique Free Speech-to-Text Apps for Mac</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-conquering-capture-a-detailed-walkthrough-for-ps4-recordings/"><u>[Updated] Conquering Capture A Detailed Walkthrough for PS4 Recordings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/byb-e430-swing-arm-led-overview-top-tier-illumination-evaluation-for-modern-spaces/"><u>BYB E430 Swing Arm LED Overview: Top-Tier Illumination Evaluation for Modern Spaces</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-oceans-in-high-definition-with-insta360-x2/"><u>Explore Oceans in High Definition with Insta360 X2</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-4k-quality-hc-wxf991-review/"><u>Exploring 4K Quality: HC-WXF991 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-features-of-tp-link-archer-a9-an-affordable-high-performance-router/"><u>Exploring the Features of TP-Link Archer A9: An Affordable High-Performance Router</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-zte-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked ZTE Phone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-sending-streaming-content-linking-fb-vids-and-whatsapp-messages/"><u>In 2024, Sending Streaming Content Linking FB Vids & WhatsApp Messages</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/step-by-step-upgrade-instructions-for-intel-imac-systems/"><u>Step-by-Step Upgrade Instructions for Intel iMac Systems</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-10-premiere-elements-competitors-you-need-to-know-about-this-year/"><u>Updated In 2024, 10 Premiere Elements Competitors You Need to Know About This Year</u></a></li>
+</ul></div>
 

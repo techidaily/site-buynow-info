@@ -1,7 +1,7 @@
 ---
 title: "Master the Art of Coding & Combat: An In-Depth Review of DJI Robomaster S1, The Fun & Educational Battle Drone"
-date: 2024-10-28T18:20:35.308Z
-updated: 2024-10-30T19:51:20.056Z
+date: 2024-11-02T17:40:10.168Z
+updated: 2024-11-05T17:07:34.491Z
 categories:
   - BestProducts
 description: "This Article Describes Master the Art of Coding & Combat: An In-Depth Review of DJI Robomaster S1, The Fun & Educational Battle Drone"
@@ -70,13 +70,6 @@ Lifewire / Fred Meyer
 
  We spent a week testing it, evaluating the design, ease of setup, network performance, and software.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: A router’s aesthetics**
 
  The red-and-black color scheme of the EX6200 makes it look more like something out of Netgear's Nighthawk line rather than their standard series of extenders. It has a more premium feel than most extenders, and it's refreshing compared to the boring white plug-in boxes that house the majority of its peers.
@@ -94,10 +87,10 @@ Lifewire / Fred Meyer
  For example, our[router](https://www.lifewire.com/what-is-a-router-2618162) sits in the living room entertainment center against one wall. On the opposite side of the wall sits an entertainment center in our bedroom. Now, we could run an Ethernet cord around the wall, through the bedroom door, and to the entertainment center, which would be around 60 feet or so, or we could drill through the wall and install an Ethernet socket. However, with the EX6200 we didn’t have to do either. Since it's right on the other side of the wall, we can set up the EX6200 and get the full signal to hardwire our TV,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and Xbox One, which gives better speed and reliability than if we used them with WiFi-only.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: A familiar process**
@@ -107,13 +100,6 @@ Lifewire / Fred Meyer
  Alternatively, you can either plug into one of the Ethernet ports, or connect via the temporary network the EX6200 creates when you first turn it on. Check the manual for the web address to access the extender's interface (<www.mynetext.net>), and the bottom of the router for the default username and password (change this immediately), log in and follow the wizard that loads to get connected.
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/Lny9pSzLcp1hItabWfQAbx8cAoc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-2-5c924b5846e0fb0001f8d14a.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Fred Meyer
 
@@ -152,10 +138,10 @@ Lifewire / Fred Meyer
 Lifewire / Fred Meyer
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Network Performance: Adequate but not spectacular**
@@ -165,6 +151,13 @@ Lifewire / Fred Meyer
  If you're looking for a device with a bit more flair and features than your run-of-the-mill Wi-Fi extender, the Netgear EX6200 is an excellent choice.
 
  From our testing, we'd say the sweet spot for the EX6200 is 50 feet or less. Your results, of course, may vary depending on how many walls you place between yourself and the device and their composition. One area we did find the EX6200 excelled in is verticality. It seems like a lot of plug-in models have their range dramatically affected by height, but the EX6200 transmitted to the second floor into a room around 40 feet away in a straight line and we saw speeds around 300 to 350 Mbps.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: A solid balance**
 
@@ -185,16 +178,23 @@ Lifewire / Fred Meyer
  If you're in the market for an extender, the EX6200 is one of our favorites. It doesn't excel in any category, but it does everything it’s designed to do well.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
 * [Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008)
 * [TP-Link AC1200 RE305](https://www.lifewire.com/tp-link-ac1200-wifi-range-extender-re305-review-4589559)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -231,15 +231,19 @@ Lifewire / Fred Meyer
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-essential-tips-for-enhancing-images-on-snapchat/"><u>[New] Essential Tips for Enhancing Images on Snapchat</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-how-to-create-hit-facebook-song-vids-10-edition-for-2024/"><u>[New] How to Create Hit Facebook Song Vids - #10 Edition for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-deciphering-the-language-of-youtube-live-images/"><u>[New] In 2024, Deciphering the Language of YouTube Live Images</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-unveiling-the-art-of-smoothing-zoom-screenshots-for-2024/"><u>[New] Unveiling the Art of Smoothing Zoom Screenshots for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-apple-iphone-x-fix-now-drfone-by-drfone-virtual-ios/"><u>In 2024, 3uTools Virtual Location Not Working On Apple iPhone X? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-affordable-audio-speakers-ultimate-list-for-2aster-2023/"><u>Top Rated Affordable Audio Speakers - Ultimate List for 2Aster 2023</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-android-vpn-services-a-comprehensive-guide/"><u>Top Rated Android VPN Services: A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-action-cameras-a-buyers-guide/"><u>Top-Rated Action Cameras : A Buyer's Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-automatic-floor-cleaners/"><u>Top-Rated Automatic Floor Cleaners</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/vlog-versus-channels-choosing-between-obs-and-twitch-for-2024/"><u>Vlog Versus Channels Choosing Between OBS & Twitch for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-a-complete-introduction-to-advanced-features-in-final-cut-pro/"><u>[New] In 2024, A Complete Introduction to Advanced Features in Final Cut Pro</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-newest-list-of-engaging-podcast-dialogues-for-2024/"><u>[New] Newest List of Engaging Podcast Dialogues for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-vlc-screen-recorder-review/"><u>[Updated] 2024 Approved VLC Screen Recorder Review</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/44cm44ot44oh44kq5a656yep5rib5bcr44gr5pya6ygp44gq44or44k944kz44oz5oim55wl44cn/"><u>「ビデオ容量減少に最適なパソコン戦略」</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-magixs-image-ordering-an-assessment/"><u>2024 Approved MAGIX's Image Ordering An Assessment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/detailed-insight-into-the-leading-big-screen-smartphone-a-critical-review-of-the-samsung-galaxy-note-9/"><u>Detailed Insight Into the Leading Big-Screen Smartphone - A Critical Review of the Samsung Galaxy Note 9</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/five-proven-methods-to-correct-the-opening-sound-device-error-in-audacity/"><u>Five Proven Methods to Correct the 'Opening Sound Device' Error in Audacity</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/how-to-combine-videos-on-iphone-for-2024/"><u>How to Combine Videos on iPhone for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-the-complete-stardew-compendium-focus-on-ginger-isle/"><u>In 2024, The Complete Stardew Compendium Focus on Ginger Isle</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-the-aphaca-bt69-wireless-fm-transmitter-the-perfect-compact-radio-solution/"><u>In-Depth Review of the Aphaca BT69 Wireless FM Transmitter - The Perfect Compact Radio Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-the-stylish-asus-bw-1ed1x-u-with-notable-features-and-quirks/"><u>In-Depth Review of the Stylish Asus BW-1eD1X-U with Notable Features and Quirks</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-win-11-games-top-strategies-for-peak-performance/"><u>Mastering Win 11 Games: Top Strategies for Peak Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-potential-of-moto-g-with-stylus-remarkable-operational-speed-and-reasonable-energy-storage/"><u>Unveiling the Potential of Moto G with Stylus: Remarkable Operational Speed & Reasonable Energy Storage</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-acer-aspire-e-15-deserves-a-spot-as-your-next-top-pick-in-economical-computers/"><u>Why Acer Aspire E 15 Deserves a Spot as Your Next Top Pick in Economical Computers</u></a></li>
 </ul></div>
 

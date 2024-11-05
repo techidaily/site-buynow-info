@@ -1,7 +1,7 @@
 ---
 title: "B550-XT Explored: Commanding Control & Quiet Output"
-date: 2024-10-24T02:27:24.412Z
-updated: 2024-10-30T23:06:55.266Z
+date: 2024-10-29T18:52:20.912Z
+updated: 2024-11-05T20:26:33.551Z
 categories:
   - BestProducts
 description: "This Article Describes B550-XT Explored: Commanding Control & Quiet Output"
@@ -42,6 +42,19 @@ Lifewire / Jonno Hill
 
 4.2
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## YONGNUO YN560 IV Wireless Flash Speedlite Master
 
 ![Yongnuo YN560 IV Wireless Flash Speedlite Master](https://www.lifewire.com/thmb/UOD6afkRh-xS-Dh1-iagOeoOSdY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_3LW4072366-Yongnuo-YN560-1-33b6547cc9014731ab6e144b0613aaef.jpg)
@@ -68,13 +81,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Punching above the price point**
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master features a robust design that doesn’t feel like the manufacturer skimped on build quality — one of our biggest concerns with budget-minded flashes like this. When adjusting the position of the[flash head](https://www.lifewire.com/using-the-dslr-pop-up-flash-492975) through its 90 degrees of vertical and 270 degrees of horizontal range, it felt very solid.
@@ -86,13 +92,6 @@ Lifewire / Jonno Hill
  Finally, on the rear of the device users will see the LCD display and a suite of buttons and indicators, which we will cover in the next section.
 
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Features & Functionality: Full suite manual control**
 
@@ -114,13 +113,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: A lot of reading before use**
 
  Once you unpack your flash and install the four AA batteries, you’re going to want to familiarize yourself with the buttons and menu system a little. The YN560 IV has a lot of functionality, but it doesn’t have the most intuitive interface. The front of the device contains a top row of four buttons (a Light/Music icon, Mode, a Wi-Fi icon, and Zoom). Below this is a charge indicator button marked “PILOT”, a direction pad, and an On/Off button.
@@ -135,18 +127,18 @@ Lifewire / Jonno Hill
 
  Overall, the YN560 IV gives you a lot of functionality and control, but definitely requires some reading and troubleshooting before you can master the device.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Significant savings for manual users**
 
  Buyers that need a lot of manual control for complex flash setups will be very pleased with what the get for the approximately $60 the YN560 IV costs. It sits at a price that’s a fraction of its TTL-enabled Canon and Nikon counterparts, but twice that of even simpler options. Do you need all the functionality that the YN560 IV offers? Are you willing to troubleshoot a bit with returns to make sure you get good, non-defective units? If the answer to those questions is yes, this is definitely the flash for you.
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Yongnuo YN560 IV Wireless Flash Speedlite Master vs Neewer TT560 Flash Speedlite**
 
@@ -162,11 +154,25 @@ Lifewire / Jonno Hill
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master may not be a very simple flash, but it packs enough functionality to make a very versatile platform for more aspirational photographers. Buyers that want full manual control and radio transmission without paying an arm and a leg will be more than pleased with what they get.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Canon Speedlite 430EX III-RT Flash](https://www.lifewire.com/canon-speedlite-430ex-iii-rt-flash-review-4686835)
 * [Nikon D3400](https://www.lifewire.com/nikon-d3400-review-4776644)
 * [Fovitec SPK10-037 Softbox Lighting Kit](https://www.lifewire.com/fovitec-spk10-037-softbox-lighting-kit-review-4692503)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -200,22 +206,22 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-effortless-background-watching-of-youtube-on-mobile-for-2024/"><u>[New] Effortless Background Watching of YouTube on Mobile for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-innovative-ways-to-boost-your-snapchat-engagement/"><u>[Updated] 2024 Approved Innovative Ways to Boost Your Snapchat Engagement</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-7-top-budget-friendly-digital-camera-editing-tools/"><u>2024 Approved 7 Top Budget-Friendly Digital Camera Editing Tools</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/analyzing-the-samsung-galaxy-fit-a-wearable-device-tailored-to-your-workout-regime/"><u>Analyzing the Samsung Galaxy Fit: A Wearable Device Tailored to Your Workout Regime</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/audio-selection-the-ultimate-buying-checklist/"><u>Audio Selection: The Ultimate Buying Checklist</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/best-free-windows-ten-supported-mkv-video-players-top-10-picks/"><u>Best Free Windows ˈTen Supported MKV Video Players: Top 10 Picks!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cnet-reviews-navigating-through-the-features-of-netgears-c3000-router-vintage-or-value/"><u>CNET Reviews: Navigating Through the Features of Netgear's C3000 Router - Vintage or Value?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-evaluating-google-duo-the-future-of-communication/"><u>Comprehensive Analysis: Evaluating Google Duo - The Future of Communication?</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/disentangling-fisheye-photos-from-gopro-footage/"><u>Disentangling Fisheye Photos From GoPro Footage</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/elevating-brand-visibility-a-10-step-roadmap-to-exceptional-smm-skills/"><u>Elevating Brand Visibility A 10-Step Roadmap to Exceptional SMM Skills</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/googles-new-media-player-the-enhanced-chromecast-with-integrated-google-tv-vs-firetv/"><u>Google's New Media Player: The Enhanced Chromecast with Integrated Google TV Vs. FireTV.</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-infinix-smart-8-pro-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Infinix Smart 8 Pro If I Forgot Security Code or Password? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-comprehensible-guide-to-updating-usernames-in-google-meet/"><u>In 2024, Comprehensible Guide to Updating Usernames in Google Meet</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-lean-cloud-archive-efficient-low-cost-large-data/"><u>In 2024, Lean Cloud Archive Efficient, Low-Cost Large Data</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/swagtron-swagboard-t1-review/"><u>Swagtron Swagboard T1 Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-scoring-great-technology-bargains-s-amazon-prime-event/"><u>The Ultimate Guide to Scoring Great Technology Bargains 'S Amazon Prime Event</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/travel-ready-moke-universal-collapsible-bluetooth-connect-keyboard/"><u>Travel-Ready MoKe Universal Collapsible Bluetooth Connect Keyboard</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-boost-speed-control-for-instagram-stories-tempo/"><u>[New] Boost Speed Control for Instagram Stories Tempo</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-enhancing-content-with-external-weblinks-in-insta-for-2024/"><u>[New] Enhancing Content with External Weblinks in Insta for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-prime-video-stardom-top-tweets-and-peak-watchability-rankings-for-2024/"><u>[New] Prime Video Stardom Top Tweets and Peak Watchability Rankings for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-unlocking-your-hp-laptops-full-screen-capture-capabilities/"><u>[Updated] 2024 Approved Unlocking Your HP Laptop's Full Screen Capture Capabilities</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/5-tutorials-on-how-to-transfer-photos-from-apple-iphone-12-pro-max-to-new-iphone-drfone-by-drfone-transfer-from-ios/"><u>5 Tutorials on How to Transfer Photos From Apple iPhone 12 Pro Max to New iPhone | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/clearing-windows-10-tracking-step-by-step-tutorial/"><u>Clearing Windows 10 Tracking: Step-by-Step Tutorial</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/compact-and-capable-the-best-camera-for-beginners-sx530-review/"><u>Compact and Capable: The Best Camera for Beginners - SX530 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-garmin-venu-sq-watch-review-your-ultimate-guide-to-advanced-247-wellness-tracking/"><u>Comprehensive Garmin Venu Sq Watch Review - Your Ultimate Guide to Advanced 24/7 Wellness Tracking</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-best-online-tv-shows-and-movies-apps-to-watch-this-year/"><u>Discover the Best Online TV Shows and Movies Apps to Watch This Year</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exclusive-excel-power-moves-unmatched-by-ai-like-chatgpt/"><u>Exclusive Excel Power Moves Unmatched by AI Like ChatGPT</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-the-compact-and-mighty-jaco-smartpro-digital-tire-pump/"><u>Expert Review: The Compact and Mighty Jaco SmartPro Digital Tire Pump</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/future-proof-your-career-with-top-tech-education-opportune/"><u>Future-Proof Your Career with Top Tech Education Opportune</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-samsung-galaxy-s23-tactical-edition-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Samsung Galaxy S23 Tactical Edition FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sony-hdrcx405-reviewed-stability-and-recording-prowess/"><u>Sony HDRCX405 Reviewed: Stability & Recording Prowess</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-of-both-worlds-premium-features-in-affordable-fossil-sports-timepieces/"><u>The Best of Both Worlds: Premium Features in Affordable Fossil Sports Timepieces</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-vivo-y27s-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Vivo Y27s Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-fitbit-charge-nreview-trendy-looks-meet-robust-performance/"><u>Unveiling the Fitbit Charge nReview : Trendy Looks Meet Robust Performance</u></a></li>
 </ul></div>
 

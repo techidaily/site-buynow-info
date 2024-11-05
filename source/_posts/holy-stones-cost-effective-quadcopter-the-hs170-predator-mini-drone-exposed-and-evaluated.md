@@ -1,7 +1,7 @@
 ---
 title: Holy Stone's Cost-Effective Quadcopter - The HS170 Predator Mini Drone Exposed and Evaluated
-date: 2024-09-09T14:00:11.985Z
-updated: 2024-09-10T14:00:11.985Z
+date: 2024-10-29T19:40:18.422Z
+updated: 2024-11-05T16:57:12.329Z
 categories:
   - BestProducts
 description: This Article Describes Holy Stone's Cost-Effective Quadcopter - The HS170 Predator Mini Drone Exposed and Evaluated
@@ -41,12 +41,6 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Andrew Hayward
 
 [View On Amazon $17](https://www.amazon.com/dp/B01L8M215A?tag=lifewire-onsite-prod-20&ascsubtag=5193471%7Cn3d06d6a443e14152b7728753066731b712%7CB01L8M215A)
@@ -69,12 +63,6 @@ Lifewire / Andrew Hayward
 
  The TopMate C302 is a strong example of the latter. It’s affordable and solidly effective, but the plastic design feels a bit flimsy. I wouldn’t bet on it lasting for the long haul without gentle handling, but given the price, you might not worry about it too much.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Design: Light and a little flimsy
 
  The C302 measures just over 14 inches wide and is designed for laptops with screens up to 15.6 inches diagonal. It’s primarily made of lightweight plastic, with a thin metal grate on the top above the two 4.9-inch fans to help dissipate heat.
@@ -83,12 +71,6 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3qjwZzxQ2KVhmQJOdD2R9jBegvI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_03-ed7074949b6f4e4794ce30be2d582058.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Andrew Hayward
 
  It has two little flip-up stopper nubs at the bottom to hold your laptop in place, and they can be gradually adjusted to avoid having them stick up and press into your wrists while typing. Meanwhile, a pair of feet on the bottom of the pad flip out to elevate your laptop about an inch upward to improve air circulation.
@@ -99,36 +81,12 @@ Lifewire / Andrew Hayward
 
  The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
 
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Setup Process: Plug and play
 
  The C302 is a purely plug-and-play accessory with no flashy perks or settings to deal with, nor any need for software on your computer. Simply place it under your laptop, adjust the feet and holding nubs as desired, and plug the USB port into your computer to power on the pad. The fans will then activate and run at the only available speed, and you can unplug it when you’re done or don’t need it anymore.
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/xhFp_B4P4BG8gb4dtJAGBbXPAlw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_05-4ce850d84f4a4e1d931588e23f39cb82.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Andrew Hayward
 
 ## Performance: It makes a difference
@@ -145,6 +103,19 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Xs71AyeThjZwy-vZJ9LfxIhuXJc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_04-eadbaf270b874af9bb8843b95efe8ca7.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
  Lastly, UNIGINE’s Heaven Benchmark hit 162 degrees internally and 109 degrees externally on the Razer Blade 15 alone, and dropped to 154 degrees internally and 105 degrees externally when using the C302\. All told, this lightweight and affordable pad delivered solid cooling power that helped cut down on both the internal and external temperature of the laptop while under significant stress.
@@ -158,25 +129,27 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## TopMate C302 vs. Kootek Laptop Cooling Pad
 
  At $27, the Kootek Laptop Cooling Pad is a bit more robust. It gives you the ability to power the fans on and off—either the one large fan, or the group of four smaller fans around it—plus it runs a little quieter in use. The unit feels more durable overall, although the Kootek’s height adjustment system feels clunky, as you slide a hanging metal bar into plastic ridges to keep it upright. Kootek’s pad is larger and designed for laptops as large at 17 inches, but if you don’t need the extra size, the TopMate C302 gets the job done for less cash.
@@ -188,16 +161,24 @@ Lifewire / Andrew Hayward
  Durability questions aside, the TopMate C302 Laptop Cooling Pad ultimately worked about as well as the other, pricier pads I tested, helping to offset some of the heat generated by a very hot gaming laptop. If you’re concerned about long-term damage or performance degradation from an overheating laptop, the C302 is a cost-efficient way to help keep your notebook from reaching extreme heat peaks.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 * [North Face Pivoter Backpack](https://www.lifewire.com/north-face-pivoter-backpack-review-4690198)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -212,14 +193,11 @@ Lifewire / Andrew Hayward
 * Ports  USB-A
 * Waterproof  N/A
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -228,4 +206,26 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-visual-storytelling-on-social-media-crafting-an-effective-plan/"><u>[New] 2024 Approved Visual Storytelling on Social Media Crafting an Effective Plan</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-art-of-podcast-hooks-compelling-beginnings-for-2024/"><u>[New] The Art of Podcast Hooks Compelling Beginnings for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-crafting-engaging-video-content-for-live-streams/"><u>[Updated] Crafting Engaging Video Content for Live Streams</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/apple-unveils-revolutionary-on-device-ai-realmsurpasses-gpt-4-in-performance/"><u>Apple Unveils Revolutionary On-Device AI, ReaLMSurpasses GPT-4 in Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-eero-pro-mesh-system-for-total-residence-connectivity-a-detailed-analysis/"><u>Assessing Eero Pro Mesh System for Total Residence Connectivity - A Detailed Analysis</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-vivo-t2-5g-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Vivo T2 5G</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-ultimate-6-locations-for-purchasing-your-next-laptop/"><u>Discover The Ultimate 6 Locations For Purchasing Your Next Laptop</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-the-quintessential-list-of-top-15-masterpieces-in-stop-motion/"><u>In 2024, The Quintessential List of Top 15 Masterpieces in Stop Motion</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-are-you-getting-your-moneys-worth-with-the-samsung-un65nu8000fxza-smart-tv/"><u>In-Depth Review: Are You Getting Your Money's Worth with the Samsung UN65NU8000FXZA Smart TV?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/minecraft-masterpieces-creative-buildings-guide/"><u>Minecraft Masterpieces Creative Buildings Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/redefining-at-home-entertainment-the-new-era-with-klipschs-flexus-200/"><u>Redefining At-Home Entertainment: The New Era with Klipsch’s Flexus 200</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revved-up-for-another-round-dive-into-our-in-depth-fortnite-battle-royale-season-reveal/"><u>Revved Up for Another Round: Dive Into Our In-Depth Fortnite Battle Royale Season Reveal</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stereo-speakers-buyers-guide-essential-advice/"><u>Stereo Speakers Buyers Guide - Essential Advice</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tested-and-reviewed-the-balance-of-safeguarding-power-and-sluggish-speed-in-the-cat-s42-rugged-phone/"><u>Tested and Reviewed: The Balance of Safeguarding Power & Sluggish Speed in the CAT S42 Rugged Phone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-budget-friendly-zoom-master-kodak-fz53-reviewed/"><u>The Budget-Friendly Zoom Master - Kodak FZ53 Reviewed</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-infallible-technique-for-embedding-profile-urls-in-tiktok/"><u>The Infallible Technique for Embedding Profile URLs in TikTok</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-review-of-the-garmin-vivosmart-4-unlocking-the-power-of-body-energy-and-stress-tracking/"><u>The Ultimate Review of the Garmin Vivosmart 4: Unlocking the Power of Body Energy and Stress Tracking</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-pick-handheld-gaming-systems/"><u>Top Pick: Handheld Gaming Systems</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unleashing-the-power-of-luts-in-adobe-premiere-video-editing-for-2024/"><u>Unleashing the Power of LUTs in Adobe Premiere Video Editing for 2024</u></a></li>
+</ul></div>
 

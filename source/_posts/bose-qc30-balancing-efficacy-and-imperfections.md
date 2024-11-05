@@ -1,7 +1,7 @@
 ---
 title: "Bose QC30: Balancing Efficacy and Imperfections"
-date: 2024-09-09T14:00:15.048Z
-updated: 2024-09-10T14:00:15.048Z
+date: 2024-11-02T16:12:09.333Z
+updated: 2024-11-05T16:06:07.903Z
 categories:
   - BestProducts
 description: "This Article Describes Bose QC30: Balancing Efficacy and Imperfections"
@@ -13,22 +13,10 @@ thumbnail: https://thmb.techidaily.com/f69988e77f104bb45c90c9e2b34f1257506e2bba3
 
 3.6
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/bJGZVvLPIuXJptw8uPYtObxbpMQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
  What We Like
@@ -52,21 +40,29 @@ thumbnail: https://thmb.techidaily.com/f69988e77f104bb45c90c9e2b34f1257506e2bba3
 3.6
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/EEEMCdq2FsBPMcT8nPUgndDIw4A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 [View On Amazon](https://www.amazon.com/dp/B078WG6DBH/?tag=lifewire-onsite-prod-20&ascsubtag=4796693%7Cn899f0376278d4881a5af76b596b54aa000%7CB078WG6DBH) [View On EBay](https://www.ebay.com/itm/Sony-XBR65X850F-65-Inch-4K-Ultra-HD-Smart-LED-TV-2018-Model/312237520273)
@@ -109,12 +105,6 @@ thumbnail: https://thmb.techidaily.com/f69988e77f104bb45c90c9e2b34f1257506e2bba3
 
  On the front of the screen, the bezels are a little thicker than some of the 4K TVs we’ve reviewed, but they’re pretty thin and shouldn’t distract. There’s your standard anti-glare coating found on the screen here too.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Stick to the on-screen instructions**
 
  Setting up pretty much any modern-day smart TV is an easy process, so just stick to the on-screen instructions and you’ll be golden. Go ahead and unpack it all, tear off that plastic film, plug in the power cable, and turn on the device.
@@ -127,6 +117,13 @@ thumbnail: https://thmb.techidaily.com/f69988e77f104bb45c90c9e2b34f1257506e2bba3
 
  With the initial process done, you will likely need to run a quick update check. This should automatically pop up, but check under the settings tab if it doesn’t. An update to the firmware should improve things considerably, especially if you need to upgrade to the latest version of Android TV. Updating takes a bit of time to do, so maybe go watch some TV while…oh right. Well, whatever you do during this process, just remember not to unplug the power while it’s running through updates.
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Image Quality: Impressive 4K for IPS with some shortcomings**
 
  This section is perhaps the most important for a TV, and while the XBR65X850F performs pretty well in some aspects here, it also has a few weak points.
@@ -135,12 +132,6 @@ thumbnail: https://thmb.techidaily.com/f69988e77f104bb45c90c9e2b34f1257506e2bba3
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/r5reh9LkA7QvieX1JzBg5J8qNjY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-5-00a73edbf91c48c6aa2718ab211f2e5d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
  However, IPS panels are notoriously bad for black uniformity and backlight bleed, which can cause clouding around the edges. We found this to be the case on our XBR65X850F, and while not unusable, it’s probably not the best option for viewing in dark environments because of this. The TV does have solid gray uniformity however, with no dirty screen effect. This is a huge boon if you’re a big sports fan.
@@ -155,20 +146,28 @@ thumbnail: https://thmb.techidaily.com/f69988e77f104bb45c90c9e2b34f1257506e2bba3
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Audio Quality: Loud, but distorted**
 
  Built-in speakers are never going to be great, but they’re nice to have if you’re lacking an[external sound system](https://www.lifewire.com/connect-tv-to-external-audio-system-1846816) like a soundbar. While we’d recommend getting an external setup for the best experience, let’s take a quick look at what the XBR65X850F has to offer with the included setup.
@@ -215,18 +214,6 @@ thumbnail: https://thmb.techidaily.com/f69988e77f104bb45c90c9e2b34f1257506e2bba3
 
  The X850F series is far from perfect, but the Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV and its family are more than capable of providing a pleasurable viewing experience for most people. Despite this, there are probably better options out there that can be had for even less.
 
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
@@ -241,14 +228,11 @@ thumbnail: https://thmb.techidaily.com/f69988e77f104bb45c90c9e2b34f1257506e2bba3
 * Speakers  2 full range, 2ch
 * Connectivity Options  4 HDMI
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -257,4 +241,23 @@ thumbnail: https://thmb.techidaily.com/f69988e77f104bb45c90c9e2b34f1257506e2bba3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-dive-into-asmr-its-positive-effects-explored/"><u>[New] 2024 Approved Dive Into ASMR Its Positive Effects Explored</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2023s-best-screen-recorder-discover-with-camstudio/"><u>[Updated] 2023'S Best Screen Recorder? Discover with CamStudio</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-and-equipped-the-comprehensive-review-of-motorolas-moto-g-with-a-built-in-stylus-feature/"><u>Affordable and Equipped: The Comprehensive Review of Motorola's Moto G with a Built-In Stylus Feature</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-the-samsung-galaxy-s21-experience-is-it-a-simplified-masterpiece/"><u>Decoding the Samsung Galaxy S21 Experience: Is It a Simplified Masterpiece?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ion-decoded-a-guide-to-editing-youtube-videos-for-2024/"><u>Duration Decoded A Guide to Editing YouTube Videos for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elite-selection-of-premium-17-inch-laptops-dominating-2024/"><u>Elite Selection of Premium 17-Inch Laptops Dominating 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/go-from-video-to-gif-leading-tiktok-converters/"><u>Go From Video to GIF Leading TikTok Converters</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-features-of-the-wide-screened-acer-chromebook-15-thorough-review-inside/"><u>Navigating the Features of the Wide-Screened Acer Chromebook 15 - Thorough Review Inside</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-upgrade-path-from-windows-7-to-10-successfully/"><u>Navigating the Upgrade Path From Windows 7 To 10 Successfully</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/razer-portal-unveiled-top-wireless-gaming-headset-for-pro-players/"><u>Razer Portal Unveiled: Top Wireless Gaming Headset for Pro Players</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/schritt-fur-schritt-anleitung-zur-sichern-eines-usb-datentragers-auf-windows-11-10-8-und-7/"><u>Schritt-Für-Schritt-Anleitung Zur Sichern Eines USB-Datenträgers Auf Windows 11, 10, 8 Und 7</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/spotting-and-steering-clear-of-top-5-chatgpt-scams-online/"><u>Spotting & Steering Clear of Top 5 ChatGPT Scams Online</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/tiktok-greats-on-snapchat-screen-time/"><u>TikTok Greats on Snapchat Screen Time</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-video-doorbells-below-100-insights-from-the-remobell-review/"><u>Top Rated Video Doorbells Below $100 – Insights From the RemoBell Review</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/transformative-health-targets-crafting-with-chatgpt-expertise/"><u>Transformative Health Targets: Crafting with ChatGPT Expertise</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unleashing-connectivity-at-a-bargain-the-in-depth-review-of-tp-links-sub-100-archer-c80-router/"><u>Unleashing Connectivity at a Bargain - The In-Depth Review of TP-Link's Sub-$100 Archer C80 Router</u></a></li>
+</ul></div>
 

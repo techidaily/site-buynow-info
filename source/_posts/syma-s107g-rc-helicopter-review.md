@@ -1,7 +1,7 @@
 ---
 title: Syma S107G RC Helicopter Review
-date: 2024-10-25T19:46:00.845Z
-updated: 2024-10-30T16:09:53.463Z
+date: 2024-11-04T20:28:03.843Z
+updated: 2024-11-05T18:14:37.768Z
 categories:
   - BestProducts
 description: This Article Describes Syma S107G RC Helicopter Review
@@ -45,10 +45,10 @@ Lifewire / Andy Zahn
 4.3
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
@@ -87,13 +87,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -111,10 +104,10 @@ Lifewire / Andy Zahn
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Battery life: No worries**
@@ -139,13 +132,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Photo Quality: Great colors, average resolution**
 
  We love the warm, natural color tone that[Canon cameras](https://www.lifewire.com/best-new-canon-cameras-493499) produce, and the SX70 HS doesn’t disappoint. Its photos are vibrant and it captures particularly nice portraits.
@@ -162,6 +148,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -175,13 +168,6 @@ Lifewire / Andy Zahn
  A problem with all these automated modes and scene settings is that the images they produce are exclusively JPEG, with RAW being unavailable. Fortunately, Program mode is essentially the same as Auto, and you can enable RAW image recording there.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
 
@@ -197,6 +183,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -206,6 +199,13 @@ Lifewire / Andy Zahn
  There is also the option to connect to a[Canon printer](https://www.lifewire.com/best-canon-printers-4584899) and print your images directly from the camera. We found these features useful but also something of a hassle, since the process of connecting devices to the camera is pretty tedious.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Big brand, big price tag**
 
@@ -269,18 +269,20 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/updated-10-good-places-to-find-music-for-podcast-intro/"><u>[Updated] 10 Good Places to Find Music for Podcast Intro</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-crafting-compelling-movies-implementing-fade-techniques-for-2024/"><u>[Updated] Crafting Compelling Movies Implementing Fade Techniques for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-elevate-note-management-embrace-mematic/"><u>[Updated] In 2024, Elevate Note Management - Embrace Mematic</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-top-10-best-webcam-covers-and-stickers/"><u>[Updated] Top 10 Best Webcam Covers & Stickers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-unravel-the-mystery-of-the-overly-green-hue-in-mac-recordings/"><u>2024 Approved Unravel the Mystery of the Overly Green Hue in Mac Recordings</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cutting-edge-urban-transportation-meets-style-unveiling-the-benefits-of-swagtrons-swagger-electric-scooter/"><u>Cutting-Edge Urban Transportation Meets Style: Unveiling the Benefits of Swagtron's Swagger Electric Scooter</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-best-non-microsoft-office-solutions-for-businesses/"><u>Discover the Best Non-Microsoft Office Solutions for Businesses</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/djis-robomaster-s1-unveiled-an-engaging-battle-and-coding-adventure-for-young-enthusiasts/"><u>DJI's RoboMaster S1 Unveiled - An Engaging Battle and Coding Adventure for Young Enthusiasts!</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/efficient-video-capture-at-your-fingertips-easycap-driver-downloads-on-demand/"><u>Efficient Video Capture at Your Fingertips - EasyCap Driver Downloads On Demand!</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-did-your-apple-iphone-x-passcode-change-itself-unlock-it-now-by-drfone-ios/"><u>In 2024, Did Your Apple iPhone X Passcode Change Itself? Unlock It Now</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-review-google-nest-audio-vs-nest-mini-for-the-ideal-home-experience/"><u>In-Depth Review: Google Nest Audio Vs. Nest Mini for the Ideal Home Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unbeatable-clearstream-eclipse-antenna-performance-in-an-intuitively-simple-package/"><u>Unbeatable ClearStream Eclipse Antenna Performance in an Intuitively Simple Package</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95748972-9780008249342-vibrational-healing-the-only-introduction-youll-ever-need-principles-of/"><u>Vibrational Healing: The only introduction you’ll ever need (Principles of) | Free Book</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-instant-video-post-how-to-turn-mp3s-into-youtube-playables/"><u>[New] 2024 Approved Instant Video Post How to Turn MP3s Into YouTube Playables</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/xpanding-digital-presence-stream-to-youtube-plus-additional-platforms/"><u>[New] Expanding Digital Presence Stream to YouTube + Additional Platforms</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-exceptional-hd-video-documentation-gear/"><u>[New] In 2024, Exceptional HD Video Documentation Gear</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-ideal-choice-for-budget-shoppers-with-our-in-depth-z3plus-dash-cam-evaluation/"><u>Discover the Ideal Choice for Budget Shoppers with Our In-Depth Z3+ Dash Cam Evaluation</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-professional-tips-for-high-quality-sports-streaming/"><u>In 2024, Professional Tips for High-Quality Sports Streaming</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mohu-leaf-30-tv-antenna-evaluation-a-superior-combination-of-affordability-and-effectiveness/"><u>Mohu Leaf 30 TV Antenna Evaluation: A Superior Combination of Affordability and Effectiveness</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-dvdmacpro/"><u>New In 2024, DVDMacPro</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-vivo-y100a-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Vivo Y100A | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/seamless-upload-routine-from-imovie-to-youtube-video-sharing-for-2024/"><u>Seamless Upload Routine From iMovie to YouTube Video Sharing for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/should-i-leap-to-the-newest-monterey-version/"><u>Should I Leap to the Newest Monterey Version?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/mline-your-youtube-presentations-with-captions/"><u>Streamline Your YouTube Presentations with Captions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-analysis-of-anthropics-smart-photo-editing-tool-user-guide/"><u>Ultimate Analysis of Anthropics' Smart Photo Editing Tool – User Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-ps4-pro-evaluation-unleashing-the-power-of-4k-gaming/"><u>Ultimate PS4 Pro Evaluation: Unleashing the Power of 4K Gaming</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-review-of-the-cost-effective-fitbit-versa-lite-a-smart-choice-for-health-enthusiasts/"><u>Ultimate Review of the Cost-Effective Fitbit Versa Lite - A Smart Choice for Health Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-features-of-criacr-bluetooth-fm-transmitter-cp24-a-mini-device-that-still-needs-work/"><u>Unpacking the Features of Criacr Bluetooth FM Transmitter CP24: A Mini Device That Still Needs Work</u></a></li>
 </ul></div>
 

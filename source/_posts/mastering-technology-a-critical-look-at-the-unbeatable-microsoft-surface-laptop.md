@@ -1,7 +1,7 @@
 ---
 title: "Mastering Technology: A Critical Look at the Unbeatable Microsoft Surface Laptop"
-date: 2024-09-09T14:00:11.283Z
-updated: 2024-09-10T14:00:11.283Z
+date: 2024-11-03T19:49:02.366Z
+updated: 2024-11-05T18:34:46.171Z
 categories:
   - BestProducts
 description: "This Article Describes Mastering Technology: A Critical Look at the Unbeatable Microsoft Surface Laptop"
@@ -13,28 +13,10 @@ thumbnail: https://thmb.techidaily.com/aaeee5a2f3c8b68771aea3a6cb049a51985742ce0
 
 4.4
 
-<!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/F035WaL3U8Q-n4fK2WBE6844lMo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Emily Isaacs
 
  What We Like
@@ -63,12 +45,6 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Emily Isaacs
 
 [View On Walmart $138](https://www.walmart.com/ip/Microsoft-Sculpt-Ergonomic-Desktop-Black-Wireless-USB-Keyboard-Keypad-and-Mouse/31390902?slfpid=3) [View On Best Buy $66](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F1818024.p) [View On Newegg.com $169](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.newegg.com%2Fmicrosoft-sculpt-ergonomic-desktop-l5v-00001-usb-rf-wireless%2Fp%2FN82E16823109349%3Fitem%3D9SIA24G28N0197%26slfpid%3D3)
@@ -95,6 +71,13 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  One unique feature of the Sculpt we loved was the function switch. Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key. Options include refreshing the active page, navigating to the home page in web, opening up the computer’s settings, a play/pause button, switching between active windows, and increasing or decreasing volume.
@@ -110,27 +93,23 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
  Backlighting—we love it, but the Sculpt doesn’t have it. This is, in large part, thanks to its battery-powered design. It wouldn’t make a great deal of sense for the Sculpt to have backlighting since the two AAA[alkaline batteries](https://www.lifewire.com/best-aa-and-aaa-rechargeable-batteries-4134295) would drain significantly faster, but we sure did miss it. It’s important to note that our love of backlighting is also a matter of personal preference. If it’s important to you, you might want to consider a different model. If you can live without it, the Sculpt still has a lot to offer.
@@ -145,12 +124,6 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Emily Isaacs
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
@@ -165,12 +138,6 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Emily Isaacs
 
  The Surface is a high-end keyboard, but that quality comes at a higher price. The Surface tends to retail for around $129, much more than the Sculpt which retails for around $80\. That said, it’s an upgrade in almost every way. If you’re on a budget, the Sculpt is a great option, but if you’re able to splurge, the Surface is our top pick for wireless ergonomic keyboards.
@@ -182,6 +149,13 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -204,8 +178,6 @@ Lifewire / Emily Isaacs
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -213,4 +185,26 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-boost-channels-and-views-through-savvy-youtube-analysis/"><u>[New] In 2024, Boost Channels and Views Through Savvy YouTube Analysis</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-reel-in-your-audience-with-professional-ipadiphone-podcasting-hacks/"><u>[New] Reel in Your Audience with Professional IPad/iPhone Podcasting Hacks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-decoding-firefox-picture-in-picture-a-comprehensive-guide/"><u>[Updated] Decoding Firefox Picture-in-Picture A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-integrated-camera-use-photos-and-videos-on-one-phone/"><u>[Updated] In 2024, Integrated Camera Use Photos and Videos on One Phone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-step-into-the-world-of-precise-editing-tiktok-number-modification/"><u>[Updated] In 2024, Step Into the World of Precise Editing TikTok Number Modification</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-secret-to-skyrocketing-revenue-crafting-engaging-video-trailers/"><u>[Updated] The Secret to Skyrocketing Revenue Crafting Engaging Video Trailers</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/access-exclusive-previews-of-upcoming-apple-vision-pro-features-through-testflight-a-step-by-step-guide-by-zdnet/"><u>Access Exclusive Previews of Upcoming Apple Vision Pro Features Through TestFlight: A Step-by-Step Guide by ZDNet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/alexa-integrated-ultra-hd-ready-insignia-ns-43df710na19-fire-tv-edition-an-unbeatable-combination/"><u>Alexa Integrated, Ultra HD Ready Insignia NS-43DF710NA19 Fire TV Edition - An Unbeatable Combination!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-ultimate-selection-of-educational-sites-offering-online-classes/"><u>Discover the Ultimate Selection of Educational Sites Offering Online Classes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dive-into-excitement-discover-the-10-best-gaming-options-when-youre-feeling-bored/"><u>Dive Into Excitement: Discover the 10 Best Gaming Options When You're Feeling Bored</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fortnites-fresh-season-unveiled-a-comprehensive-review-for-enthusiasts/"><u>Fortnite's Fresh Season Unveiled: A Comprehensive Review for Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gaomon-pd1560-graphics-pen-tablet-evaluation-detailed-insights-and-performance/"><u>Gaomon PD1560 Graphics Pen Tablet Evaluation - Detailed Insights & Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/has-your-ipad-become-a-relic-of-the-past/"><u>Has Your iPad Become a Relic of the Past?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/how-do-i-schedule-a-screen-recording-for-2024/"><u>How Do I Schedule A Screen Recording for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-xiaomi-redmi-13c-5g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Xiaomi Redmi 13C 5G Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-quick-start-mastering-ez-grabbers-downloading-and-usage/"><u>In 2024, Quick Start Mastering EZ Grabber's Downloading & Usage</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-reviews-for-like-a-dragon-from-the-yakuza-series-play-this-jrpg-masterpiece/"><u>Top Reviews for 'Like A Dragon' From the Yakuza Series - Play This JRPG Masterpiece</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/twelve-south-compass-pro-analyzed-masterful-engineering-for-peak-sturdiness/"><u>Twelve South Compass Pro Analyzed: Masterful Engineering for Peak Sturdiness</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-amazonbasics-7-port-usb-30-hub-your-solution-for-connectivity/"><u>Ultimate Guide to the AmazonBasics 7 Port USB 3.0 Hub - Your Solution for Connectivity</u></a></li>
+</ul></div>
 

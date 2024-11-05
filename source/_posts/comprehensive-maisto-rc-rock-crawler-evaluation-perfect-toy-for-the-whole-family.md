@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Maisto RC Rock Crawler Evaluation - Perfect Toy for the Whole Family!
-date: 2024-09-09T14:00:14.444Z
-updated: 2024-09-10T14:00:14.444Z
+date: 2024-10-30T16:02:48.128Z
+updated: 2024-11-05T16:40:51.955Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Maisto RC Rock Crawler Evaluation - Perfect Toy for the Whole Family!
@@ -17,12 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/2rxvJM_2S4-UWzYzj1U7sBmJqbw=/400x300/fi
 
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/mk2ndJKMrOgGOYfE8uNwJVYkaTk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Nick Jaynes
 
  What We Like
@@ -43,6 +37,13 @@ Lifewire / Nick Jaynes
 [View On Amazon $11](https://www.amazon.com/Anker-Charger-PowerDrive-Samsung-Motorola/dp/B014IBIMEW/?tag=lifewire-onsite-prod-20&ascsubtag=4686818%7Cnd7f7a98277d245b4b9e665cea9f2aa9d21%7CB014IBIMEW) [View On Walmart](https://www.walmart.com/ip/Anker-24W-4-8A-Dual-USB-Car-Charger-PowerDrive-2-for-iPhone-6-6s-6-Plus-Note-5-iPad-Air-2-Galaxy-S7-S6-S6-Edge-Edge-Note-5-and-More/191316160) [View On Anker](https://us.anker.com/products/a2310?currency=USD&variant=37436889464982)
 
 4.5
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
@@ -70,11 +71,12 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design: All-plastic, but sturdy and subtle**
 
  The Anker PowerDrive 2 might not be the sharpest or most cutting-edge looking in-car USB charger, but what it lacks in visual pizazz, it more than makes up for in sturdiness.
@@ -88,17 +90,12 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: Fast charging for demanding devices**
 
  The best part of the Anker PowerDrive 2 is its charging. It has the ability to charge iPads simultaneously without getting overheated thanks to its PowerIQ and VoltageBoost technology. Each USB port can output a maximum 5V/2.4A, for a total of 24W. That’s in line with other car[chargers](https://www.lifewire.com/best-wireless-phone-chargers-4138571) we tested, but the PowerIQ technology can help identify device and deliver the fastest possible charge. This also gives you some overvoltage protection to make sure something like a smartwatch doesn’t fry when you plug it in.
@@ -109,24 +106,12 @@ Lifewire / Nick Jaynes
 
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Middle of the pack**
 
  The list price of $14.99 is positioned in the mid-range of the USB charger market, which ranges from just a few dollars to upwards of $50 for some fancier chargers. However, Anker PowerDrive 2 can be had for a discounted price on some websites. Considering the fact that the Anker PowerDrive 2 includes both the fast-charger and a 3-foot micro USB cable, it is well priced for the marketplace.
 
  Lifewire / Nick Jaynes
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: A handful of rivals**
 
  The RAVPower 24W charger is one of Anker’s main rivals. It has a metal exterior, a lower price tag, and theoretically identical power output. However, its construction is far less robust. In fact, its metal outside easily separates from the internal components easily making Anker a better pick for longevity.
@@ -142,11 +127,12 @@ Lifewire / Nick Jaynes
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  PowerDrive 2 24W Dual USB Car Charger
@@ -164,8 +150,6 @@ Lifewire / Nick Jaynes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -173,4 +157,20 @@ Lifewire / Nick Jaynes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-elite-picks-a-list-mac-video-capture-tools/"><u>[New] In 2024, Elite Picks A-List Mac Video Capture Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-learn-and-create-the-ultimate-youtube-trailer-blueprint-in-filmora/"><u>2024 Approved Learn and Create The Ultimate YouTube Trailer Blueprint in Filmora</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-security-of-affordable-ssl-certificates/"><u>Comparing Security of Affordable SSL Certificates</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-netgear-nighthawk-c7000-an-outstanding-wireless-router-unveiled/"><u>Comprehensive Evaluation of the Netgear Nighthawk C7000: An Outstanding Wireless Router Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-your-vr-adventures-an-authoritative-insight-into-the-oculus-quest-2-elite-accessory-package/"><u>Elevate Your VR Adventures: An Authoritative Insight Into the Oculus Quest ^2 Elite Accessory Package</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/eu-orders-apple-to-pay-19b-fine-over-violations-of-competitive-rules-in-app-distribution-zdnet-news/"><u>EU Orders Apple to Pay €1.9B Fine Over Violations of Competitive Rules in App Distribution | ZDNET News</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-the-most-effective-ups-battery-systems-of-the-year-2amo/"><u>Expert Picks: The Most Effective UPS Battery Systems of the Year 2Amo</u></a></li>
+<li><a href="https://win-able.techidaily.com/football-manager-2020-update-resolving-persistent-crashing-troubles-for-a-smooth-gaming-experience/"><u>Football Manager 2020 Update: Resolving Persistent Crashing Troubles for a Smooth Gaming Experience</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-version-of-amd-radeon-rx-6700-xt-drivers-enhanced-performance-on-windows-operating-systems/"><u>Latest Version of AMD Radeon RX 6700 XT Drivers: Enhanced Performance on Windows Operating Systems</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/premier-knowledge-trivia-video-channels-for-2024/"><u>Premier Knowledge Trivia Video Channels for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/supercharging-ps3s-storage-larger-hard-drive-solutions/"><u>Supercharging PS3's Storage - Larger Hard Drive Solutions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-reveal-simplified-wallet-friendly-journey-monitoring-with-bouncies-connected-device-reviewed/"><u>The Ultimate Reveal: Simplified, Wallet-Friendly Journey Monitoring with Bouncie's Connected Device Reviewed</u></a></li>
+<li><a href="https://network-issues.techidaily.com/upgrade-visual-capabilities-windows-plus-new-intel-hd-driver/"><u>Upgrade Visual Capabilities: Windows + New Intel HD Driver</u></a></li>
+</ul></div>
 

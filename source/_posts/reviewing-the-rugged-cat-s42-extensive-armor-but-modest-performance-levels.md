@@ -1,7 +1,7 @@
 ---
 title: "Reviewing the Rugged Cat S42: Extensive Armor but Modest Performance Levels"
-date: 2024-10-28T20:12:23.718Z
-updated: 2024-10-30T22:33:27.304Z
+date: 2024-11-04T16:36:32.457Z
+updated: 2024-11-05T17:06:46.984Z
 categories:
   - BestProducts
 description: "This Article Describes Reviewing the Rugged Cat S42: Extensive Armor but Modest Performance Levels"
@@ -44,6 +44,13 @@ Lifewire / Emily Ramirez
 
 2.8
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
@@ -85,10 +92,10 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -106,10 +113,10 @@ Lifewire / Emily Ramirez
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
@@ -120,21 +127,7 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Lots of options with mixed utility**
 
@@ -147,6 +140,13 @@ Lifewire / Emily Ramirez
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
 
@@ -168,17 +168,17 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -218,17 +218,18 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-optimizing-your-mac-for-big-sur-release-for-2024/"><u>[New] Optimizing Your Mac for Big Sur Release for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-aurora-vs-traditional-hdr-the-battle-for-best-quality/"><u>[Updated] In 2024, Aurora vs Traditional HDR The Battle for Best Quality</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-captivate-with-voice-intros-that-intrigue/"><u>2024 Approved Captivate with Voice Intros That Intrigue</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-latest-series-captivating-qanda-for-podcast-audience/"><u>2024 Approved Latest Series Captivating Q&A for Podcast Audience</u></a></li>
-<li><a href="https://win-able.techidaily.com/discord-cam-errors-demystified-effective-fixes-to-restore-your-webcam/"><u>Discord Cam Errors Demystified: Effective Fixes to Restore Your Webcam</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-finest-price-cuts-for-roku-streaming-devices-during-amazons-prime-day-extravaganza/"><u>Discover the Finest Price-Cuts for Roku Streaming Devices During Amazon's Prime Day Extravaganza</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-of-nokia-31-your-gateway-to-modern-communication/"><u>Expert Review of Nokia 3.1 - Your Gateway to Modern Communication</u></a></li>
-<li><a href="https://win-hot.techidaily.com/guide-to-hd-video-capture-how-to-use-your-macs-built-in-webcam-with-excellent-quality/"><u>Guide to HD Video Capture: How to Use Your Mac's Built-In Webcam with Excellent Quality</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-vivo-s18-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Vivo S18? 7 Ways to Resolve | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/prime-backdrops-for-effective-virtual-gatherings-for-2024/"><u>Prime Backdrops for Effective Virtual Gatherings for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/professional-insights-on-the-logitech-c920-pro-hd-camcorder-a-comprehensive-guide/"><u>Professional Insights on the Logitech C920 Pro HD Camcorder: A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/smart-and-cost-effective-watch-choice-in-depth-look-at-fitbit-versa/"><u>Smart and Cost-Effective Watch Choice: In-Depth Look at Fitbit Versa</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-cloaking-in-content-an-introduction-to-video-smoothing/"><u>[Updated] Cloaking in Content An Introduction to Video Smoothing</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-quick-start-to-engaging-in-face-to-face-conversations-on-snapchat-for-2024/"><u>[Updated] Quick Start to Engaging in Face-to-Face Conversations on Snapchat for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/blade-e-flite-mcx2-the-ultimate-rtf-rc-helicopter-for-enthusiasts-and-beginners-alike/"><u>Blade E-Flite mCX2 - The Ultimate RTF RC Helicopter for Enthusiasts and Beginners Alike</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-latest-in-desktop-designs-a-comprehensive-review-of-the-apple-imacs-stylish-power-and-4k-capability/"><u>Discover the Latest in Desktop Designs: A Comprehensive Review of the Apple iMac's Stylish Power and 4K Capability</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/dive-into-hardware-knowledge-discoveries-from-toms-tech-world/"><u>Dive Into Hardware Knowledge - Discoveries From Tom's Tech World</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-cutting-edge-tech-without-breaking-the-bank-a-5g-phone-review-of-the-google-pixel-4a/"><u>Experience Cutting-Edge Tech without Breaking the Bank: A 5G Phone Review of the Google Pixel 4A</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/fast-tracking-your-creative-spark-with-google-images-art-for-2024/"><u>Fast-Tracking Your Creative Spark with Google Images Art for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-infinix-zero-30-5g-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Infinix Zero 30 5G Location Settings | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-emoji-tips-for-yt-comments-a-quick-guide/"><u>In 2024, Emoji Tips for YT Comments A Quick Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-apc-back-ups-pro-1500va-unmatched-energy-reserve-and-versatile-connectivity-options/"><u>The Ultimate Guide to APC Back-UPS Pro 1500VA: Unmatched Energy Reserve and Versatile Connectivity Options</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-7-causes-of-non-responsive-iphone-touch-screens-troubleshooting-tips/"><u>Top 7 Causes of Non-Responsive iPhone Touch Screens: Troubleshooting Tips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-tech-bargains-amazon-prime-day-offers-2024/"><u>Top Tech Bargains: Amazon Prime Day Offers 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/user-satisfaction-analysis-of-the-imo-chat-application/"><u>User Satisfaction Analysis of the Imo Chat Application</u></a></li>
 </ul></div>
 

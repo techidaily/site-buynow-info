@@ -1,7 +1,7 @@
 ---
 title: Logitech C615 Webcam Review
-date: 2024-10-28T01:59:33.969Z
-updated: 2024-10-30T19:23:12.541Z
+date: 2024-11-02T18:24:21.244Z
+updated: 2024-11-05T16:30:09.077Z
 categories:
   - BestProducts
 description: This Article Describes Logitech C615 Webcam Review
@@ -67,6 +67,13 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -78,13 +85,6 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
  Lifewire / Erika Rawes
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup: Easier than most**
 
@@ -102,14 +102,14 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Range: Could be better**
 
@@ -119,18 +119,18 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -145,10 +145,10 @@ Lifewire / Erika Rawes
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -182,20 +182,19 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-ultimate-picks-for-costless-subtitle-extraction-tools/"><u>[New] 2024 Approved Ultimate Picks for Costless Subtitle Extraction Tools</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-step-by-step-guide-to-android-movie-upturning/"><u>[New] Step-by-Step Guide to Android Movie Upturning</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-inverting-screen-time-with-android-videos/"><u>[Updated] 2024 Approved Inverting Screen Time with Android Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-what-makes-a-youtube-short-go-viral/"><u>2024 Approved What Makes a YouTube Short Go Viral?</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/discover-the-ai-revolution-in-coding-6-superior-chatgpt-add-ons-for-your-visual-studio-code/"><u>Discover the AI Revolution in Coding: 6 Superior ChatGPT Add-Ons for Your Visual Studio Code</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/diy-guide-crafting-customizable-chroma-garden-leds-with-nanomaterial-technology/"><u>DIY Guide: Crafting Customizable Chroma Garden LEDs with Nanomaterial Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dont-overlook-top-streaming-platforms-essential-viewing-for-anime-enthusiasts/"><u>Don't Overlook Top Streaming Platforms: Essential Viewing for Anime Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/effective-strategies-for-protecting-your-dvd-and-blu-ray-collections/"><u>Effective Strategies for Protecting Your DVD & Blu-Ray Collections</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/enhance-gaming-sessions-the-ultimate-tutorial-for-connecting-discord-and-ps5/"><u>Enhance Gaming Sessions: The Ultimate Tutorial for Connecting Discord and PS5</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/enhanced-video-experience-mozilla-firefox-1/"><u>Enhanced Video Experience: Mozilla Firefox 1</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/enhancing-privacy-how-i-customize-roku-setup-for-secure-viewing/"><u>Enhancing Privacy: How I Customize Roku Setup for Secure Viewing</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Vivo Y27 5G? | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-mmo-galaxy-the-finest-10-free-online-roleplayers/"><u>In 2024, MMO Galaxy The Finest 10 Free Online Roleplayers</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-depth-tutorial-enhancing-meeting-experience-in-zoom-win10/"><u>In-Depth Tutorial Enhancing Meeting Experience in Zoom (Win10)</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/unlock-your-disabled-apple-iphone-xs-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>Unlock Your Disabled Apple iPhone XS Without iTunes in 5 Ways | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-essential-information-for-successful-tiktok-use-on-macos/"><u>[New] 2024 Approved Essential Information for Successful TikTok Use on macOS</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-tuneful-transmissions-integrating-audio-with-statuses/"><u>[New] 2024 Approved Tuneful Transmissions Integrating Audio with Statuses</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-infusing-new-life-into-old-images-with-instagram-magic-for-2024/"><u>[New] Infusing New Life Into Old Images with Instagram Magic for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-infinix-smart-7-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hisenses-40-inch-smart-television-model-h5590f-reviewed-a-cost-effective-home-entertainment-solution/"><u>Hisense's 40-Inch Smart Television (Model: H5590F) Reviewed: A Cost-Effective Home Entertainment Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-mobile-workflows-how-the-202n-ipad-pro-with-m1-chip-delivers-desktop-efficiency-in-tablet-form/"><u>Mastering Mobile Workflows: How the 202N iPad Pro with M1 Chip Delivers Desktop Efficiency in Tablet Form</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/pioneers-designing-the-online-avengers-landscape/"><u>Pioneers Designing the Online Avengers Landscape</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-buds-pro-review-pro-android-headphones/"><u>Samsung Galaxy Buds Pro Review: Pro Android Headphones</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Samsung Galaxy M34 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sunbriteverandatv-experience-high-quality-55-inch-4k-hdr-durability-in-open-air-tvs/"><u>SunBriteVerandaTV: Experience High-Quality 55-Inch 4K HDR Durability in Open Air TVs</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/turning-network-discovery-on-and-off-for-windows-10-tips-and-tricks/"><u>Turning Network Discovery On and Off for Windows 10: Tips & Tricks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-lg-gram-156-laptop-evaluation-for-2018-exceptionally-lightweight-with-long-battery-life/"><u>Ultimate LG Gram 15.6 Laptop Evaluation for 2018 - Exceptionally Lightweight with Long Battery Life</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/voip-showdown-2023-does-vonage-reign-supreme-among-competitors/"><u>VoIP Showdown 2023: Does Vonage Reign Supreme Among Competitors?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Xiaomi Redmi 13C 5G? | Dr.fone</u></a></li>
 </ul></div>
 

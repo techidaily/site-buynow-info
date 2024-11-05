@@ -1,7 +1,7 @@
 ---
 title: "Barnes & Noble's Biggest E-Reader Yet: A Comprehensive Look at the Nook GlowLight Plus"
-date: 2024-10-24T22:17:27.786Z
-updated: 2024-10-30T20:03:16.860Z
+date: 2024-10-29T17:18:41.057Z
+updated: 2024-11-05T20:27:37.838Z
 categories:
   - BestProducts
 description: "This Article Describes Barnes & Noble's Biggest E-Reader Yet: A Comprehensive Look at the Nook GlowLight Plus"
@@ -47,13 +47,6 @@ Lifewire / Andy Zahn
 ## Razer Book 13
 
 ![Razer Book 13](https://www.lifewire.com/thmb/0i6VvZqT39MNfVUbDSY7z3l8-Tw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_HeroSquare-80401fcfbef94a1b8444cd0832388aac.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -102,10 +95,10 @@ Lifewire / Andy Zahn
  There’s not a lot to say about setting up the Razer Book 13\. It’s just a standard install of Windows 10 Home with no surprises along the way so you can be up and running in just a few minutes.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Display: Positively stunning
@@ -115,6 +108,13 @@ Lifewire / Andy Zahn
 ![Razer Book 13](https://www.lifewire.com/thmb/C308jEtLYxnwMp68uF5Sd-2hjyA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_02-4da7b450ac1c4b879f1b0bebfa9815b5.jpg)
 
 Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Performance: Lean and mean
 
@@ -129,10 +129,10 @@ Lifewire / Andy Zahn
  The Book 13 is equipped with a 512GB SSD. This is good enough, but it would have been nice to have a full terabyte of storage.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Software: No bloat
@@ -141,20 +141,13 @@ Lifewire / Andy Zahn
 
 ![Razer Book 13](https://www.lifewire.com/thmb/hKfA1c1e0-bRVVhMU22PtI2GewM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_03-23b08f335541443ebe1e7d7763140eca.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Connectivity: The latest and greatest
@@ -167,20 +160,27 @@ Lifewire / Andy Zahn
 
 ![Razer Book 13](https://www.lifewire.com/thmb/6yYQ1e8vR0Ldvs2GP61CrvFy3zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_05-1c8a8e1bdd78413fb72cc6307a07ea40.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Audio: Big sound for a small laptop
 
  You wouldn’t expect to get good audio out of such a small laptop, but the Book 13 does quite well in this regard. It features THX spatial audio and delivers a remarkably good listening experience. It’s certainly loud enough to deliver sound at max volume without noticeable distortion. 2Cellos cover of “Thunderstruck” is my go-to song for testing speakers and headphones, and I also listened to their new cover of “Livin’ on a Prayer.” The Book 13 rendered them both beautifully.
 
 ![Razer Book 13](https://www.lifewire.com/thmb/PL2MokPWQ_egcxv3fE0tw_k09Yo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_04-6eed60095cbe467c9552c651ba4c9d46.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -190,6 +190,13 @@ Lifewire / Andy Zahn
 
  The webcam on the Book 13 is about average for a laptop. It captures 720p video and is perfectly acceptable, though not exceptional in any way. Video quality looks decent, even in relatively challenging situations.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Price: The cost of quality
 
  The configuration of the Razer Book 13 I tested is definitely pricey at $2,000\. That’s a decent chunk of change, and you could certainly buy a laptop with more graphical power for the money, but the Book 13 isn’t made for high-end gaming.
@@ -197,13 +204,6 @@ Lifewire / Andy Zahn
  Between its solid design, attractive aesthetics, and nice little touches that tie the whole package together, this is one awesome little ultrabook.
 
  This is a premium, ultra-portable device designed more for professional work, and its ability to game is basically a nice bonus. Considering the competition from Dell and Apple, it’s not unreasonably priced.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Razer Book 13 vs. Dell XPS 13 7390 2-in-1
 
@@ -255,18 +255,24 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-accelerate-thumbnail-designs-for-professional-valorant-portraits/"><u>[New] In 2024, Accelerate Thumbnail Designs for Professional Valorant Portraits</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-simplifying-video-editing-with-windows-movie-maker-for-windows-8-users/"><u>[New] Simplifying Video Editing with Windows Movie Maker for Windows 8 Users</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-mastering-the-art-of-creating-alluring-fb-video-ads/"><u>2024 Approved Mastering the Art of Creating Alluring FB Video Ads</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/3-gratis-methoden-zum-umwandeln-von-mts-dateien-in-das-mp4-format/"><u>3 Gratis Methoden Zum Umwandeln Von MTS-Dateien in Das MP4 Format</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/asus-chromebook-c202sa-unveiled-perfect-companion-for-students-and-kids-a-readers-review/"><u>Asus Chromebook C202SA Unveiled: Perfect Companion for Students & Kids - A Reader's Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/audio-face-off-exploring-airpods-pro-vs-samsung-buds-pro/"><u>Audio Face-Off: Exploring AirPods Pro Vs. Samsung Buds Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comparing-apples-latest-giants-iphone-15-vs-pro-max-which-reigns-supreme/"><u>Comparing Apple's Latest Giants: IPhone 15 Vs. Pro Max - Which Reigns Supreme?</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/diagnosing-and-resolving-the-deadly-pnpdetectedfatalerror-in-windows-10-environments/"><u>Diagnosing and Resolving the Deadly 'PNP_Detected_Fatal_Error' In Windows 10 Environments</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/gpt-intelligence-unscathed-adopted-by-openai/"><u>GPT Intelligence Unscathed: Adopted by OpenAI</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-navigating-text-customization-for-video-content-with-windows-photos/"><u>In 2024, Navigating Text Customization for Video Content with Windows Photos</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-8-best-voice-to-text-apps-of-2024/"><u>The 8 Best Voice-to-Text Apps of 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-for-windows-710-devices-that-wont-charge/"><u>Troubleshooting Guide for Windows 7/10 Devices That Won't Charge</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/ultimate-winxdvd-tutorial-effortless-setup-and-comprehensive-function-use/"><u>Ultimate WinXDVD Tutorial: Effortless Setup & Comprehensive Function Use</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-guide-to-swiftly-acquire-and-save-youtube-watch-lists/"><u>[New] In 2024, Guide to Swiftly Acquire and Save YouTube Watch Lists</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-trustful-growth-how-to-properly-buy-tiktok-followers/"><u>[New] In 2024, Trustful Growth How to Properly Buy TikTok Followers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-ace-your-youtube-livestreams-mastering-broadcast-techniques-using-wirecast-for-2024/"><u>[Updated] Ace Your Youtube Livestreams Mastering Broadcast Techniques Using WireCast for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-unraveling-zdsofts-screen-monitor-magic-for-2024/"><u>[Updated] Unraveling ZDSoft's Screen Monitor Magic for 2024</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/windows-media-playerdvd/"><u>確実に解決 Windows Media PlayerでDVD再生エラーをどう克服しますか?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazfit-bip-unveiled-a-comprehensive-review-for-entry-level-wearable-tech-enthusiasts/"><u>Amazfit BIP Unveiled: A Comprehensive Review for Entry-Level Wearable Tech Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/are-inexpensive-ssls-still-effective/"><u>Are Inexpensive SSLs Still Effective?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/convenient-and-quality-passport-images-top-free-tools-listed-here/"><u>Convenient & Quality Passport Images - Top Free Tools Listed Here</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/lenovo-monochrome-mishaps-resolved/"><u>Lenovo Monochrome Mishaps Resolved</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lg-stylo-6-phone-evaluation-impressive-design-with-comfortable-stylus/"><u>LG Stylo 6 Phone Evaluation - Impressive Design with Comfortable Stylus</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/mejore-su-experiencia-con-las-camaras-virtuais-obs-una-guia-integral-para-el-ano-2024/"><u>Mejore Su Experiencia Con Las Cámaras Virtuais OBS: Una Guía Integral Para El Año 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/outstanding-30-inch-tv-reception-with-the-budget-friendly-mohu-leaf-antenna-review/"><u>Outstanding 30-Inch TV Reception with the Budget-Friendly Mohu Leaf Antenna Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/studio-soundwaves-with-ath-m50x-headphones/"><u>Studio Soundwaves with ATH-M50x Headphones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-motorola-mg7700-reviewed-delivers-dependable-rapidity-with-ease/"><u>The Motorola MG^7700 Reviewed - Delivers Dependable Rapidity with Ease</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-propella-7s-40-perfect-balance-of-affordability-maneuverability-and-portability/"><u>The Ultimate Guide to Propella 7S 4.0: Perfect Balance of Affordability, Maneuverability & Portability!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-picks-for-thinkpad-enthusiasts-detailed-analysis-of-the-versatile-lenovo-thinkpad-x1-titanium-yoga/"><u>Top Picks for ThinkPad Enthusiasts: Detailed Analysis of the Versatile Lenovo ThinkPad X1 Titanium Yoga</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-picks-the-ultimate-list-of-the-finest-17-inch-laptops/"><u>Top Picks: The Ultimate List of the Finest 17-Inch Laptops</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-artists-choice-leading-drawing-tablets-in-2e/"><u>Top-Rated Artist's Choice: Leading Drawing Tablets in 2E</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-window-sound-problems-how-to-fix-distorted-audio-on-windows-117-computers/"><u>Troubleshooting Window Sound Problems: How to Fix Distorted Audio on Windows 11/7 Computers</u></a></li>
 </ul></div>
 

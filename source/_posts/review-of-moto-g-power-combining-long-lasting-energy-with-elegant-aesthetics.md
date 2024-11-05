@@ -1,7 +1,7 @@
 ---
 title: "Review of Moto G Power: Combining Long-Lasting Energy with Elegant Aesthetics"
-date: 2024-10-24T21:09:38.472Z
-updated: 2024-10-31T03:45:52.686Z
+date: 2024-10-30T16:11:55.652Z
+updated: 2024-11-05T21:01:43.070Z
 categories:
   - BestProducts
 description: "This Article Describes Review of Moto G Power: Combining Long-Lasting Energy with Elegant Aesthetics"
@@ -43,13 +43,6 @@ Lifewire / Andrew Hayward
 [Buy on Amazon](https://www.amazon.com/dp/B079FSPRXM?tag=lifewire-onsite-prod-20&ascsubtag=5071993%7Cn35698be70c304b229c7a194255ab2d3620%7C) [Buy on QVC](https://www.qvc.com/qvc.product.E235435.html)
 
 3.7
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Halo Bolt Portable Charger/Jump Starter
 
@@ -99,6 +92,19 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Charging Speed and Battery: Not so long-lasting**
 
  The Halo Bolt has 58,830mWh of battery power within, and the official description suggests that it can provide up to several hours of additional usage for a MacBook Pro or[iPad Air](https://www.lifewire.com/apple-ipad-air-2019-review-4688969) . In my testing, the results didn’t quite match those targets.
@@ -116,30 +122,29 @@ Lifewire / Andrew Hayward
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/MNFqifirQ0sn61GPO1e-bLQ1t8s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-06-8bc3449bd35243aaaf67272c1d3774a6-bc803e0a114b4116adf3078af6a2de00.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: It’s priced right**
 
  For a jack-of-all-trades power brick that can jump-start your car and charge its battery, serve as a bright flashlight for roadside emergencies, and charge a wide array of portable devices, the $100 price seen on Amazon looks pretty reasonable. However, given that it couldn’t charge my laptop to total capacity and lacks a USB-C port, handier, higher-capacity charging bricks are available specifically for laptop and smartphone charging needs.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Halo Bolt ACDC 58830 vs. ZMI PowerPack 20000**
@@ -153,6 +158,13 @@ Lifewire / Andrew Hayward
  **Final Verdict: A convenient backup battery and jump starter.**
 
  The Halo Bolt isn’t the best option for charging laptops, but it is a solid all-around device for providing backup power to a broader array of gadgets, not to mention jump-starting a car. This versatile device is smart to have around if you drive a car and are frequently mobile with your portable gadgets. I wouldn’t bring it with me on vacation, but it could prove useful before long as a backup device to keep handy.
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -180,17 +192,15 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-cutting-edge-techniques-for-youtube-video-edits-via-wm-maker/"><u>[New] 2024 Approved Cutting-Edge Techniques for YouTube Video Edits via WM Maker</u></a></li>
-<li><a href="https://network-issues.techidaily.com/repaired-offline-mode-cod-cold-war-2024-update/"><u>[REPAIRED] Offline Mode: CoD Cold War 2024 Update</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-the-hidden-pathways-to-earning-on-youtube/"><u>[Updated] Unveiling the Hidden Pathways to Earning on YouTube</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-maximizing-traffic-with-effective-youtube-titles/"><u>2024 Approved Maximizing Traffic with Effective YouTube Titles</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/essential-insights-for-your-health-journey-why-these-asteriskstarsare-vital-prior-to-investing-in-a-fitness-tracker/"><u>Essential Insights for Your Health Journey: Why These asteriskstarsAre Vital Prior to Investing in a Fitness Tracker</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-ipad-side-by-side-comparison-for-informed-decision-making/"><u>Expert iPad Side-by-Side Comparison for Informed Decision Making</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-6-plus-to-other-iphone-13-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 6 Plus to other iPhone 13 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/powershot-sx620-a-blend-of-portability-and-performance/"><u>PowerShot SX620: A Blend of Portability and Performance</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/secrets-to-successfully-obtain-windows-movie-maker-6-for-2024/"><u>Secrets to Successfully Obtain Windows Movie Maker 6 for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-apple-airtag-assessment-ultimate-tracking-device-for-ios-devices/"><u>Top Apple AirTag Assessment: Ultimate Tracking Device for iOS Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-protective-covers-for-apples-latest-phone-model/"><u>Top-Rated Protective Covers for Apple's Latest Phone Model</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-apple-macbook-pro-16-inch-m1-2021-the-ultimate-gadget-showdown/"><u>Unveiling Apple MacBook Pro 16-Inch (M1, 2021): The Ultimate Gadget Showdown</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-elite-hd-video-capture-software-listings-for-2024/"><u>[New] Elite HD Video Capture Software Listings for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-get-the-best-youtube-thumbnails-the-free-guide/"><u>[Updated] 2024 Approved How to Get the Best YouTube Thumbnails The Free Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-omniimageai-holistic-editing-experience/"><u>[Updated] 2024 Approved OmniImageAI Holistic Editing Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-decoding-the-art-of-enhanced-perception-for-2024/"><u>[Updated] Decoding the Art of Enhanced Perception for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/contemplating-an-upgrade-making-sense-of-ios-17/"><u>Contemplating an Upgrade: Making Sense of iOS 17</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hisense-40-inch-5590f-led-smart-television-an-in-depth-review-for-savvy-shoppers/"><u>Hisense 40-Inch 5590F LED Smart Television: An In-Depth Review for Savvy Shoppers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-mastering-the-art-of-capturing-dynamic-images-on-ios-devices/"><u>In 2024, Mastering the Art of Capturing Dynamic Images on iOS Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-x-plane-11-review-top-tier-graphics-and-cutting-edge-features-for-the-ultimate-flight-experience/"><u>Inside X-Plane 11 Review: Top-Tier Graphics & Cutting-Edge Features for the Ultimate Flight Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/thrilling-space-adventure-unleashed-a-critique-on-star-wars-squadrons/"><u>Thrilling Space Adventure Unleashed: A Critique on Star Wars: Squadrons</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-vivo-y100s-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Vivo Y100s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
 </ul></div>
 

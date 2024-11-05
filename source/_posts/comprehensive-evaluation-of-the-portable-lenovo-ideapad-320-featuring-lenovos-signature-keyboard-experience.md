@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Evaluation of the Portable Lenovo Ideapad ^320 - Featuring Lenovo’s Signature Keyboard Experience
-date: 2024-10-27T16:06:17.991Z
-updated: 2024-10-30T19:57:58.733Z
+date: 2024-10-30T16:12:07.978Z
+updated: 2024-11-05T20:50:00.672Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Evaluation of the Portable Lenovo Ideapad ^320 - Featuring Lenovo’s Signature Keyboard Experience
@@ -43,22 +43,15 @@ Lifewire / Todd Braylor
 3.8
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -82,10 +75,10 @@ Lifewire / Todd Braylor
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design:** **A bit cheap**
@@ -124,6 +117,13 @@ Lifewire / Todd Braylor
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
  A popular competitor brand to Escort that makes a wide selection of radar detectors is Uniden. The Uniden DFR9 (view on[Amazon](https://www.amazon.com/Uniden-DFR9-Detection-Cameras-Display/dp/B07F6PZXHM/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7C) ) is a model that can be considered the next price tier above the S55\. The DFR9's MSRP is $300 but it can often be found on sale for about $270.
@@ -137,10 +137,10 @@ Lifewire / Todd Braylor
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -172,18 +172,24 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-reinstate-windows-photo-viewer-on-windows-10-dual-fixes-explained/"><u>[New] Reinstate Windows Photo Viewer on Windows 10 Dual Fixes Explained</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-compliance-with-copyright-law-when-sharing-media-through-fb/"><u>[Updated] 2024 Approved Compliance with Copyright Law when Sharing Media Through FB</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-cultivating-lasting-partnerships-with-brands-in-youtube-land-for-2024/"><u>[Updated] Cultivating Lasting Partnerships with Brands in Youtube Land for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-vivo-y100-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Vivo Y100 Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-places-to-shop-for-high-quality-laptops-a-comprehensive-guide/"><u>Best Places to Shop for High-Quality Laptops: A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-space-empire-management-in-stellaris/"><u>Comprehensive Guide to Space Empire Management in Stellaris</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-of-the-moto-g-power-impressive-longevity-meets-smooth-operation/"><u>Expert Review of the Moto G Power: Impressive Longevity Meets Smooth Operation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/future-of-listening-best-earphones-no-hose/"><u>Future of Listening: Best Earphones No Hose</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-accelerating-your-ascension-to-instagram-a-list-status-our-fast-track-guide-of-15-must-try-strategies/"><u>In 2024, Accelerating Your Ascension to Instagram A-List Status Our Fast Track Guide of 15 Must-Try Strategies</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-amazons-fire-tv-cube-the-ultimate-speedy-media-hub/"><u>In-Depth Analysis of Amazon's Fire TV Cube: The Ultimate Speedy Media Hub</u></a></li>
-<li><a href="https://win-answers.techidaily.com/resolving-the-unjoinable-party-glitch-a-guide-to-overcoming-fortnite-error-84/"><u>Resolving the Unjoinable Party Glitch: A Guide to Overcoming Fortnite Error 84</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transforma-tus-videos-mp4-en-formatos-mov-gratis-ahora-mismo-con-la-herramienta-de-conversion-avanzada-y-segura-de-movavi/"><u>Transforma Tus Videos MP4 en Formatos MOV Gratis Ahora Mismo Con La Herramienta De Conversión Avanzada Y Segura De Movavi</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlocking-the-power-of-real-hd-with-logitechs-c920-webcam-expert-product-evaluation/"><u>Unlocking the Power of Real HD with Logitech's C920 Webcam: Expert Product Evaluation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-crystal-clear-imagery-best-online-tools-for-clarity/"><u>[Updated] 2024 Approved Crystal Clear Imagery Best Online Tools for Clarity</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-the-ultimate-2023-guide-to-enhancing-audio-on-discord-top-plugins-reviewed/"><u>[Updated] 2024 Approved The Ultimate 2023 Guide to Enhancing Audio on Discord - Top Plugins Reviewed</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-peak-hours-for-podcasts-strategic-timing/"><u>[Updated] In 2024, Peak Hours for Podcasts Strategic Timing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-video-virtuosity-expertly-attaching-audio-to-youtube-videos/"><u>[Updated] Video Virtuosity Expertly Attaching Audio to YouTube Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-art-of-duality-mastering-image-turnover-on-social-media-giants/"><u>2024 Approved The Art of Duality Mastering Image Turnover on Social Media Giants</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-wifi-solutions-evaluating-the-performance-of-the-tp-link-archer-c50/"><u>Budget-Friendly WiFi Solutions: Evaluating the Performance of the TP-Link Archer C50</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/efficient-memory-management-in-windows-11/"><u>Efficient Memory Management in Windows 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enjoying-nintendo-on-your-terms-an-exploration-into-the-affordable-portable-switch-lite/"><u>Enjoying Nintendo on Your Terms: An Exploration Into the Affordable, Portable Switch Lite</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-samsung-galaxy-xcover-7-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Samsung Galaxy XCover 7</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-moto-g-play-a-look-at-its-long-lasting-battery-life-and-reliable-performance/"><u>Exploring the Moto G Play - A Look at Its Long-Lasting Battery Life and Reliable Performance</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/federal-authorities-declare-apple-a-prohibited-monopoly-within-the-united-states/"><u>Federal Authorities Declare Apple a Prohibited Monopoly Within the United States</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/google-pixel-6-review/"><u>Google Pixel 6 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/important-criteria-in-second-life-electronics-decision/"><u>Important Criteria in Second-Life Electronics Decision</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-it-worth-it-an-in-depth-look-at-sonys-newly-released-ps5-slim-vs-the-standard-ps5/"><u>Is It Worth It? An In-Depth Look at Sony's Newly Released PS5 Slim vs The Standard PS5</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/narratives-galore-top-20-storytelling-channels-of-the-year/"><u>Narratives Galore Top 20 Storytelling Channels of the Year</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/submerged-imagery-at-your-fingertips-with-insta360-one-x2/"><u>Submerged Imagery at Your Fingertips with Insta360 One X2</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-choosing-a-mesh-wi-fi-system/"><u>Ultimate Guide to Choosing a Mesh Wi-Fi System</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unveiling-the-power-of-the-fujitsu-scansnap-ix1400-a-perfect-match-for-small-businesses-and-home-offices/"><u>Unveiling the Power of the Fujitsu ScanSnap iX1400: A Perfect Match for Small Businesses and Home Offices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-secrets-to-the-wii-u-console-victory/"><u>Unveiling the Secrets to the Wii U Console Victory</u></a></li>
 </ul></div>
 

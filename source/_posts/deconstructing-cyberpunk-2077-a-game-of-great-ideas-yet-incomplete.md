@@ -1,7 +1,7 @@
 ---
 title: "Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
-date: 2024-10-24T20:55:06.902Z
-updated: 2024-10-31T00:25:13.659Z
+date: 2024-10-29T17:54:50.310Z
+updated: 2024-11-05T20:15:53.474Z
 categories:
   - BestProducts
 description: "This Article Describes Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
@@ -47,13 +47,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
 
 [View On Steampowered.com](https://store.steampowered.com/app/464920/Surviving%5FMars/) [View On G2a.com](https://www.g2a.com/en-us/surviving-mars-first-colony-edition-steam-key-global-i10000147752001?)
@@ -81,8 +74,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
- Lifewire / Rebecca Isaacs
-
 <!-- affiliate ads begin -->
 <span id="1374820">
 					<video width="200" height="200" style="cursor:pointer"
@@ -95,6 +86,8 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 </span>
 <img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Rebecca Isaacs
 
 ## **Performance: Humans have never been so annoying**
 
@@ -111,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -135,11 +128,31 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -154,13 +167,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  **A interesting new take on city-builders, if you can stomach the micromanagement.**
 
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -189,24 +195,22 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-breaking-news-in-bullets-viral-twitter-scenes/"><u>[New] Breaking News in Bullets Viral Twitter Scenes</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-captivating-visual-transformation-software-for-pc-mac-linux-for-2024/"><u>[New] Captivating Visual Transformation Software for PC, Mac, Linux for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-mastering-video-upload-your-guide-to-igtv/"><u>[New] Mastering Video Upload Your Guide to IGTV</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-step-by-step-guide-to-changing-photo-genders-from-theory-to-practice/"><u>[New] Step-by-Step Guide to Changing Photo Genders From Theory to Practice</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-beyond-the-basics-advanced-techniques-for-improved-recordings/"><u>2024 Approved Beyond the Basics Advanced Techniques for Improved Recordings</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/asus-rog-gt-ac5300-roundup-a-comprehensive-guide-for-gamers-and-tech-buffs/"><u>Asus ROG GT-AC5300 Roundup: A Comprehensive Guide for Gamers and Tech Buffs</u></a></li>
-<li><a href="https://fox-tls.techidaily.com/comprehensive-guide-to-leveraging-your-apowerunlock-device-effectively/"><u>Comprehensive Guide to Leveraging Your ApowerUnlock Device Effectively</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/fast-tracked-finesse-how-to-efficiently-edit-and-enhance-windows-photos-for-2024/"><u>Fast-Tracked Finesse How to Efficiently Edit and Enhance Windows Photos for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/jabra-talk-45-showcased-pristine-clarity-and-prolonged-charging/"><u>Jabra Talk 45 Showcased: Pristine Clarity & Prolonged Charging</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/premium-glion-dolly-e-scooter-an-in-depth-cost-and-performance-analysis/"><u>Premium Glion Dolly E-Scooter: An In-Depth Cost & Performance Analysis</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-x-chair-x4-executive-chair-the-ideal-office-seating-solution/"><u>Review of X-Chair X4 Executive Chair - The Ideal Office Seating Solution</u></a></li>
-<li><a href="https://win-able.techidaily.com/say-goodbye-to-pc-crashing-issues-with-counter-strike-2-cs2-expert-solutions-and-adjustments/"><u>Say Goodbye to PC Crashing Issues with Counter-Strike 2 (CS2) - Expert Solutions & Adjustments</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/take-your-tunes-on-the-go-with-blueears-smart-beanie-hat-a-complete-product-assessment/"><u>Take Your Tunes on The Go with Blueear's Smart Beanie Hat: A Complete Product Assessment</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-expressive-german-idioms-top-25/"><u>The Ultimate Guide to Expressive German Idioms (Top 25)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-10-learning-platforms-enhancing-education-through-online-classes/"><u>Top 10 Learning Platforms: Enhancing Education Through Online Classes</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/top-5-game-ready-keyboards-under-100-a-comparison/"><u>Top 5 Game-Ready Keyboards Under $100 – A Comparison</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-6-destinations-for-purchasing-quality-laptops/"><u>Top 6 Destinations for Purchasing Quality Laptops</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tp-link-archer-c50-high-speed-wifi-on-a-shoestring-budget/"><u>TP-Link Archer C50: High-Speed WiFi on a Shoestring Budget</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-radpower-radcity-5-plus-a-sturdy-but-bulky-bicycle-review/"><u>Unveiling the RadPower RadCity 5 Plus: A Sturdy but Bulky Bicycle Review</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-exploring-the-world-of-book-trailers-with-top-5-picks/"><u>[New] Exploring the World of Book Trailers with Top 5 Picks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-flashglimpse-crafter/"><u>[New] In 2024, FlashGlimpse Crafter</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-insiders-look-at-facebook-sharing-for-youtube-creators/"><u>[New] The Insider's Look at Facebook Sharing for YouTube Creators</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-video-bite-by-celeb-on-vimeo/"><u>[Updated] 2024 Approved Video Bite by Celeb on Vimeo</u></a></li>
+<li><a href="https://article-helps.techidaily.com/achieving-smooth-volume-decreases-using-lumafusion-for-2024/"><u>Achieving Smooth Volume Decreases Using Lumafusion for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-furry-friends-watcher-reviews/"><u>Affordable Furry Friends Watcher Reviews</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-honor-x9a-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Honor X9a? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/beyond-firetv-exploring-the-superior-features-of-the-newly-released-chromecast-with-google-tv/"><u>Beyond FireTV - Exploring the Superior Features of the Newly Released Chromecast with Google TV</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/canons-vintage-design-up-to-date-technology-the-g9x-mark-ii/"><u>Canon's Vintage Design, Up-to-Date Technology – The G9X Mark II</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/chromecast-with-google-tv-review-move-over-firetv/"><u>Chromecast with Google TV Review: Move Over FireTV</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-overview-the-robust-performance-of-halo-bolts-portable-chargerjump-starter-evaluated/"><u>Expert Overview: The Robust Performance of Halo Bolt's Portable Charger/Jump Starter Evaluated</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigate-through-the-wilds-in-monster-hunter-world-a-review-of-vanquishing-unique-threats/"><u>Navigate Through the Wilds in Monster Hunter: World – A Review of Vanquishing Unique Threats</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/navigating-the-electrification-wave-exploring-how-electric-motorcycles-function/"><u>Navigating the Electrification Wave: Exploring How Electric Motorcycles Function</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-best-dvd-to-digital-format-converters/"><u>New Best DVD to Digital Format Converters</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-no-watermark-no-cost-top-10-online-video-editors-for-2024/"><u>New No Watermark, No Cost Top 10 Online Video Editors for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-leading-runners-watches/"><u>Ultimate Guide: Leading Runner's Watches</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-choose-pro-on-linkedin-heres-why/"><u>Why Choose Pro on LinkedIn? Here's Why</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Midland LXT500VP3 Handheld Radios: An Insightful Review on a Product with Many Features but Poor Performance"
-date: 2024-10-29T20:05:13.400Z
-updated: 2024-10-31T02:28:17.855Z
+date: 2024-11-03T20:27:40.263Z
+updated: 2024-11-05T19:57:33.619Z
 categories:
   - BestProducts
 description: "This Article Describes Midland LXT500VP3 Handheld Radios: An Insightful Review on a Product with Many Features but Poor Performance"
@@ -44,16 +44,16 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -97,10 +97,10 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Plenty of power for all your needs**
@@ -110,6 +110,13 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  Charging a phone with a jump starter seems like overkill, and the unit’s ability to charge at 1,200mAh confirms that impression. At such an elevated level of charging your phone or other device will likely get its battery topped off in very little time. With 18,000mAh of capacity you can fully charge a modern phone at least twice, and still leave the unit with the juice it needs in order to start a car.
 
  Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
@@ -126,10 +133,10 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  At that price point, it packs a ton of value into its diminutive size.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
@@ -147,13 +154,6 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 **For the price, it's perfect.**
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -186,22 +186,19 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-5-amazing-free-youtube-intro-makers-ranked/"><u>[New] 2024 Approved 5 Amazing Free YouTube Intro Makers Ranked</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-how-many-movies-fit-in-128gb-memory/"><u>[New] How Many Movies Fit in 128GB Memory</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-10-viral-tweets-dominating-social-media/"><u>[Updated] 2024 Approved 10 Viral Tweets Dominating Social Media</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-increase-length-of-your-youtube-production/"><u>[Updated] Increase Length of Your YouTube Production</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/answers-you-need-the-comprehensive-echo-dot-vs-homepod-mini-face-off/"><u>Answers You Need: The Comprehensive Echo Dot Vs. HomePod Mini Face-Off</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-the-ultimate-guide-to-the-onetastic-add-in-for-microsoft-onenote/"><u>Comprehensive Analysis: The Ultimate Guide to the Onetastic Add-In for Microsoft OneNote</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/ejemplo-claro-y-efectivo-sobre-como-transferir-dvds-sin-perdida-de-calidad-usando-un-mac-big-sur/"><u>Ejemplo Claro Y Efectivo Sobre Cómo Transferir DVDs Sin Pérdida De Calidad Usando Un Mac Big Sur</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/freestyle2-blue-on-macs-a-must-have-application-for-apple-fans-revealed-in-our-detailed-review/"><u>Freestyle2 Blue on Macs: A Must-Have Application for Apple Fans, Revealed in Our Detailed Review</u></a></li>
-<li><a href="https://win11.techidaily.com/how-to-add-a-visual-disk-space-analyzer-tool-to-the-context-menu-in-windows-11-and-11/"><u>How to Add a Visual Disk Space Analyzer Tool to the Context Menu in Windows 11 & 11</u></a></li>
-<li><a href="https://win11.techidaily.com/how-to-ditch-input-lag-top-fixes-for-faster-typing-on-microsoft-os/"><u>How to Ditch Input Lag: Top Fixes for Faster Typing on Microsoft OS</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-samsung-galaxy-m14-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Samsung Galaxy M14 5G FRP Bypass</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-samsung-galaxy-s20-fe-your-go-to-choice-for-5g-excellence/"><u>In-Depth Look at the Samsung Galaxy S20 FE - Your Go-To Choice for 5G Excellence</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mmock-1000a-car-revitalizer-analysis-a-deep-dive-into-an-exceptional-18000mah-charger/"><u>MMOCK 1000A Car Revitalizer Analysis - A Deep Dive Into an Exceptional 18000mAh Charger</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/swift-solution-to-lidadll-glitch/"><u>Swift Solution to Lida.dll Glitch</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-connectivity-game-changer-4-compelling-starlink-perks/"><u>The Ultimate Connectivity Game-Changer? 4 Compelling Starlink Perks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-rechargeable-battery-chargers-in-2marketing-course2024/"><u>Top Rated Rechargeable Battery Chargers in 2#Marketing-Course_2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlock-affordable-entertainment-with-karaoke-usa-less-than-150-for-endless-singing-joy/"><u>Unlock Affordable Entertainment with Karaoke USA: Less Than $150 for Endless Singing Joy!</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-ultimate-guide-to-self-validation-on-social-media/"><u>[New] The Ultimate Guide to Self-Validation on Social Media</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-from-content-creator-to-brand-ambassador-unlocking-instagram-sponsorship-for-2024/"><u>[Updated] From Content Creator to Brand Ambassador Unlocking Instagram Sponsorship for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-how-samsung-galaxy-watch-active-2-outshines-its-predecessor-with-superior-connectivity-and-smart-insight/"><u>Discover How Samsung Galaxy Watch Active 2 Outshines Its Predecessor with Superior Connectivity and Smart Insight</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/easy-steps-to-correct-ssleay32dll-error-a-user-friendly-tutorial/"><u>Easy Steps to Correct 'ssLeay32.dll' Error: A User-Friendly Tutorial</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-distinctive-edge-how-does-iphone-15-pro-max-outshine-samsung-s24-ultra/"><u>Exploring the Distinctive Edge: How Does iPhone 15 Pro Max Outshine Samsung S24 Ultra?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/get-rid-of-corrupt-excel-2007-file-by-stellar-guide/"><u>Get Rid of corrupt Excel 2007 File</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-did-the-wii-u-conquer-gaming-markets-worldwide/"><u>How Did the Wii U Conquer Gaming Markets Worldwide?</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-oppo-find-x6-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Oppo Find X6 Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-craft-the-perfect-livestream-on-youtube-and-twitch-with-obs/"><u>In 2024, Craft the Perfect Livestream on YouTube & Twitch with OBS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/on-location-assessing-functionality-and-efficiency-of-ampage-andes-1500-portable-power-supply/"><u>On Location: Assessing Functionality & Efficiency of Ampage Andes 1500 Portable Power Supply</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-essentials-of-upgrading-to-ventura-os-x/"><u>The Essentials of Upgrading to Ventura OS X</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/troubleshooting-and-solutions-to-hp-beats-audio-driver-conflicts-in-various-windows-versions/"><u>Troubleshooting and Solutions to HP Beats Audio Driver Conflicts in Various Windows Versions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-m-mock-1000a-the-supreme-18000mah-vehicle-booster-assessment/"><u>Ultimate Guide: M Mock 1000A - The Supreme 18000mAh Vehicle Booster Assessment</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unlock-the-secrets-to-slow-motion-your-guide-to-gopro-hero-10-mastery/"><u>Unlock the Secrets to Slow Motion Your Guide to GoPro Hero 10 Mastery</u></a></li>
 </ul></div>
 

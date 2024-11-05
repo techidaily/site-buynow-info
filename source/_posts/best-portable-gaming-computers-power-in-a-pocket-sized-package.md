@@ -1,7 +1,7 @@
 ---
 title: "Best Portable Gaming Computers: Power in a Pocket-Sized Package"
-date: 2024-09-09T14:00:13.421Z
-updated: 2024-09-10T14:00:13.421Z
+date: 2024-11-01T18:53:55.947Z
+updated: 2024-11-05T19:06:02.060Z
 categories:
   - BestProducts
 description: "This Article Describes Best Portable Gaming Computers: Power in a Pocket-Sized Package"
@@ -13,22 +13,10 @@ thumbnail: https://thmb.techidaily.com/63eaa39ba6f901f19dd5d6107e02d0bfc04195c0f
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Microsoft Xbox Series S
 
 ![Xbox Series S](https://www.lifewire.com/thmb/AIM68phvq5X0vRf1yv3G8I9S2ic=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jeremy Laukkonen
 
  What We Like
@@ -53,9 +41,23 @@ Lifewire / Jeremy Laukkonen
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Microsoft Xbox Series S
 
 ![Xbox Series S](https://www.lifewire.com/thmb/wlG_GrSmQPVex-VRt3ap4hsTP-s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -82,29 +84,24 @@ Lifewire / Jeremy Laukkonen
 
  This console is remarkably compact and has a surprisingly low price point. Gamers looking for a[4K UHD in HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) experience will need to pay a premium for the Series X, but the Xbox Series S offers an enticing alternative if you’re looking to save some money or haven’t yet made the jump to 4K.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Sleek and compact**
 
  The Xbox Series S is small, and it's almost impossible to oversell that point. I had seen pictures and videos of the console and the spec sheet, but I was still surprised at how compact this thing was when I unboxed it. It's smaller than the Xbox One S, and Microsoft bills it as "our smallest Xbox ever." That's especially noteworthy since Microsoft and Sony went exceptionally big with their flagship consoles, the Series X and PlayStation 5.
 
 ![Xbox Series S](https://www.lifewire.com/thmb/3-mUIkkRYilM5F2tvCYMPXtW1Ew=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1-04d996bcdfbb489d84e8945e4c475713.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jeremy Laukkonen
 
  The overall form factor of the Series S is similar to the Xbox One S, but the Series S lacks an optical drive and includes a massive circular vent on one side. This striking design choice has drawn comparisons to a speaker and a washing machine. It also bears a passing resemblance to Microsoft’s[adaptive controller](https://www.lifewire.com/what-is-the-xbox-adaptive-controller-4707753) , which is boxy, white, and features two large black circular pads. This aesthetic might not be for everyone, but I like how it stands next to my television.
 
  Aside from the bold vent grill, the Series S doesn’t break any new ground regarding design choices. It has sturdy rubber feet on two sides, so you can lay it flat or stand it up on end, as has become more or less standard with home consoles. It feels pretty sturdy in both positions.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Easier than ever before**
 
@@ -115,6 +112,13 @@ Lifewire / Jeremy Laukkonen
  I highly recommend setting up the Xbox Series S with the help of the Xbox app. It massively streamlines the process, makes it easier to connect to Wi-Fi since you don’t need to type out your password with the Xbox’s on-screen keyboard, and even pre-loads the Series S with settings from your old Xbox One if you had one.
 
  I ended up wiping the console back to factory settings a few times while I put it through its paces, so I also tried the traditional setup method after circling back. It’s similar to setting up an Xbox One; not that difficult or time-consuming, but the app option is better.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Rock solid 1440p gaming**
 
@@ -138,18 +142,6 @@ Lifewire / Jeremy Laukkonen
 
  Load times were negligible in each game I played, which I expected from a super-fast NVME SSD storage system. Some games had more noticeable load times than others, but not enough to disrupt gameplay.
 
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Games: Microsoft still has an exclusivity problem**
 
  You won't have any shortage of games to play on the Xbox Series S, especially if you're a[Game Pass](https://www.lifewire.com/xbox-game-pass-4178809) subscriber. I predicted that the Series S would be the ultimate Game Pass machine at release, and that prediction has borne fruit in my home, at least.
@@ -166,12 +158,6 @@ Lifewire / Jeremy Laukkonen
 
  Microsoft's $7.5B purchase of Bethesda's parent company, Zenimax, brought some hope of additional exclusives appearing in Microsoft's arsenal. (Bethesda is the publisher of Fallout, DOOM, Dishonored, Skyrim, Wolfenstein, The Elder Scrolls, and more.) However, the situation is murky as the company has yet to clarify which (if any) Bethesda titles will be exclusive to Xbox.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Storage: Disappointingly shallow, so bring your USB drive**
 
  The biggest problem with the Xbox Series S is the lack of storage. Unlike the Series X, which packs in a 1TB drive, the Series S only offers 512GB of space. That's an extremely shallow pool to swim in when dealing with an all-digital console, as you have to download every game you play.
@@ -186,12 +172,6 @@ Lifewire / Jeremy Laukkonen
 
  So if you go with an external USB drive, you'll only be able to play Xbox One, Xbox 360, and original Xbox games stored on it.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Internet Connectivity: Fast when wired, but Wi-Fi is a mixed bag**
 
  With all those massive games and the fact that the Series S is a digital-only console, you will spend a lot of time downloading. The Series S has built-in Wi-Fi and an Ethernet port, so you have options, but a wired connection is the way to go here.
@@ -199,11 +179,12 @@ Lifewire / Jeremy Laukkonen
 ![Xbox Series S](https://www.lifewire.com/thmb/_GSxQvNgtJMhoyNl62qlg671Qvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2-25991056c5c2486695923f7c1b61c7b5.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
  When downloading over Wi-Fi, I rarely saw over 150Mbps (compared to the 350Mbps I measured on my HP Spectre x360 laptop in the same room and at the same time). Curiously, the Series S download speed tanked, down to the lower double digits, while I was running speed tests on my laptop. Similarly, download speeds dive into the low teens whenever a game runs, even in the background.
@@ -212,18 +193,25 @@ Lifewire / Jeremy Laukkonen
 
  The bottom line is that the Series S provided fairly unimpressive download speeds over Wi-Fi but tore it up when connected via Ethernet. You’ll want to connect this all-digital console via Ethernet to a fast internet connection.
 
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software and User Interface: Familiar and cozy**
 
  Microsoft isn’t looking to rock the boat with the Xbox Series X|S in terms of the user interface. If you’ve used an Xbox One, you’ll find the Xbox Series X|S user interface strangely familiar. The dashboard looks almost the same, and the guide functions as expected. There are a few upgrades and changes here and there, but this is nothing like the massive change between the Xbox 360 dashboard and the Xbox One dashboard.
 
  An overhaul of the dashboard is currently in the works, and we expect it to arrive in 2023.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Controller: Iteration more than innovation**
 
  The Xbox Series X|S controller is a pleasant surprise, as Microsoft also chose to stick with a winning formula. The original Xbox One controller was well-received, and its minor facelift with the release of the Xbox One made it even better. Microsoft took that design for the Xbox Series X|S and tweaked it ever so slightly.
@@ -266,18 +254,6 @@ Lifewire / Jeremy Laukkonen
 
  The Xbox Series S might be a bit of a step back from the Xbox One X in performance, but the fact is that it’s a next-gen console that plays next-gen games with some impressive hardware and an unreal price tag. Gamers in search of the best graphics possible will want to look at the Xbox Series X instead, but gamers who haven’t yet made the 4K plunge, parents in need of an affordable console for their kids, or anyone looking to save money will all find something to like here.
 
-<!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 [Xbox Series X Review](https://www.lifewire.com/microsoft-xbox-series-x-review-one-power-packed-4k-console-5088039)
@@ -311,8 +287,6 @@ Lifewire / Jeremy Laukkonen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -320,4 +294,24 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-step-by-step-to-youtube-fame-excellence-in-music-video-reactions/"><u>[Updated] 2024 Approved Step-by-Step to YouTube Fame Excellence in Music Video Reactions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-craft-the-perfect-stream-a-comprehensive-guide-to-youtubes-full-rotation-videos/"><u>[Updated] Craft the Perfect Stream A Comprehensive Guide to YouTube’s Full-Rotation Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-file-transportation-hacks-efficient-ways-to-upload-on-pc/"><u>[Updated] In 2024, File Transportation Hacks Efficient Ways to Upload on PC</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-share-tunes-mp3-from-fb/"><u>[Updated] In 2024, Share Tunes MP3 From FB</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/alienware-aurora-r7-unveiled-reviewing-its-performance-and-value-proposition/"><u>Alienware Aurora R7 Unveiled: Reviewing Its Performance and Value Proposition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-netgear-orbi-rbs50y-backyard-wireless-network-evaluation/"><u>Comprehensive Netgear Orbi RBS50Y Backyard Wireless Network Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-evaluation-of-netgears-powerline-adapter-pl1200-aesthetics-vs-performance/"><u>Expert Evaluation of Netgear's Powerline Adapter (PL1200): Aesthetics Vs. Performance</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/get-the-glamour-swipes-masterful-tinder-profile-secrets-revealed-for-2024/"><u>Get the Glamour Swipes - Masterful Tinder Profile Secrets Revealed for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-the-art-of-film-capturing-essential-camera-movements-for-novices/"><u>In 2024, The Art of Film Capturing Essential Camera Movements for Novices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-kindle-experience-tips-and-tricks/"><u>Navigating the Kindle Experience: Tips & Tricks</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/optimal-online-sound-snatching-for-2024/"><u>Optimal Online Sound Snatching for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sound-system-purchasing-dont-miss-these-5-factors/"><u>Sound System Purchasing - Don't Miss These 5 Factors</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/outubers-overture-orchestrating-video-triumphs-for-2024/"><u>The YouTuber’s Overture Orchestrating Video Triumphs for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tp-link-deco-p9-review/"><u>TP-Link Deco P9 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/understanding-5-speaker-selection-criteria/"><u>Understanding 5 Speaker Selection Criteria</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/upcoming-changes-will-microsoft-implement-pricing-on-windows-10-update-subscriptions-from-next-year-onwards/"><u>Upcoming Changes: Will Microsoft Implement Pricing on Windows 10 Update Subscriptions From Next Year Onwards?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/x-chair-x4-executive-chair-evaluation-the-top-pick-for-professional-offices/"><u>X-Chair X4 Executive Chair Evaluation: The Top Pick for Professional Offices</u></a></li>
+</ul></div>
 

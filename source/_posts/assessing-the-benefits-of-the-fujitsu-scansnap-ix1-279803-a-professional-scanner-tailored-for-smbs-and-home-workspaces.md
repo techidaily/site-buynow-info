@@ -1,7 +1,7 @@
 ---
 title: Assessing the Benefits of the Fujitsu ScanSnap iX1 279803, A Professional Scanner Tailored for SMBs & Home Workspaces
-date: 2024-09-09T14:00:14.526Z
-updated: 2024-09-10T14:00:14.526Z
+date: 2024-11-03T16:58:43.248Z
+updated: 2024-11-05T19:29:44.413Z
 categories:
   - BestProducts
 description: This Article Describes Assessing the Benefits of the Fujitsu ScanSnap iX1 279803, A Professional Scanner Tailored for SMBs & Home Workspaces
@@ -13,22 +13,10 @@ thumbnail: https://www.lifewire.com/thmb/WLFZapNTElxZLcJIFODWJZyXOBA=/400x300/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Pioneer BDR-XD05B Blu-ray Burner
 
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/criWlDbpC_WTmf9GyQYLoo2NOvM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_HeroSquare-7488fe2dd07248ca99020859f82cefaf.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Scott Gercken
 
  What We Like
@@ -50,12 +38,6 @@ Lifewire / Scott Gercken
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Pioneer BDR-XD05B Blu-ray Burner
 
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/nC_G9Nr8iQMb-lVdoUhQTXWP5lo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_HeroSquare-7488fe2dd07248ca99020859f82cefaf.jpg)
@@ -85,12 +67,6 @@ Lifewire / Scott Gercken
 
  Check out our buyers guide for more information on what you should look for in an optical drive.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Feels a little flimsy**
 
  The Pioneer BDR-XD05B[Blu-ray Burner](https://www.lifewire.com/best-desktop-blu-ray-drives-832423) is a sleek, small black drive. It’s a tiny 5.12” square by .5” tall with a black cover and a metal bottom. The clamshell case opens to 65 degrees, so it’s easy to slide a disc onto the spindle. The button to open the clamshell is on the front left of the drive, and there’s a blue LED indicator that lights up when the drive is plugged into a power source. The drive comes with an unusually shaped USB cord, with a male micro-B USB 3.0 on one side and two USB A male ends on the other. One is designed to power the drive and one is for data transfer. The back of the drive has both a micro-B USB 3.0 port and a DC power port as a second option for powering it. The Pioneer BDR-XD05B Blu-ray Burner’s look is minimalist, black with just a small gray Blu-ray logo on the top.
@@ -105,6 +81,13 @@ Lifewire / Scott Gercken
 
  Lifewire / Scott Gercken
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Some baffling software issues**
 
  The setup process for the Pioneer BDR-XD05B is both really easy and frustrating. The easy part is that we only needed to plug the USB cord into the right slots to get it running on the Macbook we used to test it. The frustrating part is that the included software only works on Windows computers. A major producer like Pioneer only including PC software is very frustrating.
@@ -117,6 +100,13 @@ Lifewire / Scott Gercken
 
  Lifewire / Scott Gercken
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Good for an inexpensive Blu-ray burner**
 
  We did two tests to see check the burner’s performance. First, we ripped a 37GB Blu-ray copy of_Die Hard_ to check the burner’s read speed for a commercial Blu-ray. Using the program MakeMKV, it took 70 minutes to make a copy.
@@ -125,6 +115,13 @@ Lifewire / Scott Gercken
 
  Noise was never a problem with this drive. Auto Quiet mode adjusts media discs to a slower speed so it’s quieter, and with both data and movie discs we didn’t notice any noise loud enough to be a bother.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Image Quality: Don’t watch Blu-rays on this drive**
 
  We tested watching Blu-rays on the Pioneer BDR-XD05B on a Macbook Pro(it’s not designed to work with a TV). The image quality was ok, but it wasn’t close to what you’d get on a[HD TV](https://www.lifewire.com/best-tvs-to-buy-4061107) with a dedicated[Blu-ray player](https://www.lifewire.com/best-blu-ray-players-1846400) .
@@ -132,49 +129,33 @@ Lifewire / Scott Gercken
  We also connected the computer to an HD TV through the HDMI drive and didn’t get the 1080p we expected. Instead, the resolution was stuck at 726p and the image quality was terrible, worse than a DVD. The Blu-ray image was extremely noisy and filled with huge pixels. If you want to watch movies, don’t use this drive, except maybe to make yourself more appreciative of your Blu-ray player.
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Sound Quality: Seriously, don’t watch Blu-rays on this drive**
 
  We think that the best reason to watch a Blu-ray isn’t the sharp[HD image](https://www.lifewire.com/what-you-need-to-see-hd-1847338) but the depth of sound this format can produce. But you don’t get any of that when you watch a Blu-ray using the Pioneer BDR-XD05B, because you have to watch it on a computer with computer speakers. It didn’t get any better when we connected the computer to the TV via HDMI—the sound remained flat and muddy.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Software: Basic useful software**
 
  Like we wrote above, the included software was a mess to install, with windows popping up all over the place. The included software is called “CyberLink Media Suite 10.” It includes PowerDVD 14, Power2Go 8, and PowerDirector 14 LE. PowerDVD 14 is an app for playing Blu-rays and DVD’s on your[optical drive](https://www.lifewire.com/what-is-an-optical-disc-drive-2618157) . Power2Go 8 is a burning tool, and it has some system recovery tools, too. Powerdirector 14 LE is a movie editing app. All-in-all, this is a pretty useful, basic suite of software without anything that especially stands out. It gets the job done, and that’s what matters.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Good budget Blu-ray burner**
 
  With an MSRP of $100, the Pioneer BDR-XD05B is one of the least expensive Blu-ray burners on the market. You get what you pay for, though—that low price comes with slower read/write speeds and a flimsy design. Still, if you’re looking for a budget Blu-ray burner, this is a good one. If you’re a heavy user, look for something faster.
 
  With an MSRP of $100, The Pioneer BDR-XD05B is one of the least expensive Blu-ray burners on the market.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Performs well in this price range**
 
 **_MthsTec Slim External Blu-ray Drive_ :** Looks great at about the same price as the Pioneer BDR-XD05B, $119 MSRP, but there’s no website and no good information from the brand. It makes us wonder about customer service and quality. Try as we might, we couldn’t find any documentation about Blu-ray burning capabilities.
@@ -209,14 +190,11 @@ Lifewire / Scott Gercken
 * Warranty  1 year
 * Boxed dimensions  8.75 x 6.6 x 3.5 in.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -225,4 +203,19 @@ Lifewire / Scott Gercken
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-engaging-video-audiences-choosing-impactful-youtube-images/"><u>[New] 2024 Approved Engaging Video Audiences Choosing Impactful YouTube Images</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-top-tier-templates-for-zooid-introduction/"><u>[Updated] In 2024, Top-Tier Templates for Zooid Introduction</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-lg-360-degree-headset-review-next-gen-immersion/"><u>2024 Approved LG 360-Degree Headset Review - Next-Gen Immersion</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-tips-to-improve-zooms-facebook-live-functionality/"><u>2024 Approved Tips to Improve Zoom's Facebook Live Functionality</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/discover-the-ultimate-7-alternative-android-interfaces/"><u>Discover the Ultimate 7 Alternative Android Interfaces</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-your-digital-sketches-with-the-xp-pen-artist-16-pro-an-in-depth-analysis/"><u>Elevate Your Digital Sketches with the XP-Pen Artist 16 Pro: An In-Depth Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gold-standard-or-not-a-comprehensive-look-at-the-unmatched-quality-of-microsoft-flight-simulator-x/"><u>Gold Standard or Not? A Comprehensive Look at the Unmatched Quality of Microsoft Flight Simulator X</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-singing-alerts-crafting-and-configuring-customizable-sounds-and-ringtones-on-android/"><u>In 2024, Singing Alerts Crafting and Configuring Customizable Sounds & Ringtones on Android</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/romer-rechargeable-torch-reviewed-the-eco-conscious-way-to-illuminate-the-great-outdoors-with-style-and-strength/"><u>Romer Rechargeable Torch Reviewed: The Eco-Conscious Way to Illuminate the Great Outdoors with Style & Strength</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-sound-wings-under-20-new-beelc-41/"><u>The Best Sound Wings Under $20: New BeeLC-41</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/user-insights-on-google-duo-a-critical-review-for-seamless-conversations/"><u>User Insights on Google Duo: A Critical Review for Seamless Conversations</u></a></li>
+</ul></div>
 

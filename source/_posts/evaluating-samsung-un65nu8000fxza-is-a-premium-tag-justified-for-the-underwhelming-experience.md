@@ -1,7 +1,7 @@
 ---
 title: Evaluating Samsung UN65NU8000FXZA - Is a Premium Tag Justified for the Underwhelming Experience?
-date: 2024-10-23T23:24:11.774Z
-updated: 2024-10-30T23:50:24.255Z
+date: 2024-11-02T18:12:55.600Z
+updated: 2024-11-05T17:16:38.874Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating Samsung UN65NU8000FXZA - Is a Premium Tag Justified for the Underwhelming Experience?
@@ -42,23 +42,9 @@ Lifewire / Zach Sweat
 
 3.3
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Alienware Aurora R9
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/BiBvvSXCg5l15o1T-fJmijAM9PQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -95,10 +81,10 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Polarizing sci-fi aesthetics**
@@ -121,6 +107,13 @@ Lifewire / Zach Sweat
 
  Inside the case, Alienware has made the new R9 quite upgradeable, allowing owners to easily pull things apart for access to various components. Though it’s a bit cramped inside, the genius ability to swing the PSU (power supply unit) out to the side when the case is removed provides easier access to the motherboard and all its parts. While we’re a bit concerned with the airflow due to this tight fit inside the case, it does allow you to upgrade hardware down the line if you want.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Plug and play**
 
  Because this is a prebuilt, setting up your new PC is super simple—essentially plug and play. This is another hugely important thing to consider if you want to get into PC gaming, but don’t know the first thing about installing an OS, troubleshooting build issues or navigating the BIOS.
@@ -134,10 +127,10 @@ Lifewire / Zach Sweat
  From here, you can either fine tune your new PC’s looks within the settings menu or keep things as they are. If you’re using a monitor with a higher refresh rate or resolution, it’s also a good idea to ensure your PC is fully utilizing this by perusing the display settings and options. After all, nobody likes finding out they’ve been stuck on 60Hz with their display that’s capable of hitting 144Hz.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Results may vary**
@@ -157,13 +150,6 @@ Lifewire / Zach Sweat
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/zWvKnnWGsRBdtRIHTYYD7HEs0qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-13-88a6bd8dac13438794a0bb038df7757f.jpg)
 
  Lifewire / Zach Sweat
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Gaming: From ok to amazing, if you have the cash**
 
@@ -209,6 +195,13 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wMnVqt6RV24C1Vfncnf2J3E0fAg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-15-fe70fca5ffd04da6abd8c0ef8f026eef-f6d5eaf9efcb461a902fc750a192dd0c.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 ## **Software: Windows 10 with some bloatware and extras**
@@ -222,6 +215,13 @@ Lifewire / Zach Sweat
  With thermal control, you can monitor internal temperatures and adjust fans to their ideal ranges to help remove excess heat from the system while keeping fan volume down. If you’re someone who’s into overclocking, the Alienware Command Center also has an intuitive overclocking control module for squeezing extra performance from your system. Users can create their own profiles here and activate them on the fly.
 
  For RGB fans, the AlienFX hardware and software provides tons of potential combinations with up to 16.8 million color options. Users can take full control of the external RGB along the front and sides of the tower in addition to supported peripherals. Themes you create can also be saved and assigned to specific games, which is a pretty sweet perk.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Not the best bang for your buck**
 
@@ -281,24 +281,19 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-regular-are-youtube-monetization-payments/"><u>[New] 2024 Approved How Regular Are YouTube Monetization Payments?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-innovations-arena-top-titles-for-each-vr-headset/"><u>[New] Innovation's Arena Top Titles for Each VR Headset</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-8-free-instagram-to-mp4-converters-you-can-try-onlinewindowsmac/"><u>[Updated] 8 Free Instagram to MP4 Converters You Can Try [Online/Windows/Mac]</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-charting-the-differences-in-youtubes-ownership-and-cc-models/"><u>[Updated] Charting the Differences in YouTube's Ownership and CC Models</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-movies-that-spark-inner-strength-and-determination/"><u>[Updated] Movies That Spark Inner Strength & Determination</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-constructing-unique-instagram-story-panels/"><u>2024 Approved Constructing Unique Instagram Story Panels</u></a></li>
-<li><a href="https://win-able.techidaily.com/call-of-duty-black-ops-cold-war-freezing-problem-how-to-get-back-in-action-with-ease/"><u>Call of Duty: Black Ops Cold War Freezing Problem - How to Get Back in Action with Ease</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dominating-the-battlefield-how-alienwares-aurora-r11-ascends-to-become-the-ultimate-gaming-machine/"><u>Dominating the Battlefield: How Alienware's Aurora R11 Ascends to Become the Ultimate Gaming Machine</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/elevate-your-craft-the-best-premiere-pro-templates-2023/"><u>Elevate Your Craft The Best Premiere Pro Templates 2023</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-durability-and-joy-maisto-rc-rock-crawler-reviewed/"><u>Exploring the Durability and Joy: Maisto RC Rock Crawler Reviewed!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/halo-bolt-power-bankjump-starter-unveiled-a-comprehensive-product-evaluation/"><u>Halo Bolt Power Bank/Jump Starter Unveiled: A Comprehensive Product Evaluation</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-tecno-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Tecno</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/motorola-mg7700-unveiled-expert-evaluation-of-its-swift-reliability/"><u>Motorola MG7700 Unveiled: Expert Evaluation of Its Swift Reliability</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-price-for-quality-exploring-the-capabilities-of-the-fitbit-versa-lite-tracker/"><u>The Best Price for Quality: Exploring the Capabilities of the Fitbit Versa Lite Tracker</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-future-is-here-assessing-the-impact-of-a-new-cpu-on-the-latest-13-inch-apple-macbook-pro/"><u>The Future Is Here: Assessing the Impact of a New CPU on the Latest 13-Inch Apple MacBook Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-reliable-companion-on-your-drives-a-comprehensive-look-at-the-rexing-v1-dashcam/"><u>The Reliable Companion on Your Drives: A Comprehensive Look at the Rexing V1 Dashcam</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-upgrade-manual-for-intel-imac-owners-looking-to-boost-their-systems/"><u>The Ultimate Upgrade Manual for Intel iMac Owners Looking to Boost Their Systems</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-recover-deleted-photos-on-oppo-a1-5g-without-backup-by-fonelab-android-recover-photos/"><u>The way to recover deleted photos on Oppo A1 5G without backup.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-apple-airtag-assessment-ideal-device-for-iphone-enthusiasts/"><u>Top Apple AirTag Assessment: Ideal Device for iPhone Enthusiasts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-dissecting-and-ranking-cost-saving-clouds/"><u>[New] 2024 Approved Dissecting and Ranking Cost-Saving Clouds</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-cutting-edge-pc-editing-techniques-enhancing-your-youtube-presence-for-2024/"><u>[Updated] Cutting-Edge PC Editing Techniques Enhancing Your YouTube Presence for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-next-era-cinema-vrs-role-in-entertainment/"><u>2024 Approved Next Era Cinema VR's Role in Entertainment</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-save-time-money-on-passport-photos-with-our-free-generator-apps/"><u>2024 Approved Save Time, Money on Passport Photos with Our Free Generator Apps</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-benefits-apple-watchs-next-level-improvement/"><u>Assessing Benefits: Apple Watch's Next-Level Improvement?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-imo-top-features-and-performance/"><u>Comprehensive Analysis of Imo: Top Features and Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-ultimate-freedom-test-drive-the-revolutionary-ampacite-andes-1500-solar-generator/"><u>Experience the Ultimate Freedom: Test Drive the Revolutionary AmpaCite Andes 1500 Solar Generator</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-on-the-robust-and-efficient-kootek-computer-cooler-for-optimal-performance/"><u>Expert Review on the Robust and Efficient Kootek Computer Cooler for Optimal Performance</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/live-streaming-mastery-with-manycam-virtual-camera-solutions-and-features/"><u>Live Streaming Mastery with ManyCam: Virtual Camera Solutions and Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionize-your-virtual-sky-with-x-plane-11-a-comprehensive-look-at-its-next-gen-graphics-and-features/"><u>Revolutionize Your Virtual Sky with X-Plane 11 - A Comprehensive Look at Its Next-Gen Graphics & Features!</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-blueprint-for-lifelong-memories-storing-vintage-photos-digitally/"><u>The Blueprint for Lifelong Memories Storing Vintage Photos Digitally</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-race-rc-rock-crawler-review/"><u>Top Race RC Rock Crawler Review</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-superiority-of-djis-air-2s-drone-through-our-thorough-review/"><u>Unveiling The Superiority Of DJI's Air 2S Drone Through Our Thorough Review</u></a></li>
 </ul></div>
 

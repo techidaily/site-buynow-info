@@ -1,7 +1,7 @@
 ---
 title: The Pros and Cons of Using a CAT S42 Resilient Phone - Reliable Durability, Not So Much for Velocity
-date: 2024-10-25T04:18:42.044Z
-updated: 2024-10-30T16:23:27.639Z
+date: 2024-11-04T19:45:17.325Z
+updated: 2024-11-05T16:48:33.415Z
 categories:
   - BestProducts
 description: This Article Describes The Pros and Cons of Using a CAT S42 Resilient Phone - Reliable Durability, Not So Much for Velocity
@@ -49,10 +49,10 @@ thumbnail: https://www.lifewire.com/thmb/6-p5ewDjPncMceqeBCrB17zrpa8=/400x300/fi
 ![600A Peak 18000mAh Portable Car Jump Starter](https://www.lifewire.com/thmb/lCHc739SU7lyQkMIbG0aNWYsqy8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DBPower_JumpStarter_5LW4140286_HeroSquare-4defda07335a4d7bafb41bb20cacee2f.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
@@ -79,10 +79,10 @@ thumbnail: https://www.lifewire.com/thmb/6-p5ewDjPncMceqeBCrB17zrpa8=/400x300/fi
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: A rugged brick of power contained within its own nice case**
@@ -103,6 +103,13 @@ It's a breeze using the 600A to jump start a car.
 
  If it’s other devices that need power, you simply need to turn the unit on and then plug them into the appropriate port. For a laptop, that means you must pick the correct adapter, use the power button to switch the unit to the right power mode for your laptop, and plug it into the DC power port. For a phone or other USB device you pretty much just need to pick one of the two ports and plug in, though the smart port provides better amperage and faster charging.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Performance: Immediate power to get you back on the road**
 
  When it comes to its ability to provide power, the DBPOWER Portable Jump Starter doesn’t disappoint. It reliably started a 2011 Hyundai Elantra that had a battery depleted down to 10V with zero issues, multiple times. With as small as it is, we did have some (thankfully unfounded) concerns that the unit might slide down into the engine bay as soon as the engine started.
@@ -110,13 +117,6 @@ It's a breeze using the 600A to jump start a car.
  Lifewire / Tony Mitera
 
  Charging USB devices is not only simple but fast as well, with a sustained 1,200 mAh current. This level of charging will top off your devices in a hurry, and with 18,000 mAh capacity the unit should be able to charge a phone like the Samsung Galaxy S10 five times over. Be aware that if your phone uses a USB-C or Thunderbolt connection you’ll need to provide your own cable.
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Key Features: A decent flashlight and, oddly, a compass**
 
@@ -129,6 +129,13 @@ It packs a ton of value into its diminutive size.
  Speaking of which, one method of charging the device is through[your car’s 12V power port](https://www.lifewire.com/car-cigarette-lighter-12v-socket-534754) . This means that you can pop the hood on a car with a dead battery, get it jump started, and then use the running car to charge the jump starter as you drive to your next destination.
 
  Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: A low cost for such a feature-packed jump starter**
 
@@ -147,19 +154,6 @@ It packs a ton of value into its diminutive size.
 **A lot of features in a dependable package.**
 
  It’s worth looking at other jump starters to see what they offer, but the DBPOWER 600A Peak 18000mAh Portable Car Jump Starter does everything that it's designed for quite well, is reliable and durable, and comes in a semi-hard case that you can easily stash in just about any vehicle.
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -192,24 +186,24 @@ It packs a ton of value into its diminutive size.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-capture-android-the-ultimate-recorder-at-no-cost/"><u>[New] 2024 Approved Capture Android The Ultimate Recorder at No Cost</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-maximizing-gameplay-preservation-on-the-newest-windows-11-for-2024/"><u>[New] Maximizing Gameplay Preservation on the Newest Windows 11 for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-new-iphone-x-camera-features-you-need-to-know/"><u>[Updated] In 2024, New iPhone X Camera Features You Need to Know</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-ion-air-pro-3-review-unleashing-videography-potential/"><u>[Updated] ION Air Pro 3 Review Unleashing Videography Potential</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evolving-streaming-service-how-netflix-is-phasing-out-its-entry-level-plan/"><u>Evolving Streaming Service: How Netflix Is Phasing Out Its Entry-Level Plan</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/fps-matters-in-mobile-filmmaking-is-30-or-60-fps-ideal-for-phone-videos/"><u>FPS Matters in Mobile Filmmaking: Is 30 or 60 FPS Ideal for Phone Videos?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/from-novices-to-enthusiasts-a-guide-to-making-everyone-love-video-games/"><u>From Novices to Enthusiasts: A Guide to Making Everyone Love Video Games</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/guide-saving-your-favorite-twitch-streams-by-downloading-past-broadcasts/"><u>Guide: Saving Your Favorite Twitch Streams by Downloading Past Broadcasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-does-amazon-music-prime-compare-with-amazon-music-unlimited-understanding-key-distinctions/"><u>How Does Amazon Music Prime Compare with Amazon Music Unlimited: Understanding Key Distinctions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-i-mastered-crafting-an-intricate-3d-printed-plane-and-what-others-are-doing-too/"><u>How I Mastered Crafting an Intricate 3D Printed Plane - And What Others Are Doing Too!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-to-adjust-video-playback-velocity-in-your-plex-media-player/"><u>How to Adjust Video Playback Velocity in Your Plex Media Player</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-samsung-galaxy-s24-ultra-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Samsung Galaxy S24 Ultra Devices</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/hp-laserjet-pro-mfp-m428fdw-printer-drivers-compatible-with-windows-7-10-and-11/"><u>HP LaserJet Pro MFP M428fdw Printer Drivers Compatible with Windows 7, 10 & 11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/hulu-disneyplus-and-espnplus-announce-price-jumps-for-subscribers-in-latest-update/"><u>Hulu, Disney+, and ESPN+ Announce Price Jumps for Subscribers in Latest Update</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-oppo-a78-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Oppo A78 FRP</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-realme-c67-4g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Realme C67 4G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/introducing-googles-innovative-smart-home-device-a-streaming-box-and-hub-combined/"><u>Introducing Google's Innovative Smart Home Device: A Streaming Box and Hub Combined</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/ultimate-guide-to-scoring-amazing-holiday-bargains-for-your-tech-wishlist-exclusive-offers-from-newegg/"><u>Ultimate Guide to Scoring Amazing Holiday Bargains for Your Tech Wishlist: Exclusive Offers From Newegg</u></a></li>
-<li><a href="https://techtrends.techidaily.com/winxvideo-ai-professionelles-video-und-bildoptimierungstool-fur-skalierung-stabilisierung-umwandlung-bearbeitung-and-videonutzung/"><u>WinxVideo AI: Professionelles Video- Und Bildoptimierungstool Für Skalierung, Stabilisierung, Umwandlung, Bearbeitung & Videonutzung</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-cost-free-webinar-software-for-recording-sessions-for-2024/"><u>[New] Cost-Free Webinar Software for Recording Sessions for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-unlock-image-potential-with-editors-essentials/"><u>[Updated] In 2024, Unlock Image Potential with Editor's Essentials</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-on-the-cutting-edge-features-of-apples-latest-iphone-model/"><u>Expert Review on the Cutting-Edge Features of Apple's Latest iPhone Model</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-is-the-ring-video-doorbell-pro-your-ideal-smart-surveillance-solution/"><u>Expert Review: Is the Ring Video Doorbell Pro Your Ideal Smart Surveillance Solution?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-how-the-microsoft-surface-laptop-n4-sets-a-new-benchmark-in-computing/"><u>Explore How the Microsoft Surface Laptop N°4 Sets a New Benchmark in Computing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gamers-choice-of-iphones-decoding-the-best-devices/"><u>Gamers' Choice of iPhones: Decoding the Best Devices</u></a></li>
+<li><a href="https://fox-search.techidaily.com/guida-passo-passo-come-esegui-il-backup-di-un-file-pst-in-microsoft-office-365/"><u>Guida Passo-Passo: Come Esegui Il Backup Di Un File PST in Microsoft Office 365</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Vivo T2 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-blueprint-to-climbing-your-way-up-in-youtube-ranks/"><u>In 2024, The Blueprint to Climbing Your Way Up in YouTube Ranks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/prime-day-bonanza-find-your-dream-samsung-device-at-unprecedented-prices/"><u>Prime Day Bonanza: Find Your Dream Samsung Device at Unprecedented Prices</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/quick-solutions-for-a-speedy-shutdown-on-your-windows-10-pc/"><u>Quick Solutions for a Speedy Shutdown on Your Windows 10 PC</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/screen-guards-protect-your-device-capture-better-for-2024/"><u>Screen Guards Protect Your Device, Capture Better for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/social-savvy-how-to-save-gifs-for-iphoneandroid-use/"><u>Social Savvy How to Save GIFs for iPhone/Android Use</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-netgear-ex3700-wifi-range-extender-ac750-features-performance-and-more/"><u>The Ultimate Guide to the Netgear EX3700 WIFI Range Extender (AC750): Features, Performance and More</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-pokemon-go-strategy-tips-and-tricks-for-trainers/"><u>The Ultimate Pokémon Go Strategy: Tips & Tricks for Trainers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-all-in-one-charging-experience-with-omnicharges-omni-c20-power-bank-and-qi-wireless-technology/"><u>The Ultimate Review: All-in-One Charging Experience with Omnicharge's Omni C20 Power Bank and Qi Wireless Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-apple-iphone-12-pro-max-when-size-matters-in-smartphones/"><u>The Ultimate Verdict on Apple iPhone 12 Pro Max: When Size Matters in Smartphones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-value-an-in-depth-review-of-the-affordable-ipad-air-4/"><u>Unlocking Value: An In-Depth Review of the Affordable iPad Air 4</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-top-3-upcoming-ai-enhancements-for-copilot-equipped-desktops-why-your-macbook-is-falling-behind/"><u>Unveiling Top 3 Upcoming AI Enhancements for Copilot-Equipped Desktops: Why Your MacBook Is Falling Behind!</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The All-New Dell XPS 13 (7390): A Flexible, Elegant Ultrabook That Redefines Portability"
-date: 2024-10-24T23:24:50.522Z
-updated: 2024-10-31T02:56:06.127Z
+date: 2024-10-30T19:17:20.395Z
+updated: 2024-11-05T19:03:42.873Z
 categories:
   - BestProducts
 description: "This Article Describes The All-New Dell XPS 13 (7390): A Flexible, Elegant Ultrabook That Redefines Portability"
@@ -45,13 +45,6 @@ Lifewire / Jeffrey Daniel Chadwick
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -97,6 +90,13 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: T-minus one minute**
 
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
@@ -104,10 +104,10 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
@@ -131,6 +131,17 @@ Lifewire / Jeffrey Daniel Chadwick
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
 <!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## **Price: A decent buy considering its versatility**
+
+ The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
+
+<!-- affiliate ads begin -->
 <span id="1983446">
 					<video width="576" height="240" style="cursor:pointer"
            poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
@@ -142,10 +153,6 @@ Lifewire / Jeffrey Daniel Chadwick
 </span>
 <img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-## **Price: A decent buy considering its versatility**
-
- The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
@@ -160,13 +167,6 @@ Lifewire / Jeffrey Daniel Chadwick
  **A portable tire inflator that can work well in a car or at home.**
 
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -193,19 +193,22 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-streamlining-the-timestamp-process-for-youtubers/"><u>[New] 2024 Approved Streamlining the Timestamp Process for YouTubers</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-screen-grab-mastery-for-windows-users-3-techniques-for-2024/"><u>[New] Screen Grab Mastery for Windows Users (3 Techniques) for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-decoding-the-core-contrasts-between-youtube-and-dailymention/"><u>[Updated] Decoding the Core Contrasts Between YouTube and DailyMention</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-compact-guide-to-macs-screen-recording-shortcuts/"><u>[Updated] In 2024, Compact Guide to Mac's Screen Recording Shortcuts</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-photo-perfection-at-your-fingertips-top-10-stickers-on-iphones-and-androids-for-2024/"><u>[Updated] Photo Perfection at Your Fingertips Top 10 Stickers on iPhones & Androids for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/explore-the-best-places-to-buy-televisions-online-our-top-picks-revealed/"><u>Explore the Best Places to Buy Televisions Online: Our Top Picks Revealed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/get-on-the-move-with-mods-simplified-sidecar-electric-bicycle/"><u>Get on the Move with Mod's Simplified Sidecar Electric Bicycle</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/how-to-handle-previewed-activities-on-facebook/"><u>How to Handle Previewed Activities on Facebook</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-vonage-holding-strong-as-a-leading-choice-in-the-world-of-voip-services/"><u>Is Vonage Holding Strong as a Leading Choice in the World of VoIP Services?</u></a></li>
-<li><a href="https://techtrends.techidaily.com/overcoming-connectivity-hurdles-authenticating-your-android-device-on-wi-fi-networks/"><u>Overcoming Connectivity Hurdles: Authenticating Your Android Device on Wi-Fi Networks</u></a></li>
-<li><a href="https://fox-http.techidaily.com/system-evolution-unlocked-a-comprehensive-improvement-pathway-for-2024/"><u>System Evolution Unlocked A Comprehensive Improvement Pathway for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-dual-nature-of-google-pixel-5-a-closer-look-at-its-modest-strength-and-flagship-advantages/"><u>The Dual Nature of Google Pixel 5: A Closer Look at Its Modest Strength and Flagship Advantages</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-most-advanced-mesh-network-systems-of-202n4-for-home-and-office-use/"><u>Unveiling the Most Advanced Mesh Network Systems of 202N4 for Home and Office Use</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/user-testimonials-and-expert-opinions-on-the-superior-comfort-of-microsoft-surface-keyboards/"><u>User Testimonials & Expert Opinions on the Superior Comfort of Microsoft Surface Keyboards</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apex-sleep-gadgets-your-key-to-effortless-relaxation-at-night/"><u>Apex Sleep Gadgets: Your Key to Effortless Relaxation at Night</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-huawei-nova-y91-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Huawei Nova Y91</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/beyond-vlc-a-comprehensive-look-at-streaming-software/"><u>Beyond VLC A Comprehensive Look at Streaming Software</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-ultimate-pc-sound-solutions-elite-card-picks-for-2eby2024/"><u>Discover the Ultimate PC Sound Solutions: Elite Card Picks for 2Eby2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-features-and-performance-of-garmins-gpsmap-64st-device/"><u>Exploring the Features and Performance of Garmin's GPSMAP 64St Device</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-from-shopping-spree-to-stardom-editing-your-haul-video/"><u>In 2024, From Shopping Spree to Stardom Editing Your Haul Video</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-midland-lxt500vp3-radio-a-comprehensive-guide-to-its-features-and-performance/"><u>In-Depth Analysis of Midland LXT500VP3 Radio: A Comprehensive Guide to Its Features and Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-watch-active-the-ultimate-guide-to-a-healthier-lifestyle/"><u>In-Depth Analysis of the Samsung Galaxy Watch Active: The Ultimate Guide to a Healthier Lifestyle</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/leading-water-proof-phones-shields-top-picks/"><u>Leading Water-Proof Phones Shields: Top Picks</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-honor-v-purse-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Honor V Purse – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solution-guide-how-to-stop-diablo-ii-resurrected-from-crashing/"><u>Solution Guide: How To Stop Diablo II Resurrected From Crashing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sonos-nomad-test-high-quality-audio-mobility/"><u>Sonos Nomad Test: High-Quality Audio Mobility</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-best-smartphone-camera-accessories-for-vloggers-for-2024/"><u>The 9 Best Smartphone Camera Accessories for Vloggers for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-guide-intel-device-manager-not-responding-correctly/"><u>Troubleshooting Guide: Intel Device Manager Not Responding Correctly</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-latest-compact-laptop-charger-brands/"><u>Ultimate Guide to the Latest Compact Laptop Charger Brands</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-leading-smart-spectacles-of-2024/"><u>Ultimate Guide to the Leading Smart Spectacles of 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-benefits-of-the-sumind-bt70b-bluetooth-adapter-a-perfect-match-for-car-connectivity-needs/"><u>Unveiling The Benefits Of The Sumind BT70B Bluetooth Adapter - A Perfect Match for Car Connectivity Needs</u></a></li>
 </ul></div>
 

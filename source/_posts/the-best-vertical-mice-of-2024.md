@@ -1,7 +1,7 @@
 ---
 title: The Best Vertical Mice of 2024
-date: 2024-09-09T14:00:12.461Z
-updated: 2024-09-10T14:00:12.461Z
+date: 2024-10-30T20:34:53.745Z
+updated: 2024-11-05T16:38:22.599Z
 categories:
   - BestProducts
 description: This Article Describes The Best Vertical Mice of 2024
@@ -37,12 +37,6 @@ thumbnail: https://www.lifewire.com/thmb/ioL8F-cFZKDYYRvWMdxK3t9HP5I=/400x300/fi
 
 [Jump to Review](https://www.lifewire.com/#toc-easiest-on-the-budget-nintendo-switch-lite)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Just Buy This (All Around Best)
 
 [Sony PlayStation 5 Slim](https://www.amazon.com/dp/B0CL5KNB9M?tag=lifewire-onsite-prod-20&ascsubtag=4154610%7Cnbb55c893b84e43b6a51559b2a372e81214%7CB0CL5KNB9M)
@@ -52,6 +46,13 @@ thumbnail: https://www.lifewire.com/thmb/ioL8F-cFZKDYYRvWMdxK3t9HP5I=/400x300/fi
 PHOTO: Amazon
 
 [$449 at Amazon](https://www.amazon.com/dp/B0CL5KNB9M?tag=lifewire-onsite-prod-20&ascsubtag=4154610%7Cnbb55c893b84e43b6a51559b2a372e81214%7CB0CL5KNB9M) [$485 at Walmart](https://www.walmart.com/ip/Sony-PlayStation-5-PS5-Disc-Console-Slim/5113183756?slpfid=3) [$500 at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fsony-interactive-entertainment-playstation-5-slim-console-white%2F6566039.p%3FskuId%3D6566039)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Original
 
@@ -85,12 +86,6 @@ PHOTO: Target
 
 ![PS5 console.](https://www.lifewire.com/thmb/80aScf9GOpsaDFgCtwyW1NIE-P4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/PS5console-dfe325ecc3c84b12bdd852ff79734330.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jennifer Allen
 
  The games are varied, with something for everyone here. There are some great exclusives, with my particular highlights including God of War: Ragnarok and The Last of Us series.
@@ -117,12 +112,6 @@ Lifewire / Jennifer Allen
 
 [PS5 Slim vs. PS5](https://www.lifewire.com/ps5-slim-vs-ps5-8643357)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Easiest on the Budget
 
 [Nintendo Switch Lite](https://www.walmart.com/ip/Nintendo-Switch-Lite-Console-Turquoise/306029956)
@@ -162,12 +151,6 @@ PHOTO: Walmart
 
 ![Nintendo Switch Lite gaming console.](https://www.lifewire.com/thmb/TmYyOgzBYexzwHM_D35w2XJF68c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NintendoSwitchLite1-33b6996f36534d1da9974a460e6c5139.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jennifer Allen
 
  That’s not to say that concessions aren’t made here. The Nintendo Switch Lite can’t be docked like its bigger sibling, missing out on one of the reasons why it’s called a Switch.
@@ -187,12 +170,26 @@ Lifewire / Jennifer Allen
 ![Nintendo Switch Lite gaming console.](https://www.lifewire.com/thmb/-TewO6N-lYMXj-K3swHO6-rKLQ4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NintendoSwitchLite2-f5ace5de5d674c3ba9edea76d30888d6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Lifewire / Jennifer Allen
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How We Test
 
@@ -257,17 +254,18 @@ Lifewire / Jennifer Allen
  For more advice,[read our gaming console buying guide](https://www.lifewire.com/before-you-buy-gaming-console-8654423) .
 
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Other Consoles We Considered
 
 * The[Nintendo Switch OLED](https://www.amazon.com/Nintendo-Switch-OLED-Model-Mario-Red/dp/B09NCMZNJK?tag=lifewire-onsite-prod-20&ascsubtag=4154610%7Cnbb55c893b84e43b6a51559b2a372e81214%7C) is the ultimate Nintendo Switch. It can be docked to your TV for big-screen entertainment with the family and played portably with a high-end OLED screen.
@@ -305,8 +303,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -314,4 +310,24 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/xpert-strategies-on-calculating-your-youtube-audience-impact-and-revenue/"><u>[New] Expert Strategies on Calculating Your YouTube Audience Impact and Revenue</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-portable-gaming-with-the-nintendo-switch-lite-an-in-depth-overview/"><u>Affordable Portable Gaming with the Nintendo Switch Lite: An In-Depth Overview</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-airtag-assessment-why-its-the-preferred-tracking-device-for-iphones/"><u>Apple AirTag Assessment: Why It's the Preferred Tracking Device for iPhones</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-vivo-s17e-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Vivo S17e? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/capturing-time-slowly-tips-for-slow-motion-videos-using-photos-apps/"><u>Capturing Time Slowly Tips for Slow-Motion Videos Using Photos Apps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/clear-shots-for-youtube-filmmakers/"><u>Clear Shots for YouTube Filmmakers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-netgear-nighthawk-x6-wi-fi-range-extender-a-game-changer-in-connectivity/"><u>Comprehensive Review of the Netgear Nighthawk X6 Wi-Fi Range Extender: A Game Changer in Connectivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exceptional-performance-with-the-kootek-cooling-station-for-computers/"><u>Exceptional Performance with the Kootek Cooling Station for Computers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/grab-the-best-offers-of-2021-trubit-speakers-and-earbuds-during-prime-day/"><u>Grab the Best Offers of 2021: Trubit Speakers and Earbuds During Prime Day</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-3-straightforward-methods-to-fine-tune-shades/"><u>In 2024, 3 Straightforward Methods to Fine-Tune Shades</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-realme-12-5g-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Realme 12 5G to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-thriving-thumbnails-the-20-most-recommended-youtube-fonts/"><u>In 2024, Thriving Thumbnails The 20 Most Recommended YouTube Fonts</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/photoshop-stabilization-technique-utility-perspective/"><u>Photoshop Stabilization Technique Utility Perspective</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/premier-digital-canvases-of-the-year-2024-rankings-revealed/"><u>Premier Digital Canvases of the Year: 2024 Rankings Revealed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/subscribe-to-elevate-6-superior-perks-of-youtube-premium/"><u>Subscribe to Elevate: 6 Superior Perks of YouTube Premium</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/understanding-and-fixing-syntax-problems-in-your-android-codebase-with-simple-solutions/"><u>Understanding & Fixing Syntax Problems in Your Android Codebase with Simple Solutions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unleash-lightning-fast-media-experience-with-our-comprehensive-look-at-the-fire-tv-cube/"><u>Unleash Lightning-Fast Media Experience with Our Comprehensive Look at the Fire TV Cube</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Holy Stone HS170: A Cost-Effective Gateway to Aerial Adventure - Thorough Review"
-date: 2024-10-29T16:40:40.847Z
-updated: 2024-10-30T21:35:34.902Z
+date: 2024-11-03T16:25:32.864Z
+updated: 2024-11-05T16:07:02.905Z
 categories:
   - BestProducts
 description: "This Article Describes The Holy Stone HS170: A Cost-Effective Gateway to Aerial Adventure - Thorough Review"
@@ -100,13 +100,26 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7502vZ1Vh2D4nRux6hEnq4BL3Rk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-5-2fb7aa309cc54dd79c07bd799ef7fe84.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Hit the switch**
@@ -136,6 +149,13 @@ Lifewire / Zach Sweat
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/kQx9K3tATPBWAMgyJJymqBqYPao=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-3-7349fa7d79f34dbaa50c25cb59aec820.jpg)
 
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Decent for mobile gaming, but no FHD**
 
@@ -173,6 +193,13 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/KxMaFgooi4rm3qbImmLKatuUtVI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-4-ef84dbbbde3d48ff97515e5c6b9981a4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 ## **Software: Still a bit drab, but smooth and snappy**
@@ -193,13 +220,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery Life: Slightly better, but not the best**
 
  Battery life on the original Switch was just okay, to put it lightly, but typically you were lucky to get anything over 3 hours of screen time with most titles. It eventually received a bigger battery in a minor hardware revision, which helped. The Switch Lite has a slightly smaller battery than the revised Switch but also has lower power needs due to its small screen.
@@ -214,6 +234,13 @@ Lifewire / Zach Sweat
 
  Lastly, the battery is internal, so you can't easily pop in a new one when it starts to degrade. While I haven't seen any degradation with mine, it'll happen at some point. When it does, sending it to Nintendo for repair is the only real option.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Inexpensive console gaming in your hands**
 
  It’s no surprise that since Nintendo removed many features from the Switch to create the Lite model, the price has also decreased considerably. The Switch is already at a pretty sweet price of $300, so how does the Lite stack up?
@@ -222,20 +249,13 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7XA6hgAK2B4hDSlWdmB8VQddrjw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-7-Comparison-44dcf88ec51247a2b0756445a3c7884d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Nintendo Switch Lite vs. Nintendo Switch**
@@ -258,13 +278,6 @@ Lifewire / Zach Sweat
 
  Despite being stripped of some of the Switch’s more unique features and strengths, the Switch Lite is a perfect console for gamers on the go or those who prefer handheld. It features an extensive library of exclusives that are perfect for a highly mobile system like Animal Crossing—and it’s hard to argue with the price.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 [Nintendo Switch Review](https://www.lifewire.com/nintendo-switch-review-4707563)
@@ -274,13 +287,6 @@ Lifewire / Zach Sweat
 [Xbox Series S Review](https://www.lifewire.com/xbox-series-s-review-5085770)
 
 [Sony PlayStation 5 Review](https://www.lifewire.com/sony-playstation-5-review-5088394)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -314,24 +320,24 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-tiktok-versus-youtube-shorts-assessing-personal-usage-value/"><u>[New] 2024 Approved TikTok versus YouTube Shorts Assessing Personal Usage Value</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-trick-automated-audiences-into-authentic-engagement/"><u>[Updated] Trick Automated Audiences Into Authentic Engagement</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/adjust-your-android-images-right-here-for-2024/"><u>Adjust Your Android Images Right Here for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-hearing-upgrade-the-activbuds-story/"><u>Affordable Hearing Upgrade: The ActivBuds Story</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/asus-rog-rapture-gt-ax110th-router-analysis-top-performance-for-gamers/"><u>Asus ROG Rapture GT-AX110^th Router Analysis - Top Performance for Gamers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cost-effective-apeman-c450-dash-cam-analysis-a-smart-choice-for-economical-shoppers/"><u>Cost-Effective Apeman C450 Dash Cam Analysis: A Smart Choice for Economical Shoppers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/critical-considerations-prior-to-acquiring-a-non-tethered-telecom-gadget/"><u>Critical Considerations Prior to Acquiring a Non-Tethered Telecom Gadget</u></a></li>
-<li><a href="https://fox-that.techidaily.com/detailed-evaluation-of-the-gaomon-pd1560-stylus-tablet/"><u>Detailed Evaluation of the Gaomon PD1560 Stylus Tablet</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/fiscal-friendly-fluffy-filmmakers-examination/"><u>Fiscal Friendly Fluffy Filmmakers Examination</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On ZTE Nubia Flip 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-the-transition-windows-10-home-to-pro-edition/"><u>Navigating the Transition: Windows 10 Home to Pro Edition</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/navigating-the-world-of-ifunny-memes/"><u>Navigating the World of iFunny Memes</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/pivot-point-shifting-your-onedrive-save-destination-on-pc/"><u>Pivot Point: Shifting Your OneDrive Save Destination on PC</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/rayman-legends-game-analysis-exceptional-2d-platforming-experience/"><u>Rayman Legends Game Analysis: Exceptional 2D Platforming Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/saving-pennies-securing-peace-of-mind-the-complete-analysis-of-the-practical-procase-macbook-pro-n-caseto-budget-sleeve-review/"><u>Saving Pennies, Securing Peace of Mind: The Complete Analysis of the Practical ProCase MacBook Pro N-Caseto-Budget Sleeve Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-lenovo-tab-m10-fhd-plus-2020-high-quality-budget-friendly-tablet-reviewed/"><u>The Ultimate Guide to the Lenovo Tab M10 FHD Plus (2020): High-Quality, Budget-Friendly Tablet Reviewed</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/transforming-your-home-workspace-with-the-ipad-pro-a-comprehensive-guide-tips-and-tricks/"><u>Transforming Your Home Workspace with the iPad Pro: A Comprehensive Guide - Tips and Tricks</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/understanding-ffpm-in-firefox-today-for-2024/"><u>Understanding FFPM in Firefox Today for 2024</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-here-are-10-best-webm-to-mp4-converters-on-the-market-that-you-can-use-to-convert-video-from-webm-to-mp4-format/"><u>Updated 2024 Approved Here Are 10 Best WebM to MP4 Converters on the Market that You Can Use to Convert Video From WebM to MP4 Format</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-discovering-the-secrets-of-asmr-media/"><u>[New] In 2024, Discovering the Secrets of ASMR Media</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-5-best-toy-drones/"><u>[Updated] In 2024, 5 Best Toy Drones</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-pioneering-youtube-success-stories-via-tubebuddy/"><u>[Updated] In 2024, Pioneering YouTube Success Stories via TubeBuddy</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/3-ways-to-unlock-your-apple-iphone-11-pro-max-for-free-by-drfone-ios/"><u>3 Ways to Unlock Your Apple iPhone 11 Pro Max for Free</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazfits-newest-gadget-the-helio-ring-what-to-know-about-price-launch-and-tech-features/"><u>Amazfit's Newest Gadget - The Helio Ring: What to Know About Price, Launch, and Tech Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/breakthrough-in-high-end-gaming-evaluating-the-design-and-capabilities-of-dells-alienware-aurora-r9/"><u>Breakthrough in High-End Gaming: Evaluating the Design & Capabilities of Dell's Alienware Aurora R9</u></a></li>
+<li><a href="https://fox-within.techidaily.com/convert-and-download-your-favorite-tracks-from-yandex-music-as-high-quality-audio-files-on-pc-or-mac/"><u>Convert and Download Your Favorite Tracks From Yandex Music as High-Quality Audio Files on PC or MAC</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-performance-the-ultimate-review-of-the-12mp-docooler-usb-camera-prototype/"><u>Decoding Performance: The Ultimate Review of the 12MP Docooler USB Camera Prototype</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exemplars-elevation-all-inclusive-stabilizer-review/"><u>Exemplar's Elevation: All-Inclusive Stabilizer Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-capabilities-of-the-apc-be600m1-reliable-battery-surge-protection-and-usb-charger-included/"><u>Explore the Capabilities of the APC BE600M1: Reliable Battery Surge Protection and USB Charger Included</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-fix-apple-iphone-13-mini-unavailable-issue-with-ease-drfone-by-drfone-ios/"><u>How To Fix Apple iPhone 13 mini Unavailable Issue With Ease | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-12-mini-apples-new-iphone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 12 mini, Apples New iPhone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-upgraded-samsung-galaxy-watch-active-2-extra-connections-and-intelligence/"><u>In-Depth Look at The Upgraded Samsung Galaxy Watch Active 2 - Extra Connections and Intelligence</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-oneplus-nord-ce-3-lite-5gfrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your OnePlus Nord CE 3 Lite 5GFRP Lock</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-intel-wi-fi-6-ax200-driver-installation-guide-for-windows-10-and-11-pcs/"><u>Latest Intel Wi-Fi 6 (AX200) Driver Installation Guide for Windows 10 and 11 PCs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/preparing-your-mac-for-a-flawless-catalina-upgrade/"><u>Preparing Your Mac for a Flawless Catalina Upgrade</u></a></li>
+<li><a href="https://media-tips.techidaily.com/top-funktionsreicher-kostenloser-mkv-player-auf-windows-nahtlose-wiedergabe-mit-einfachster-bedienung/"><u>Top Funktionsreicher Kostenloser MKV-Player Auf Windows - Nahtlose Wiedergabe Mit Einfachster Bedienung</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-amazon-basics-tablet-support-accessory-evaluation-portable-and-handy/"><u>Top-Rated Amazon Basics Tablet Support Accessory Evaluation – Portable and Handy!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/wireless-sound-showdown-airpods-pro-to-galaxy-buds-pro/"><u>Wireless Sound Showdown: AirPods Pro to Galaxy Buds Pro</u></a></li>
 </ul></div>
 

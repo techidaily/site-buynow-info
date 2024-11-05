@@ -1,7 +1,7 @@
 ---
 title: Practical Experience with Your New 9-Inch Lenovo Tabby Gadget
-date: 2024-10-23T22:20:40.338Z
-updated: 2024-10-30T20:22:45.646Z
+date: 2024-10-30T19:28:15.181Z
+updated: 2024-11-05T20:19:09.433Z
 categories:
   - BestProducts
 description: This Article Describes Practical Experience with Your New 9-Inch Lenovo Tabby Gadget
@@ -51,13 +51,6 @@ Lifewire / Emily Isaacs
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/wuNd6MsZiivoQ99Xm0JHB9iB4Rs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_HeroSquare-99f80025b0254cbebe67ed22575a90c5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Emily Isaacs
 
 [View On Amazon $99](https://www.amazon.com/dp/B00NMVJYEW/?tag=lifewire-onsite-prod-20&ascsubtag=4780187%7Cnf95833ce2d2845368fd2b0eac089080a01%7CB00NMVJYEW) [View On Walmart $89](https://www.walmart.com/ip/Kinesis-KB800PB-us-Freestyle2-Ergonomic-Split-Keyboard-for-PC/41539324?slfpid=3) [View On Office Depot $113](https://www.officedepot.com/a/products/989638/Kinesis-Freestyle2-Ergonomic-Keyboard-For-PC/?cm%5Fmmc=PLA-%5F-Google-%5F-Computer%5FTablet%5FAccessories-%5F-989638&gclid=EAIaIQobChMIv7HKttKB6QIVUl8NCh2Afg94EAQYBCABEgJKIvD%5FBwE&gclsrc=aw.ds)
@@ -103,16 +96,16 @@ Lifewire / Emily Isaacs
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/XHY6Xe9cdaO1U6Uj0wDY6rROlcA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_04-7fad98b589454e0388ecf48afe425e8c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  From here, we followed the instructions in the provided instructional pamphlet and enabled Bluetooth on our iPad. After about a minute of scanning, the Kinesis KB800MB-BT keyboard appeared as an available device. We simply tapped to connect. From here, it prompted us to input a numeric code and press return. Once we’d done this, setup was complete.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Features: Efficient hotkeys once you get used to them**
 
@@ -122,16 +115,16 @@ Lifewire / Emily Isaacs
 
  Its split design is comfortable, following the natural arc of your fingers and hands as they rest upon its keys.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Battery: Plenty of juice so you’re never in a bind**
 
  The battery life on the Freestyle2 is excellent. It arrives with a partial charge, so it’s important to remember to fully charge it after receiving it. Once charged, the battery life can last up to 300 plus hours of regular use. The Freestyle2 does an excellent job of letting you know when its battery is getting low—battery lights will flash red to indicate when there are about four hours of battery life remaining. This ensures you’re never left hanging.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Excellent for the features**
 
@@ -139,14 +132,14 @@ Lifewire / Emily Isaacs
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/vncgu0FEgBJ69UL6H8BjQ2QoGRI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_03-9055476d1d974c8bbe9b1c39d479b300.jpg)
 
- Lifewire / Emily Isaacs
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Emily Isaacs
 
 ## **Kinesis Freestyle2 Blue vs. Microsoft Sculpt Ergonomic Keyboard**
 
@@ -165,6 +158,13 @@ Lifewire / Emily Isaacs
  **An ideal keyboard for Apple users with its compact design, portability, and long-lasting battery.**
 
  The Kinesis Freestyle2 Blue for Mac is a compact, user-friendly ergonomic keyboard that takes comfort and customization to the next level for Apple users thanks to its split, modular design. Its extended battery life of up to 300 plus hours combined with its ability to connect to multiple iOS devices at a time is a game-changer, making it well worth the splurge.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -197,18 +197,14 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-perfect-your-unboxing-game-8-tips-from-experts/"><u>[New] In 2024, Perfect Your Unboxing Game 8 Tips From Experts</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-elevated-engagement-awards-on-video-realms/"><u>[Updated] 2024 Approved Elevated Engagement Awards on Video Realms</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-seamless-acquisition-of-everyday-online-footage-fb-status-videos/"><u>[Updated] In 2024, Seamless Acquisition of Everyday Online Footage FB Status Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-flipping-the-script-in-photography-how-angles-can-make-or-break-your-insta-posts/"><u>2024 Approved Flipping the Script in Photography How Angles Can Make or Break Your Insta Posts</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/achieving-flexible-desktop-size-with-window-11-updates/"><u>Achieving Flexible Desktop Size with Window 11 Updates</u></a></li>
-<li><a href="https://howto.techidaily.com/best-methods-for-infinix-note-30-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Infinix Note 30 Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-every-aspect-of-the-samsung-gear-s3-frontier-a-rigorous-assessment-of-its-extensive-features/"><u>Exploring Every Aspect of the Samsung Gear S3 Frontier - A Rigorous Assessment of Its Extensive Features</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-motorola-g24-power-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Motorola G24 Power Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Nokia C210? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-17-portable-computers-for-professionals-gamers-and-students-2024-edition/"><u>Leading 17 Portable Computers for Professionals, Gamers & Students - 2024 Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-powershot-companion-elph-190/"><u>The Ultimate PowerShot Companion: ELPH 190</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ling-success-the-best-tools-for-youtube-seo-and-keyword-research-for-2024/"><u>Unveiling Success The Best Tools for YouTube SEO and Keyword Research for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/why-apples-most-affordable-ever-102-ipad-8th-gen-deserves-a-spot-in-your-tech-collection-a-thorough-review/"><u>Why Apple's Most Affordable Ever 10.2 iPad (8Th Gen) Deserves a Spot in Your Tech Collection - A Thorough Review!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-as-a-film-studio-tutorials-and-competitive-choices-for-2024/"><u>[Updated] YouTube as a Film Studio Tutorials & Competitive Choices for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-make-every-gaming-moment-memorable/"><u>2024 Approved Make Every Gaming Moment Memorable</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/analyzing-the-samsung-galaxy-fit-your-ultimate-partner-in-staying-active-and-healthy/"><u>Analyzing the Samsung Galaxy Fit: Your Ultimate Partner in Staying Active and Healthy</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-oneplus-nord-ce-3-lite-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your OnePlus Nord CE 3 Lite 5G Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-next-level-aerial-photos-with-dji-mavic-3-comprehensive-review-inside/"><u>Experience Next-Level Aerial Photos with DJI Mavic 3 - Comprehensive Review Inside!</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solving-the-problem-effective-solutions-when-overwatch-2-continuously-crashes-on-your-pc/"><u>Solving the Problem: Effective Solutions When Overwatch 2 Continuously Crashes on Your PC</u></a></li>
+<li><a href="https://win-bits.techidaily.com/step-by-step-guide-retrieving-lost-partitions-on-windows-7-systems/"><u>Step-by-Step Guide: Retrieving Lost Partitions on Windows 7 Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-tech-potential-the-in-depth-review-of-the-affordable-equipped-for-creativity-moto-g-stylus-phone/"><u>Unlocking Tech Potential: The In-Depth Review of the Affordable, Equipped-for-Creativity Moto G Stylus Phone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-basics-comprehensive-review-of-the-economical-201n-amazon-kindle/"><u>Unveiling the Basics: Comprehensive Review of the Economical 201N Amazon Kindle</u></a></li>
 </ul></div>
 

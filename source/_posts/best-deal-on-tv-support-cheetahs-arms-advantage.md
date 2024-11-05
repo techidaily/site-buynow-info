@@ -1,7 +1,7 @@
 ---
 title: "Best Deal on TV Support: Cheetah's Arms Advantage"
-date: 2024-09-09T14:00:14.202Z
-updated: 2024-09-10T14:00:14.202Z
+date: 2024-11-01T16:15:18.403Z
+updated: 2024-11-05T16:08:58.841Z
 categories:
   - BestProducts
 description: "This Article Describes Best Deal on TV Support: Cheetah's Arms Advantage"
@@ -13,12 +13,6 @@ thumbnail: https://thmb.techidaily.com/71c1b0d0d145dc4c00dc6d938d03b70bdf9ec4a87
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Insta360 One X2
 
 ![Insta360 One X2](https://www.lifewire.com/thmb/9u9WmKWD9-s05N5xJb7xlPowUbc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Insta360_One_X2_HeroSquare-80809b6088f0400baa121b1e7d14e4b1.jpg)
@@ -46,12 +40,6 @@ Lifewire / Andy Zahn
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Insta360 One X2
 
 ![Insta360 One X2](https://www.lifewire.com/thmb/SA87_MJD5mJRnYY0t31c9ELFmlc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Insta360_One_X2_HeroSquare-80809b6088f0400baa121b1e7d14e4b1.jpg)
@@ -94,21 +82,22 @@ Lifewire / Andy Zahn
 
  Controls consist of a shutter button, power button, and circular touchscreen. An[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) light indicates the camera's status, and there is a standard tripod mount on the underside of the camera.
 
-<!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Setup Process: Mostly straightforward
 
  The One X2 came partially charged and ready to go once I inserted a[microSD card](https://www.lifewire.com/best-sd-cards-to-buy-4072362) , though first I had to install the Insta360 app on my phone and activate the camera. This turned out to be a bit of a pain, with the Bluetooth connection used to activate the One X2 and set up the Wi-Fi connection repeatedly timing out and failing. Eventually, I got it up and running, and aside from the one hiccup, the process was fairly smooth, if more complex than I’d typically expect from a camera.
+
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Image Quality: Good light a necessity
 
@@ -123,25 +112,27 @@ Lifewire / Andy Zahn
  One thing to remember about the One X2 is that its 5.7K recording resolution isn’t as sharp and detailed as you might expect, and when you crop down to a standard 16:9 frame you end up with[1080p](https://www.lifewire.com/what-the-term-1080p-means-1846837) . That’s good enough for viewing on a phone or small tablet, but the low resolution, as well as noise and image artifacts, become pretty significant when viewed on a large computer monitor.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Audio: Unimpressive overall
 
  The audio recording on the One X2 could be charitably described as mediocre. It’s there, and it’s useable, but in a camera that would otherwise be well suited to vlogging, given its portable size and ease of use, it's a little disappointing.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Storage Requirements: Hefty file size
 
  Though it may be the bare minimum for decent 360 footage, the 5.7L video footage the One X2 captures is still highly demanding in how much storage space it requires. A single short video clip easily takes up hundreds of megabytes of space, so you’ll want a big microSD card and plenty of hard drive space on your PC and/or[smartphone](https://www.lifewire.com/best-smartphones-4043781) .
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Software: Brilliant but buggy
 
  Most of my problems with the One X2 have to do with the Insta360 app, and the big one is with the difficulty of connecting to the camera. Every time I connected to the One X2, I had to tap the connect button in the app over and over again until it finally connected.
@@ -158,6 +149,19 @@ Lifewire / Andy Zahn
 
  It’s also possible to take more control of your video editing on the computer via either Insta360's free editing studio software or via a plugin in Adobe Premiere. However, it was easier to get the shots I wanted by editing them on my phone via the app.
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Accessories: A good amount of options
 
  A number of accessories are available for the Insta360 One X2\. These include, among others, a diving enclosure and a “bullet time” attachment used to twirl the One X2 around your head. It’s also a good idea to have a selfie stick to use with the One X2, and I found a tripod handy for recording timelapse videos.
@@ -165,11 +169,18 @@ Lifewire / Andy Zahn
 Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Price: Good value
 
  With an MSRP of $430, the One X2 is only a little more expensive than a high-end action camera, but it’s not bad for a 360 camera. It’s a good value if being able to shoot 360-degree video is a necessity for you.
@@ -184,30 +195,12 @@ Lifewire / Andy Zahn
 
  I had something of a rough start with the Insta360 One X2, but after dealing with setup issues and a steep learning curve, its small size, lightweight, and ease of use made up for its flaws It’s ideal for capturing videos in circumstances where you can’t be bothered to film with a traditional camera.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [GoPro HERO9 Black](https://www.lifewire.com/gopro-hero9-black-review-5120078)
 * [AKASO EK7000 Pro 4K Action Camera](https://www.lifewire.com/akaso-ek7000-pro-4k-action-camera-review-4770265)
 * [GoPro HERO7 Black](https://www.lifewire.com/gopro-hero7-black-review-4705929)
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  One X2
@@ -238,8 +231,6 @@ Lifewire / Andy Zahn
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -247,4 +238,24 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-ironborn-chimes-expertly-selected-spots-for-tts-downloads/"><u>2024 Approved Ironborn Chimes Expertly Selected Spots for TTS Downloads</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unleash-youtube-dominance-a-comprehensive-guide-to-studio-success/"><u>2024 Approved Unleash YouTube Dominance A Comprehensive Guide to Studio Success</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-vivo-v27-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Vivo V27 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boosting-blog-income-through-effective-advertisement-on-buyselladscom/"><u>Boosting Blog Income Through Effective Advertisement on BuySellAds.com</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decisive-criteria-for-your-next-headset-investment-in-vr-technology/"><u>Decisive Criteria for Your Next Headset Investment in VR Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-for-leading-karaoke-machines-edition/"><u>Expert Picks for Leading Karaoke Machines Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-top-performing-optical-drives-on-the-market/"><u>Expert Picks: Top-Performing Optical Drives on the Market</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-honor-x9b-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/golden-grounds-of-terrafirma-top-treasure-hunts-for-2024/"><u>Golden Grounds of Terrafirma Top Treasure Hunts for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-stop-audio-hiccups-in-your-bluetooth-connection-on-pcs-windows-10-and-11/"><u>How to Stop Audio Hiccups in Your Bluetooth Connection on PCs (Windows 10 and 11)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-harnessing-the-potential-of-quantum-hdr-imaging/"><u>In 2024, Harnessing the Potential of Quantum HDR Imaging</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-powerful-and-portable-new-ipad-mini-5-from-apple/"><u>In-Depth Look at the Powerful and Portable New iPad Mini 5 From Apple</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/key-factors-to-assess-when-purchasing-a-lock-free-mobile-device/"><u>Key Factors to Assess When Purchasing a Lock-Free Mobile Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-your-budget-with-the-highly-reliable-acer-aspire-e-15/"><u>Maximizing Your Budget with the Highly Reliable Acer Aspire E 15</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unleash-your-potential-with-filmoras-loved-9-traits-for-2024/"><u>Unleash Your Potential with Filmora's Loved 9 Traits for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-lamicall-s-tablet-base-a-thorough-appraisal-of-user-friendly-features/"><u>Unveiling the Lamicall S Tablet Base: A Thorough Appraisal of User-Friendly Features</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-the-most-efficient-tools-to-convert-text-to-mp3-with-the-best-natural-voices/"><u>Updated 2024 Approved The Most Efficient Tools to Convert Text to MP3 With the Best Natural Voices</u></a></li>
+</ul></div>
 

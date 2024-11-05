@@ -1,7 +1,7 @@
 ---
 title: "Canon's Portable Vintage-Designed Camera, PowerShot G9X2: A Photographer’s Dream"
-date: 2024-09-09T14:00:11.565Z
-updated: 2024-09-10T14:00:11.565Z
+date: 2024-11-03T17:34:56.520Z
+updated: 2024-11-05T19:20:40.329Z
 categories:
   - BestProducts
 description: "This Article Describes Canon's Portable Vintage-Designed Camera, PowerShot G9X2: A Photographer’s Dream"
@@ -13,34 +13,10 @@ thumbnail: https://thmb.techidaily.com/cc4de72d7f182f924611ffcdd9be6d67698446b35
 
 4.2
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Kootek Laptop Cooling Pad
 
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/7No_c3E_HUrSqeMtUM6UkfB2e9Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_HeroSquare-6441809b63624fe0a5eeff086503ee26.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Andrew Hayward
 
  What We Like
@@ -60,9 +36,23 @@ Lifewire / Andrew Hayward
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Kootek Laptop Cooling Pad
 
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/vuq5u4XUGBs6ncFjbes1JatZvV8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_HeroSquare-6441809b63624fe0a5eeff086503ee26.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -102,12 +92,6 @@ _We purchased the Kootek Laptop Cooling Pad_   _so our reviewer could put it to 
 
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/6Uuby879oWyaUH6_3WN7ZssAF-g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_04-73dc23f85de34fa087b21b21461f9f74.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Andrew Hayward
 
  There are two buttons at the back of the pad: One button controls the large, central fan (4.72 inches), while the other controls the four smaller fans (2.76 inches each). I’m not sure why you would choose to use only some fans at any given time, since they’re all quiet, but the option is there if you want it. You’ll also find two USB-A ports, meaning this cooling pad functions as a hub for plugging additional accessories into your laptop.
@@ -118,18 +102,6 @@ Lifewire / Andrew Hayward
 
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/A5iJ3c7mD8guT4DKXitqb3wlp6I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_03-9ec8e6afd494441f8ae20c38ae1fadbb.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Andrew Hayward
 
 ## Performance: Cool and quiet
@@ -147,41 +119,31 @@ Lifewire / Andrew Hayward
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/ppFnQ9kEpjbEV9cYbHzLRI5j-j8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_05-4a4d5ee065a94c3e984ae0c96f4916d8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
  All told, the Kootek Laptop Cooling Pad made a solid effort in lowering the temperature of the Razer Blade 15 while playing Dirt 5 and Fortnite, although the cheaper, dual-fan TopMate C302 cooling pad saw slightly better overall results. Your experience may vary depending on your laptop of choice, however. All the while, the Kootek pad stayed pretty quiet in stark contrast to the Razer Blade’s own very loud internal fans.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Price: Entirely reasonable
 
  At $26 from Amazon, the Kootek Laptop Cooling Pad is a reasonably-priced option with solid performance and the ability to accommodate larger laptops. There are cheaper options out there, as well as some with additional features such as temperature sensors and additional fan controls, but Kootek’s device delivers good functionality for the price.
 
 ![Kootek Laptop Cooling Pad](https://www.lifewire.com/thmb/30UKekQcQjJ1mpixthV5avHNZsE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kootek_Laptop_Cooling_Pad_02-9e1418002e754b2c8e01cb12f766975a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123466/16836" target="_top" id="2123466">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123466" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123466/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Kootek Laptop Cooling Pad vs. TopMate C302
 
  As mentioned above, the TopMate C302 is a lighter, simpler cooling pad option. It’s designed for laptops up to 15 inches in size and isn’t quite as thick or heavy, but it gets the job done with effective cooling and straightforward design. Kootek’s pad offers an additional USB port for accessories, though, and allows for more height variance than the TopMate’s basic pop-out feet.
@@ -191,6 +153,13 @@ Lifewire / Andrew Hayward
 **A good all-around option.**
 
  A clunky design makes the Kootek Laptop Cooling Pad a bit awkward in use, but ultimately it does a solid job of cooling hot laptops and accommodating larger-sized devices. The extra USB ports are handy, especially for port-limited laptops, and the price is reasonable.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -211,14 +180,11 @@ Lifewire / Andrew Hayward
 * Ports  USB-A x2
 * Waterproof  N/A
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -227,4 +193,18 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-premium-download-experience-best-youtube-playlist-extractors-reviewed/"><u>[New] 2024 Approved Premium Download Experience Best YouTube Playlist Extractors Reviewed</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-unlocking-the-secrets-of-high-quality-twitch-broadcasts/"><u>[Updated] 2024 Approved Unlocking the Secrets of High-Quality Twitch Broadcasts</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-elevate-your-streams-with-seamless-obspluszoom-integration-for-2024/"><u>[Updated] Elevate Your Streams with Seamless OBS+Zoom Integration for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-in-the-smart-home-arena-comparing-alexa-to-google-assistant/"><u>Best in the Smart Home Arena: Comparing Alexa to Google Assistant</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-practical-uses-for-the-innovative-ampasys-andes-1500-compact-generator/"><u>Discovering Practical Uses for the Innovative Ampasys Andes 1500 Compact Generator</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-seamless-ride-of-mods-newest-compact-and-portable-escooter/"><u>Exploring the Seamless Ride of Mod's Newest Compact and Portable eScooter</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/head-to-head-comparison-apple-watch-series-9-against-fitbit-charge-6/"><u>Head-to-Head Comparison: Apple Watch Series 9 Against Fitbit Charge 6</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/high-speed-home-networking-showdown-can-tp-links-archer-ax6000-outperform-the-reliable-nighthawk-ax12/"><u>High-Speed Home Networking Showdown: Can TP-Link's Archer AX6000 Outperform the Reliable Nighthawk AX12?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-your-iphone-15-pro-max-passcode-4-easy-methods-with-or-without-itunes-by-drfone-ios/"><u>How to Unlock Your iPhone 15 Pro Max Passcode 4 Easy Methods (With or Without iTunes)</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolving-last-epoch-freezing-issues-in-windows-top-strategies-of-2astockoptions/"><u>Resolving Last Epoch Freezing Issues in Windows: Top Strategies of 2Astock_options</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unpacking-the-new-google-pixel-tab-specs-release-date-info-and-exclusive-news-insights/"><u>Unpacking the New Google Pixel Tab: Specs, Release Date Info, and Exclusive News Insights</u></a></li>
+</ul></div>
 

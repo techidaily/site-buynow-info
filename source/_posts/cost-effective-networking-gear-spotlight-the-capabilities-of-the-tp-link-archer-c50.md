@@ -1,7 +1,7 @@
 ---
 title: "Cost-Effective Networking Gear Spotlight: The Capabilities of the TP-Link Archer C50"
-date: 2024-10-23T22:38:42.206Z
-updated: 2024-10-30T16:21:25.016Z
+date: 2024-11-03T18:37:36.455Z
+updated: 2024-11-05T16:58:38.497Z
 categories:
   - BestProducts
 description: "This Article Describes Cost-Effective Networking Gear Spotlight: The Capabilities of the TP-Link Archer C50"
@@ -47,6 +47,13 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/23qFdg2CyjsEX1uFEK5ESBb8kO0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_HERO_1LW4065141_7_Final_Square-bd507bc5d1d646f9a0d8d7466601f569.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / James Huenink
 
 [View On Amazon](https://www.amazon.com/dp/B00OB883F6/?tag=lifewire-onsite-prod-20&ascsubtag=4784227%7Cnb8fa7df8bea04ca4a06f94beab613f8802%7CB00OB883F6)
@@ -69,13 +76,6 @@ Lifewire / James Huenink
  80’s movies promised a lot of cool future tech that hasn’t appeared. We’re not riding on hoverboards, nor do our cars fly. The one thing we did get is inexpensive and simple[video calling](https://www.lifewire.com/apps-for-free-video-chat-3426695) . The Docooler USB 2.0 12 Megapixel promises to make that a reality with an HD camera for the lowest cost in its class. Can this dirt-cheap[camera](https://www.lifewire.com/best-digital-cameras-under-100-3897833) deliver on its promise to connect us in HD?
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/YIcu00ga1PIrZWJzNk-mS5C4z-A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_5_Final_Horiz-23ef27f359f24e919ebb2f47f9089957.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / James Huenink
 
@@ -108,16 +108,10 @@ Lifewire / James Huenink
  Lifewire / James Huenink
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Underwhelming performance in video and audio**
@@ -132,16 +126,16 @@ Lifewire / James Huenink
 
  The audio performance of the Docooler USB 2.0 12 Megapixel was also lackluster. The built-in microphone produced poor quality sound, and when we tested it on Skype, voices were both muffled and echoey. People on the other end could understand what we were saying, but it was an unpleasant experience.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Cheap price, even cheaper webcam**
 
  The Docooler USB 2.0 12 Megapixel is the most inexpensive webcam you can buy, ranging from $8 up to around $15, but there’s a reason it’s priced so low. The image and audio quality are both terrible, and the camera is difficult to use.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Falls short**
 
@@ -158,10 +152,10 @@ Lifewire / James Huenink
  The Docooler USB 2.0 12 Megapixel is one of the most inexpensive cameras on the market for a reason. This camera doesn’t come close to delivering what it promises, meaning it's not worth even the trifle you'd pay for it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -196,20 +190,24 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/updated-hunters-top-picks-best-video-gear-reviewed-for-2024/"><u>[Updated] Hunters' Top Picks Best Video Gear Reviewed for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-how-to-make-instagram-slow-motion-video/"><u>[Updated] In 2024, How to Make Instagram Slow Motion Video</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-scripting-your-storys-visual-heartbeat-at-home/"><u>2024 Approved Scripting Your Story's Visual Heartbeat at Home</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-realme-12-proplus-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Realme 12 Pro+ 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-capture-studio-high-fidelity-screen-record/"><u>In 2024, Capture Studio High Fidelity Screen Record</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-podcasts-incorporating-audio-in-powerpoint-slides/"><u>In 2024, Mastering Podcasts Incorporating Audio in PowerPoint Slides</u></a></li>
-<li><a href="https://windows11.techidaily.com/revitalize-your-services-explorer-effective-solutions-for-7-common-issues/"><u>Revitalize Your Services Explorer: Effective Solutions for 7 Common Issues</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-picks-the-most-outstanding-linux-powered-laptops/"><u>Top Picks: The Most Outstanding Linux-Powered Laptops</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-picks-the-ultimate-guide-to-the-ideal-13-inch-ipad-air-case-options/"><u>Top Picks: The Ultimate Guide to the Ideal 13-Inch iPad Air Case Options</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-quality-mechanical-keyboards-available-for-less-than-50/"><u>Top Quality Mechanical Keyboards Available for Less Than $50</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-ranked-virtual-reality-headphones-a-comprehensive-guide/"><u>Top-Ranked Virtual Reality Headphones : A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-ranking-ereader-devices-a-comprehensive-guide/"><u>Top-Ranking eReader Devices : A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-ranking-gaming-notebooks-in-2nnd-year-of-2024/"><u>Top-Ranking Gaming Notebooks in 2Nnd Year of 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/unleash-energy-and-stamina-discover-the-ultimate-playlist-to-boost-workouts/"><u>Unleash Energy and Stamina Discover the Ultimate Playlist to Boost Workouts</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/akthr-trk-idara-aamlyat-nskh-alkrbon-bdyl-fak-loyndoz-11-8-7-ahdth/"><u>أكثر طرق إدارة عمليات نسخ الكربون: بديل فائق لويندوز 11، 8، 7 - أحدث</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitter-livestreaming-a-comprehensive-guide/"><u>[New] 2024 Approved Twitter Livestreaming A Comprehensive Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-essential-6-apps-elevating-your-instagram-reels/"><u>[New] In 2024, Essential 6 Apps Elevating Your Instagram Reels</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-techniques-for-writing-eye-catching-podcast-summaries/"><u>[Updated] In 2024, Techniques for Writing Eye-Catching Podcast Summaries</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-your-go-to-list-of-best-free-game-apps-on-android/"><u>[Updated] In 2024, Your Go-To List of Best Free Game Apps on Android</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-zoomed-in-filming-with-precision-and-clarity/"><u>[Updated] Zoomed In Filming with Precision and Clarity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-nokia-71-exceptional-display-and-photography-at-a-bargain/"><u>Affordable Nokia 7.1: Exceptional Display & Photography at a Bargain</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-your-apple-iphone-xr-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On your Apple iPhone XR</u></a></li>
+<li><a href="https://win-premium.techidaily.com/fehlerbehandlung-fur-interne-und-externe-kommandos-nicht-recogniert/"><u>Fehlerbehandlung Für Interne Und Externe Kommandos Nicht Recogniert</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-apples-m1-chip-transforms-the-2020-macbook-air-an-in-depth-review-and-analysis/"><u>How Apple's M1 Chip Transforms the 2020 MacBook Air - An In-Depth Review and Analysis</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/incredible-analysis-and-backup-recommendations-for-2024/"><u>Incredible Analysis & Backup Recommendations for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-printer-settings-and-outputs-in-adobe-photoshop/"><u>Mastering Printer Settings and Outputs in Adobe Photoshop</u></a></li>
+<li><a href="https://windows11.techidaily.com/mastering-the-use-of-microsoft-family-safety/"><u>Mastering the Use of Microsoft Family Safety</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/safeguarding-your-iphone-6-leading-antivirus-solutions-reviewed-and-rated/"><u>Safeguarding Your iPhone: 6 Leading Antivirus Solutions Reviewed and Rated</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/size-matters-a-deep-dive-into-google-nest-audio-vs-nest-mini-in-sound-quality/"><u>Size Matters: A Deep Dive Into Google Nest Audio Vs. Nest Mini in Sound Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/spotlight-on-lensdirect-cutting-edge-blue-light-resistant-lenses-for-prescription-wearers-a-thorough-review/"><u>Spotlight on LensDirect: Cutting-Edge Blue Light Resistant Lenses for Prescription Wearers - A Thorough Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-elevated-experience-of-hd-photo-display-via-x15d-frame/"><u>The Elevated Experience of HD Photo Display via X15D Frame</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-wastelands-2-directors-edition-critique-an-engrossing-tactical-roleplay-experience/"><u>The Wastelands 2 - Director's Edition Critique: An Engrossing Tactical Roleplay Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-elite-selection-the-leading-cable-modems-to-upgrade-your-internet/"><u>Unveiling the Elite Selection: The Leading Cable Modems to Upgrade Your Internet</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/usb-print-malfunction-in-sleep-state-w7/"><u>USB Print Malfunction in Sleep State, W7</u></a></li>
 </ul></div>
 

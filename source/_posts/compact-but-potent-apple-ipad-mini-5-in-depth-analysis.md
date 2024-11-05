@@ -1,7 +1,7 @@
 ---
 title: Compact but Potent Apple iPad Mini 5 - In-Depth Analysis
-date: 2024-10-29T17:26:42.124Z
-updated: 2024-10-30T23:37:16.669Z
+date: 2024-10-31T20:25:47.830Z
+updated: 2024-11-05T16:11:55.251Z
 categories:
   - BestProducts
 description: This Article Describes Compact but Potent Apple iPad Mini 5 - In-Depth Analysis
@@ -42,13 +42,6 @@ Lifewire / Jordan Provost
 
 4.9
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Apple iPad Pro 11-Inch (2018)
 
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/SgNIbLZ961-p9WD7at7-M5m8Tuk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_HeroSquare-b5f2405776244188aa59f67503531baf.jpg)
@@ -85,6 +78,13 @@ Lifewire / Jordan Provost
 
  Lifewire / Jordan Provost
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design and Features: Cutting edge**
 
  The iPad Pro is easy to pick up with one hand and barely makes a dent in your backpack storage. It feels like a notepad, and you can use it as such. For what is inside this piece of kit, that is a marvel This device even fits snug into the accessory slot of a laptop sleeve if you’re planning to double up. It is dainty, but what makes it so wonderful is that there are no compromises to make up for this, design-wise.
@@ -96,13 +96,6 @@ Lifewire / Jordan Provost
 ![Ipad Pro 11-Inch](https://www.lifewire.com/thmb/TpucPEgB2OHgSplLwk2Q6sbI6Yo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_5-a6f20cf2b7b84caf8a6290fcb5e9fb5f.jpg)
 
  Lifewire / Jordan Provost
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Accessories: Useful for productivity**
 
@@ -124,20 +117,27 @@ Lifewire / Jordan Provost
 
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/GV44W9kKlQd3SXT_XaWI-tjo6Cw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_6-2bcb5b2009154c92931411045a9b6ddc.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jordan Provost
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Display: Rich colors and smooth motion**
 
  Apple is well known for its gorgeous screens, and the iPad Pro absolutely delivers. The display is what Apple is calling ‘Liquid Retina’, an upgraded version of the technology that drives the screen on the iPhone XR. Wonderfully rich color reproduction, crisp text can be found across all of Apple’s proprietary apps and third-party optimized software. Reading articles and watching video content on streaming services is wonderful, and it even fares well amidst glare from sunlight. It’s still an LCD screen though, so OLED tablets will still have better-looking blacks and richer, more saturated colors. Fortunately for Apple, there aren’t many of those in the market.
 
  There’s also some nifty usability features that come packed with the iPad Pro. True Tone is a feature that helps match the display to the color temperature of your surroundings, which makes the screen easier on your eyes. The 120Hz Pro Motion technology alters the refresh rate of the screen depending on your usage, which results in extremely fluid motion, from scrolling, to playing games, or watching video. It’s difficult to find a poor viewing angle, though you still can’t watch 4K video on YouTube, which is a crying shame given the power of the screen, but more of a problem between Apple and Google rather than a knock to the device itself.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Powerhouse processor**
 
@@ -154,10 +154,16 @@ Lifewire / Jordan Provost
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/KXfYew06x6vujxu5asiFMPptK_k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_1-a6ce9e62649048d7a20596066576c2c5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
@@ -174,13 +180,6 @@ Lifewire / Jordan Provost
 
  Outside of that, you can’t connect some external drives, Thunderbolt devices or use a mouse. Split View is also certainly a compromise to professionals used to using more than three programs at once.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Audio: Thunderous sound**
 
  One of the major upgrades to the Pro is the stereo effect audio playback with four powerful speakers, two on either side of the device. The iPad Pro has truly stunning audio, and if you crank it up it could easily act as a party speaker. There is absolutely no need for anything external when watching video content. Amazingly, the fidelity of the audio never seems to suffer, even at full volume. Apple ditching the headphone jack poses an interesting problem in that you’re going to need a pair of Bluetooth headphones or buy an adapter to receive audio on the go.
@@ -193,20 +192,13 @@ Lifewire / Jordan Provost
 
 ![IPad- Pro 11 Inch](https://www.lifewire.com/thmb/D-1-WC_wIDqzRZLb8mDOgpjal6c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_3-e425a67865fc461fb805e648294dadf8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jordan Provost
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Camera: A decent backup**
@@ -219,20 +211,27 @@ Lifewire / Jordan Provost
 
  Take a peek at some of the[best camera apps](https://www.lifewire.com/best-iphone-camera-apps-4176231) you can download.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery: All-day usage**
 
  This is an all-day device, and should last you roughly around 10 hours of regular use, as per our testing. We spent almost a full working day pushing it using Split View to draft articles, with some Procreate drawing and Netflix streaming in between, and the iPad Pro clocked out at around 9 hours. However, we found some apps like Google Docs drain the battery more than most, so it varies depending on your workflow. Much like the Apple Watch, if you’re not a power user this tablet could last you a number of days before needing a fresh charge.
 
 ![IPad Pro 11 Inch](https://www.lifewire.com/thmb/Q4zUu4bRCg_V0xhMi5Yh7Ns7znc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_4-bef539783bbd48ae98e1becea11ce4dc.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: The best yet**
 
@@ -241,6 +240,13 @@ Lifewire / Jordan Provost
  Due to the particular size of the screen, developers have to update all of their apps to fit properly on the iPad Pro, but even months after its release there are many apps that throw up horrible black bars between the software and the device bezel. Snapchat and Instagram are mostly unusable too, unless you’re willing to compromise with a downscaled, emulated version of the iPhone app.
 
  iOS 12 is by far and away the best version of the operating system yet, but there are still some blatant compromises that eat away at the possibility of the iPad Pro being a laptop replacement.
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Well worth the money if you can justify it**
 
@@ -294,24 +300,24 @@ Lifewire / Jordan Provost
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/reative-channel-themes-get-them-for-free/"><u>[New] Creative Channel Themes Get Them for Free</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-how-to-excel-at-ppt-delivery-google-meet-tactics-for-any-device/"><u>[New] How to Excel at PPT Delivery Google Meet Tactics for Any Device</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-symphonic-switch-up-reimagining-your-musical-lists/"><u>2024 Approved Symphonic Switch-Up Reimagining Your Musical Lists</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-imaging-dilemma-the-nikon-coolpix-a10-saga/"><u>Affordable Imaging Dilemma: The Nikon COOLPIX A10 Saga</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/chatgpt-revolutionizes-creation-craft-your-unique-gpt-variant-today/"><u>ChatGPT Revolutionizes Creation: Craft Your Unique GPT Variant Today</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-ring-alarm-solutions-doorbell-edition/"><u>Comprehensive Evaluation of the Ring Alarm Solutions – Doorbell Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-the-latest-in-smart-home-security-a-closer-look-at-google-nest-hellos-innovative-features/"><u>Comprehensive Guide to the Latest in Smart Home Security - A Closer Look at Google Nest Hello's Innovative Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-netgear-c3000-is-it-time-to-upgrade/"><u>Comprehensive Review of Netgear C3000 – Is It Time to Upgrade?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-most-effective-keyboard-braces-of-2024-to-prevent-strain/"><u>Discover the Most Effective Keyboard Braces of 2024 to Prevent Strain</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/editorsuite-ultimate-guide-in-depth-analysis-of-androvid/"><u>EditorSuite Ultimate Guide – In-Depth Analysis of AndroVid</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/eero-pro-wi-fi-coverage-test-drive-full-house-connectivity-as-reviewed-by-users/"><u>Eero Pro Wi-Fi Coverage Test Drive – Full House Connectivity as Reviewed by Users</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-resolve-honor-x50-gt-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Honor X50 GT Screen Not Working | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-nhl-19-gaming-experience-and-digital-play/"><u>In-Depth Analysis: NHL '19 Gaming Experience and Digital Play</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ative-naming-strategies-elevating-your-filmora-channels-identity-for-2024/"><u>Innovative Naming Strategies Elevating Your Filmora Channels' Identity for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/top-30-hashtags-propel-video-views-in-gameplay-for-2024/"><u>Top 30 Hashtags Propel Video Views in Gameplay for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/top-office-flooring-trends/"><u>Top Office Flooring Trends</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-secrets-behind-the-lg-gram-17-a-revolutionary-fusion-of-minimal-weight-and-superior-performance/"><u>Unveiling the Secrets Behind the LG Gram 17 - A Revolutionary Fusion of Minimal Weight and Superior Performance</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/1728473765554-windows-10-5/"><u>Windows 10 連線失去後的文件同步 - 鑒定及探索 5 項有效解決方法</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/xiaomi-mi-smart-band-4-comprehensive-fitness-tracker-review/"><u>Xiaomi Mi Smart Band 4 - Comprehensive Fitness Tracker Review</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-essential-techniques-for-saving-mobile-gameplay/"><u>[New] Essential Techniques for Saving Mobile Gameplay</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-remote-ratio-reformation-online-calculation/"><u>[New] Remote Ratio Reformation Online Calculation</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-digital-artists-dreamland-ultimate-afx-template-set/"><u>[Updated] In 2024, Digital Artist's Dreamland Ultimate AFX Template Set</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/adoption-trends-for-arvr-shopping-for-2024/"><u>Adoption Trends for AR/VR Shopping for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-excellence-a-comprehensive-review-of-nokia-71-featuring-top-notch-display-and-photography/"><u>Affordable Excellence: A Comprehensive Review of Nokia 7.1 Featuring Top-Notch Display & Photography</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-anthropics-smart-photo-editor-enhancing-your-images/"><u>Comprehensive Review of Anthropics Smart Photo Editor: Enhancing Your Images</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-on-the-efficacy-of-kootek-laptop-cooler/"><u>Comprehensive Review on the Efficacy of Kootek Laptop Cooler</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-your-audio-game-with-our-selection-of-top-pc-sound-card-picks/"><u>Elevate Your Audio Game with Our Selection of Top PC Sound Card Picks</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-apple-iphone-13-pro-max-mirror-to-pc-top-apps-you-must-know-drfone-by-drfone-ios/"><u>In 2024, Apple iPhone 13 Pro Max Mirror to PC? Top Apps You Must Know | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-broadcast-repeat-looping-youtube-video-magic-for-your-setup/"><u>In 2024, Broadcast Repeat Looping YouTube Video Magic for Your Setup</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/msi-pro-mp161e2-the-ultimate-portable-monitor-experience/"><u>MSI Pro MP161E2: The Ultimate Portable Monitor Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/next-gen-gaming-unleashed-a-comprehensive-review-of-the-alienware-aurora-r9-by-dell/"><u>Next-Gen Gaming Unleashed: A Comprehensive Review of the Alienware Aurora R9 by Dell</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/personal-project-excellence-via-innovative-ai-tech/"><u>Personal Project Excellence via Innovative AI Tech</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/phone-wars-determining-if-the-iphone-outshines-samsung-in-your-pocket/"><u>Phone Wars: Determining if the iPhone Outshines Samsung in Your Pocket</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/seamless-multitasking-with-pro-ram/"><u>Seamless Multitasking with Pro RAM</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/stay-current-with-ios-how-to-download-and-seamlessly-install-the-newest-version/"><u>Stay Current with iOS: How To Download & Seamlessly Install the Newest Version</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-breakdown-of-the-revolutionary-xbox-series-x-for-4k-enthusiasts/"><u>The Definitive Breakdown of the Revolutionary Xbox Series X for 4K Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-take-on-the-thin-and-agile-lenovo-thinkpad-x1-nano-notebook-a-critical-review/"><u>The Definitive Take on the Thin & Agile Lenovo ThinkPad X1 Nano Notebook - A Critical Review</u></a></li>
+<li><a href="https://win-answers.techidaily.com/unlocking-efficiency-the-ultimate-guide-to-date-and-time-in-ms-excel-with-13-key-functions/"><u>Unlocking Efficiency: The Ultimate Guide to Date & Time in MS Excel with 13 Key Functions</u></a></li>
 </ul></div>
 
