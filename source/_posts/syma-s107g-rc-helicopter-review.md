@@ -1,7 +1,7 @@
 ---
 title: Syma S107G RC Helicopter Review
-date: 2024-11-04T20:28:03.843Z
-updated: 2024-11-05T18:14:37.768Z
+date: 2024-11-11T03:54:43.206Z
+updated: 2024-11-15T20:24:53.425Z
 categories:
   - BestProducts
 description: This Article Describes Syma S107G RC Helicopter Review
@@ -45,10 +45,10 @@ Lifewire / Andy Zahn
 4.3
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
@@ -87,6 +87,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -103,18 +110,18 @@ Lifewire / Andy Zahn
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
 
@@ -148,13 +155,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -184,10 +184,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Lots of options**
@@ -200,18 +200,24 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
+
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
 
@@ -269,20 +275,17 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-instant-video-post-how-to-turn-mp3s-into-youtube-playables/"><u>[New] 2024 Approved Instant Video Post How to Turn MP3s Into YouTube Playables</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/xpanding-digital-presence-stream-to-youtube-plus-additional-platforms/"><u>[New] Expanding Digital Presence Stream to YouTube + Additional Platforms</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-exceptional-hd-video-documentation-gear/"><u>[New] In 2024, Exceptional HD Video Documentation Gear</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-ideal-choice-for-budget-shoppers-with-our-in-depth-z3plus-dash-cam-evaluation/"><u>Discover the Ideal Choice for Budget Shoppers with Our In-Depth Z3+ Dash Cam Evaluation</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-professional-tips-for-high-quality-sports-streaming/"><u>In 2024, Professional Tips for High-Quality Sports Streaming</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mohu-leaf-30-tv-antenna-evaluation-a-superior-combination-of-affordability-and-effectiveness/"><u>Mohu Leaf 30 TV Antenna Evaluation: A Superior Combination of Affordability and Effectiveness</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-in-2024-dvdmacpro/"><u>New In 2024, DVDMacPro</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-vivo-y100a-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Vivo Y100A | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/seamless-upload-routine-from-imovie-to-youtube-video-sharing-for-2024/"><u>Seamless Upload Routine From iMovie to YouTube Video Sharing for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/should-i-leap-to-the-newest-monterey-version/"><u>Should I Leap to the Newest Monterey Version?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/mline-your-youtube-presentations-with-captions/"><u>Streamline Your YouTube Presentations with Captions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-analysis-of-anthropics-smart-photo-editing-tool-user-guide/"><u>Ultimate Analysis of Anthropics' Smart Photo Editing Tool – User Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-ps4-pro-evaluation-unleashing-the-power-of-4k-gaming/"><u>Ultimate PS4 Pro Evaluation: Unleashing the Power of 4K Gaming</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-review-of-the-cost-effective-fitbit-versa-lite-a-smart-choice-for-health-enthusiasts/"><u>Ultimate Review of the Cost-Effective Fitbit Versa Lite - A Smart Choice for Health Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unpacking-the-features-of-criacr-bluetooth-fm-transmitter-cp24-a-mini-device-that-still-needs-work/"><u>Unpacking the Features of Criacr Bluetooth FM Transmitter CP24: A Mini Device That Still Needs Work</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-how-to-safeguard-your-feed-remove-followers/"><u>[New] 2024 Approved How to Safeguard Your Feed Remove Followers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-hassle-free-tactics-sharing-igtv-in-insta-stories/"><u>[New] Hassle-Free Tactics Sharing IGTV in Insta Stories</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-top-30-camcorders-personalized-front-display/"><u>[Updated] 2024 Approved Top 30 Camcorders Personalized Front Display</u></a></li>
+<li><a href="https://android-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-oneplus-11-5g-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your OnePlus 11 5G</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-your-shorts-videos-thumbnail-shows-up/"><u>Ensuring Your Shorts Video's Thumbnail Shows Up</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-guide-on-crafting-midjourney-prompts-elevating-skills-from-novice-to-virtuoso/"><u>Expert Guide on Crafting Midjourney Prompts: Elevating Skills From Novice to Virtuoso</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expert-strategies-to-correct-kernel-memory-issues-on-your-pc/"><u>Expert Strategies to Correct Kernel Memory Issues on Your PC</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-insight-into-amazfit-helio-ring-how-much-to-spend-release-timing-and-full-tech-specs-examined/"><u>Get Insight Into Amazfit Helio Ring – How Much to Spend? Release Timing & Full Tech Specs Examined</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-corsair-one-pro-top-performer-in-the-creators-workstation-arena/"><u>In-Depth Analysis of the Corsair One Pro: Top Performer in the Creator's Workstation Arena</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-features-and-performance-of-the-linksys-ea9500-advanced-router/"><u>In-Depth Look at the Features and Performance of the Linksys EA9500 Advanced Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insightful-evaluation-smart-features-in-the-ring-video-doorbell-pro-unveiled/"><u>Insightful Evaluation: Smart Features in the Ring Video Doorbell Pro Unveiled</u></a></li>
+<li><a href="https://driver-download.techidaily.com/logitech-g-pro-controller-install-for-pc-windows-111087-immediate-download/"><u>Logitech G Pro Controller Install for PC (Windows 11/10/8/7) [Immediate Download]</u></a></li>
 </ul></div>
 

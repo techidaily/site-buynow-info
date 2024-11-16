@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Review: How LensDirect's Anti-Blue Light Spectacles Perform with Prescriptions"
-date: 2024-09-04T01:44:01.077Z
-updated: 2024-09-05T01:44:01.077Z
+date: 2024-11-12T03:05:25.752Z
+updated: 2024-11-16T02:48:21.483Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate Review: How LensDirect's Anti-Blue Light Spectacles Perform with Prescriptions"
@@ -38,6 +38,13 @@ Lifewire / Nick Jaynes
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/kUpys0K04ePH0SuEfAENz--MXSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
@@ -64,11 +71,12 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design: All-plastic, but sturdy and subtle**
 
  The Anker PowerDrive 2 might not be the sharpest or most cutting-edge looking in-car USB charger, but what it lacks in visual pizazz, it more than makes up for in sturdiness.
@@ -81,12 +89,6 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Fast charging for demanding devices**
 
  The best part of the Anker PowerDrive 2 is its charging. It has the ability to charge iPads simultaneously without getting overheated thanks to its PowerIQ and VoltageBoost technology. Each USB port can output a maximum 5V/2.4A, for a total of 24W. That’s in line with other car[chargers](https://www.lifewire.com/best-wireless-phone-chargers-4138571) we tested, but the PowerIQ technology can help identify device and deliver the fastest possible charge. This also gives you some overvoltage protection to make sure something like a smartwatch doesn’t fry when you plug it in.
@@ -97,12 +99,6 @@ Lifewire / Nick Jaynes
 
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Middle of the pack**
 
  The list price of $14.99 is positioned in the mid-range of the USB charger market, which ranges from just a few dollars to upwards of $50 for some fancier chargers. However, Anker PowerDrive 2 can be had for a discounted price on some websites. Considering the fact that the Anker PowerDrive 2 includes both the fast-charger and a 3-foot micro USB cable, it is well priced for the marketplace.
@@ -110,17 +106,12 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Competition: A handful of rivals**
 
  The RAVPower 24W charger is one of Anker’s main rivals. It has a metal exterior, a lower price tag, and theoretically identical power output. However, its construction is far less robust. In fact, its metal outside easily separates from the internal components easily making Anker a better pick for longevity.
@@ -136,17 +127,12 @@ Lifewire / Nick Jaynes
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  PowerDrive 2 24W Dual USB Car Charger
@@ -164,8 +150,6 @@ Lifewire / Nick Jaynes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -173,4 +157,24 @@ Lifewire / Nick Jaynes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-virtual-mastery-top-5-karate-and-taekwondo-games/"><u>[New] 2024 Approved Virtual Mastery Top 5 Karate and Taekwondo Games</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-discover-freely-accessible-video-tricks/"><u>[Updated] In 2024, Discover Freely Accessible Video Tricks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-z-edge-z3plus-dash-cam-evaluation-smart-and-user-friendly-performance/"><u>Budget-Friendly Z-Edge Z3+ Dash Cam Evaluation - Smart & User-Friendly Performance</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-update-lenovo-display-drivers-easy-guide/"><u>Download and Update Lenovo Display Drivers - Easy Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/energize-your-routine-hits-for-fitness/"><u>Energize Your Routine: Hits for Fitness</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-latest-canon-rebel-t7-kit-innovations/"><u>Evaluating the Latest Canon Rebel T7 Kit Innovations</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/finding-stability-and-comfort-on-a-sit-stand-desk-with-cumuluspro-mat-in-depth-analysis/"><u>Finding Stability and Comfort on a Sit-Stand Desk with CumulusPRO Mat - In-Depth Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/optimal-pc-setup-choosing-a-reliable-motherboard-brand/"><u>Optimal PC Setup: Choosing a Reliable Motherboard Brand</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/pros-choice-high-quality-4k-dslr-mounting-systems/"><u>Pro's Choice High-Quality 4K DSLR Mounting Systems</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/ranking-the-best-most-innovative-pc-vr-headsets-for-2024/"><u>Ranking the Best, Most Innovative PC VR Headsets for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-photos-after-nokia-g42-5g-has-been-deleted-by-fonelab-android-recover-photos/"><u>Recover your photos after Nokia G42 5G has been deleted.</u></a></li>
+<li><a href="https://win-updates.techidaily.com/simple-steps-to-transfer-iphone-data-to-an-exterior-hard-disk-using-windows-11/"><u>Simple Steps to Transfer iPhone Data to an Exterior Hard Disk Using Windows 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-echo-show-4th-generation-in-depth-review-and-significant-enhancements/"><u>The Echo Show 4Th Generation: In-Depth Review & Significant Enhancements</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-moto-g-with-stylus-budget-friendly-and-high-performance/"><u>The Ultimate Guide to the Moto G with Stylus - Budget-Friendly and High Performance</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-5-apps-to-stream-your-favorite-podcasts-on-iphone-for-2024/"><u>Top 5 Apps to Stream Your Favorite Podcasts on iPhone for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/understanding-nvidia-g-sync-for-peak-game-performance/"><u>Understanding Nvidia G-Sync for Peak Game Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/user-insights-on-the-seatech-external-blu-ray-drive-with-usb-reliability-test-results/"><u>User Insights on the SeaTech External Blu-Ray Drive with USB - Reliability Test Results</u></a></li>
+</ul></div>
 

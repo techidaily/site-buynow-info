@@ -1,7 +1,7 @@
 ---
 title: "Midland LXT500VP3 Handheld Radios: An Insightful Review on a Product with Many Features but Poor Performance"
-date: 2024-11-03T20:27:40.263Z
-updated: 2024-11-05T19:57:33.619Z
+date: 2024-11-13T20:33:52.970Z
+updated: 2024-11-16T02:28:57.170Z
 categories:
   - BestProducts
 description: "This Article Describes Midland LXT500VP3 Handheld Radios: An Insightful Review on a Product with Many Features but Poor Performance"
@@ -48,13 +48,6 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Tony Mitera
 
 [View On EBay](https://www.ebay.com/p/563813511)
@@ -78,6 +71,13 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: A lot of power packed into a small frame**
 
  The Beatit Jump Starter D11’s main unit's effectively a small black brick with red accents. Roughly the size of a small paperback book, the unit's constructed out of durable plastic and features a flashlight at one end. Along one of the long sides there's a small display that shows battery status, the on/off switch, two USB power outputs, and the device’s charging port. On the opposing side a rubber flap covers the jumper cable port; a unique port that the jumper cable accessory plugs in to.
@@ -88,6 +88,13 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: It can’t realistically be much simpler**
 
  Should you find yourself in a situation where you need to use the jump start functionality of the Beatit Jump Starter D11, you'll find it quite easy to use. On our Elantra test vehicle we simply had to pop the hood, bring the unit over, and plug the jumper cable accessory into its port. Once in place getting a proper connection is a simple matter of attaching the red clamp to the positive battery terminal and then the black clamp to the negative terminal. With a firm connection in place we simply had to set the unit down someplace where the vibration of the engine wouldn’t make it slide and then start the car. With the unit in place the car immediately started with zero hesitation, at which point we could disconnect the unit and get back on the road.
@@ -95,13 +102,6 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  Lifewire / Tony Mitera
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Plenty of power for all your needs**
 
@@ -112,10 +112,16 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Key Features: The flashlight is nice but is basically a spotlight**
@@ -133,10 +139,10 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  At that price point, it packs a ton of value into its diminutive size.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
@@ -186,19 +192,19 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-ultimate-guide-to-self-validation-on-social-media/"><u>[New] The Ultimate Guide to Self-Validation on Social Media</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-from-content-creator-to-brand-ambassador-unlocking-instagram-sponsorship-for-2024/"><u>[Updated] From Content Creator to Brand Ambassador Unlocking Instagram Sponsorship for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-how-samsung-galaxy-watch-active-2-outshines-its-predecessor-with-superior-connectivity-and-smart-insight/"><u>Discover How Samsung Galaxy Watch Active 2 Outshines Its Predecessor with Superior Connectivity and Smart Insight</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/easy-steps-to-correct-ssleay32dll-error-a-user-friendly-tutorial/"><u>Easy Steps to Correct 'ssLeay32.dll' Error: A User-Friendly Tutorial</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-distinctive-edge-how-does-iphone-15-pro-max-outshine-samsung-s24-ultra/"><u>Exploring the Distinctive Edge: How Does iPhone 15 Pro Max Outshine Samsung S24 Ultra?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/get-rid-of-corrupt-excel-2007-file-by-stellar-guide/"><u>Get Rid of corrupt Excel 2007 File</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-did-the-wii-u-conquer-gaming-markets-worldwide/"><u>How Did the Wii U Conquer Gaming Markets Worldwide?</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-oppo-find-x6-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Oppo Find X6 Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-craft-the-perfect-livestream-on-youtube-and-twitch-with-obs/"><u>In 2024, Craft the Perfect Livestream on YouTube & Twitch with OBS</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/on-location-assessing-functionality-and-efficiency-of-ampage-andes-1500-portable-power-supply/"><u>On Location: Assessing Functionality & Efficiency of Ampage Andes 1500 Portable Power Supply</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-essentials-of-upgrading-to-ventura-os-x/"><u>The Essentials of Upgrading to Ventura OS X</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/troubleshooting-and-solutions-to-hp-beats-audio-driver-conflicts-in-various-windows-versions/"><u>Troubleshooting and Solutions to HP Beats Audio Driver Conflicts in Various Windows Versions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-m-mock-1000a-the-supreme-18000mah-vehicle-booster-assessment/"><u>Ultimate Guide: M Mock 1000A - The Supreme 18000mAh Vehicle Booster Assessment</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/unlock-the-secrets-to-slow-motion-your-guide-to-gopro-hero-10-mastery/"><u>Unlock the Secrets to Slow Motion Your Guide to GoPro Hero 10 Mastery</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/battle-for-neighborville-an-unforgettable-encounter-with-hilarious-plant-zombie-shooting-action/"><u>'Battle for Neighborville': An Unforgettable Encounter with Hilarious Plant-Zombie Shooting Action</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-vsdc-insight-an-in-depth-look-at-its-features-and-rivals/"><u>[New] 2024 Approved VSDC Insight An In-Depth Look at Its Features and Rivals</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-art-of-selecting-and-using-b-roll-in-productions/"><u>[New] In 2024, The Art of Selecting and Using B-Roll in Productions</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-snapchats-visual-language-mastering-the-art-of-gifting-with-gifs/"><u>[Updated] In 2024, Snapchat's Visual Language Mastering the Art of Gifting with Gifs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-critical-review-of-google-pixel-slate-surviving-the-turmoil-within-chromeos/"><u>A Critical Review of Google Pixel Slate: Surviving the Turmoil Within ChromeOS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-step-by-step-guide-installing-and-using-arlo-security-cameras/"><u>A Step-by-Step Guide: Installing and Using Arlo Security Cameras</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-excellence-how-zte-blade-a3y-stands-up-against-budget-competitors/"><u>Affordable Excellence: How ZTE Blade A3Y Stands Up Against Budget Competitors</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-fire-hd-8-eighth-generation-review-outstanding-entry-level-device-worth-the-investment/"><u>Amazon Fire HD 8 (Eighth Generation) Review: Outstanding Entry Level Device Worth the Investment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/brighten-up-your-daybreak-a-comprehensive-analysis-of-the-ihome-zenergy-sleep-therapy-machine/"><u>Brighten Up Your Daybreak: A Comprehensive Analysis of the IHome Zenergy Sleep Therapy Machine</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/imessage-communication-guide-sending-and-receiving-texts-on-your-pc-with-windows/"><u>IMessage Communication Guide: Sending & Receiving Texts on Your PC with Windows</u></a></li>
+<li><a href="https://games-able.techidaily.com/mac-gaming-enhanced-counter-strike-2-basics/"><u>Mac Gaming Enhanced: Counter-Strike 2 Basics</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-protect-your-privacy-10-best-free-face-blurring-apps-for-images-and-clips/"><u>New In 2024, Protect Your Privacy 10 Best Free Face Blurring Apps for Images and Clips</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-9-essential-factors-for-choosing-the-perfect-dash-cam/"><u>Top 9 Essential Factors for Choosing the Perfect Dash Cam</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/unleash-creative-potential-tips-and-tricks-for-filming-with-logitech-cam-for-2024/"><u>Unleash Creative Potential Tips and Tricks for Filming with Logitech Cam for 2024</u></a></li>
 </ul></div>
 

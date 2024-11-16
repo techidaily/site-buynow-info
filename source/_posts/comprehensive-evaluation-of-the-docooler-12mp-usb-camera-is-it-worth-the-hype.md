@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Evaluation of the Docooler 12MP USB Camera - Is It Worth The Hype?
-date: 2024-09-04T01:44:00.959Z
-updated: 2024-09-05T01:44:00.959Z
+date: 2024-11-13T20:11:28.465Z
+updated: 2024-11-15T18:14:26.211Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Evaluation of the Docooler 12MP USB Camera - Is It Worth The Hype?
@@ -38,6 +38,13 @@ Lifewire / Erika Rawes
 [View On Amazon $324](https://www.amazon.com/dp/B07VFFCGBY?tag=lifewire-onsite-prod-20&ascsubtag=5072677%7Cnb09ddd4fc2484a1da2aba73369114b5911%7CB07VFFCGBY) [View On Walmart $420](https://www.walmart.com/ip/SAMSUNG-Galaxy-Tab-S6-10-5-128GB-WiFi-Android-9-0-Tablet-Rose-Blush-S-Pen-SM-T860NZNAXAR/498393884?wmlspartner=wlpa&selectedSellerId=0) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fsamsung-galaxy-tab-s6-10-5-256gb-mountain-gray%2F6357008.p%3FskuId%3D6357008%26ref%3D212%26loc%3D1)
 
 4.2
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Samsung Galaxy Tab S6
 
@@ -76,12 +83,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Display: 10.5-inch Super AMOLED**
 
  You can usually rely on Samsung devices to have top-notch display quality, and the Tab S6 is no different. The super AMOLED display is crisp and clear. The text is sharp, and the colors are bright and vivid. The 10.5-inch display feels large enough to watch shows and movies or to use as a hybrid when you connect the keyboard case.
@@ -95,29 +96,18 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: Qualcomm 855**
 
  The Tab S6 has the Qualcomm 855 processor, which is a pretty solid mobile CPU. It comes in two versions: one version with 128GB of storage and 6 GB of RAM, and one version with 256 GB of storage and 8 GB of RAM. I tested the former version. On PCMark Work 2.0, the lower level Tab S6 scored a 9022\. On Geekbench 5, the Tab S6 scored a single core score of 747 and a multi-core score of 2,518\. It’s multi-core scores come in very close to the A12 Bionic chip in the iPad (2019).
 
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/TIUmjQSMgpAJw4W3I6fcgiYY1BM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_Tab_S6_06-cc64b6b41e8f4420b9fe38d223541b52.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 ## **Productivity: S Pen included, keyboard case sold separately**
@@ -130,30 +120,12 @@ Lifewire / Erika Rawes
 
  After about a week, the S Pen became like an extra appendage for me.
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Audio: Dolby Atmos**
 
  The Galaxy Tab S6 has four speakers—two on the bottom and two on the top. The speakers are AKG tuned, and they even support Dolby Atmos. You can enable Dolby Atmos in the tablet’s sound settings. Overall, the speakers sound exceptional for a mobile device. I was impressed by the immersive sound quality when watching movies and shows. For music, the bass isn’t as punchy as it could be, but it sounds better than most tablets I’ve encountered.
 
  I do wish the Galaxy Tab S6 had a headphone jack. I was able to purchase a USB-C to 3.5 mm adapter on Amazon for about $10, but it would have been nice to have a 3.5 mm jack available.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Network: No Wi-Fi 6**
 
  The Tab S6 supports Bluetooth version 5.0 and 802.11a/b/g/n/ac Wi-Fi networks, and you can connect it on the 2.4 and 5 GHz bands. I live in a suburb outside of Raleigh, NC, and my network speeds max out at 400 Mbps. I have a Wi-Fi 6 capable router, but the Galaxy Tab S6 doesn’t support Wi-Fi 6\.
@@ -162,19 +134,33 @@ Lifewire / Erika Rawes
 
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/uFYTAOkfm7I2LO-YvrgzbeB-65I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_Tab_S6_04-c700338e384c41a1890551005ff31019.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Camera: Dual rear cameras**
 
  The Tab S6 has dual rear cameras, and a single front-facing camera. It has a 13 MP camera and a 5 MP camera on the back, and an 8 MP camera on the front. For a tablet, the camera quality is actually pretty good. It’s not as good as your typical flagship phone, but it’s better than you’d expect on a hybrid tablet. Photos are surprisingly clean and detailed, so you could absolutely get a good group pic at the office, or snap a clear pic of a document you need to send.
 
  The Tab S6 can take UHD video (3840x2160) at 30 FPS with the rear camera and FHD (1920x1080) at 30 FPS with the front cam, and it has a few cool software features like a food mode, pro mode, night mode, and hyperlapse. You can also create an AR emoji and take advantage of additional features like Bixby Vision.
+
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Battery: Worse than the Tab S4**
 
@@ -190,14 +176,15 @@ Lifewire / Erika Rawes
 
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/C7-02cY18jujcl8-9vfJim9_H_M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_Tab_S6_05-2f0768554c044e18bedec871758e51ef.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: On the high end**
 
  The Galaxy Tab S6 sells for $649 for the 128 gig version, which is pricey for an android tablet. But, considering the S Pen is included in the package, the price is a bit more reasonable.
@@ -211,6 +198,13 @@ Lifewire / Erika Rawes
 **An attractive tablet that hits almost every mark.**
 
  The Galaxy Tab S6 is one of the better 10-inch tablets available.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -236,8 +230,6 @@ Lifewire / Erika Rawes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -245,4 +237,26 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-capturing-adventures-a-close-look-at-panasonics-hx-a1/"><u>[New] Capturing Adventures A Close Look at Panasonic's HX-A1</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-srt-and-mp4-synergy-a-comprehensive-guide-edition-for-2024/"><u>[New] SRT & MP4 Synergy A Comprehensive Guide Edition for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-ranking-the-top-16-youtube-intros-to-amplify-views/"><u>2024 Approved Ranking the Top 16 YouTube Intros to Amplify Views</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apples-airpods-pro-vs-samsungs-buds-pro-clash/"><u>Apple's Airpods Pro Vs. Samsung's Buds Pro Clash</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/complete-tutorial-retrieving-lost-or-removed-sections-from-your-lenovo-pc-using-windows-11-tools/"><u>Complete Tutorial: Retrieving Lost or Removed Sections From Your Lenovo PC Using Windows 11 Tools</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dive-into-the-world-of-caixun-a-75-inch-4k-android-tv-review-with-a-budget-twist/"><u>Dive Into the World of Caixun: A 75-Inch, 4K Android TV Review with a Budget Twist</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-linksys-velop-mesh-wifi-system/"><u>Expert Analysis of the Linksys Velop Mesh WiFi System</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-z-edge-z3-plus-affordable-intelligence-on-the-road-captured-in-a-cam/"><u>Expert Analysis of Z-Edge Z3 Plus: Affordable Intelligence on the Road Captured in a Cam</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experts-insights-on-the-latest-samsung-galaxy-note20-ultra-5g-smartphone-review/"><u>Experts' Insights on the Latest Samsung Galaxy Note20 Ultra 5G Smartphone Review</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/fast-track-your-mobile-vids-with-these-tools/"><u>Fast-Track Your Mobile Vids with These Tools</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-art-and-science-behind-vr-experience-makers/"><u>In 2024, The Art and Science Behind VR Experience Makers</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210557787-9781739946616-in-search-of-truth/"><u>In Search of Truth | Free Book</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-is-the-ipad-pro-better-than-the-surface-pro-for-you/"><u>In-Depth Review: Is the iPad Pro Better Than the Surface Pro for You?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/netgears-powerline-av-1200-reviewed-a-comprehensive-look-at-performance-amidst-sturdy-build/"><u>Netgear's Powerline AV 1200 Reviewed: A Comprehensive Look at Performance Amidst Sturdy Build</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-nubia-red-magic-9-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlock-doorstep-convenience-with-the-budget-friendly-remobell-your-ultimate-guide/"><u>Unlock Doorstep Convenience with the Budget-Friendly RemoBell: Your Ultimate Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-a-review-on-tp-links-ac1200-wifi-extender-model-re3-305/"><u>Unveiling the Power: A Review on TP-Link's AC1200 WiFi Extender Model RE3 305</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/yahoo-mail-removal-for-good-the-ultimate-walkthrough/"><u>Yahoo Mail Removal for Good: The Ultimate Walkthrough</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Best Available Exterior BD Drive Models for Optimal Media Viewing
-date: 2024-09-04T01:44:33.429Z
-updated: 2024-09-05T01:44:33.429Z
+date: 2024-11-08T16:38:20.559Z
+updated: 2024-11-15T22:12:40.250Z
 categories:
   - BestProducts
 description: This Article Describes Best Available Exterior BD Drive Models for Optimal Media Viewing
@@ -78,11 +78,12 @@ thumbnail: https://www.lifewire.com/thmb/0P9bcoqnFYkX-x0AvnDybMNBuFk=/400x300/fi
 * **What do buyers think?** 90% of buyers on Amazon have rated the Nintendo Switch OLED five stars, with the console having an average score of 4.8 out of 5.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Also Great
 
 [Valve Steam Deck](https://www.amazon.com/Valve-Handheld-Console-No-Operating-System/dp/B0BBQRYN9M?tag=lifewire-onsite-prod-20&ascsubtag=8656300%7Cn828e9c21ba084df1b24d3ffdd45b85b813%7CB0BBQRYN9M)
@@ -96,11 +97,18 @@ thumbnail: https://www.lifewire.com/thmb/0P9bcoqnFYkX-x0AvnDybMNBuFk=/400x300/fi
 **TL;DR:** The Steam Deck makes PC gaming truly portable and much simpler than ever before. It’s all within a sleek and easy to hold shell with a great screen whether you go LED or OLED. As with the Switch, you can always dock it, and even install Windows if you want a full portable PC.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Why We Recommend This
 
  The Steam Deck is effectively a portable PC. Designed like a Nintendo Switch, it provides easy access to your Steam library thanks to running SteamOS, Valve’s Linux-based operating system.
@@ -133,12 +141,6 @@ thumbnail: https://www.lifewire.com/thmb/0P9bcoqnFYkX-x0AvnDybMNBuFk=/400x300/fi
 * **Who else recommends it?** The Verge, Forbes, IGN, PCGamer, and Wired have all recommended the Steam Deck with the Steam Deck OLED considered a particular highlight.
 * **What do buyers think?** The Steam Deck has sold over 3 million units on the Steam website. Relatively recently featured on Amazon, it has 86% four- or five-star ratings across 564 reviews.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Easiest on the Budget
 
 [Hyper Mega Tech Super Pocket](https://www.walmart.com/ip/Hyper-Mega-Tech-Capcom-Super-Pocket-Retro-System/5194946970)
@@ -152,11 +154,12 @@ thumbnail: https://www.lifewire.com/thmb/0P9bcoqnFYkX-x0AvnDybMNBuFk=/400x300/fi
 **TL;DR:** Old enough to remember the Nintendo Game Boy? This is a lot like that with plenty of nostalgic games on-board and more to be purchased separately. It’s perfect for anyone seeking nostalgia and it’s very keenly priced too.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Why We Recommend This
 
  The Hyper Mega Tech Super Pocket approaches the handheld gaming market differently from other consoles. It’s focused squarely on offering great retro gaming experiences.
@@ -186,30 +189,25 @@ thumbnail: https://www.lifewire.com/thmb/0P9bcoqnFYkX-x0AvnDybMNBuFk=/400x300/fi
 * **Who else recommends it?** TechRadar, GamesRadar, Stuff, and The Guardian have all highly rated the Hyper Mega Tech Super Pocket.
 * **What do buyers think?** Between the two models, the Hyper Mega Tech Super Pocket has an average rating of 4.5 out of 5 on Amazon. 84% of customers have rated the Capcom version 4 or 5 stars, with 90% rating the Taito the same score.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How I Test
 
  I reviewed every handheld gaming console featured here over a number of weeks. The Nintendo Switch OLED, Switch Lite, and Steam Deck were purchased by me, while the Hyper Mega Tech Super Pocket, and Logitech G Cloud were acquired on loan from the manufacturer.
 
  While playing them, I focused on how fun they are to use, how portable they are, and how user-friendly they are.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Other Handheld Gaming Consoles We Considered
 
  The[Nintendo Switch Lite](https://www.amazon.com/dp/B092VT1JGD?tag=lifewire-onsite-prod-20&ascsubtag=8656300%7Cn828e9c21ba084df1b24d3ffdd45b85b813%7C) is the smaller and solely portable Switch option. It can’t be docked to your TV and has a weaker screen, but it’s cheaper and ideal for solo gaming.
 
 ![Logitech G Cloud.](https://www.lifewire.com/thmb/SMW56Oe3oBSahp0Lznq6lQGJiTU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LogitechGCloud1-c2a2bb36b9ff4fa7bf3d6d8e65253de1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Logitech G Cloud.
 
 Lifewire / Jennifer Allen
@@ -248,8 +246,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -257,4 +253,24 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-seamless-share-youtube-videos-set-up-autoplay-on-fb/"><u>[New] 2024 Approved Seamless Share YouTube Videos Set Up Autoplay on FB</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-breakthrough-techniques-for-effective-macscreenscreencasting/"><u>[New] Breakthrough Techniques for Effective MacScreenscreencasting</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-proven-mac-screen-recording-programs-beyond-bandicaps-success/"><u>[New] In 2024, Proven Mac Screen Recording Programs Beyond Bandicap's Success</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-understanding-the-technicalities-of-fb-360-streaming-for-2024/"><u>[New] Understanding the Technicalities of FB 360 Streaming for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/beyond-gpt-the-best-programming-aids-outside-chatgpt/"><u>Beyond GPT: The Best Programming Aids Outside ChatGPT</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cost-effective-shielding-for-your-macbook-pro-13-a-review-of-the-no-nonsense-procase-sleeve/"><u>Cost-Effective Shielding for Your MacBook Pro 13: A Review of the No-Nonsense ProCase Sleeve</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-amazfit-bip-a-top-pick-for-those-new-to-smart-wearables/"><u>Exploring the Amazfit BIP: A Top Pick for Those New to Smart Wearables</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/financial-insights-how-much-does-pewdopeep-make-in-2024/"><u>Financial Insights How Much Does PewDoPeep Make, In 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/how-often-do-youtubers-receive-income-in-2024/"><u>How Often Do YouTubers Receive Income, In 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-enjoy-a-natural-morning-routine-reviews-and-insights-on-philips-hf3505-sunrise-alarm-clock/"><u>How to Enjoy a Natural Morning Routine: Reviews & Insights on Philips HF3505 Sunrise Alarm Clock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/immerse-in-words-with-the-kobo-libra-h2o-a-pioneering-review-of-a-revolutionary-waterproof-ereader/"><u>Immerse in Words with the Kobo Libra H2O: A Pioneering Review of a Revolutionary Waterproof eReader</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-stop-the-mute-add-sound-to-tweeted-clips/"><u>In 2024, Stop the Mute Add Sound to Tweeted Clips</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-ultimate-review-best-camcorders-to-try/"><u>In 2024, Ultimate Review Best Camcorders to Try</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-photo-editing-a-guide-to-using-the-print-feature-in-photoshop/"><u>Mastering Photo Editing: A Guide to Using the Print Feature in Photoshop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/puppys-pleasure-viewer-inclusive-pet-monitoring/"><u>Puppy's Pleasure Viewer: Inclusive Pet Monitoring</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-torment-exploring-the-depths-of-numenera-a-science-fantasy-rpg-masterpiece/"><u>Review: Torment - Exploring the Depths of Numenera, a Science Fantasy RPG Masterpiece</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-sumind-bt70b-fm-transmitter-reliable-convenient-and-perfect-for-your-car/"><u>The Ultimate Guide to the Sumind BT70B FM Transmitter: Reliable, Convenient & Perfect for Your Car</u></a></li>
+</ul></div>
 

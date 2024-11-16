@@ -1,7 +1,7 @@
 ---
 title: From Afar, Hugs and Merriment with Petcube Bites 2
-date: 2024-10-31T17:50:38.347Z
-updated: 2024-11-05T17:43:52.849Z
+date: 2024-11-08T19:55:36.204Z
+updated: 2024-11-16T03:56:07.957Z
 categories:
   - BestProducts
 description: This Article Describes From Afar, Hugs and Merriment with Petcube Bites 2
@@ -102,13 +102,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Display and Viewfinder: Saturated and clear**
 
  The three-inch, 920,000-dot screen on the SX70 HS looks amazing—perhaps_too_ amazing, as your photos will look better on it than on your phone or computer. The screen is fully articulating and solidly built. Our one complaint would be how easily it picks up smudges, and how difficult those smudges are to remove. An advantage of the articulating screen is that it can be turned face-in to avoid dirt and damage and to save on battery life.
@@ -118,10 +111,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Autofocus: Blazing fast**
@@ -149,10 +142,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Modes: Plenty to choose from (and only some are useful)**
@@ -169,6 +162,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Video Quality: A mixed bag**
 
  The SX70 HS fumbles a bit when it comes to video. It’s no slouch by any means, but the footage is nothing to brag about. You can record up to 4K resolution, but unfortunately, the camera has to crop in to record at this resolution. Also, we found that footage is never especially sharp compared to other cameras.
@@ -183,6 +183,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -193,13 +200,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
@@ -207,10 +207,10 @@ Lifewire / Andy Zahn
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
@@ -269,24 +269,18 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-effortless-video-creation-learn-basic-edits-on-vimeo-for-free/"><u>[New] Effortless Video Creation Learn Basic Edits on Vimeo for Free</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-streamlining-the-process-of-making-smaller-images-tips-and-tricks/"><u>[New] In 2024, Streamlining the Process of Making Smaller Images Tips & Tricks</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/iral-verve-top-10-music-to-match-your-freshest-yt-shorts-for-2024/"><u>[New] Viral Verve Top 10 Music to Match Your Freshest YT Shorts for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/1722995536902-solved-apex-legends-not-loading-quickly-and-easily/"><u>[Solved] Apex Legends Not Loading | Quickly & Easily!</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-effective-youtube-card-usage-guide-for-2024/"><u>[Updated] Effective YouTube Card Usage Guide for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-top-rated-budget-friendly-asmr-gear-for-superior-sound-quality/"><u>[Updated] Top-Rated Budget-Friendly ASMR Gear for Superior Sound Quality</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/a-step-by-step-guide-mastering-the-art-of-safelisting-emails-on-gmail/"><u>A Step-by-Step Guide: Mastering the Art of Safelisting Emails on Gmail</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-high-performance-reviewed-the-inside-scoop-on-logitechs-c615-webcam/"><u>Affordable High-Performance Reviewed: The Inside Scoop on Logitech's C615 Webcam</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/aomei-fonebackupios/"><u>AOMEI FoneBackupを使って、iOSデバイスを最適に操作する方法</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-battery-powered-phone-options/"><u>Best Battery-Powered Phone Options</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-owc-mercury-pro-evaluation-exceptional-drive-features-and-top-tier-speed/"><u>Comprehensive OWC Mercury Pro Evaluation: Exceptional Drive Features and Top-Tier Speed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-these-unbeatable-digital-marketplaces-for-high-quality-hdtvs/"><u>Discover These Unbeatable Digital Marketplaces for High-Quality HDTVs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/embrace-vibrant-days-with-ease-in-depth-review-of-the-revolutionary-ihome-zenergy-nighttime-ally/"><u>Embrace Vibrant Days with Ease: In-Depth Review of the Revolutionary IHome Zenergy Nighttime Ally</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-anthropics-advanced-image-editing-suite-a-detailed-evaluation/"><u>Expert Insights on Anthropics' Advanced Image Editing Suite – A Detailed Evaluation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-the-spectacular-performance-of-sonys-latest-49-4k-uhd-smart-television-xbr49x900f/"><u>Expert Review: The Spectacular Performance of Sony's Latest 49 4K UHD Smart Television, XBR49X900F</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-deal-on-mobvoi-ticwatch-e2-cheap-price-but-how-about-quality/"><u>Exploring the Deal on Mobvoi TicWatch E2 - Cheap Price, But How About Quality?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/kobo-forma-review-an-e-reader-that-takes-reading-seriously/"><u>Kobo Forma Review: An E-Reader That Takes Reading Seriously</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/pixel-tablet-unveiling-whats-inside-teaser-on-upcoming-specs-and-release-timelines/"><u>Pixel Tablet Unveiling - What's Inside? Teaser on Upcoming Specs & Release Timelines</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/stepwise-discovery-of-covert-youtube-archives/"><u>Stepwise Discovery of Covert YouTube Archives</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/prime-ready-a-comprehensive-review-of-the-toshiba-55lf711u20-the-ultimate-streaming-tv/"><u>'Prime-Ready': A Comprehensive Review of the Toshiba 55LF711U20 - The Ultimate Streaming TV</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-tips-and-tricks-to-elevate-your-youtube-production-through-subtitle-integration/"><u>[New] 2024 Approved Tips and Tricks to Elevate Your YouTube Production Through Subtitle Integration</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-straightforward-pathway-for-tiktok-to-facebook-for-2024/"><u>[New] The Straightforward Pathway for TikTok to Facebook for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-top-6-youtube-shorts-downloaders-free-and-online/"><u>[Updated] In 2024, Top 6 YouTube Shorts Downloaders [Free & Online]</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ultimate-image-booster-intense-visual-upgrade/"><u>[Updated] Ultimate Image Booster Intense Visual Upgrade</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mlb-the-show-2019-game-review-stunning-graphics-and-unanticipated-rpg-components-explored/"><u>MLB The Show 2019 Game Review: Stunning Graphics and Unanticipated RPG Components Explored</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nokia-71-review-great-screen-and-camera-affordable-price/"><u>Nokia 7.1 Review: Great Screen and Camera, Affordable Price</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/snap-and-save-affordable-instant-cameras-for-everyone-2024/"><u>Snap & Save: Affordable Instant Cameras for Everyone, 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stay-active-with-fitbit-versa-3s-inbuilt-gps-and-comprehensive-health-apps-for-enhanced-motivation/"><u>Stay Active with Fitbit Versa 3'S Inbuilt GPS & Comprehensive Health Apps for Enhanced Motivation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/step-into-the-world-of-possibilities-with-minecraft-your-ultimate-guide-to-a-timeless-adventure/"><u>Step Into the World of Possibilities with Minecraft - Your Ultimate Guide to a Timeless Adventure</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/conomic-sphere-of-the-philanthropic-mr-beast/"><u>The Economic Sphere of the Philanthropic Mr. Beast</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-leading-voice-modification-tools-at-zero-cost-an-in-depth-filmora-video-voice-editing-handbook-for-2024/"><u>Updated Leading Voice Modification Tools at Zero Cost An In-Depth Filmora Video Voice Editing Handbook for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-vllo-on-mac-a-comprehensive-guide-with-alternative-solutions-for-2024/"><u>Updated VLLO on Mac A Comprehensive Guide with Alternative Solutions for 2024</u></a></li>
 </ul></div>
 

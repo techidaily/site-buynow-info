@@ -1,7 +1,7 @@
 ---
 title: In-Depth Sony XBR-49X900F 49 4K Ultra HD Smart LED Television Assessment
-date: 2024-09-04T01:44:02.596Z
-updated: 2024-09-05T01:44:02.596Z
+date: 2024-11-08T22:23:35.553Z
+updated: 2024-11-15T23:30:34.563Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Sony XBR-49X900F 49 4K Ultra HD Smart LED Television Assessment
@@ -39,6 +39,13 @@ thumbnail: https://www.lifewire.com/thmb/j1tkOKUhuIALS8eNIxFVwtF70ts=/400x300/fi
 
 3.6
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/EEEMCdq2FsBPMcT8nPUgndDIw4A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
@@ -65,17 +72,18 @@ thumbnail: https://www.lifewire.com/thmb/j1tkOKUhuIALS8eNIxFVwtF70ts=/400x300/fi
 
  Though Sony panels are sometimes on the expensive end of the spectrum, there are some older Sony 4K TVs that can be had for a nice little discount. One such TV is Sony’s XBR65X850F from their X850F series. This specific model has now been replaced by the X850G, but that doesn’t mean you necessarily need to go with the most current model. In fact, snagging one of these earlier generation sets can save you some cash without forcing you to compromise too much.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Standard Sony**
 
  The XBR65X850F's design is a combination of sleek and workmanlike. The stand on this Sony is pretty common for TVs these days, with two V-shaped feet that stick out to either side. While they look aluminum, these are actually plastic too, with merely an aluminum finish. They are decently steady, but we noticed a bit of wobble if you move the TV around. It should be plenty sturdy for most, though you will need a fairly wide stand for them to rest on since they stick out so far. There’s also no room for adjusting the unit up or down, but they’re tall enough to fit a soundbar underneath if you want. They also flip open on the top if you want to use them for some clever cable management.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/v7wi7isxu06LAoWNZK3dJ908mCk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-4-cb1a370bd78244b383c802010a570313.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -91,12 +99,6 @@ thumbnail: https://www.lifewire.com/thmb/j1tkOKUhuIALS8eNIxFVwtF70ts=/400x300/fi
 
  On the front of the screen, the bezels are a little thicker than some of the 4K TVs we’ve reviewed, but they’re pretty thin and shouldn’t distract. There’s your standard anti-glare coating found on the screen here too.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Stick to the on-screen instructions**
 
  Setting up pretty much any modern-day smart TV is an easy process, so just stick to the on-screen instructions and you’ll be golden. Go ahead and unpack it all, tear off that plastic film, plug in the power cable, and turn on the device.
@@ -110,17 +112,12 @@ thumbnail: https://www.lifewire.com/thmb/j1tkOKUhuIALS8eNIxFVwtF70ts=/400x300/fi
  With the initial process done, you will likely need to run a quick update check. This should automatically pop up, but check under the settings tab if it doesn’t. An update to the firmware should improve things considerably, especially if you need to upgrade to the latest version of Android TV. Updating takes a bit of time to do, so maybe go watch some TV while…oh right. Well, whatever you do during this process, just remember not to unplug the power while it’s running through updates.
 
 <!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Image Quality: Impressive 4K for IPS with some shortcomings**
 
  This section is perhaps the most important for a TV, and while the XBR65X850F performs pretty well in some aspects here, it also has a few weak points.
@@ -143,12 +140,6 @@ thumbnail: https://www.lifewire.com/thmb/j1tkOKUhuIALS8eNIxFVwtF70ts=/400x300/fi
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
 ## **Audio Quality: Loud, but distorted**
@@ -157,12 +148,6 @@ thumbnail: https://www.lifewire.com/thmb/j1tkOKUhuIALS8eNIxFVwtF70ts=/400x300/fi
 
  Right off the bat, this TV can get quite loud and you shouldn’t run into any volume issues. That being said, the overall experience is mediocre at best. The louder you turn it up, the more distortion is added. These speakers should suffice in quiet environments if you’re primarily looking for nice clear dialogue with treble and mid, but the bass is not so good.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: A bit sluggish but good enough**
 
  Android TV has come a long way since its debut, but not all TVs are getting timely updates, and these lower-end Sony TVs are notoriously slow for this. While some TVs are already running Android TV 9.0, many are stuck with older versions.
@@ -176,6 +161,13 @@ thumbnail: https://www.lifewire.com/thmb/j1tkOKUhuIALS8eNIxFVwtF70ts=/400x300/fi
  Browsing through the interface, we did find it to be a bit laggy and choppy at times, which can be quite frustrating. Hopefully, this can be fixed down the line when new versions of Android TV make their way to the device.
 
  One last thing, your phone can also be used as a remote if you so choose. All you need to do is download the app and connect it to the TV. This works with both Android and iOS devices (thanks Google). While it’s not a good as the regular remote, it works fine enough if you’re too lazy to get up and find the standard remote.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Not bad for the size, but not the cheapest**
 
@@ -204,11 +196,12 @@ thumbnail: https://www.lifewire.com/thmb/j1tkOKUhuIALS8eNIxFVwtF70ts=/400x300/fi
  The X850F series is far from perfect, but the Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV and its family are more than capable of providing a pleasurable viewing experience for most people. Despite this, there are probably better options out there that can be had for even less.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
@@ -223,14 +216,11 @@ thumbnail: https://www.lifewire.com/thmb/j1tkOKUhuIALS8eNIxFVwtF70ts=/400x300/fi
 * Speakers  2 full range, 2ch
 * Connectivity Options  4 HDMI
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -239,4 +229,21 @@ thumbnail: https://www.lifewire.com/thmb/j1tkOKUhuIALS8eNIxFVwtF70ts=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-fast-frame-freedom-in-photography-for-2024/"><u>[New] Fast Frame Freedom in Photography for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-low-end-devices-high-outputs-streamline-with-obs/"><u>[Updated] In 2024, Low-End Devices, High Outputs Streamline with OBS</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-tips-for-staying-positive-in-the-face-of-critical-youtube-comments/"><u>[Updated] Tips for Staying Positive in the Face of Critical YouTube Comments</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/analyzing-performance-and-capabilities-of-the-midland-lxt500vp3-transceiver-a-detailed-review/"><u>Analyzing Performance & Capabilities of The Midland LXT500VP3 Transceiver: A Detailed Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/breaking-down-the-timeless-appeal-a-deep-dive-into-the-iconic-lg-watch-style-powered-by-wear-os-nv20/"><u>Breaking Down the Timeless Appeal: A Deep Dive Into the Iconic LG Watch Style Powered by Wear OS Nv20</u></a></li>
+<li><a href="https://network-issues.techidaily.com/gpu-glitch-fixed-uninterrupted-video-output-now/"><u>GPU Glitch Fixed: Uninterrupted Video Output Now</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hp-omen-obelisk-unleashed-the-ultimate-guide-to-the-most-value-packed-gaming-desktop-on-the-market/"><u>HP OMEN Obelisk Unleashed: The Ultimate Guide to the Most Value-Packed Gaming Desktop on the Market</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-realme-gt-5-pro-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Realme GT 5 Pro FRP Bypass Instantly</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-gaming-4-solid-reasons-to-get-ps5/"><u>Maximizing Gaming: 4 Solid Reasons to Get PS5</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/oneplus-9-evaluation-calculations-fall-short-in-expectations/"><u>OnePlus 9 Evaluation: Calculations Fall Short in Expectations</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solution-guide-enable-sounds-for-cyberpunk-2077-in-windows-11-environment/"><u>Solution Guide: Enable Sounds for Cyberpunk 2077 in Windows 11 Environment</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-10-best-tools-to-bypass-icloud-activation-lock-on-iphone-se-2022-you-should-try-out-by-drfone-ios/"><u>The 10 Best Tools to Bypass iCloud Activation Lock On iPhone SE (2022) You Should Try Out</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/uncover-hidden-gems-how-to-recover-archived-instagram-reels/"><u>Uncover Hidden Gems: How To Recover Archived Instagram Reels</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unmatched-audio-experience-with-high-fidelity-muffs/"><u>Unmatched Audio Experience with High-Fidelity Muffs</u></a></li>
+</ul></div>
 

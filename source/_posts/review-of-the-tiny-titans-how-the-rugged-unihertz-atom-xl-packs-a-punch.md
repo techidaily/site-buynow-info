@@ -1,7 +1,7 @@
 ---
 title: "Review of the Tiny Titans: How the Rugged Unihertz Atom XL Packs a Punch"
-date: 2024-10-30T19:28:48.724Z
-updated: 2024-11-05T18:11:24.176Z
+date: 2024-11-15T00:39:06.876Z
+updated: 2024-11-15T17:27:52.915Z
 categories:
   - BestProducts
 description: "This Article Describes Review of the Tiny Titans: How the Rugged Unihertz Atom XL Packs a Punch"
@@ -44,22 +44,15 @@ Lifewire / Yoona Wagener
 
 3.8
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Withings Withings Move Hybrid Smartwatch
 
 ![Withings Move](https://www.lifewire.com/thmb/0q_63hnHYzqQ5_H2Q2RzjXF5Nls=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4161013-1-a308b649704344f6b5fd15dc900e5742.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
@@ -90,10 +83,16 @@ Lifewire / Yoona Wagener
 ![Withings Move](https://www.lifewire.com/thmb/SRCqvDOet8fouJ8uY8ze0LlCiog=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-2-1fdc9f06eb6a45f2baa2b840822fba5d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
@@ -115,10 +114,10 @@ Lifewire / Yoona Wagener
 ![Withings Move](https://www.lifewire.com/thmb/Qz1dlsE8jl99mXc7-kQ5LCVoiK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-3-b1e97631284d40829bd5714c59dc5f2a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
@@ -133,6 +132,13 @@ Lifewire / Yoona Wagener
 
  First, we paired the Withings Move with our phone via Bluetooth, which was instantaneous. Next, we provided profile information for better activity metrics, downloaded an update, made sure the watch dials were working and the time was set correctly, and we were good to go.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Comfort: Light as a feather, even while sleeping**
 
  Some watches can feel heavy by the end of the day, but we didn’t encounter that weighed-down feeling with the Withings Move. The watch is really lightweight and the band is soft, flexible, and slim, which made sleeping with it a non-issue. It was also easy to achieve a good fit—especially for smaller wrists—thanks to the plentiful notches and the tab to keep the band in place.
@@ -142,13 +148,6 @@ Lifewire / Yoona Wagener
  We did notice that both the front and back of the watch face scratched easily over the course of a week, and suspect this could be a bigger issue for those who are harder on their accessories.
 
 ![Withings Move](https://www.lifewire.com/thmb/WIXFA6BpXvAMWLdKpJ_jmzZh6o4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-5-cbc0f43d847b453bbfae994f03374cdb.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
 
@@ -177,10 +176,10 @@ Lifewire / Yoona Wagener
 ![Withings Move](https://www.lifewire.com/thmb/02bkMrpkzqBOue1ffhHNfQqaIuk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-4-df866fafd70a44c592e0e06e0ea53ae7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
@@ -196,6 +195,13 @@ Lifewire / Yoona Wagener
  Despite the lack of a[touchscreen](https://www.lifewire.com/what-is-a-touchscreen-4144770) or dashboard interface on the watch, it was never difficult to sync data with the Health Mate app or view metrics. It’s easy and uncomplicated to use for recording or launching activities—including[tracking food](https://www.lifewire.com/best-food-tracker-apps-4172287) with the MyFitnessPal integration. Since the app is really what provides the “smart” qualities of the device, we hoped it would deliver on that, and it did.
 
  There are also a number of other supplemental programs you can sign up for through the Health Connect app in order to up your general wellness. Most of these programs, which are free to join, require a specific type of Withings device, but others, like a meditation and pregnancy tracking program, don’t need any additional equipment.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: A bargain for the value**
 
@@ -244,17 +250,20 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-selecting-perfect-dimensions-video-aspect-ratios/"><u>2024 Approved Selecting Perfect Dimensions Video Aspect Ratios</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-pros-and-cons-of-lg-gram-17-your-complete-high-performance-review/"><u>Discover the Pros and Cons of LG Gram 17 - Your Complete High-Performance Review</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-asus-rog-phone-8-pro-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Asus ROG Phone 8 Pro to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-how-to-brand-your-youtube-channel-to-get-more-subscribers/"><u>In 2024, How to Brand Your YouTube Channel to Get More Subscribers</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-apple-id-verification-code-not-working-from-apple-iphone-13-by-drfone-ios/"><u>In 2024, How To Fix Apple ID Verification Code Not Working From Apple iPhone 13</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-cat-s42-durable-smartphone-analysis-impressive-safety-features-but-modest-performance/"><u>In-Depth CAT S42 Durable Smartphone Analysis: Impressive Safety Features but Modest Performance</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/perfecting-your-look-with-top-facelift-apps-for-2024/"><u>Perfecting Your Look with Top Facelift Apps for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/swift-shutter-speeds-discovering-tt560s-brilliance/"><u>Swift Shutter Speeds: Discovering TT560's Brilliance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-wired-earbuds-of-2024/"><u>The Best Wired Earbuds of 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/the-updated-method-to-bypass-xiaomi-civi-3-frp-by-drfone-android/"><u>The Updated Method to Bypass Xiaomi Civi 3 FRP</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-lava-yuva-3-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Lava Yuva 3 Phones</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-why-apples-201/"><u>Ultimate Guide: Why Apple's 201</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-superior-free-fb-visual-storyteller-tool-for-2024/"><u>[New] Superior Free FB Visual Storyteller Tool for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-audience-allure-video-marketing-strategies-for-youtube-trailers-via-filmora/"><u>[Updated] Audience Allure Video Marketing Strategies for YouTube Trailers via Filmora</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-pathway-understanding-adobes-storage-solutions-and-best-backups/"><u>2024 Approved The Ultimate Pathway Understanding Adobe's Storage Solutions & Best Backups</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-balancing-cost-against-performance-in-the-swagtron-swagboard-t1/"><u>Comprehensive Review: Balancing Cost Against Performance in the Swagtron Swagboard T1</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-chipset-technologies-for-pc-builders/"><u>Decoding Chipset Technologies for PC Builders</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dissecting-the-shortcomings-of-nikon-l340/"><u>Dissecting the Shortcomings of Nikon L340</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/examining-luminances-contribution-to-hdr-artscape/"><u>Examining Luminance’s Contribution to HDR Artscape</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-unveiling-the-power-and-quality-of-the-samsung-qn55q60rafxza-smart-tv-with-hdr1nplus/"><u>Expert Review: Unveiling the Power and Quality of the Samsung QN55Q60RAFXZA Smart TV with HDR1n+</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ring-the-depths-of-asmr-audio-magic/"><u>Exploring the Depths of ASMR Audio Magic</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-market-the-finest-netgear-routers-of-2024-for-enhanced-connectivity/"><u>Exploring the Market: The Finest NETGEAR Routers of 2024 for Enhanced Connectivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gopros-high-end-black-camera-the-hero9-review/"><u>GoPro's High-End Black Camera - The HERO9 Review</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-tecno-camon-30-pro-5g-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-virtual-excellence-top-5-upcoming-playstation-vr-titles/"><u>In 2024, Unveiling Virtual Excellence Top 5 Upcoming PlayStation VR Titles</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-how-to-use-adjustment-layer-in-photoshop-in-2024/"><u>New How to Use Adjustment Layer in Photoshop, In 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-7-standing-desks-of-2023-comprehensive-review/"><u>Top 7 Standing Desks of 2023: Comprehensive Review</u></a></li>
 </ul></div>
 

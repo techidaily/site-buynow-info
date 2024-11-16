@@ -1,7 +1,7 @@
 ---
 title: Experiencing the Combination of Style & Functionality with the Flexispot Theodore Standing Desk
-date: 2024-09-04T01:44:04.695Z
-updated: 2024-09-05T01:44:04.695Z
+date: 2024-11-12T00:31:53.629Z
+updated: 2024-11-16T03:21:13.506Z
 categories:
   - BestProducts
 description: This Article Describes Experiencing the Combination of Style & Functionality with the Flexispot Theodore Standing Desk
@@ -75,6 +75,13 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/YQBwL9wFHphVzIqJYlYwd0J2OYU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-2-7e358ac09a2c48fbb0f6aaec1e9381e9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
 
 ## Story: Engaging and well written
@@ -89,12 +96,6 @@ Andy Zahn / Lifewire
 
  Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Gameplay: Fun, but deeply flawed
 
  As with the game as a whole, Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows. It does some things very well and stumbles bafflingly in other regards. The game mostly takes place in the first person, with third-person view being an option while driving.
@@ -117,6 +118,13 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/ByBdwophc_bSfdD-P0CfbqJgbwY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-7-e6be7e2c1ae24ac3a1c5dbfd4a5b595a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
 
  You can also use fast travel booths to get around instantly once you’ve unlocked them, though I found myself favoring the slow route, despite the issues inherent in that experience. Cruising through Night City is truly a jaw-dropping experience.
@@ -131,12 +139,6 @@ Andy Zahn / Lifewire
 
  Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Customization: Lots to tinker with
 
  There is a deep level of character customization possible in Cyberpunk 2077, and you can sink a lot of time into creating the perfect character. Of course, you can always just pick a preset, but where's the fun in that? I tried to craft a likeness of Snake Plissken from Escape from Los Angeles, but couldn’t get it quite right, so I made a rough approximation of Basil Fawlty instead.
@@ -167,6 +169,19 @@ At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/JM3cD1pX6maee1yiQYZnSgc-9pw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-4-624da4fa8225434eb59ba999a53dafd6.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
 
 ## Mature content: Pushing the boundaries
@@ -190,11 +205,12 @@ Andy Zahn / Lifewire
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/toUXDFSRFZjol-BOgnhnVEyJTYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-8-7b54b824c3bc4dcfb04234f69204d2f6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
 
  If you don’t have a ray tracing enabled card, you may want to think twice about Cyberpunk 2077 until you’re able to upgrade. It’s playable on older cards, but the incredible visuals of this game running on high-end hardware are such an integral part of the experience that it’s hard to recommend running in a reduced capacity. The same goes for last-gen consoles ([PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) ,[Xbox One](https://www.lifewire.com/xbox-one-buyers-guide-3562291) ), where the experience is also greatly impacted by reduced processing power. Players are reporting the worst issues on these older consoles, where Cyberpunk appears to be almost unplayable for many.
@@ -203,12 +219,6 @@ Andy Zahn / Lifewire
 
  An alternative worth considering if you have a robust high-speed internet connection is streaming the game on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) . This will allow you to experience the game at its best without having to invest in a two thousand dollar PC. However, it does leave your ability to play the game at the mercy of your ability to access a strong internet connection.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Graphics: Ahead of its time
 
  The star of the show in Cyberpunk 2077 are the visuals, and if you have a PC with the hardware to render the game at its maximum quality while maintaining playable frame rates the world of Night City is absolutely jaw-dropping. Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
@@ -230,31 +240,34 @@ Andy Zahn / Lifewire
 Andy Zahn / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Multiplayer: Absent for the moment
 
  At launch and for long after Cyberpunk 2077 will be a single-player game. However, CDPR has said that a few years down the road they will be launching a multiplayer mode, and a lot of people are looking forward to that. Of course, it is impossible to predict if this will be any good or if some circumstances might prevent its release, but there is a lot of potential for Cyberpunk to become a better experience when Night City goes online. With that said, CDPR really needs to fix the single-player game before they even think about launching multiplayer.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Price: A refreshing lack of micro-transactions
 
  At $60 with no extra monetization at launch, Cyberpunk 2077 is something of a bargain. Take this with a grain of salt though, as this situation could change dramatically once the multiplayer mode is released.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Cyberpunk 2077 vs. Assassin’s Creed: Valhalla
 
  Though very different in setting, tone, and gameplay perspective,[Assassin’s Creed: Valhalla](https://www.lifewire.com/assassin-s-creed-valhalla-review-an-epic-viking-adventure-across-the-medieval-world-5086782) is a similarly vast open-world that launched not long before Cyberpunk 2077, and gamers may be split on which to dump a hundred or more hours of time into. At the time of writing, Valhalla is a much more polished and complete experience. Also, whereas the dystopia of Night City can be an oppressive environment to spend many hours exploring, the green hills of England in Assassin's Creed: Valhalla offer an escapist experience.
@@ -269,18 +282,6 @@ Andy Zahn / Lifewire
 
  Cyberpunk 2077 had enormous potential, but it launched long before it was complete and the result is a deeply conflicting experience. Game-breaking bugs, performance issues, missing features, and demanding hardware requirements make it difficult to recommend, but there is the core of something great lying within. There are hundreds of hours of content to enjoy if you can temper your expectations and employ a saintly degree of patience.
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Cyberpunk 2077
@@ -290,14 +291,11 @@ Andy Zahn / Lifewire
 * Platforms  PC, Xbox Series X, Xbox One, PlayStation 5, PlayStation 4, Stadia
 * Rating  M
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -306,4 +304,24 @@ Andy Zahn / Lifewire
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-revolutionize-your-harvest-stardews-top-7-upgrades/"><u>[New] 2024 Approved Revolutionize Your Harvest Stardew's Top 7 Upgrades</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-from-front-to-back-mastering-instagram-video-spins-for-maximum-impact/"><u>[Updated] 2024 Approved From Front to Back Mastering Instagram Video Spins for Maximum Impact</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-craft-your-visual-narrative-top-10-iphoneandroid-screenshot-sticker-apps/"><u>[Updated] Craft Your Visual Narrative – Top 10 iPhone/Android Screenshot Sticker Apps</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-uncover-exquisite-vr-trails-for-bikers/"><u>[Updated] Uncover Exquisite VR Trails for Bikers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazonbasics-flat-tv-antenna-review-free-tv-on-a-budget/"><u>AmazonBasics Flat TV Antenna Review: Free TV, On a Budget</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-rog-rapture-gt-ax110-an-in-depth-performance-analysis-for-gamers/"><u>Asus ROG Rapture GT-AX110# - An In-Depth Performance Analysis for Gamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-the-oneplus-amoeba-9-pros-blend-of-trendy-appearance-quick-responsiveness-and-camera-excellence/"><u>Comprehensive Review: The OnePlus Amoeba 9 Pro's Blend of Trendy Appearance, Quick Responsiveness & Camera Excellence</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cost-vs-convenience-unveiling-the-glory-of-glion-dolly-electric-scooters-in-our-detailed-critique/"><u>Cost vs Convenience - Unveiling the Glory of Glion Dolly Electric Scooters in Our Detailed Critique</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/creating-martian-cities-that-spin-into-exciting-fun-for-gamers/"><u>Creating Martian Cities That Spin Into Exciting Fun for Gamers</u></a></li>
+<li><a href="https://win11.techidaily.com/direct-to-windows-11s-call-center/"><u>Direct to Windows 11'S Call Center</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-amazfit-helio-ring-unveiling-the-cost-launch-timeline-and-detailed-specifications/"><u>Discover Amazfit Helio Ring: Unveiling the Cost, Launch Timeline & Detailed Specifications</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-itel-s23-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Itel S23 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/improve-phone-connectivity-with-these-high-performing-signal-boosters-2024-edition/"><u>Improve Phone Connectivity with These High-Performing Signal Boosters - 2024 Edition</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-troubleshooting-error-connecting-to-the-apple-id-server-on-iphone-13-pro-max-by-drfone-ios/"><u>In 2024, Troubleshooting Error Connecting to the Apple ID Server On iPhone 13 Pro Max</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-nulaxy-km18-fm-transmitter-veterans-choice-for-your-vehicle-bluetooth-needs/"><u>In-Depth Evaluation of Nulaxy KM18 FM Transmitter: Veteran's Choice for Your Vehicle Bluetooth Needs</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/novices-compendium-understanding-pixel-perfection/"><u>Novice's Compendium Understanding Pixel Perfection</u></a></li>
+<li><a href="https://win-answers.techidaily.com/six-easy-fixes-to-stop-your-minecraft-game-from-continuously-crashing/"><u>Six Easy Fixes to Stop Your Minecraft Game From Continuously Crashing</u></a></li>
+</ul></div>
 

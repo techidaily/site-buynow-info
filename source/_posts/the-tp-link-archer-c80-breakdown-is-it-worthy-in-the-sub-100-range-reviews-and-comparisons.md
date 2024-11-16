@@ -1,7 +1,7 @@
 ---
 title: "The TP-Link Archer C80 Breakdown: Is It Worthy in the Sub-$100 Range? - Reviews & Comparisons"
-date: 2024-10-24T21:08:08.329Z
-updated: 2024-10-30T16:02:56.874Z
+date: 2024-11-11T19:42:17.897Z
+updated: 2024-11-15T22:46:46.049Z
 categories:
   - BestProducts
 description: "This Article Describes The TP-Link Archer C80 Breakdown: Is It Worthy in the Sub-$100 Range? - Reviews & Comparisons"
@@ -46,13 +46,6 @@ Lifewire / Jeremy Laukkonen
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Microsoft Xbox Series S
 
 ![Xbox Series S](https://www.lifewire.com/thmb/wlG_GrSmQPVex-VRt3ap4hsTP-s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
@@ -82,17 +75,38 @@ Lifewire / Jeremy Laukkonen
 
  This console is remarkably compact and has a surprisingly low price point. Gamers looking for a[4K UHD in HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) experience will need to pay a premium for the Series X, but the Xbox Series S offers an enticing alternative if you’re looking to save some money or haven’t yet made the jump to 4K.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Sleek and compact**
 
  The Xbox Series S is small, and it's almost impossible to oversell that point. I had seen pictures and videos of the console and the spec sheet, but I was still surprised at how compact this thing was when I unboxed it. It's smaller than the Xbox One S, and Microsoft bills it as "our smallest Xbox ever." That's especially noteworthy since Microsoft and Sony went exceptionally big with their flagship consoles, the Series X and PlayStation 5.
 
 ![Xbox Series S](https://www.lifewire.com/thmb/3-mUIkkRYilM5F2tvCYMPXtW1Ew=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1-04d996bcdfbb489d84e8945e4c475713.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
  The overall form factor of the Series S is similar to the Xbox One S, but the Series S lacks an optical drive and includes a massive circular vent on one side. This striking design choice has drawn comparisons to a speaker and a washing machine. It also bears a passing resemblance to Microsoft’s[adaptive controller](https://www.lifewire.com/what-is-the-xbox-adaptive-controller-4707753) , which is boxy, white, and features two large black circular pads. This aesthetic might not be for everyone, but I like how it stands next to my television.
 
  Aside from the bold vent grill, the Series S doesn’t break any new ground regarding design choices. It has sturdy rubber feet on two sides, so you can lay it flat or stand it up on end, as has become more or less standard with home consoles. It feels pretty sturdy in both positions.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Easier than ever before**
 
@@ -103,13 +117,6 @@ Lifewire / Jeremy Laukkonen
  I highly recommend setting up the Xbox Series S with the help of the Xbox app. It massively streamlines the process, makes it easier to connect to Wi-Fi since you don’t need to type out your password with the Xbox’s on-screen keyboard, and even pre-loads the Series S with settings from your old Xbox One if you had one.
 
  I ended up wiping the console back to factory settings a few times while I put it through its paces, so I also tried the traditional setup method after circling back. It’s similar to setting up an Xbox One; not that difficult or time-consuming, but the app option is better.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Rock solid 1440p gaming**
 
@@ -134,16 +141,10 @@ Lifewire / Jeremy Laukkonen
  Load times were negligible in each game I played, which I expected from a super-fast NVME SSD storage system. Some games had more noticeable load times than others, but not enough to disrupt gameplay.
 
 <!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Games: Microsoft still has an exclusivity problem**
@@ -176,25 +177,11 @@ Lifewire / Jeremy Laukkonen
 
  So if you go with an external USB drive, you'll only be able to play Xbox One, Xbox 360, and original Xbox games stored on it.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Internet Connectivity: Fast when wired, but Wi-Fi is a mixed bag**
 
  With all those massive games and the fact that the Series S is a digital-only console, you will spend a lot of time downloading. The Series S has built-in Wi-Fi and an Ethernet port, so you have options, but a wired connection is the way to go here.
 
 ![Xbox Series S](https://www.lifewire.com/thmb/_GSxQvNgtJMhoyNl62qlg671Qvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2-25991056c5c2486695923f7c1b61c7b5.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -209,13 +196,6 @@ Lifewire / Jeremy Laukkonen
  Microsoft isn’t looking to rock the boat with the Xbox Series X|S in terms of the user interface. If you’ve used an Xbox One, you’ll find the Xbox Series X|S user interface strangely familiar. The dashboard looks almost the same, and the guide functions as expected. There are a few upgrades and changes here and there, but this is nothing like the massive change between the Xbox 360 dashboard and the Xbox One dashboard.
 
  An overhaul of the dashboard is currently in the works, and we expect it to arrive in 2023.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Controller: Iteration more than innovation**
 
@@ -245,6 +225,13 @@ Lifewire / Jeremy Laukkonen
 
  One expense you may need to budget is a high-speed USB 3.1 drive. The console is perfectly usable without an external drive, but expect to uninstall games regularly to make more space if you limit yourself to the onboard storage.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Xbox Series S vs. PS5 Digital**
 
  This comparison is a bit of an unfair fight because Microsoft and Sony took entirely different approaches when designing their lower-priced console options. Microsoft cut back on hardware to offer an incredibly low price point, while Sony removed the optical drive. The result is that the PS5 Digital blows the Xbox Series S out of the water in terms of graphics and performance, but they aren’t even in the same time zone in terms of price.
@@ -258,6 +245,13 @@ Lifewire / Jeremy Laukkonen
  **An affordable alternative for those without a 4K television.**
 
  The Xbox Series S might be a bit of a step back from the Xbox One X in performance, but the fact is that it’s a next-gen console that plays next-gen games with some impressive hardware and an unreal price tag. Gamers in search of the best graphics possible will want to look at the Xbox Series X instead, but gamers who haven’t yet made the 4K plunge, parents in need of an affordable console for their kids, or anyone looking to save money will all find something to like here.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -301,17 +295,16 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-cut-to-perfection-a-detailed-guide-on-youtube-short-video-making/"><u>[New] 2024 Approved Cut to Perfection A Detailed Guide on YouTube Short Video Making</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-clarity-counts-how-to-zoom-into-every-aspect-of-google-meet-calls-for-2024/"><u>[New] Clarity Counts How to Zoom Into Every Aspect of Google Meet Calls for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-elevate-your-gaming-yt-presence-a-hashtag-focused-manual/"><u>[Updated] In 2024, Elevate Your Gaming YT Presence A Hashtag-Focused Manual</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-central-points-for-virtual-world-engagement/"><u>2024 Approved Central Points for Virtual World Engagement</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-crafting-breathtaking-image-mosaics-step-by-step/"><u>2024 Approved Crafting Breathtaking Image Mosaics Step-by-Step</u></a></li>
-<li><a href="https://techtrends.techidaily.com/dvddvdavi/"><u>高效率DVD转换软件解决方案：轻松快速将DVD改造为AVI格式</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-opinion-on-the-dell-inspiron-3671-balancing-performance-and-value-in-a-mid-range-pc/"><u>Expert Opinion on the Dell Inspiron ^ 3671 - Balancing Performance and Value in a Mid-Range PC</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-premier-selection-of-asus-router-models-dominating-2024-market-trends/"><u>Exploring the Premier Selection of ASUS Router Models Dominating 2024 Market Trends</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/guide-to-getting-back-your-lost-volume-icon-on-windows-10-infographics-included/"><u>Guide to Getting Back Your Lost Volume Icon on Windows 10 [Infographics Included]</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reimagining-ubisofts-hit-series-with-watch-dogs-legion-critique/"><u>Reimagining Ubisoft's Hit Series with Watch Dogs: Legion Critique</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-asus-rog-phone-7-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Asus ROG Phone 7 Location | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-lenovo-tab-p11-pro-impressive-features-with-minor-downsides/"><u>Unveiling the Lenovo Tab P11 Pro: Impressive Features with Minor Downsides</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-marketing-mastery-discerning-real-engagement-from-skewed-statistics/"><u>[New] 2024 Approved Marketing Mastery Discerning Real Engagement From Skewed Statistics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-tailoring-your-content-youtube-video-length-reduction-guide/"><u>[Updated] 2024 Approved Tailoring Your Content YouTube Video Length Reduction Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-tips-for-effective-mov-file-saving-on-windows-11/"><u>[Updated] 2024 Approved Tips for Effective MOV File Saving on Windows 11</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-compendium-of-top-rated-instagram-analytics-applications-for-2024/"><u>[Updated] The Ultimate Compendium of Top-Rated Instagram Analytics Applications for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-hp-laserjet-p3amodel-p3015-driver-software-for-windows-operating-system/"><u>Latest HP LaserJet P3amodel P3015 Driver Software for Windows Operating System</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/resolve-instagrams-video-problems-swiftly/"><u>Resolve Instagram's Video Problems Swiftly</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-poweradd-pilot-pro2-unveiled-innovative-solutions-for-powering-your-tech-expert-insight/"><u>The POWERADD Pilot Pro2 Unveiled: Innovative Solutions for Powering Your Tech - Expert Insight</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-a-value-packed-ergonomic-microsoft-sculpt-keyboard/"><u>The Ultimate Guide to Choosing a Value-Packed, Ergonomic Microsoft Sculpt Keyboard</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-oneplus-nord-n10-5g-expert-insights/"><u>The Ultimate Verdict on OnePlus Nord N10 5G – Expert Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-virtual-frontier-a-complete-breakdown-of-star-wars-squadrons-immersive-space-battles/"><u>The Virtual Frontier: A Complete Breakdown of Star Wars: Squadrons Immersive Space Battles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/theta-sc2-revealed-a-small-package-big-imagination/"><u>Theta SC2 Revealed: A Small Package, Big Imagination</u></a></li>
 </ul></div>
 

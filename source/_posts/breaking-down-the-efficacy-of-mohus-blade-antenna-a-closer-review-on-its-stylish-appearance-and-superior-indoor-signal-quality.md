@@ -1,7 +1,7 @@
 ---
 title: Breaking Down The Efficacy of Mohu's Blade Antenna - A Closer Review on Its Stylish Appearance & Superior Indoor Signal Quality
-date: 2024-09-04T01:44:04.475Z
-updated: 2024-09-05T01:44:04.475Z
+date: 2024-11-10T16:21:51.447Z
+updated: 2024-11-15T22:45:39.615Z
 categories:
   - BestProducts
 description: This Article Describes Breaking Down The Efficacy of Mohu's Blade Antenna - A Closer Review on Its Stylish Appearance & Superior Indoor Signal Quality
@@ -36,6 +36,13 @@ Lifewire / Jonno Hill
 [View On Amazon](https://www.amazon.com/dp/B00RFLXE0A/?tag=lifewire-onsite-prod-20&ascsubtag=4843342%7Cnd6b0a376738146aca4eb3eb22dadbe7c12%7CB00RFLXE0A)
 
 4.2
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 1byone Amplified Digital HDTV Antenna
 
@@ -80,30 +87,12 @@ Lifewire / Jonno Hill
 
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Good enough for most**
 
  The 1byone Digital Amplified Indoor HD TV Antenna didn’t have the best performance of the antennas we’ve tested, falling somewhere in the middle of the pack. In my channel acquisition test, I averaged 59 channels across all the tests performed. This compares to the worst performing antenna at just 47, and the best at 76.
 
  This should be more than suitable for most people living within a city in relatively close proximity to the source of the TV signal. As for those living further, your mileage may vary.
 
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Range: Middle of the road**
 
  1byone makes no specific promises about the range of their antenna, although they do cite users having positive experiences from as far as 48 miles away in their customer testimonials. Given how many factors impact the effective range, I think it is somewhat wise not to make any promises. Nonetheless, this is clearly a device that will be best suited for people living in or near major metropolitan areas.
@@ -111,41 +100,25 @@ Lifewire / Jonno Hill
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/6y-ITpY8n7xf8BteMqdJjYm-paU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_05-178a02351af040cc89c86169b88a6de2.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: A great deal**
 
  The 1byone Digital Amplified Indoor Antenna costs just $25, making it the least expensive option out of the antennas I tested. It picked up all the major channels that I would actually watch, and didn’t have any issues with the signal. So from my perspective, why would I pay more? I think buyers would probably be best served by seeing if an antenna like this works for them. If you discover you need something more substantial, feel free to move on to a pricier option.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **1byone Digital Amplified Indoor HD TV Antenna vs Mohu Leaf 30 TV Antenna**
 
  Another popular manufacturer is Mohu, and the Mohu Leaf 30 TV Antenna offers a simpler, non-amplified solution that only loses out on a hair of performance versus the 1byone. I preferred the build quality of the Mohu Leaf, if only marginally, and like the simplicity of not needing additional wires and boxes hanging out of my TV.
@@ -159,11 +132,12 @@ Lifewire / Jonno Hill
  The 1byone Digital Amplified Indoor Antenna offers the best value out of all the indoor antennas that we tested. If you can get the performance you need from the 1byone, it’s the antenna to buy. I wouldn’t consider other options unless you’ve already ruled out this one.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Amplified Digital HDTV Antenna
@@ -177,14 +151,11 @@ Lifewire / Jonno Hill
 * Indoor/Outdoor  Indoor
 * Warranty  One year limited
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -193,4 +164,26 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-beat-the-bad-guys-top-kung-fu-action-puzzle-games-for-2024/"><u>[New] Beat the Bad Guys Top Kung Fu Action Puzzle Games for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ptimal-7-dslr-selections-for-in-depth-vlog-documentaries/"><u>[New] Optimal 7 DSLR Selections For In-Depth Vlog Documentaries</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-crypto-clout-how-much-does-the-youtube-gamer-make/"><u>[Updated] In 2024, Crypto Clout How Much Does the YouTube Gamer Make?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-art-of-editing-decoded-a-deep-dive-into-magix-vpx/"><u>[Updated] The Art of Editing Decoded A Deep Dive Into Magix VPX</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/blh4100-blade-120-size-rtf-outdoor-rc-helicopter-evaluation/"><u>BLH4100 Blade 120-Size RTF Outdoor RC Helicopter Evaluation</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/descargar-y-convertir-archivos-webm-a-formato-de-video-wmv-sin-coste-alguno-con-conversor-online-facil-movavi/"><u>Descargar Y Convertir Archivos Webm a Formato De Vídeo WMV Sin Coste Alguno Con Conversor Online Facil - Movavi</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-highest-quality-bodycams-for-security-forces-in-202e/"><u>Evaluating the Highest Quality Bodycams for Security Forces in 202E</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-honor-x9b-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Honor X9b</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-activate-miracast-streaming-with-updated-graphics-drivers-a-step-by-nstep-guide/"><u>How to Activate Miracast Streaming with Updated Graphics Drivers - A Step-by-nStep Guide</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-nokia-g42-5g-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Nokia G42 5G Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insights-into-google-stadias-capabilities-identifying-room-for-development/"><u>Insights Into Google Stadia's Capabilities: Identifying Room for Development</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-xumo-recording-a-guide-to-three-effective-techniques/"><u>Mastering XUMO Recording: A Guide to Three Effective Techniques</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nikon-coolpix-b500-a-wi-fi-reality-check/"><u>Nikon COOLPIX B500: A Wi-Fi Reality Check</u></a></li>
+<li><a href="https://howto.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-tecno-camon-20-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-lenovo-ideapad-320-reviewed-unveiling-a-portable-masterpiece-with-classic-lenovo-typing-perfection/"><u>The Lenovo Ideapad 320 Reviewed: Unveiling a Portable Masterpiece with Classic Lenovo Typing Perfection</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-mobile-sound-oasis-sonos-roam-review-insights/"><u>The Mobile Sound Oasis: Sonos Roam Review Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-asus-ax6000-rt-ax88u-router-review-mastering-smart-connectivity-with-wi-fi-6-technology/"><u>The Ultimate Asus AX6000 RT-AX88U Router Review - Mastering Smart Connectivity with Wi-Fi 6 Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-creatives-premium-sound-blaster-zxr-a-detailed-look-at-its-2013-flagship-features/"><u>Unboxing and Testing Creatives' Premium Sound Blaster ZxR: A Detailed Look at Its 2013 Flagship Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-latest-ipad-pro-m1-2021-revolutionizing-performance-for-mobile-professionals/"><u>Unboxing the Latest iPad Pro (M1, 2021): Revolutionizing Performance for Mobile Professionals</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Guide to the Netgear Nighthawk RAX80: Experience Lightning-Fast Wi-Fi 6 Technology"
-date: 2024-11-03T20:06:21.772Z
-updated: 2024-11-05T16:00:05.168Z
+date: 2024-11-12T16:06:54.522Z
+updated: 2024-11-15T22:05:33.195Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Guide to the Netgear Nighthawk RAX80: Experience Lightning-Fast Wi-Fi 6 Technology"
@@ -44,10 +44,10 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
@@ -55,16 +55,10 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/AfRhNgqeOD7JfcVqpjzm5LwPSB4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -91,6 +85,13 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -111,14 +112,14 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
- Lifewire / Andrew Hayward
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Andrew Hayward
 
 ## **Connectivity: Smooth sailing**
 
@@ -135,13 +136,6 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
  Given the high max speeds, it wasn’t surprising to see strong gaming performance, as well. While playing Rocket League, I saw smooth gameplay across the wired Ethernet connection as well as both wireless networks, with a ping as low as 33 via the wired connection. The wireless ping was only a few points higher.
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -193,17 +187,20 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-live-sound-perfection-our-selections-of-the-top-6-stream-friendly-mics/"><u>[New] 2024 Approved Live Sound Perfection Our Selections of the Top 6 Stream-Friendly Mics</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-saving-screen-shots-in-windows-systems/"><u>[New] In 2024, Saving Screen Shots in Windows Systems</u></a></li>
-<li><a href="https://extra-information.techidaily.com/disabling-suggested-podcast-episodes-on-spotify/"><u>Disabling Suggested Podcast Episodes on Spotify</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-latest-fitbit-charge/"><u>Expert Insights on the Latest Fitbit Charge</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/free-lossless-conversion-transforming-mkv-files-into-mp4-using-handbrake/"><u>Free Lossless Conversion: Transforming MKV Files Into MP4 Using HandBrake</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/get-the-best-bang-for-your-buck-with-the-pruveeo-f5-108pressure-dash-cam-our-expert-analysis/"><u>Get the Best Bang for Your Buck with the Pruveeo F5 108Pressure Dash Cam - Our Expert Analysis</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/in-2024-a-soundtrack-journey-unveiling-10-key-spots-to-get-your-digital-music/"><u>In 2024, A Soundtrack Journey Unveiling 10 Key Spots to Get Your Digital Music</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Oppo A78 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-smart-home-security-an-insightful-review-on-rings-innovative-doorbell-pro/"><u>Mastering Smart Home Security: An Insightful Review on Ring's Innovative Doorbell Pro</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-nokia-g42-5g-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Nokia G42 5G</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/the-ultimate-student-essentials-asus-vivobook-s-15-reviewed/"><u>The Ultimate Student Essentials - ASUS Vivobook S 15 Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-asus-chromebook-flip-c302ca-exceptional-value-convertible-design-and-impressive-features/"><u>Top Rated ASUS Chromebook Flip C302CA - Exceptional Value, Convertible Design, and Impressive Features</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-best-online-radio-stations-worldwide-for-2024/"><u>[Updated] Best Online Radio Stations Worldwide for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-top-screen-savers-webs-best-free-choices/"><u>2024 Approved Top Screen Savers Web's Best Free Choices</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/conversione-gratuita-dei-file-vob-in-mp4-per-mac-un-tutorial-facile-da-seguire/"><u>Conversione Gratuita Dei File VOB in MP4 per Mac: Un Tutorial Facile Da Seguire</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/enriching-video-storytelling-implement-3-vital-description-methods-on-instagram-for-2024/"><u>Enriching Video Storytelling Implement 3 Vital Description Methods on Instagram for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/experience-unmatched-endurance-with-the-moto-g-power-a-comprehensive-review/"><u>Experience Unmatched Endurance with the Moto G Power - A Comprehensive Review</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-apple-iphone-14-plus-ios-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair Apple iPhone 14 Plus iOS? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-kobo-nia-the-answer-to-your-ebook-needs-a-look-at-its-competitiveness-against-kindle/"><u>Is Kobo Nia the Answer to Your Ebook Needs? A Look at Its Competitiveness Against Kindle</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/macbook-showdown-the-air-vs-pro-unveiling-their-unique-features/"><u>MacBook Showdown: The Air Vs. Pro - Unveiling Their Unique Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/madden-nfl-19-evaluation-stellar-gameplay-features-with-signs-of-repetition/"><u>Madden NFL '19 Evaluation: Stellar Gameplay Features with Signs of Repetition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/master-your-virtual-adventures-with-the-oculus-quest-2-elite-battery-extension-and-durable-case-tested-and-reviewed/"><u>Master Your Virtual Adventures with the Oculus Quest 2 Elite - Battery Extension and Durable Case Tested & Reviewed!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nintendo-switch-showdown-comparing-the-standard-model-with-the-new-oled/"><u>Nintendo Switch Showdown: Comparing the Standard Model with the New OLED</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-michael-kors-access-gen-5e-mkgo-where-elegance-meets-practicality/"><u>Review of Michael Kors ACCESS Gen 5E MKGO: Where Elegance Meets Practicality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-the-latest-in-wireless-doorbells-exploring-the-ring-model/"><u>Review: The Latest in Wireless Doorbells - Exploring the Ring Model</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/tips-for-seamless-integration-of-supplementary-footage-for-2024/"><u>Tips for Seamless Integration of Supplementary Footage for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/transform-audible-audiobooks-seamlessly-discover-the-most-effective-epub-converters-available-today/"><u>Transform Audible Audiobooks Seamlessly – Discover the Most Effective EPUB Converters Available Today!</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Economic Speedy Flash: Introducing the Affordable & Feature-Rich YN560IV"
-date: 2024-10-30T21:00:32.127Z
-updated: 2024-11-05T20:27:31.249Z
+date: 2024-11-09T01:04:54.239Z
+updated: 2024-11-16T02:07:52.980Z
 categories:
   - BestProducts
 description: "This Article Describes The Economic Speedy Flash: Introducing the Affordable & Feature-Rich YN560IV"
@@ -44,10 +44,10 @@ Lifewire / Emily Isaacs
 4.5
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Nintendo Game & Watch: Super Mario Bros
@@ -77,6 +77,13 @@ Lifewire / Emily Isaacs
 
  What better way to celebrate both of their birthdays than by bringing both titles together for a self-contained wombo-combo celebrating their 40th and 35th anniversaries respectively? I put the handheld to the test for three weeks.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Retro, bold look & feel
 
  From the moment you pick up and pop open the box, the design oozes old-school cool and nostalgia. It’s a special edition release—and it feels like it. Intentionally stylized black and gold packaging, which resembles the retro feel of the 1980s Game & Watch classic titles, is a familiar and warm return to an era.
@@ -101,6 +108,13 @@ Lifewire / Emily Isaacs
 
 Lifewire / Emily Isaacs
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Gameplay: Challenging, but fun
 
  The Game & Watch: Super Mario Bros. is preloaded with Super Mario Bros., Super Mario Bros. 2 (also known as The Lost Levels), and Ball_,_ the foremost title in the Game & Watch series. Also included are 35 hidden interactions, which make the standard Watch mode a joy as well.
@@ -110,13 +124,6 @@ Lifewire / Emily Isaacs
  The Game & Watch: Super Mario Bros. is preloaded with Super Mario Bros., Super Mario Bros. 2 (also known, The Lost Levels), and Ball_,_ the foremost title in the Game & Watch series.
 
  The Ball game is the only included Game & Watch title in the product. Balls bounce back and forth in the air as you juggle them to keep them from hitting the ground. Instead of the classic Ball character design, Mario’s head has been superimposed on the character. It’s a much simpler game, and it’s OK, but this game loses its allure fairly quickly due to the repetitive gameplay.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Audio: Surprisingly loud and crisp
 
@@ -129,10 +136,10 @@ Lifewire / Emily Isaacs
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/PvTcnsQLDp7SFCPIeHreGfS-dgM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_05-01b731a5406d4cbfa37be90277c6e89b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
@@ -142,13 +149,6 @@ Lifewire / Emily Isaacs
  Thanks to the Game & Watch’s lovely, classic retro design, sturdy frame, crisp and clear LCD screen, and great game content, retailing for only $50, the Nintendo Game & Watch: Super Mario Bros. is a great value for the price. We just wish there were more games included, especially as other similar classic releases such as the SNES mini have seen as many as 30 titles included with its launch.
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/Te3HyEg18zLT9zKT-eZuFtev8So=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_02-6af770f871344e16ad3f45320d46d52a.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -169,10 +169,10 @@ Lifewire / Emily Isaacs
  The Nintendo Game & Watch: Super Mario Bros. is a throwback to an older, simpler era of gaming that packs a wallop of a punch, bringing the challenge of the original Super Mario games and the original Game & Watch Ball title while making them accessible to a whole new generation of players. While we do wish Nintendo had included additional titles—who doesn’t want_more_ classic options when these are so fun—it’s no showstopper for enjoying this product.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -212,18 +212,18 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-fortnite-thumbnail-blitz-a-30-second-guide/"><u>[Updated] 2024 Approved Fortnite Thumbnail Blitz A 30-Second Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagram-savvy-top-5-methods-for-building-a-thriving-influencer-profile/"><u>[Updated] 2024 Approved Instagram Savvy Top 5 Methods for Building a Thriving Influencer Profile</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-partedlens-overview-for-2024/"><u>[Updated] PartedLens Overview for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-elevate-your-filmmaking-top-strategies-for-gopro-timelapses/"><u>2024 Approved Elevate Your Filmmaking Top Strategies for GoPro Timelapses</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/crafting-audio-with-chatgpt-tips-for-daw-integration/"><u>Crafting Audio with ChatGPT - Tips for DAW Integration</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/docooler-usb-flash-drive-with-hd-camera-12-mp-is-it-worth-your-investment/"><u>Docooler USB Flash Drive with HD Camera (12 MP): Is It Worth Your Investment?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/for-literary-nomads-discover-a-game-changer-the-portable-and-practical-kobo-clara-hd-reader/"><u>For Literary Nomads, Discover a Game-Changer: The Portable and Practical Kobo Clara HD Reader</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Infinix Note 30 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-examination-of-ankers-roav-dashcam-c1-for-enhanced-vehicle-security/"><u>In-Depth Examination of Anker's Roav DashCam C1 for Enhanced Vehicle Security</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-brand-comparisons-selecting-the-best-cable-modem-and-router-combo-of-2024/"><u>Leading Brand Comparisons: Selecting the Best Cable Modem and Router Combo of 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-review-of-the-poweradd-pilot-pro2-charger-for-multiple-devices/"><u>Top Review of the POWERADD Pilot Pro2 Charger for Multiple Devices</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-guide-fixing-freezing-issues-in-halo-infinite/"><u>Troubleshooting Guide: Fixing Freezing Issues in Halo Infinite</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/user-ratings-and-insights-a-look-into-google-maps-for-apples-mobile-os/"><u>User Ratings and Insights: A Look Into Google Maps for Apple's Mobile OS</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-10-premier-ios-games-fully-enjoyable-without-wireless-connection/"><u>[New] 2024 Approved 10 Premier iOS Games, Fully Enjoyable without Wireless Connection</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-the-premier-selection-of-economical-video-collaboration-tools-businesseducation-edition/"><u>[Updated] 2024 Approved The Premier Selection of Economical Video Collaboration Tools Business/Education Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-excellence-unboxing-the-fellowes-microban-wired-keyboard/"><u>Affordable Excellence: Unboxing the Fellowes Microban Wired Keyboard</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-roku-streaming-stick-with-extensive-media-catalog/"><u>Affordable Roku Streaming Stick with Extensive Media Catalog</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/alienware-aurora-r7-examined-exceptional-gaming-prowess-at-an-attainable-cost/"><u>Alienware Aurora R7 Examined - Exceptional Gaming Prowess at an Attainable Cost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-google-stadia-identifying-potential-enhancements/"><u>Assessing Google Stadia: Identifying Potential Enhancements</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/erasing-your-digital-footprint-on-twitch-an-in-depth-tutorial/"><u>Erasing Your Digital Footprint on Twitch: An In-Depth Tutorial</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Vivo S17t | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pioneering-websites-for-modern-letterforms/"><u>In 2024, Pioneering Websites for Modern Letterforms</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722475771520-revolutionize-your-drive-the-ultimate-car-code-readers-compilation-best-books-and-articles-on-auto-engineering/"><u>Revolutionize Your Drive: The Ultimate Car Code Readers Compilation – Best Books and Articles on Auto Engineering</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-rated-miniature-computers-comprehensive-reviews-by-tech-experts-zdnet/"><u>Top-Rated Miniature Computers : Comprehensive Reviews by Tech Experts | ZDNet</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/transforming-srt-a-complete-reference-guide-for-conversion-for-2024/"><u>Transforming SRT A Complete Reference Guide for Conversion for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/vyncs-link-review-breakdown-exceptional-tracking-capabilities-undermined-by-puzzling-subscription-structures/"><u>Vyncs Link Review Breakdown: Exceptional Tracking Capabilities Undermined by Puzzling Subscription Structures</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Discover Top-Tier VR Gaming with Oculus Quest 2 - Expert Review and Pricing Breakdown
-date: 2024-09-04T01:44:22.875Z
-updated: 2024-09-05T01:44:22.875Z
+date: 2024-11-13T23:24:05.729Z
+updated: 2024-11-16T02:20:24.420Z
 categories:
   - BestProducts
 description: This Article Describes Discover Top-Tier VR Gaming with Oculus Quest 2 - Expert Review and Pricing Breakdown
@@ -36,6 +36,13 @@ Lifewire / Zach Sweat
 [View On Amazon $150](https://www.amazon.com/Elite-2-Controller-Black-Xbox-One/dp/B07SFKTLZM/?tag=lifewire-onsite-prod-20&ascsubtag=4796457%7Cnbd5105eb0dc54e3e804df51703e5036902%7CB07SFKTLZM) [View On Walmart $150](https://www.walmart.com/ip/Microsoft-Xbox-Elite-Wireless-Controller-Series-2-Black-FST-00001/784834522) [View On Adorama.com $180](https://www.adorama.com/xbfst00001.html)
 
 4.8
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Microsoft Xbox One Elite Series 2 Controller
 
@@ -94,12 +101,6 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/TRrezKVbAUPs2Rud3g4_iOHyxB8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-2-4b3f9d8acd1440089989378253d902f4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
 ## **Comfort: Hefty, but darn comfy**
@@ -116,12 +117,6 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/cS5fpyPSlqvyETs-nGxTtAB3vXU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-4-070b6c59b206457ba1068704bbe7bca9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
 ## **Setup Process and Software: Bluetooth, at long last**
@@ -144,20 +139,8 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance/Durability: Enhanced performance and durability**
 
  To test the performance of the new Elite Series 2 controller, I put this device through several hours of gaming on both PC and Xbox One platforms running a number of games and layouts. The results were promising, so let’s take a closer look.
@@ -181,11 +164,12 @@ Lifewire / Zach Sweat
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Like buying a brand new console**
 
  Right now, the Elite Series 2 controller retails at an MSRP of $249.99, about $100 more than its predecessor. This price tag makes it not only the most expensive first-party controller around, but also nearly the cost of a brand new Xbox One S console (or three brand new titles). That can be a tough sell for your average gamer.
@@ -196,7 +180,21 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/6VfCJGOyjLkAkE_mjiHr7rz8Gyw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-6-0c1d7a2ae4e8443ea5b69f559e52bd12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
 
@@ -213,17 +211,12 @@ Lifewire / Zach Sweat
  Everything we disliked about the original Elite controller has been improved with the second iteration, making it the best first-party controller you can get for XB1 or PC. However, the steep price point might be a hard pill to swallow for users who don’t like to splurge.
 
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Xbox One Elite Series 2 Controller
@@ -241,14 +234,11 @@ Lifewire / Zach Sweat
 * Warranty  90-day warranty
 * Compatibility  All Xbox One Consoles, Windows 10 PCs, Bluetooth devices
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -257,4 +247,24 @@ Lifewire / Zach Sweat
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-skip-unwanted-podcast-advice-on-the-spotify-app/"><u>[New] Skip Unwanted Podcast Advice on the Spotify App</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-close-up-communication-the-art-of-zoom-on-teams/"><u>2024 Approved Close-Up Communication The Art of Zoom on Teams</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/beat-prime-day-rush-with-early-access-to-amazons-significant-markdown-on-samsung-t5-ssd-grab-yours-now/"><u>Beat Prime Day Rush with Early Access to Amazon's Significant Markdown on Samsung T5 SSD - Grab Yours Now!</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/capturing-your-screen-apowersoft-and-others/"><u>Capturing Your Screen Apowersoft and Others</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/choosing-between-gps-and-cellular-a-comprehensive-guide-for-apple-watch-users/"><u>Choosing Between GPS and Cellular – A Comprehensive Guide for Apple Watch Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-how-the-samsung-galaxy-watch-active-enhances-personal-wellness/"><u>Comprehensive Review: How the Samsung Galaxy Watch Active Enhances Personal Wellness</u></a></li>
+<li><a href="https://app-tips.techidaily.com/cutting-edge-ai-how-openais-gpt-4-goes-mini-reduces-application-development-expenses-insights-from-zdnet/"><u>Cutting Edge AI: How OpenAI's GPT-4 Goes Mini Reduces Application Development Expenses - Insights From ZDNet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-leading-home-theater-pcs-for-2t24s-best-viewing-experience/"><u>Discover the Leading Home Theater PCs for 2T24's Best Viewing Experience</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-install-canon-printer-mg3000-drivers-step-by-step-guide/"><u>Download and Install Canon Printer MG3000 Drivers: Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-assessment-huion-inspiroy-g1-drawing-tablet-top-tier-craftsmanship-meets-excellent-functionality/"><u>Expert Assessment: Huion Inspiroy G1# Drawing Tablet – Top-Tier Craftsmanship Meets Excellent Functionality</u></a></li>
+<li><a href="https://games-able.techidaily.com/exploring-asus-rog-tuf-gaming-vs-proart-and-prime-systems/"><u>Exploring Asus ROG, TUF Gaming Vs. ProArt & Prime Systems</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/gadget-unveiling-top-youtube-channels-to-watch/"><u>Gadget Unveiling Top YouTube Channels to Watch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/havit-5-adjustable-cooler-for-gamers-in-depth-review-and-performance-insights/"><u>HAVIT 5 Adjustable Cooler for Gamers: In-Depth Review and Performance Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-iphone-security-find-your-perfect-antivirus-among-these-6-superior-choices/"><u>Navigating iPhone Security: Find Your Perfect Antivirus Among These 6 Superior Choices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stylish-meets-tech-savvy-a-detailed-review-of-fitbits-latest-smartwatch-charge-4/"><u>Stylish Meets Tech Savvy: A Detailed Review of Fitbit's Latest Smartwatch, Charge 4</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/timeless-eye-catcher-software/"><u>Timeless Eye Catcher Software</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-restful-nights-in-depth-analysis-of-ihome-zenergy-bedside-machine/"><u>Unveiling the Power of Restful Nights: In-Depth Analysis of IHome Zenergy Bedside Machine</u></a></li>
+</ul></div>
 

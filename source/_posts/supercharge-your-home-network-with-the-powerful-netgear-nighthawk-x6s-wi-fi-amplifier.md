@@ -1,7 +1,7 @@
 ---
 title: Supercharge Your Home Network with the Powerful Netgear Nighthawk X6S Wi-Fi Amplifier
-date: 2024-09-04T01:44:04.044Z
-updated: 2024-09-05T01:44:04.044Z
+date: 2024-11-11T18:06:34.523Z
+updated: 2024-11-15T20:43:09.979Z
 categories:
   - BestProducts
 description: This Article Describes Supercharge Your Home Network with the Powerful Netgear Nighthawk X6S Wi-Fi Amplifier
@@ -43,6 +43,13 @@ thumbnail: https://www.lifewire.com/thmb/SwSiYSvovD8czLmqZWa6Xf3GiwQ=/400x300/fi
 
 ![Netgear Nighthawk X10 AD7200](https://www.lifewire.com/thmb/0rm8vUox5EoeaGCQJw0E5XQxwck=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_HeroSquare-885945bb208b49a583aca8da1aa09378.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 [View On Amazon $440](https://www.amazon.com/dp/B01M12RE4A?tag=lifewire-onsite-prod-20&ascsubtag=4846418%7Cnd55a891e250641509ef77229001ead8021%7CB01M12RE4A) [View On Walmart $279](https://www.walmart.com/ip/122396083) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-nighthawk-x10-ad7200-tri-band-wi-fi-router-black%2F5610805.p%3FskuId%3D5610805)
@@ -81,18 +88,6 @@ thumbnail: https://www.lifewire.com/thmb/SwSiYSvovD8czLmqZWa6Xf3GiwQ=/400x300/fi
 
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/I8vaunCMjxEzWH-oM1U7fsSYe9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_04-abc45a63844e4ebe8f43e4f6facbd601-d54874ec8e984393b51c0bea9803c849.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jeremy Laukkonen
 
 ## **Setup Process: Zero hassle from start to finish**
@@ -108,11 +103,12 @@ Lifewire / Jeremy Laukkonen
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Connectivity: AD7200 tri-band with MU-MIMO and 10G SFP+**
 
  The Netgear Nighthawk X10 AD7200 is an AD7200 tri-band router, which means it’s capable of providing 1733Mbps over a 5GHz wireless network, 800Mbps over a 2.4GHz network, and a blistering 4600Mbps over a 60Hz network. That last one is the key feature here, as only 802.11ad routers like this one feature a super-high-speed 60GHz network.
@@ -128,11 +124,12 @@ Lifewire / Jeremy Laukkonen
  For physical connectivity, the Nighthawk X10 features six Ethernet ports, two of which can be used together to create a single 2Gbps connection. You also get two USB 3.0 ports for connecting USB drives and a single 10Gbps SFP+ LAN port. This final port is potentially the most interesting, and also most niche since it allows you to connect a high-speed NAS server, a secondary switch for more Ethernet ports, or other devices that require a bunch of high-speed bandwidth.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Network Performance: Fantastic 5GHz performance, WiGig leaves a bit to be desired**
 
  Since this is an 802.11ad router, and the 60GHz WiGig network is the key feature here, that’s where I’m going to start. All of my tests are performed using a 1Gbps Mediacom cable internet connection, so any testing done on an 802.11ad router like this involves data transfer speeds within my network, not the internet connection. For testing purposes, I have a[laptop](https://www.lifewire.com/best-laptops-to-buy-4043650) that I retrofitted with a network interface card featuring the QCA9005 chipset.
@@ -146,11 +143,12 @@ Lifewire / Jeremy Laukkonen
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/Jwl6BD38cWznmN0op6bpzAmBs_U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_03-4cfe683a7cf94e94b14c0ec2be12da50.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
  To the Nighthawk X10’s credit, the 5GHz network performance exceeded my wildest expectations. Using my 1Gbps Mediacom cable internet connection, I measured a relatively mediocre 373Mbps down and 73.6Mbps up. At the same time, using a wired connection to the same router, I measured 536.8Mbps down.
@@ -162,6 +160,13 @@ Lifewire / Jeremy Laukkonen
  The Nighthawk X10 held strong though, dropping the download speed to 38.8Mbps and the upload speed to 13.1Mbps, but without touching the ping, barely increasing jitter, and introducing just 1.2 percent packet loss. Strangely enough, this 802.11ad router’s strongest selling point might be the impressively robust nature of its 5GHz network.
 
  Strangely enough, this 802.11ad router’s strongest selling point might be the impressively robust nature of its 5 GHz network.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software: Netgear’s web interface and web app, plus Plex and more**
 
@@ -177,12 +182,6 @@ Lifewire / Jeremy Laukkonen
 
  I plugged in one of my media-filled SSD USB drives and had no trouble streaming to any of the Plex clients I have on my network.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Not bad if you really need 802.11ad**
 
  With an MSRP of $500, and a street price closer to $250, the Nighthawk X10 AD7200 is a tough sell to most consumers. It features a wireless technology that hasn’t really caught on, and which most consumers just won’t be able to take advantage of. For the money you’d spend on this router, you could get a high-end 802.11ax router.
@@ -205,12 +204,6 @@ Lifewire / Jeremy Laukkonen
 
  The Netgear Nighthawk X10 AD7200 is a bit of a mixed bag since its key feature is so niche. If you really need an 802.11ad router, you may want to look for one with a stronger range. However, this router has fantastic performance on the 5GHz band, and the Plex Media Server implementation is also a very strong plus. If short-range 802.11ad support with excellent fallback 5GHz performance sounds good to you, then this is the router you’re looking for.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Nighthawk X10 AD7200 Router
@@ -238,8 +231,6 @@ Lifewire / Jeremy Laukkonen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -247,4 +238,24 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-essential-free-web-converters-top-10-jpeg-to-gif-changers/"><u>[Updated] 2024 Approved Essential Free Web Converters Top 10 JPEG-to-GIF Changers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-basics-to-advanced-a-polarr-photo-editor-journey/"><u>[Updated] From Basics to Advanced A Polarr Photo Editor Journey</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-camera-control-tips-for-unshakable-images/"><u>2024 Approved Camera Control Tips for Unshakable Images</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-surveillance-on-wheels-a-comprehensive-review-of-rexing-v1-dashcam/"><u>Affordable Surveillance on Wheels: A Comprehensive Review of Rexing V1 DashCam</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-watch-series-6-assessment-slight-improvements-yet-unmatched-excellence/"><u>Apple Watch Series 6 Assessment: Slight Improvements, Yet Unmatched Excellence</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/boost-your-3d-printing-skills-using-chatgpt-step-by-step-instructions/"><u>Boost Your 3D Printing Skills Using ChatGPT - Step-by-Step Instructions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhance-your-connection-with-crystal-clear-audio-review-of-the-midland-gxt1000vp4/"><u>Enhance Your Connection with Crystal Clear Audio: Review of the Midland GXT1000VP4</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-next-level-performance-a-thorough-examination-and-rating-of-the-m1-chip-integrated-apple-macbook-air-2020-release/"><u>Experience Next-Level Performance: A Thorough Examination and Rating of the M1 Chip Integrated Apple MacBook Air (2020 Release)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-into-google-nest-wi-fi-mastering-speedy-wireless-mesh-solutions/"><u>Expert Insights Into Google Nest Wi-Fi: Mastering Speedy, Wireless Mesh Solutions</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/how-to-enable-hevc-h265-video-compression-on-handbrake-for-optimal-streaming-quality/"><u>How To Enable HEVC H.265 Video Compression on Handbrake for Optimal Streaming Quality</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Honor 90 GT? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-infinix-note-30i-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Infinix Note 30i to Outlook | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-network-locked-samsung-galaxy-a23-5g-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Samsung Galaxy A23 5G Phone?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-complete-guide-to-vivo-y100-5g-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Vivo Y100 5G FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nikon-coolpix-b500-review-a-wi-fi-camera-that-does-not-impress/"><u>Nikon COOLPIX B500 Review: A Wi-Fi Camera That Does Not Impress</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unbox-test-and-review-navigating-features-on-the-hisense-40h5590f-led-set/"><u>Unbox, Test and Review: Navigating Features on the Hisense 40H5590F LED Set</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-value-of-mophies-ac-charging-solution-a-balance-between-expense-and-usability/"><u>Unpacking the Value of Mophie's AC Charging Solution - A Balance Between Expense and Usability</u></a></li>
+</ul></div>
 

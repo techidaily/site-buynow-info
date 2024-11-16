@@ -1,7 +1,7 @@
 ---
 title: "DJI's RoBOmaster S1 Explored: An Entertaining Battle Bot With Programming Fun"
-date: 2024-09-04T01:44:13.924Z
-updated: 2024-09-05T01:44:13.924Z
+date: 2024-11-12T02:31:44.954Z
+updated: 2024-11-15T17:54:44.497Z
 categories:
   - BestProducts
 description: "This Article Describes DJI's RoBOmaster S1 Explored: An Entertaining Battle Bot With Programming Fun"
@@ -42,6 +42,13 @@ Lifewire / Kelsey Simon
 
 ![The Outer Worlds](https://www.lifewire.com/thmb/pXP4DrL3GC0-M_12FqdQQWlLjXk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-HeroSquare-5886d4533ee146b18daef3a40898b264.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Kelsey Simon
 
 [View On Steampowered.com](https://store.steampowered.com/app/578650/The%5FOuter%5FWorlds/)
@@ -61,11 +68,12 @@ Lifewire / Kelsey Simon
  The Outer Worlds is a single-player[action-adventure game](https://www.lifewire.com/game-play-and-streaming-4781449) full of guns, colonists, spaceships, and monsters. You’ll venture out into a sci-fi world and try to save your ship which has had a serious malfunction. The shooting in Outer Worlds is fun, but the game’s best feature is its choice-driven story. We played the game on PC for roughly 20 hours, thoroughly enjoying its dark humor and fun gameplay.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Story: Engaging dialogue and dark humor**
 
  The Outer Worlds is a science fiction game with a focus on dry, dark humor. You’ll start the game by waking up on a malfunctioning spaceship. A man has woken you from stasis and says he needs you to save the ship and all the people living in stasis upon it. His name is Phineas Welles, and he’ll give you a very brief rundown that you’re to meet a smuggler who will take you to someone who can save your ship and people. As you go through this short cutscene sequence, you’ll be prompted to make your character, select your aptitude, skills, and attributes, before Phineas will drop you in a pod down to a planet where you’re to meet the smuggler, Hawthorne.
@@ -86,6 +94,13 @@ Lifewire / Kelsey Simon
 
 ![The Outer Worlds](https://www.lifewire.com/thmb/6e7gsLSJwKWV8-Gpw6vMnU6_ohk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-02-03e4afcdc62d4528a5e0b6e4e19ae03b.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 ## **Gameplay: Shooting enemies for story progression**
@@ -102,44 +117,27 @@ Lifewire / Kelsey Simon
 
 ![The Outer Worlds](https://www.lifewire.com/thmb/ax345l2R5dAgwtloXADYi2mrtKE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-03-933e9037c06d4754b04cca743675f3e5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Graphics: Average, but solid**
 
  The Outer Worlds doesn’t attempt to do anything amazing with its graphics, which is totally fine. There’s no artistic flair like with Borderlands, nor is there an attempt at extremely realistic textures like with Monster Hunter: World, but the Outer Worlds does enough. The graphics are on par with other big name titles, and the landscapes of the various planets you’ll visit are interesting and different enough. This helps make exploration fun, but really, there isn’t anything amazing about the graphics. They are what they need to be. The only other thing also worth mentioning is the slightly humorous, constant propaganda that you’ll come across in various areas. In Emerald Vale, the starting area, you’ll start to see this theme and it will be carried through the rest of the game.
 
 ![The Outer Worlds](https://www.lifewire.com/thmb/sJTEo9nCHPyxpxLeue9TFUvPEaI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-04-2e28a12a6aac4163a86a580d2dac979f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Not bad if you enjoy story-driven games**
 
  The Outer Worlds costs $60 new, although you might be able to catch it on sale if you watch closely. Even at full cost, it’s a game worth buying if you enjoy science fiction inspired first-person shooters―or more specifically, single-player shooter games with a focus on storytelling. As someone who often doesn’t like spending loads of money on a new game, I will say that Outer Worlds was one I didn’t mind buying. The game is fun and well written. It’s an adventure to be had, and while it’s not the best game that’s ever been made, it’s a solid, well-made game that most will enjoy.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Sci-fi games with strong series**
 
  As mentioned earlier in the review, it is easy to see where else The Outer Worlds (view on[Amazon](https://www.amazon.com/Outer-Worlds-PS4-playstation-4/dp/B07SPKJRWX/?tag=lifewire-onsite-prod-20&ascsubtag=5077238%7Cnf824de6f2b6d448fa046a9bad43a687209%7C) ) takes inspiration. Mass Effect is a series with a lot of similarities. First, Mass Effect is also a sci-fi shooter focused on story-telling and decision-making. Its gameplay will feel very similar to Outer Worlds, although Outer Worlds has a better sense of humor. The second game that is similar and worth looking into is the Bioshock series. Bioshock is also a science fiction shooter with an apocalyptic feeling. It has a very similar gameplay experience as Mass Effect and Outer Worlds, and comes with a darker, well-written plot.
@@ -150,12 +148,6 @@ Lifewire / Kelsey Simon
 
  The Outer Worlds is a story-drive first-person shooter that has a great sense of humor. Each decision you make will impact how the game unfolds. The shooting, while basic, is fun and provides the perfect vehicle to propel you forward on your adventure. Overall, The Outer Worlds is a solid game if you’re looking for a fun, humorous single-player experience.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  The Outer Worlds
@@ -164,14 +156,11 @@ Lifewire / Kelsey Simon
 * ESRB Descriptors  Blood and gore, Intense violence, Strong language
 * Genre  Role Playing
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,4 +169,22 @@ Lifewire / Kelsey Simon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-earning-big-on-youtube-shorts-must-haves-opportunities-and-more-for-2024/"><u>[New] Earning Big on YouTube Shorts Must-Haves, Opportunities and More for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-leveraging-live-streaming-for-maximum-impact-on-youtube-with-limited-subscribers/"><u>[New] Leveraging Live Streaming for Maximum Impact on YouTube with Limited Subscribers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ransform-your-youtube-views-into-profits-instantly/"><u>[New] Transform Your YouTube Views Into Profits Instantly</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-innovative-use-of-movie-maker-for-digital-storytelling/"><u>2024 Approved Innovative Use of Movie Maker for Digital Storytelling</u></a></li>
+<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-xiaomi-redmi-note-13-pro-5g-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Xiaomi Redmi Note 13 Pro 5G to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ensure-regular-feeding-for-your-pet-with-petsafes-innovative-six-serving-dispenser/"><u>Ensure Regular Feeding for Your Pet with PetSafe's Innovative Six-Serving Dispenser</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-advice-on-strategic-ps4-webcam-installation-and-placement/"><u>Expert Advice on Strategic PS4 Webcam Installation & Placement</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-visual-quality-with-panasonic-wxf991/"><u>Exploring Visual Quality with Panasonic WXF991</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fellowes-microban-wired-keyboard-review-the-best-budget-option/"><u>Fellowes Microban Wired Keyboard Review: The Best Budget Option</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Samsung Galaxy A23 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ideal-tech-gadgets-for-sun-lovers-paradise/"><u>Ideal Tech Gadgets for Sun Lover's Paradise</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-itel-p55-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Itel P55</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/key-factors-to-evaluate-when-investing-in-a-pre-owned-ipad/"><u>Key Factors to Evaluate When Investing in a Pre-Owned iPad</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/philips-hf3520-wake-up-light-therapy-lamp-review/"><u>Philips HF3520 Wake-Up Light Therapy Lamp Review</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/ultimate-choices-in-video-collaboration-software-for-2024/"><u>Ultimate Choices in Video Collaboration Software for 2024</u></a></li>
+</ul></div>
 

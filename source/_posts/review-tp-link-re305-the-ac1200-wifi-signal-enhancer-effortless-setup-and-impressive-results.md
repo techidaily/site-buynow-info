@@ -1,7 +1,7 @@
 ---
 title: "Review: TP-Link RE305, the AC1200 WiFi Signal Enhancer – Effortless Setup and Impressive Results"
-date: 2024-11-02T18:53:05.103Z
-updated: 2024-11-05T17:07:29.496Z
+date: 2024-11-08T18:57:54.314Z
+updated: 2024-11-15T23:08:47.807Z
 categories:
   - BestProducts
 description: "This Article Describes Review: TP-Link RE305, the AC1200 WiFi Signal Enhancer – Effortless Setup and Impressive Results"
@@ -45,10 +45,10 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Ubiquiti Amplifi HD Mesh Wi-Fi System
@@ -95,13 +95,6 @@ Lifewire / Erika Rawes
 
  By default, the app creates a dual (2.4 and 5Ghz) network, which directs traffic based on the most efficient pathways. You can create separate 2.4 and 5Ghz networks, or make other adjustments as you see fit though. You can change the band on the mesh points (from 2.4 to 5Ghz), create additional SSIDs, and more. For the purpose of testing, I used the default combined network and allowed the system to direct network traffic between bands.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Connectivity: Lags when you add too many devices**
 
  The Amplifi HD system is not Wi-Fi 6 capable.[It has 802.11ac](https://www.lifewire.com/wireless-standards-802-11a-802-11b-g-n-and-802-11ac-816553) , and it's backwards compatible. On the back of the router sit four gigabit LAN ports in addition to the WAN connection. There’s no multigig port, but the four ports were a welcome addition.
@@ -109,6 +102,13 @@ Lifewire / Erika Rawes
  The Amplifi HD seems to be designed for[optimal signal range](https://www.lifewire.com/best-long-range-routers-4122554) , as opposed to device quantity. This is an ideal system for someone with a large area to cover, but it’s not a powerhouse capable of managing an army of devices like the Nighthawk AX12 or the TP-Link Archer AX6000\. The Amplifi system thrives in terms of its ability to push a signal over a long distance, as it can cover areas up to 20,000 square feet. The Amplifi system doesn’t exactly thrive in its ability to manage dozens of devices simultaneously.
 
  In my test home, speeds from my ISP max out at 500 Mbps. In the same room as the main router, Ookla measured the speed at 131 Mbps. The speed remained consistent throughout the home, even in rooms that typically experience drop offs with other routers. However, outside in the backyard, the speed reduced to 111 Mbps.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Key Features: A display screen**
 
@@ -126,25 +126,25 @@ Lifewire / Erika Rawes
 
 ![Amplifi HD](https://www.lifewire.com/thmb/2X1DxWPlS1VXqnwsUCG5qviJXwc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_03-56584e48b76942519745c71443c2e8d5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A little steep**
 
  The Amplifi HD system isn’t cheap. The package I tested, which came with the router and two mesh points, retails for $340\. You can find mesh systems for much less, and of course, some mesh systems are much more expensive. But, the Amplifi system’s design, easy setup, and feature set help justify the price.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Amplifi HD vs. Nest Wi-Fi**
 
@@ -189,22 +189,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-impressive-array-of-mobile-text-options/"><u>[New] 2024 Approved Impressive Array of Mobile Text Options</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/annual-workout-tunes-winners-list/"><u>Annual Workout Tunes Winners List</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/chatgpt-meets-android-worldwide/"><u>ChatGPT Meets Android Worldwide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-d-link-powerline-2000-seamless-installation-and-rapid-networking/"><u>Comprehensive Analysis of D-Link Powerline 2000: Seamless Installation & Rapid Networking</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discovering-powerhouse-portability-with-the-lenovo-thinkpad-x1-titanium-yoga-a-must-read-for-fans-and-newcomers/"><u>Discovering Powerhouse Portability with the Lenovo ThinkPad X1 Titanium Yoga - A Must-Read for Fans and Newcomers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elite-choices-top-key-discovery-gadgets/"><u>Elite Choices: Top Key Discovery Gadgets</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-apple-watch-series-6-subtle-enhancements-retaining-market-leadership/"><u>Evaluating the Apple Watch Series 6: Subtle Enhancements Retaining Market Leadership</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/grab-the-best-electronics-bargains-amazon-prime-day-sales-event-of-2024-awaits-you/"><u>Grab the Best Electronics Bargains: Amazon Prime Day Sales Event of 2024 Awaits You!</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-vivo-y27-4g-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Vivo Y27 4G to Mac? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-realme-c55-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Realme C55 Phone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-nailing-the-perfect-shot-expert-tips-for-android-time-lapse-videography/"><u>In 2024, Nailing the Perfect Shot Expert Tips for Android Time-Lapse Videography</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Vivo V29 Pro? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/power-up-your-gaming-experience-with-our-comprehensive-apc-ups-unit-evaluation/"><u>Power Up Your Gaming Experience with Our Comprehensive APC UPS Unit Evaluation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/selecting-top-tablet-computers-by-cpu-power-and-capabilities/"><u>Selecting Top Tablet Computers by CPU Power and Capabilities</u></a></li>
-<li><a href="https://techtrends.techidaily.com/unlocking-personalized-typography-downloading-fonts-for-iphones/"><u>Unlocking Personalized Typography: Downloading Fonts for iPhones</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-make-videos-with-pictures-and-music-10-apps/"><u>Updated In 2024, Make Videos with Pictures and Music-10 Apps</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/pgmmoveavi/"><u>オンラインで簡単に変換! 無料Pgmファイル用MoveAVIツール</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-step-into-pro-audio-recording-on-your-mac-using-audacity/"><u>[New] 2024 Approved Step Into Pro Audio Recording on Your Mac Using Audacity</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-beam-yourself-into-vr-android-tips-and-tricks/"><u>[New] In 2024, Beam Yourself Into VR Android Tips & Tricks</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-focus-on-the-main-sound-in-video-capturing-free-advice/"><u>[New] In 2024, Focus on the Main Sound in Video Capturing (Free Advice)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-rhythmic-reconnaissance-video-music-matchmaking-for-2024/"><u>[New] Rhythmic Reconnaissance Video Music Matchmaking for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-lush-backgrounds-a-compendium-of-free-screen-free-downloadables/"><u>2024 Approved Lush Backgrounds A Compendium of Free Screen-Free Downloadables</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-spark-interest-engage-followers-maximizing-tiktok-unboxer-appeal/"><u>2024 Approved Spark Interest, Engage Followers Maximizing TikTok Unboxer Appeal</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/affordable-and-eye-catching-discover-why-this-budget-laptop-boasts-an-impressive-display-quality/"><u>Affordable & Eye-Catching: Discover Why This Budget Laptop Boasts an Impressive Display Quality</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-why-chromebooks-are-ideal-for-daily-computing-needs-a-comparative-guide/"><u>Discover Why Chromebooks Are Ideal for Daily Computing Needs - A Comparative Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/jaco-smartpro-digital-tire-inflator-reviewed-portable-powerhouse-for-puncture-repairs/"><u>Jaco SmartPro Digital Tire Inflator Reviewed – Portable Powerhouse for Puncture Repairs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-budget-and-versatility-with-the-lenovo-chromebook-duet-review/"><u>Navigating Budget and Versatility with the Lenovo Chromebook Duet Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/premium-e-reader-showdown-amazon-kindle-oasis-is-the-expensive-price-worth-it/"><u>Premium E-Reader Showdown: Amazon Kindle Oasis - Is the Expensive Price Worth It?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sizzling-secrets-unveiled-the-ultimate-overcooked-2-critique/"><u>Sizzling Secrets Unveiled: The Ultimate Overcooked! 2 Critique</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-most-comfortable-and-efficient-keyboards-of-2024/"><u>The Most Comfortable and Efficient Keyboards of 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-perfect-companion-tp-link-wr902ac-mini-portable-hotspot/"><u>The Perfect Companion - TP-Link WR902AC Mini Portable Hotspot</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-review-a-practical-and-cost-effective-case-for-your-macbook-pro-13/"><u>Top Review: A Practical and Cost-Effective Case for Your MacBook Pro 13</u></a></li>
 </ul></div>
 

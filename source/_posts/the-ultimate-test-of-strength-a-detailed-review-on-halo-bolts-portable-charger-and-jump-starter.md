@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Test of Strength: A Detailed Review on Halo Bolt's Portable Charger & Jump Starter"
-date: 2024-09-04T01:44:06.004Z
-updated: 2024-09-05T01:44:06.004Z
+date: 2024-11-11T23:17:21.451Z
+updated: 2024-11-16T03:28:25.052Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate Test of Strength: A Detailed Review on Halo Bolt's Portable Charger & Jump Starter"
@@ -66,17 +66,12 @@ Lifewire / Fred Meyer
  We spent a week testing it, evaluating the design, ease of setup, network performance, and software.
 
 <!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design: A router’s aesthetics**
 
  The red-and-black color scheme of the EX6200 makes it look more like something out of Netgear's Nighthawk line rather than their standard series of extenders. It has a more premium feel than most extenders, and it's refreshing compared to the boring white plug-in boxes that house the majority of its peers.
@@ -85,12 +80,6 @@ Lifewire / Fred Meyer
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/lHiNdBeYxT8ClO7fv3LwEZqMjWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-6-5c924b2dc9e77c0001a9278c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Fred Meyer
 
  We also loved the fact that the EX6200 uses a separate AC adapter and cord to supply its power. Other extenders that plug into a socket limit the areas you can deploy them, take up a wall plug, and just are usually an eyesore. On the other hand, the EX6200 is a very attractive piece of equipment that looks sharp sitting on a desk. Also, if you just don't want to show, since it uses a cord you have the freedom to tuck it somewhere out of sight easily.
@@ -99,12 +88,6 @@ Lifewire / Fred Meyer
 
  For example, our[router](https://www.lifewire.com/what-is-a-router-2618162) sits in the living room entertainment center against one wall. On the opposite side of the wall sits an entertainment center in our bedroom. Now, we could run an Ethernet cord around the wall, through the bedroom door, and to the entertainment center, which would be around 60 feet or so, or we could drill through the wall and install an Ethernet socket. However, with the EX6200 we didn’t have to do either. Since it's right on the other side of the wall, we can set up the EX6200 and get the full signal to hardwire our TV,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and Xbox One, which gives better speed and reliability than if we used them with WiFi-only.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: A familiar process**
 
  Getting the EX6200 up and running is the same process used with pretty much every wireless extender on the market. Pull the thing out of the box, plug it in within 10-15 feet of your Wi-Fi router, and hit the WPS button. Then head over to your router and hit the corresponding WPS button on it. Voila! You're good to go.
@@ -114,11 +97,12 @@ Lifewire / Fred Meyer
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/Lny9pSzLcp1hItabWfQAbx8cAoc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-2-5c924b5846e0fb0001f8d14a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Fred Meyer
 
  Once you've got that taken care of, you'll have to find the best place for your extender's new home. If you're trying to improve the signal or hardwire something 25 feet away from your router or less, just plop it down in the area and you should be good to go. For further distances, you'll need to use a bit more finesse. Place the extender halfway between the router and the area you're trying to extend your Wi-Fi. Then you can check the light on top that shows the status of the connection between the extender and the router. Red is bad, yellow is mediocre, and green is good. If you've got a green, head over to the previously dead Wi-Fi area and check your network.
@@ -135,20 +119,8 @@ Lifewire / Fred Meyer
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/C3GG9BATc7pjzGQZsIXmC4hlBTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-4-5c924c5046e0fb000146ae2c-e8aa858c433c410696d08b615cdee234.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Fred Meyer
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Connectivity: Hardwire everything**
 
  The Netgear AC1200 Wireless WiFi Range Extender (EX6200) has dual-band Wi-Fi, boasting two antennas. It transmits and receives on the 2.4GHz and 5GHz bands and is compatible with Wi-Fi b/g/n/ac devices. The EX6200 is pretty run-of-the-mill when it comes to wireless connectivity, and its AC1200 rating (300Mbps+900Mbps) puts it roughly in the mid-range category. It's not a speed demon, but it's more than adequate for most applications.
@@ -165,6 +137,13 @@ Lifewire / Fred Meyer
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/ZHlEjP4KLtEcUqCvuXTg1eZBnFg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-3-5c924c8f46e0fb0001770187-2a10c24af5834857aeb7b4cfcd1cc6a9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Fred Meyer
 
 ## **Network Performance: Adequate but not spectacular**
@@ -179,6 +158,13 @@ Lifewire / Fred Meyer
 
  At $99.99 (MSRP) the EX6200 isn't exactly cheap. You can get extenders for $30 or lower that get the job done, but that's all they'll do. We found that the EX6200 struck a good balance between price and features, and is an excellent extender for most use cases.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Competition: Middle of the road choice**
 
  The EX6200 doesn't feature any mesh networking capabilities or a dedicated backhaul channel, so if you're wanting to deploy multiple extenders or plan on having heavy traffic, you might want to look at a higher-end model or opt for a mesh setup like[Google WiFi](https://www.lifewire.com/google-wifi-review-4589445) (MSRP $299). Though it comes at a much steeper price, it would allow you to cover a wider area through multiple units.
@@ -192,6 +178,13 @@ Lifewire / Fred Meyer
 **An all-around great buy.**
 
  If you're in the market for an extender, the EX6200 is one of our favorites. It doesn't excel in any category, but it does everything it’s designed to do well.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -218,14 +211,11 @@ Lifewire / Fred Meyer
 * Number of Wired Ports  Five
 * Range  85 Feet Maximum
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -234,4 +224,20 @@ Lifewire / Fred Meyer
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-prime-selection-the-best-12-pc-games-for-click-enthusiasts/"><u>[New] Prime Selection The Best 12 PC Games for Click Enthusiasts</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2023-guide-to-excellent-waterproof-video-gadgets-for-2024/"><u>[Updated] 2023 Guide to Excellent Waterproof Video Gadgets for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-navigate-the-quickest-growing-yt-havens-for-mental-brightness/"><u>[Updated] In 2024, Navigate the Quickest-Growing YT Havens for Mental Brightness</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-unlocking-creativity-top-5-expert-video-and-photography-plus-music-mixers/"><u>[Updated] Unlocking Creativity Top 5 Expert Video & Photography + Music Mixers</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-eliminate-red-screen-disruption-on-electronics/"><u>How to Eliminate Red Screen Disruption on Electronics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-look-apples-compact-marvel-the-ipad-mini-5-unveiled/"><u>Inside Look: Apple's Compact Marvel - The iPad Mini 5 Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-the-samsung-galaxy-tab-s3-still-a-great-choice-in-depth-analysis/"><u>Is the Samsung Galaxy Tab S3 Still a Great Choice? - In-Depth Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ns-43df710na19-review-affordable-ultra-hd-and-alexa-capabilities-on-amazons-insignia-fire-tv-edition/"><u>NS-43DF710NA19 Review: Affordable Ultra HD and Alexa Capabilities on Amazon's Insignia Fire TV Edition</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/savvy-photographers-guide-to-pristine-cloud-space-cost-free-and-paid-choices/"><u>Savvy Photographers' Guide to Pristine Cloud Space Cost-Free & Paid Choices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/spotlight-on-studiofxs-long-lasting-strong-box/"><u>Spotlight on StudioFX's Long-Lasting, Strong Box</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/take-flight-with-confidence-in-depth-review-of-the-blade-blh4100-120cc-fuel-powered-rc-helicopter-for-outdoor-enthusiasts/"><u>Take Flight with Confidence: In-Depth Review of the Blade BLH4100 120Cc Fuel-Powered R/C Helicopter for Outdoor Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-guide-to-choosing-a-lightweight-portable-tablet/"><u>The Definitive Guide to Choosing a Lightweight, Portable Tablet</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/uncovering-the-webs-leading-marketplaces-for-ringtones-for-2024/"><u>Uncovering the Web's Leading Marketplaces for Ringtones for 2024</u></a></li>
+</ul></div>
 

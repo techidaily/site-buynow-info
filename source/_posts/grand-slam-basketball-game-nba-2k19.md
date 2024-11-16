@@ -1,7 +1,7 @@
 ---
 title: "Grand Slam Basketball Game: NBA 2K19"
-date: 2024-10-31T19:19:03.742Z
-updated: 2024-11-05T21:07:26.841Z
+date: 2024-11-09T16:28:42.450Z
+updated: 2024-11-15T22:00:44.113Z
 categories:
   - BestProducts
 description: "This Article Describes Grand Slam Basketball Game: NBA 2K19"
@@ -42,10 +42,16 @@ Lifewire / Jeremy Laukkonen
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lenovo Tab M10 FHD Plus (2nd Gen)
@@ -53,10 +59,10 @@ Lifewire / Jeremy Laukkonen
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/dbD4xoAS3V_HdF9dkFJwAPoswK0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_HeroSquare-fd396d12e6ec48668ead96bed2f790fb.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -106,6 +112,13 @@ Lifewire / Jeremy Laukkonen
 
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/Ma5tHUu5pX1_gI7bCahJfUmTcJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_04-5bc59222ddfe4d488b3aaf566fdf3300.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
  The left edge is less interesting, as it’s bare aside from Lenovo’s dock connector. Unless you buy the version of the tablet that includes a dock, this connector is useless. You can’t buy the dock separately, and the version of the tablet that doesn’t ship with a dock has different firmware that locks out most of the dock functionality anyway.
@@ -121,13 +134,6 @@ Lifewire / Jeremy Laukkonen
  One issue I ran into is that this tablet supports only Widevine L3, which means some apps aren’t able to display high definition content. For example, everything I watched on Netflix was a bit blurry since Netflix is locked to SD resolutions on devices that don’t support Widevine L1 or L2\. Other apps, like HBO Max and YouTube, look great in full HD.
 
  The colors look great, the image is nice and crisp without visible pixelation, and it has great viewing angles thanks to the IPS panel.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Performance: Decent enough for the price
 
@@ -154,10 +160,10 @@ Lifewire / Jeremy Laukkonen
  I also used it for a handful of[Discord](https://www.lifewire.com/discord-4174046) video calls, but the low quality selfie cam failed to impress in that department. It works well enough in a pinch, but I wouldn’t recommend it as a primary device for word processing, video conferencing, or anything along those lines.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Audio: Stereo sound with Dolby Atmos
@@ -184,6 +190,13 @@ Lifewire / Jeremy Laukkonen
 
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/fW7pWFeGLdIkaBDNJBR5LIE2TF0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_03-638edb188f924604b2d38f1307add396.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
  The rear camera turns in uniformly disappointing results. Even given perfect light outdoors, shots tended to look washed out, unfocused, and lacking in detail. In less-than-perfect light, I found it very difficult to avoid blown-out photos, tons of noise, or even both in the same shot.
@@ -206,33 +219,20 @@ Lifewire / Jeremy Laukkonen
 
  Lenovo’s implementation of Android 10 is essentially stock, and I found it to run quite well. There are no unnecessary changes, additions, or cumbersome UX tweaks layered on top. You get pretty close to a stock experience, with the notable addition of Google Kids Space. This is a welcome addition, as it’s totally optional. You can ignore it if you bought the tablet for yourself or an older teen, or open the app and set it up if you want to provide tons of pre-approved apps, books, and other content for a younger child.
 
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Price: Decent price for a basic Android tablet
 
  The Tab M10 FHD has an MSRP of between $149.99 and $209.99 depending on the configuration you choose, with the version that includes a dock being a bit more expensive, and those prices are pretty reasonable. I’ve also seen it on sale for a bit less than that, at which point it makes the move from adequately priced to a great deal. If you find the configuration I tested, with 4GB of RAM, it'll be priced closer to $149.99—a fantastic value.
 
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/6jtXbNEbp6IeWqkD4Bs-0KjGx4Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_05-afa4a59fc67343c785979e6eb3f67c48.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lenovo Tab M10 FHD Plus (2020) vs. Lenovo Tab M10 HD
 
@@ -246,24 +246,18 @@ Lifewire / Jeremy Laukkonen
 
  The Lenovo Tab M10 FHD Plus (2020) is a great option if you’re looking for a basic Android tablet for less than $200\. It can’t stand up to more expensive tablets, but it’s great for basic tasks like email, web browsing, and streaming media. The only issue is that you can’t get the dock separately, so make sure to grab the Lenovo Smart Tab M10 FHD Plus that includes the dock if you want that functionality.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Lenovo P11 Pro](https://www.lifewire.com/lenovo-p11-pro-review-5116910)
 * [Lenovo Thinkpad X1 Fold](https://www.lifewire.com/lenovo-thinkpad-x1-fold-review-5095689)
 * [Lenovo Tab 4](https://www.lifewire.com/lenovo-tab-4-review-4691612)
-
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -302,19 +296,24 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-lensflexmax-7-superior-image-enlargement-tool-for-2024/"><u>[New] LensFlexMax 7 Superior Image Enlargement Tool for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-immersion-redefined-vrs-cinematic-promise-for-2024/"><u>[Updated] Immersion Redefined VR's Cinematic Promise for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-finding-your-fanbase-obs-or-twitch-studio/"><u>[Updated] In 2024, Finding Your Fanbase OBS or Twitch Studio</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-your-ultimate-guide-to-perfectly-recorded-lol-gaming/"><u>[Updated] Your Ultimate Guide to Perfectly Recorded LOL Gaming</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-uniden-r3-robust-design-with-impressive-signal-reach/"><u>Comprehensive Analysis of the Uniden R3 - Robust Design with Impressive Signal Reach</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/delving-deep-a-sincere-examination-of-recordcast/"><u>Delving Deep A Sincere Examination of RecordCast</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/explore-the-elite-collection-of-network-servers-and-enclosures/"><u>Explore the Elite Collection of Network Servers and Enclosures</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-zen-of-sleep-curated-asmr-vocalists/"><u>In 2024, The Zen of Sleep Curated ASMR Vocalists</u></a></li>
-<li><a href="https://win-manuals.techidaily.com/lost-in-icloud-discover-why-your-photos-wont-restore-and-solutions-for-successful-retrieval/"><u>Lost in iCloud? Discover Why Your Photos Won’t Restore & Solutions for Successful Retrieval</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/shakespeares-timeless-tongue-everyday-usage-explored/"><u>Shakespeare's Timeless Tongue: Everyday Usage Explored</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tcl-32s325-roku-smart-tv-2019-a-brainy-display-without-bulky-design/"><u>TCL 32S325 Roku Smart TV (2019): A Brainy Display without Bulky Design</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-true-worth-of-economical-ssl-certificates/"><u>The True Worth of Economical SSL Certificates</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-smartwatches-a-comprehensive-guide/"><u>Top-Rated Smartwatches : A Comprehensive Guide</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/us-launch-of-repairable-fairphone-4-an-exciting-update-with-surprising-elements/"><u>US Launch of Repairable Fairphone 4: An Exciting Update with Surprising Elements</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-ipad-screen-snapshot-strategies-for-2024/"><u>[New] IPad Screen Snapshot Strategies for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-xiaomi-13t-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/breakthrough-techniques-for-online-audio-archiving-and-editing-for-2024/"><u>Breakthrough Techniques for Online Audio Archiving & Editing for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/first-steps-to-faster-film-playback-in-snapchat/"><u>First Steps to Faster Film Playback in Snapchat</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/from-close-ups-to-far-off-landscapes-sx70s-zoom-mastery/"><u>From Close-Ups to Far Off Landscapes - SX70's Zoom Mastery!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fusing-fashion-and-functionality-an-expert-review-on-the-trendy-efficient-swagtrn-swagger-electric-scooter-for-modern-commuting/"><u>Fusing Fashion and Functionality: An Expert Review on the Trendy, Efficient Swagtrn Swagger Electric Scooter for Modern Commuting</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-a-disable-iphone-6s-plus-using-macos-finder-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock a disable iPhone 6s Plus using macOS finder</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-unveiling-10-hidden-powers-of-photoshop-newbies/"><u>In 2024, Unveiling 10 Hidden Powers of Photoshop Newbies</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-logitech-c920-ultra-hd-streaming-camera/"><u>In-Depth Analysis of the Logitech C920 Ultra HD Streaming Camera</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-the-asus-rog-zephyrus-g14-the-ultimate-gamers-choice/"><u>In-Depth Evaluation of the Asus ROG Zephyrus G14: The Ultimate Gamer's Choice</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-linkedin-premium-a-smart-move-for-professionals-heres-why/"><u>Is LinkedIn Premium a Smart Move for Professionals? Here’s Why</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-the-samsung-galaxy-tab-s3-a-solid-choice-expert-review-inside/"><u>Is the Samsung Galaxy Tab S3 a Solid Choice ? Expert Review Inside!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-external-dvdcd-drives-reviewed-find-the-ideal-device-today/"><u>Leading External DVD/CD Drives Reviewed : Find the Ideal Device Today</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/leawo-dvddvd/"><u>Leawo DVDソフトウェアで対策なしに、最新DVDコピー手順レポート</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/masterclass-of-strategy-rpgs-expert-opinion-on-the-wasteland-ii-directors-version/"><u>Masterclass of Strategy RPGs: Expert Opinion on The Wasteland II Director's Version</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/modernizing-a-classic-the-revamped-demons-souls-with-impressive-graphical-fidelity/"><u>Modernizing a Classic: The Revamped Demon's Souls with Impressive Graphical Fidelity</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-tech-bargain-alert-secure-an-echo-pop-smart-speaker-for-a-steal-at-just-18-on-prime-day-exclusive-deal-coverage-by-zdnet/"><u>Top Tech Bargain Alert! Secure an Echo Pop Smart Speaker for a Steal at Just $18 on Prime Day - Exclusive Deal Coverage by ZDNet.</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unlock-efficient-remote-streaming-via-vlc-media-player/"><u>Unlock Efficient Remote Streaming via VLC Media Player</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlocking-iphone-shot-potential-adopt-these-10-principles-for-2024/"><u>Unlocking iPhone Shot Potential Adopt These 10 Principles for 2024</u></a></li>
 </ul></div>
 

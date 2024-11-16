@@ -1,7 +1,7 @@
 ---
 title: In-Depth Review of the Mohu Leaf 30 TV Antenna's Price Vs. Performance Ratio
-date: 2024-11-01T19:20:44.507Z
-updated: 2024-11-05T18:46:25.054Z
+date: 2024-11-12T01:10:56.176Z
+updated: 2024-11-15T16:36:24.679Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Review of the Mohu Leaf 30 TV Antenna's Price Vs. Performance Ratio
@@ -71,7 +71,21 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/t8wI_yN2s_uIQ1leo87MmOnXxb4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-5-0c39ec4e89eb45b094471681efec0e7d.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Dark, sturdy, and feature-packed**
 
@@ -101,19 +115,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Comfort: Hefty, but darn comfy**
 
  The original Elite was perhaps the most comfortable controller I’ve ever used, so with the Series 2, I had high hopes in this department. Thanks to some clever but subtle changes by the Microsoft team, this controller is even better.
@@ -129,6 +130,13 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/cS5fpyPSlqvyETs-nGxTtAB3vXU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-4-070b6c59b206457ba1068704bbe7bca9.jpg)
 
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process and Software: Bluetooth, at long last**
 
@@ -151,10 +159,10 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -181,13 +189,6 @@ Lifewire / Zach Sweat
 
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Like buying a brand new console**
 
  Right now, the Elite Series 2 controller retails at an MSRP of $249.99, about $100 more than its predecessor. This price tag makes it not only the most expensive first-party controller around, but also nearly the cost of a brand new Xbox One S console (or three brand new titles). That can be a tough sell for your average gamer.
@@ -199,20 +200,13 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/6VfCJGOyjLkAkE_mjiHr7rz8Gyw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-6-0c1d7a2ae4e8443ea5b69f559e52bd12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
 
@@ -260,19 +254,24 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-discovering-your-youtube-comments-on-various-devices/"><u>[New] 2024 Approved Discovering Your YouTube Comments on Various Devices</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-optimize-your-instagram-media-flow-desktopmobile/"><u>[New] 2024 Approved Optimize Your Instagram Media Flow (Desktop/Mobile)</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-video-annotations-mastery-cutting-with-precision-and-style/"><u>[New] 2024 Approved Video Annotations Mastery Cutting with Precision & Style</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-precision-techniques-for-messenger-content-extraction/"><u>[New] In 2024, Precision Techniques for Messenger Content Extraction</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/aji-ryan-at-11-amassing-wealth-via-online-videos/"><u>[New] Kaji Ryan At 11, Amassing Wealth via Online Videos</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-speedy-streams-ios-media-on-your-pc/"><u>[New] Speedy Streams IOS Media on Your PC</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-masterclass-series-incorporating-timekeepers-into-live-production/"><u>[Updated] In 2024, Masterclass Series Incorporating Timekeepers Into Live Production</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/creative-labs-sound-blaster-zx-r-analyzed-the-impressive-2013-highlight/"><u>Creative Labs' Sound Blaster ZX-R Analyzed: The Impressive 2013 Highlight</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-civi-3-phone-without-password-by-drfone-android/"><u>How To Unlock Xiaomi Civi 3 Phone Without Password?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/kindles-5-essential-selling-points-unveiled/"><u>Kindle's 5 Essential Selling Points Unveiled</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/lightweight-manfrotto-befree-aluminum-tripod-exceptional-durability/"><u>Lightweight Manfrotto Befree Aluminum Tripod: Exceptional Durability</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-the-world-of-portable-audio-evaluating-the-aphaca-bt69-wireless-fm-radio-transmitter-for-automobiles/"><u>Navigating the World of Portable Audio: Evaluating the Aphaca BT69 Wireless FM Radio Transmitter for Automobiles</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-locations-to-purchase-mobile-devices/"><u>Top Locations to Purchase Mobile Devices</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/understanding-ios-175s-remarkable-photo-recovery-feature-insights-from-apple-zdnet/"><u>Understanding iOS 17.5'S Remarkable Photo Recovery Feature: Insights From Apple | ZDNet</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-the-guide-to-sharing-your-tiktok-content-on-twitter/"><u>[Updated] 2024 Approved The Guide to Sharing Your TikTok Content on Twitter</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-the-ultimate-microphone-recordings-list-9-reviews-of-choice/"><u>[Updated] In 2024, The Ultimate Microphone Recordings List 9 Reviews of Choice</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/adobes-guide-to-memetic-artistry-for-2024/"><u>Adobe's Guide to Memetic Artistry for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-fire-hd-10-kids-edition-review-some-of-the-best-parental-controls/"><u>Amazon Fire HD 10 Kids Edition Review: Some Of The Best Parental Controls</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazonbasics-tripod-the-smart-start-to-sharp-images/"><u>AmazonBasics Tripod - The Smart Start to Sharp Images</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-ipad-pro-2018-11-inch-review-the-best-on-the-market/"><u>Apple iPad Pro 2018 (11-Inch Review): The Best on the Market</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-in-class-ipad-compared-to-kindel-and-booknook-devices/"><u>Best in Class: IPAD Compared to KINDEL AND BOOKNOOK Devices</u></a></li>
+<li><a href="https://solve-info.techidaily.com/capcutwindows/"><u>CapCutアプリケーションでWindows上で動画劇場化マスタリー術</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/compact-and-reliable-ourlink-u631-wireless-usb-wi-fi-stick-with-exceptional-connectivity/"><u>Compact and Reliable OURLINK U631 Wireless USB Wi-Fi Stick with Exceptional Connectivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-7th-generation-amazon-kindle-paperwhite-your-ultimate-reading-companion/"><u>Comprehensive Analysis of the 7Th Generation Amazon Kindle Paperwhite - Your Ultimate Reading Companion</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/convertissez-facilement-un-mp4-a-laide-de-movavi-des-fichiers-m4v-libres-de-charge-guide-complet/"><u>Convertissez Facilement Un MP4 À L'Aide De Movavi: Des Fichiers M4V Libres De Charge - Guide Complet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-acer-aspire-c27-an-all-in-one-desktop-with-low-profile-powerful-performance/"><u>Discovering the Acer Aspire C27: An All-in-One Desktop with Low Profile, Powerful Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/does-asus-rt-ac88u-really-meet-the-high-demands-of-gamers-a-thorough-review/"><u>Does Asus RT-AC88U Really Meet the High Demands of Gamers? A Thorough Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elite-selection-the-finest-pc-sound-cards-available-this-year/"><u>Elite Selection: The Finest PC Sound Cards Available This Year</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/from-instant-sharing-to-long-term-storage-snapshots-journey-for-2024/"><u>From Instant Sharing to Long-Term Storage Snapshots' Journey for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/funf-effektive-methoden-um-avi-videoformate-fur-den-freien-umbau-zu-mp4-ohne-kosten/"><u>Fünf Effektive Methoden, Um AVI Videoformate Für Den Freien Umbau Zu MP4 Ohne Kosten</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-enable-and-repair-voice-chat-for-a-smooth-gameplay-experience-in-phasmophobia/"><u>How to Enable and Repair Voice Chat for a Smooth Gameplay Experience in Phasmophobia</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-sony-xperia-1-v-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Sony Xperia 1 V</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/unveiling-the-power-of-pinning-your-guide-to-discord-mastery/"><u>Unveiling the Power of Pinning Your Guide to Discord Mastery</u></a></li>
 </ul></div>
 

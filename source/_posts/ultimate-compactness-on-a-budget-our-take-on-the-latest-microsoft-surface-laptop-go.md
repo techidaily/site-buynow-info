@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Compactness on a Budget: Our Take on the Latest Microsoft Surface Laptop Go"
-date: 2024-09-04T01:44:05.649Z
-updated: 2024-09-05T01:44:05.649Z
+date: 2024-11-12T21:42:49.756Z
+updated: 2024-11-15T19:19:44.761Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Compactness on a Budget: Our Take on the Latest Microsoft Surface Laptop Go"
@@ -62,18 +62,6 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -85,11 +73,12 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Setup Process: Easy installation**
 
  The S55 is straightforward and easy to install. Simply stick the windshield mount in place and plug the SmartCord lighter adapter into your car's DC cigarette lighter input. Plugging the modular jack into the S55 will automatically power on the radar detector and you can quickly customize settings for display brightness, detector sensitivity levels, and volume. Then you're ready to hit the road.
@@ -103,11 +92,12 @@ Lifewire / Todd Braylor
  It reliably delivers on its promise of long-distance sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: Not exactly enhanced**
 
  The S55 has different modes designed to adjust to specific frequency bands and sensitivity levels for city or highway driving. You can quickly customize the settings by using the included quick reference guide. You can also turn off specific frequency bands if they tend to give a lot of false alerts.
@@ -117,23 +107,18 @@ Lifewire / Todd Braylor
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
  A popular competitor brand to Escort that makes a wide selection of radar detectors is Uniden. The Uniden DFR9 (view on[Amazon](https://www.amazon.com/Uniden-DFR9-Detection-Cameras-Display/dp/B07F6PZXHM/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7C) ) is a model that can be considered the next price tier above the S55\. The DFR9's MSRP is $300 but it can often be found on sale for about $270.
@@ -147,11 +132,12 @@ Lifewire / Todd Braylor
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Passport S55
@@ -172,8 +158,6 @@ Lifewire / Todd Braylor
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -181,4 +165,23 @@ Lifewire / Todd Braylor
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-maximize-google-photos-for-photography-enthusiasts/"><u>[New] How to Maximize Google Photos for Photography Enthusiasts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-transformative-tips-making-an-indelible-mark-in-the-digital-world/"><u>[New] In 2024, Transformative Tips Making an Indelible Mark in the Digital World</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-enchanting-escapades-childhood-playtime-picks/"><u>[Updated] Enchanting Escapades Childhood Playtime Picks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unlock-the-secrets-to-social-media-success-with-igtv-hashtag-techniques/"><u>[Updated] Unlock the Secrets to Social Media Success with IGTV Hashtag Techniques</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-terracore-pros-fusion-of-touch-and-high-definition/"><u>2024 Approved TerraCore Pros Fusion of Touch & High Definition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-mobile-device-iphone-or-samsung-galaxy-for-your-next-purchase/"><u>Best Mobile Device : IPhone or Samsung Galaxy for Your Next Purchase?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/deciding-between-streamers-is-it-chromecast-or-roku-that-reigns-supreme/"><u>Deciding Between Streamers: Is It Chromecast or Roku That Reigns Supreme?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-on-fujitsus-scansnap-ix1n-revolutionizing-your-office-with-top-tier-document-digitization/"><u>Expert Review on Fujitsu's ScanSnap iX1n: Revolutionizing Your Office with Top-Tier Document Digitization</u></a></li>
+<li><a href="https://win-popular.techidaily.com/how-to-back-up-your-personalized-flipbook-settings-in-flipbuilder-for-ongoing-use/"><u>How to Back Up Your Personalized Flipbook Settings in FlipBuilder for Ongoing Use</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-flash-dead-vivo-s18-pro-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Vivo S18 Pro Safely | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-mobvoi-ticwatch-pro-3-with-gps-and-dual-screens-a-game-changer-for-battery-efficiency/"><u>In-Depth Analysis of Mobvoi TicWatch Pro 3 with GPS and Dual Screens – A Game Changer for Battery Efficiency</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/teps-to-find-your-youtube-content-creation-hub-for-2024/"><u>Key Steps to Find Your YouTube Content Creation Hub for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/premium-drawing-experience-for-less-with-the-monoprice-graphic-tablet-in-depth-analysis/"><u>Premium Drawing Experience for Less with the Monoprice Graphic Tablet – In-Depth Analysis</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1722865231576-stop-receiving-amber-alerts-on-your-android-device-today/"><u>Stop Receiving AMBER Alerts on Your Android Device Today</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-faceoff-how-the-iphone-15-pro-stacks-up-to-the-pro-max/"><u>The Ultimate Faceoff: How the iPhone 15 Pro Stacks Up to the Pro Max</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-portable-energy-givers-for-cars-2024/"><u>Top Portable Energy Givers for Cars 2024</u></a></li>
+</ul></div>
 

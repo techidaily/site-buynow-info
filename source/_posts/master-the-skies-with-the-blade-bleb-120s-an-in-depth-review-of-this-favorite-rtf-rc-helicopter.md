@@ -1,7 +1,7 @@
 ---
 title: "Master the Skies with the Blade BLeb 120S: An In-Depth Review of This Favorite RTF RC Helicopter"
-date: 2024-09-04T01:43:59.701Z
-updated: 2024-09-05T01:43:59.701Z
+date: 2024-11-11T20:30:42.738Z
+updated: 2024-11-16T02:27:58.744Z
 categories:
   - BestProducts
 description: "This Article Describes Master the Skies with the Blade BLeb 120S: An In-Depth Review of This Favorite RTF RC Helicopter"
@@ -63,6 +63,42 @@ Lifewire / Rebecca Isaacs
  A poor computer chair may lead to backaches, pains, and a whole mess of skeletal and muscular issues. When I began to have these symptoms, I decided it was time for a change to my chair, and got the Mavix M9 Gaming Chair for review. After over 20 hours of testing, it’s safe to say that I’ve found my favorite piece of gaming equipment.
 
 <!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Design: A gamer’s dream
+
+ The M9 comes in four different color options, but to play it safe with my pets, I chose to get it in the sleek black option. In fact, those with pets will want to take note, as my first impression of the chair was that while most of it was black leather, the Dynamic Variable Lumbar support consisted of multilayered nylon, mesh material. It’s great for gamers’ backs—but can collect pet hair if your furry friends decide the M9 is a great place to snooze.
+
+![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/tSFIFAR8G-C5W7DBBLPJ5GiE3EM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_03-8842478b07bd4585ba7f1843afcd29dc.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Lifewire / Rebecca Isaacs
+
+ Despite this mesh exterior, the M9 chair is incredibly sleek and modern and adds style to any modern gaming setup. This is not only because of the mesh support but the rest of the chair is upholstered in beautiful, smooth leather. The logo on the headrest stands out, but it’s not really a detriment to the overall design of the chair.
+
+ At 56 x 26 x 22.75 inches (HWD), the chair has a wide seat for spreading out and comes with an optional headrest. Even the wheels are prepped for hours of gameplay and come with a locking feature to ensure stability.
+
+## Comfort: It’s all in the ergonomics
+
+ It would be an understatement to say that the M9 Chair offers adjustability. In fact, nearly everything can be adjusted from the seat depth to the headrest angle—the chair is easy to mold to your personal needs.
+
+ Coupled with the standard plush foam on the seat, the M9 really molds to your shape once you get everything adjusted. That said, it’s imperative that you don’t miss this crucial step—it can mean the difference between hours of comfort and fast onsetting discomfort. But, once I got everything set up to my body type, my back was thrilled with the change from my old chair.
+
+ In fact, nearly everything can be adjusted from the seat depth to the headrest angle—the chair is easy to mold to your personal needs.
+
+![Mavix M9 Gaming Chair headrest ](https://www.lifewire.com/thmb/dk-8es8V-f2VzVltDiUNw0nCs2o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_02-acc7e137bc7a4b25837fbbe065ac1416.jpeg)
+
+<!-- affiliate ads begin -->
 <span id="1983552">
 					<video width="576" height="240" style="cursor:pointer"
            poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
@@ -74,33 +110,6 @@ Lifewire / Rebecca Isaacs
 </span>
 <img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-## Design: A gamer’s dream
-
- The M9 comes in four different color options, but to play it safe with my pets, I chose to get it in the sleek black option. In fact, those with pets will want to take note, as my first impression of the chair was that while most of it was black leather, the Dynamic Variable Lumbar support consisted of multilayered nylon, mesh material. It’s great for gamers’ backs—but can collect pet hair if your furry friends decide the M9 is a great place to snooze.
-
-![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/tSFIFAR8G-C5W7DBBLPJ5GiE3EM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_03-8842478b07bd4585ba7f1843afcd29dc.jpeg)
-
-Lifewire / Rebecca Isaacs
-
- Despite this mesh exterior, the M9 chair is incredibly sleek and modern and adds style to any modern gaming setup. This is not only because of the mesh support but the rest of the chair is upholstered in beautiful, smooth leather. The logo on the headrest stands out, but it’s not really a detriment to the overall design of the chair.
-
- At 56 x 26 x 22.75 inches (HWD), the chair has a wide seat for spreading out and comes with an optional headrest. Even the wheels are prepped for hours of gameplay and come with a locking feature to ensure stability.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Comfort: It’s all in the ergonomics
-
- It would be an understatement to say that the M9 Chair offers adjustability. In fact, nearly everything can be adjusted from the seat depth to the headrest angle—the chair is easy to mold to your personal needs.
-
- Coupled with the standard plush foam on the seat, the M9 really molds to your shape once you get everything adjusted. That said, it’s imperative that you don’t miss this crucial step—it can mean the difference between hours of comfort and fast onsetting discomfort. But, once I got everything set up to my body type, my back was thrilled with the change from my old chair.
-
- In fact, nearly everything can be adjusted from the seat depth to the headrest angle—the chair is easy to mold to your personal needs.
-
-![Mavix M9 Gaming Chair headrest ](https://www.lifewire.com/thmb/dk-8es8V-f2VzVltDiUNw0nCs2o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_02-acc7e137bc7a4b25837fbbe065ac1416.jpeg)
 
 Lifewire / Rebecca Isaacs
 
@@ -116,12 +125,6 @@ Lifewire / Rebecca Isaacs
 
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/WWvjEhKERcoOvm-8u1GtzfLuV7M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_05-91c5a721612e45cbbdc432ec9ab67e4b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Rebecca Isaacs
 
  And even better, if you decide that a nap is in order but you’d prefer not to move, you can invoke the M9’s Extended Recline, which allows the chair to recline up to 127 degrees. If you’re feeling a nap, it’s great. Personally, using the entirety of the 127 degrees made me a little nervous, but the good news is that the degree recline is also adjustable.
@@ -137,25 +140,21 @@ Lifewire / Rebecca Isaacs
 ![Mavix M9 Gaming Chair](https://www.lifewire.com/thmb/_eJYTViir2syGINJQq7Fxl1ofHQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mavix_Gaming_Chair_04-d42bbf02273f4d0aa7c25351b201dc2c.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Mavix M9 vs. XChair X4 Chair
 
  While the M9 is the most expensive option available in a series of gaming chairs from Mavix, the X4 Executive Office Chair by XChair is the highest tier office chair. So, it makes sense to compare them since they’re both geared for the work and play setting. Their prices are different, with the X4 costing around $1,200 before adding customizable options.
@@ -174,12 +173,6 @@ Lifewire / Rebecca Isaacs
 * [X Rocker 51396 Pro Series Pedestal 2.1 Gaming Chair](https://www.lifewire.com/x-rocker-51396-pro-series-pedestal-2-1-gaming-chair-review-4771021)
 * [Homall Executive Swivel Chair](https://www.lifewire.com/homall-executive-swivel-chair-review-4589356)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  M9 Gaming Chair
@@ -192,14 +185,11 @@ Lifewire / Rebecca Isaacs
 * Color  Black, White, Black & Glacier, Black & White
 * Price  $1,000 for base model
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -208,4 +198,23 @@ Lifewire / Rebecca Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-capture-and-share-your-win10-gaming-life/"><u>[New] In 2024, Capture and Share Your Win10 Gaming Life</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ptimizing-youtube-content-for-instagram-platforms/"><u>[New] Optimizing YouTube Content for Instagram Platforms</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/crafting-engaging-narratives-a-compreehensive-guide-to-adding-emojis-to-instagram-stories/"><u>Crafting Engaging Narratives A Compreehensive Guide to Adding Emojis to Instagram Stories</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Detailed guide of ispoofer for pogo installation On Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://tools.techidaily.com/wondershare/dvdcreator/download/"><u>DVD Creator - Easy and powerful DVD Toolbox. Meet all your DVD needs.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-evaluation-of-the-travellers-dream-affordable-microsoft-surface-laptop-go/"><u>Expert Evaluation of the Traveller's Dream - Affordable Microsoft Surface Laptop Go</u></a></li>
+<li><a href="https://apple-account.techidaily.com/forgot-your-apple-id-password-and-email-on-apple-iphone-12-pro-heres-the-best-fixes-by-drfone-ios/"><u>Forgot Your Apple ID Password and Email On Apple iPhone 12 Pro? Heres the Best Fixes</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How Do I Stop Someone From Tracking My Apple iPhone 14 Pro? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/marvelous-marshall-upgrade-for-anc-a-visual-and-auditory-delight/"><u>Marvelous Marshall Upgrade for ANC: A Visual & Auditory Delight</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-do-you-know-you-dont-need-a-pc-or-mac-to-apply-luts-on-your-media-you-can-use-many-smartphone-apps-to-apply-luts-such-as-3dlut-mobile-app/"><u>New In 2024, Do You Know You Dont Need a PC or Mac to Apply LUTs on Your Media? You Can Use Many Smartphone Apps to Apply LUTs, Such as 3DLUT Mobile App</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/should-you-embrace-the-latest-iphone-model/"><u>Should You Embrace the Latest iPhone Model?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-future-is-now-with-xbox-series-x-an-authoritative-look-at-the-pinnacle-of-gaming-in-4k/"><u>The Future Is Now with Xbox Series X – An Authoritative Look at the Pinnacle of Gaming in 4K</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/thought-leadership-article-navigating-through-the-nuances-of-googles-voice-call-features/"><u>Thought Leadership Article: Navigating Through the Nuances of Google's Voice Call Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-logitech-c615-a-budget-friendly-webcam-with-impressive-performance/"><u>Unveiling the Logitech C615: A Budget-Friendly Webcam with Impressive Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-top-cops-radios-2024-edition/"><u>Unveiling Top Cops' Radios - 2024 Edition</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-nubia-red-magic-9-proplus-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Nubia Red Magic 9 Pro+ Hard Reset | Dr.fone</u></a></li>
+</ul></div>
 

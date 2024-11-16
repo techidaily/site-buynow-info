@@ -1,7 +1,7 @@
 ---
 title: M1 Surge Protector - Robust Power Management with Built-In Charging Capabilities for Your Devices
-date: 2024-10-29T19:18:23.976Z
-updated: 2024-11-05T18:00:33.688Z
+date: 2024-11-12T03:34:03.270Z
+updated: 2024-11-15T23:36:29.077Z
 categories:
   - BestProducts
 description: This Article Describes M1 Surge Protector - Robust Power Management with Built-In Charging Capabilities for Your Devices
@@ -50,10 +50,10 @@ Lifewire / Jeremy Laukkonen
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/_EV0MTLRfFPHdqFJ2gKyMJff5YY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-HERO-SQ-e459d44e1a2c432f80fec058b858ccfe.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -86,10 +86,10 @@ Lifewire / Jeremy Laukkonen
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Design: Slick all-black appearance that’s dulled a bit by soft-touch rubber**
@@ -120,14 +120,14 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/QOfV3Sc5THi3Z0gKZq0e-ciPUEE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-5-000854ae3c4347b7adc13130dcb9d1b9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Display: Crisp and easy to read, but confusing**
 
@@ -152,10 +152,10 @@ Lifewire / Jeremy Laukkonen
  On the front of the power bank, next to the display, you’ll find two USB-A ports. These ports are capable of charging all your standard USB devices. One is a Qualcomm 3.0 compatible quick charge port, and the other is a standard USB port that’s capable of putting out up to 3A.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Battery: Decent battery capacity for the size**
@@ -188,6 +188,13 @@ Lifewire / Jeremy Laukkonen
 
  The built-in Qi charger is capable of putting out 10 watts, and I found it to work just as well as other 10 watt Qi chargers I’ve used. It is a bit touchy in terms of positioning, but I was able to get the hang of it pretty fast.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: High end**
 
  With an MSRP of $200, Omni 20+ is a high-end battery bank with a high-end price. You get a whole lot of functionality for that price, but the device does lag behind in terms of both battery capacity and included accessories. The glaring issue is that you can find more powerful battery banks for less money, even if you won’t find one with the exact same functionality.
@@ -207,13 +214,6 @@ Lifewire / Jeremy Laukkonen
  **Fantastic functionality, decent battery capacity, and frustrating setup experience.**
 
  The Omnicharge Omni 20+ is one of the best power banks out there, and it had better be for the price they’re asking. This is the power bank you need if you count a high wattage USB-C port, barrel connector input and output, wireless charging, and a standard power outlet among your needs. You can find cheaper power banks that provide more juice, but you won’t find one with this same feature set.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -241,17 +241,20 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-guiding-imovie-content-from-home-studio-to-youtube-hub/"><u>[Updated] 2024 Approved Guiding iMovie Content From Home Studio to YouTube Hub</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-popular-pictures-the-backstage-story/"><u>[Updated] Popular Pictures The Backstage Story</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-the-comprehensive-laptop-screenrec-users-handbook-for-2024/"><u>[Updated] The Comprehensive Laptop ScreenRec User's Handbook for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/analyzing-the-yin-and-yang-of-ai-and-creativity/"><u>Analyzing the Yin & Yang of AI and Creativity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/at-127-antenna-from-anttech-reviewed-enjoying-free-tv-with-style-and-performance/"><u>AT-127 Antenna From AntTech Reviewed: Enjoying Free TV with Style and Performance!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/crucial-considerations-for-choosing-the-ideal-gaming-console-a-guide/"><u>Crucial Considerations for Choosing the Ideal Gaming Console: A Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/friend-to-friend-game-borrowing-tips-for-the-xbox-one-console/"><u>Friend-to-Friend Game Borrowing Tips for the Xbox One Console</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-sony-xperia-5-v-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Sony Xperia 5 V Pattern Lock if Forgotten? 6 Ways</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-smart-ring-doorbell-pro-a-review-worth-watching/"><u>In-Depth Analysis of the Smart Ring Doorbell Pro: A Review Worth Watching</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/minecraft-masterpieces-creative-buildings-guide-for-2024/"><u>Minecraft Masterpieces Creative Buildings Guide for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/solve-your-non-responsive-iphone-volume-issues-with-these-7-quick-fixes/"><u>Solve Your Non-Responsive iPhone Volume Issues with These 7 Quick Fixes</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-huawei-p20-pro-impressive-snapping-skills-in-an-excellent-smartphone-package/"><u>Unveiling the Huawei P20 Pro: Impressive Snapping Skills in an Excellent Smartphone Package</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-seamless-video-sharing-from-youtube-to-fb/"><u>[New] 2024 Approved Seamless Video Sharing From YouTube to FB</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-real-time-fbx-filming-tips/"><u>[New] In 2024, Real-Time FBX Filming Tips</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-win10-screen-grabbing-top-quality-captures/"><u>[New] Win10 Screen Grabbing - Top Quality Captures</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-voiceover-guide-for-engaging-videography/"><u>2024 Approved Voiceover Guide for Engaging Videography</u></a></li>
+<li><a href="https://techtrends.techidaily.com/boost-your-pcs-performance-expert-strategies-for-window-10-enhancement/"><u>Boost Your PC's Performance: Expert Strategies for Window 10 Enhancement</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/freestyle2-blue-software-tested-and-approved-by-mac-lovers-in-depth-insights-for-optimal-compatibility/"><u>Freestyle2 Blue Software Tested and Approved by Mac Lovers: In-Depth Insights for Optimal Compatibility</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/from-portability-to-power-understanding-what-sets-macbook-air-apart-from-pro/"><u>From Portability to Power: Understanding What Sets MacBook Air Apart From Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/google-pixel-4a-5g-reviewed-a-high-performing-cost-effective-entry-into-the-world-of-5g-android-phones/"><u>Google Pixel 4a 5G Reviewed - A High-Performing, Cost-Effective Entry Into the World of 5G Android Phones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-does-the-bookbook-v2-hold-up-in-depth-review-by-twelve-south-for-macbook-users/"><u>How Does the BookBook V2 Hold Up? In-Depth Review by Twelve South for MacBook Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-radpower-radcity-ergyplus-bicycle-features-and-mass-considerations/"><u>In-Depth Analysis of the RadPower RadCity Ergy+ Bicycle: Features and Mass Considerations</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-tp-link-av2000-adapter-high-velocity-internet-with-unimpressive-design/"><u>In-Depth Analysis of the TP-Link AV2000 Adapter: High Velocity Internet with Unimpressive Design</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-garmin-forerunner-265-is-it-worth-buying/"><u>In-Depth Analysis: Garmin Forerunner 265 - Is It Worth Buying?</u></a></li>
+<li><a href="https://games-able.techidaily.com/leading-blue-filter-sunglasses-for-pcs/"><u>Leading Blue Filter Sunglasses for PCs</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/on-the-go-cinematographers-essentials/"><u>On-the-Go Cinematographer’s Essentials</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pioneering-methods-to-develop-a-memorable-youtube-introduction/"><u>Pioneering Methods to Develop a Memorable YouTube Introduction</u></a></li>
 </ul></div>
 

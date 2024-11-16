@@ -1,7 +1,7 @@
 ---
 title: "Xbox Controller Revolution: Our Expert Take on Why the Elite Series ² Is a Gamepad Legend"
-date: 2024-09-09T14:00:15.086Z
-updated: 2024-09-10T14:00:15.086Z
+date: 2024-11-10T20:26:09.631Z
+updated: 2024-11-15T19:48:06.420Z
 categories:
   - BestProducts
 description: "This Article Describes Xbox Controller Revolution: Our Expert Take on Why the Elite Series ² Is a Gamepad Legend"
@@ -37,12 +37,6 @@ Lifewire / Zach Sweat
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/JA4MI_SE7Alxl0MLR7rMoIVzKgI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
@@ -73,19 +67,21 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/t8wI_yN2s_uIQ1leo87MmOnXxb4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-5-0c39ec4e89eb45b094471681efec0e7d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Design: Dark, sturdy, and feature-packed**
 
  The general format of the Elite Series 2 takes the basic XB1 controller and builds upon that excellent design by adding in tons of extras and features. However, unlike the first Elite controller, this version uses the newer One S model controller as its basis. This means there is no more two-piece design where the top and bottom shells of the controller are separate. The build is less flashy perhaps, no longer sporting a two-tone finish, but it makes it feel much more solid and creates a sleeker look.
@@ -112,20 +108,8 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/TRrezKVbAUPs2Rud3g4_iOHyxB8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-2-4b3f9d8acd1440089989378253d902f4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Comfort: Hefty, but darn comfy**
 
  The original Elite was perhaps the most comfortable controller I’ve ever used, so with the Series 2, I had high hopes in this department. Thanks to some clever but subtle changes by the Microsoft team, this controller is even better.
@@ -141,11 +125,12 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/cS5fpyPSlqvyETs-nGxTtAB3vXU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-4-070b6c59b206457ba1068704bbe7bca9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 ## **Setup Process and Software: Bluetooth, at long last**
@@ -168,12 +153,6 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
 ## **Performance/Durability: Enhanced performance and durability**
@@ -209,12 +188,20 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/6VfCJGOyjLkAkE_mjiHr7rz8Gyw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-6-0c1d7a2ae4e8443ea5b69f559e52bd12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
 
@@ -247,14 +234,11 @@ Lifewire / Zach Sweat
 * Warranty  90-day warranty
 * Compatibility  All Xbox One Consoles, Windows 10 PCs, Bluetooth devices
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -263,4 +247,24 @@ Lifewire / Zach Sweat
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-fundamental-definitions-of-interactive-storytelling/"><u>[Updated] 2024 Approved Fundamental Definitions of Interactive Storytelling</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-streaming-console-adventures-pc-setup-and-methods/"><u>2024 Approved Streaming Console Adventures PC Setup and Methods</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-list-of-3d-animation-and-modelling-programs/"><u>2024 Approved The Ultimate List of 3D Animation and Modelling Programs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/benefits-and-drawbacks-unveiling-the-pros-and-cons-of-using-webex-as-your-virtual-office/"><u>Benefits and Drawbacks: Unveiling the Pros and Cons of Using Webex as Your Virtual Office</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/comment-liberer-un-blocage-lors-dune-operation-de-sauvegarderestauration-methodes-pour-corriger-les-problemes-du-registre-windows/"><u>Comment Libérer Un Blocage Lors D'une Opération De Sauvegarde/Restauration: Méthodes Pour Corriger Les Problèmes Du Registre Windows</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-ring-battery-doorbell-plus-assessment-what-you-need-to-know/"><u>Comprehensive Ring Battery Doorbell Plus Assessment - What You Need To Know</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/echo-show-gen-4-critique-enhanced-features-and-performance/"><u>Echo Show (Gen 4) Critique: Enhanced Features & Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exclusive-offers-acer-electronics-at-bargain-prices-on-prime-day-2024/"><u>Exclusive Offers: Acer Electronics at Bargain Prices on Prime Day 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-hardware-acceleration-enhancing-h264-video-playback-on-windows-10/"><u>Exploring Hardware Acceleration: Enhancing H.264 Video Playback on Windows 10</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-time-travel-adventures-for-unique-anime-inspired-tiktoks/"><u>In 2024, Time Travel Adventures for Unique Anime-Inspired TikToks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/power-through-the-darkness-a-comprehensive-guide-to-romers-portable-and-rechargeable-searchlight/"><u>Power Through the Darkness - A Comprehensive Guide to Romer's Portable & Rechargeable Searchlight</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/the-best-of-the-rest-10-final-cut-pro-x-alternatives-for-video-editors/"><u>The Best of the Rest 10 Final Cut Pro X Alternatives for Video Editors</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/erfect-loop-technique-for-all-your-youtube-favorites/"><u>The Perfect Loop Technique for All Your YouTube Favorites</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-petsafe-solution-streamline-your-furry-friends-diet-with-our-six-meal-program/"><u>The PetSafe Solution: Streamline Your Furry Friend's Diet with Our Six Meal Program</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-artists-drawing-slates-2024-edition/"><u>Top-Rated Artist's Drawing Slates: 2024 Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tp-link-ac1200-wifi-expander-re305-an-expert-review-for-optimal-home-networking/"><u>TP-Link AC1200 WiFi Expander Re305: An Expert Review for Optimal Home Networking</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-and-resolving-sound-dropouts-on-windows-11-systems/"><u>Troubleshooting and Resolving Sound Dropouts on Windows 11 Systems</u></a></li>
+</ul></div>
 

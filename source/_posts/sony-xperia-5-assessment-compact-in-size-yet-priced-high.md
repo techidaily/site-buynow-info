@@ -1,7 +1,7 @@
 ---
 title: "Sony Xperia 5 Assessment: Compact in Size, Yet Priced High"
-date: 2024-09-04T01:44:02.177Z
-updated: 2024-09-05T01:44:02.177Z
+date: 2024-11-14T18:22:49.837Z
+updated: 2024-11-15T18:38:31.782Z
 categories:
   - BestProducts
 description: "This Article Describes Sony Xperia 5 Assessment: Compact in Size, Yet Priced High"
@@ -36,6 +36,13 @@ Lifewire / Rebecca Isaacs
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## CumulusPRO Commercial Couture Anti-Fatigue Standing Desk Mat
 
 ![CumulusPRO Standing Desk Mat](https://www.lifewire.com/thmb/_gh2wSzGo19xAgSx1kfis_BvCRQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cumulus-Pro-Comfort-Mat-1-369ebfd4ce0e4e30853a3649a0c6badb.jpg)
@@ -61,34 +68,23 @@ Lifewire / Rebecca Isaacs
 
 ![CumulusPRO Standing Desk Mat](https://www.lifewire.com/thmb/SuOtLk1ZBrl0nHIY-pQnGHEI74A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cumulus-Pro-Comfort-Mat-2-c0910221e3d340f49299d56b0509acd3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Simply modern**
 
  At 24 inches by 36 inches (LW), the CumulusPRO is a very wide mat, providing ample space for us to move and shift around in. It’s also very modern looking, as the top of the mat has a simple grey, wavy design that would accommodate most modern office spaces. This particular mat was very thin, at 0.75 inches. It wasn’t as slick on the bottom as some other mats we tested, which we felt was a huge perk. And on top of that, the edges are designed to taper downward, so that you needn’t worry about tripping as you step onto it.
 
 ![CumulusPRO Standing Desk Mat](https://www.lifewire.com/thmb/BLF6wQLJynPpwT_zlr5rT_J-LiQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cumulus-Pro-Comfort-Mat-3-2612dc3d381c449d91d0eb0b9e4b2853.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Comfort: A pleasant surprise**
 
  At first, we thought that we would tire easily on this mat. After all, it doesn’t come with the bells and whistles of some of the more expensive mat models out there. However, we were pleasantly surprised in that two hours of standing we weren’t fatigued. One of the reasons is because the mate is very cushy. Even though it’s thin, the moment we stepped onto it, our feet sunk into it. We also felt that the mat cradled our feet when we used it, which was a nice sensation.
@@ -103,22 +99,17 @@ In terms of versatility, the CumulusPRO mat is king.
 
  Another nice feature of the CumulusPRO is that we could wear heels and not damage it. While this may seem trivial, compared to other mats we tested, this was amazing for the ladies who like to wear heeled shoes.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Pretty steep for a mat**
 
  At around $80 on Amazon, the CumulusPRO is expensive for a mat that doesn’t come with extra surface features. However, taking into context its versatility around the office and the home, the price is actually a solid investment. If you decide you don’t want it in your office, but say, in the kitchen, it can easily be transplanted into other areas of the house or workplace.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Ergodriven Topo vs. CumulusPRO Standing Desk Mat**
 
  We decided to compare the Ergodriven Topo against the CumulusPRO to see which we felt was the better bang for your buck. Price-wise, both the Topo and the CumulusPRO mats are similar in that the Topo retails for $100 while the CumulusPRO retails for around $80\. For a desk, the Topo mat we felt was superior to the CumulusPRO. The Ergodriven comes with basic wedges and a massage mound in the center to help alleviate foot pain during the day—features that the CumulusPRO doesn’t have.
@@ -134,17 +125,12 @@ In terms of versatility, the CumulusPRO mat is king.
  For a basic mat, the CumulusPRO is a solid choice. We especially liked how it hides dirt and can be used for those who prefer to wear high heels. Considering it’s a basic standing mat, its versatility is definitely worth the investment.
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Commercial Couture Anti-Fatigue Standing Desk Mat
@@ -155,14 +141,11 @@ In terms of versatility, the CumulusPRO mat is king.
 * Warranty  Lifetime
 * Connectivity Options  None
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -171,4 +154,23 @@ In terms of versatility, the CumulusPRO mat is king.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-save-my-page-moments/"><u>[New] Save My Page Moments</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-sunlit-scenes-android-brighten-tips/"><u>2024 Approved Sunlit Scenes Android Brighten Tips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/analyzing-the-evolution-of-smartwatches-with-the-samsung-galaxy-watch3-classic-designs-reinvented-for-todays-tech/"><u>Analyzing the Evolution of Smartwatches with the Samsung Galaxy Watch3 – Classic Designs Reinvented for Today's Tech</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apples-premium-sound-option-max-airpods-reviewed/"><u>Apple's Premium Sound Option: Max AirPods Reviewed</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-to-lenovo-x12-detachable-excelling-as-a-2-in-1-device-with-an-exceptional-keyboard-design/"><u>Comprehensive Guide to Lenovo X12 Detachable: Excelling as a 2-in-1 Device with an Exceptional Keyboard Design</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cutting-costs-with-amazonbasics-a-review-of-the-budget-friendly-flat-antenna/"><u>Cutting Costs with AmazonBasics: A Review of the Budget-Friendly Flat Antenna</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/effective-techniques-for-cropping-videos-a-step-by-step-guide/"><u>Effective Techniques for Cropping Videos: A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elite-evaluation-of-philips-somneo-the-premier-choice-for-alarm-clocks/"><u>Elite Evaluation of Philips Somneo: The Premier Choice for Alarm Clocks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/essential-top-8-game-apps-to-add-to-your-library-on-google-play-pass/"><u>Essential Top 8 Game Apps to Add to Your Library on Google Play Pass</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-motorola-moto-g73-5g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Motorola Moto G73 5G Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-enhance-your-childs-playtime-with-maistos-family-oriented-rc-rock-crawler/"><u>How to Enhance Your Child's Playtime with Maisto's Family-Oriented RC Rock Crawler</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-adept-vlc-playback-and-capture-techniques/"><u>In 2024, Adept VLC Playback & Capture Techniques</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-sign-out-of-apple-id-on-apple-iphone-7-plus-without-password-by-drfone-ios/"><u>In 2024, How to Sign Out of Apple ID On Apple iPhone 7 Plus without Password?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-from-apple-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock From Apple iPhone 11 Pro Max?</u></a></li>
+<li><a href="https://driver-install.techidaily.com/mastering-windows-reinstallation-of-amd-firmware/"><u>Mastering Windows' Reinstallation of AMD Firmware</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-samsung-galaxy-note-9-examination-top-contender-in-large-display-smartphones/"><u>Ultimate Samsung Galaxy Note 9 Examination: Top Contender in Large Display Smartphones</u></a></li>
+</ul></div>
 

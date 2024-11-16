@@ -1,7 +1,7 @@
 ---
 title: "Fashion-Forward Fitness Tracking: The Pros and Cons of the Amazfit GTS Unveiled"
-date: 2024-10-30T19:43:05.660Z
-updated: 2024-11-05T16:14:51.846Z
+date: 2024-11-14T20:59:59.206Z
+updated: 2024-11-15T17:51:25.644Z
 categories:
   - BestProducts
 description: "This Article Describes Fashion-Forward Fitness Tracking: The Pros and Cons of the Amazfit GTS Unveiled"
@@ -44,6 +44,13 @@ Lifewire / Andy Zahn
 
 2.9
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Samsung UN65NU8000FXZA
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/J81HLCswW9vG3SGkOY0nkv2_soM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-1-97ff5fdad950453785f7a3f5491bf8fd.jpg)
@@ -74,13 +81,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Big and tough**
 
  The Samsung NU8000 is an elegant television with an attractive rear exterior, thin profile, and discretely sized bezels. As a 65” display you can expect it to dominate all but the most cavernous living rooms, but thanks to that slim profile and its slender bezels it occupies the minimum amount of space possible for such a large screen.
@@ -97,13 +97,6 @@ Lifewire / Andy Zahn
 
  We did encounter one troublesome bug where the remote partially de-synced from the display so that only the power button functioned properly. This is obviously a known issue, as on-screen instructions immediately appeared to reset the remote and re-establish the connection, and we found these instructions repeated inside the battery compartment of the remote. We also missed having dedicated buttons for popular streaming services such as Netflix and Hulu.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Some assembly required**
 
  The sturdiness of the NU8000’s stand comes at a small price in terms of ease of setup. The back panel of the pillar must be popped off to screw the stand together. The assembled base is then attached to the screen via a plate that slides into place and is then secured by more screws. The caveat is that unless you have a large table available for this process then it's very difficult and requires the cooperation of at least two other people. Once this is complete, insert the batteries into the remote, attach the power cord and any other wired connections, and you’re ready to go.
@@ -115,10 +108,10 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Image Quality: A real letdown**
@@ -139,13 +132,6 @@ Lifewire / Andy Zahn
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/0imcVI8dzYw11TAOKkt8EnXJE5k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-2-0c325c2d3f1e448d9d0b10f24152a097.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
 
 ## **Audio Quality: Surprisingly good**
@@ -156,6 +142,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software: A little slow**
 
  Samsung has built an excellent interface for its smart TVs, and the NU8000 is no exception. All your favorite apps are here, many of them pre-installed. Navigation is easy, and we had no trouble changing settings or finding our way around apps. Smart home, AI assistant, and voice integration capability allow you to configure it as a nerve center for your connected devices.
@@ -164,9 +157,23 @@ Lifewire / Andy Zahn
 
  The other software issue is that the NU8000 runs an older version of FreeSync, which means it doesn’t handle screen tearing as well as newer displays, especially when gaming on high-end hardware. However, during our testing, we didn’t notice an appreciable problem with this, though that may vary depending on your viewing and gaming habits.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Expensive at MSRP**
 
  With an MSRP of $999 the NU8000 is certainly no bargain, especially considering that superior displays are available for the same cost. However, as this is an older TV it may be possible to find steep discounts that make up for its deficiencies.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: NU8000 vs RU8000**
 
@@ -181,13 +188,6 @@ Lifewire / Andy Zahn
 **Hard to recommend.**
 
  The Samsung UN65NU8000FXZ is capable, provides high resolution, and has excellent, flexible software with a good selection of apps. It's also exceptionally thin with a screen that's almost bezel-less, but unless the extremely sturdy stand is the most important feature to you, then RU8000 is just a better display at the exact same MSRP.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -217,17 +217,20 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-excellence-in-offline-speech-recognition-software/"><u>[New] Excellence in Offline Speech Recognition Software</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-navigating-authentic-growth-proven-youtube-view-strategies/"><u>[New] In 2024, Navigating Authentic Growth Proven YouTube View Strategies</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/effiziente-moglichkeiten-ihre-zwei-apple-computer-nahtlos-zu-verbinden/"><u>Effiziente Möglichkeiten, Ihre Zwei Apple-Computer Nahtlos Zu Verbinden</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-the-new-kobo-nia-challenges-amazons-kindle-dominance-in-ebook-readers/"><u>How the New Kobo Nia Challenges Amazon's Kindle Dominance in Ebook Readers</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Samsung Galaxy A23 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-6-leading-nft-makers-elevating-artist-expression/"><u>In 2024, 6 Leading NFT Makers Elevating Artist Expression</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-latest-guide-on-ipad-23-and-apple-iphone-6s-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Latest Guide on iPad 2/3 and Apple iPhone 6s iCloud Activation Lock Bypass</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-2024-netgear-routers-your-ultimate-guide/"><u>Leading 2024 NETGEAR Routers: Your Ultimate Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/motorola-one-amo-unleashed-the-perfect-blend-of-impressive-battery-and-speedy-5g-performance/"><u>Motorola One Amo Unleashed: The Perfect Blend of Impressive Battery and Speedy 5G Performance</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-handbook-for-downloading-and-upgrading-your-zebra-zp450-printer-drivers-efficiently/"><u>Step-by-Step Handbook for Downloading & Upgrading Your Zebra ZP450 Printer Drivers Efficiently</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-wasteland-2-directors-cut-review/"><u>The Wasteland 2: Director’s Cut Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/they-are-well-suited-for-high-viscosity-fluids-and-maintain-performance-under-varying-pressures/"><u>They Are Well-Suited for High Viscosity Fluids and Maintain Performance Under Varying Pressures</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-tweet-treasure-trove-discovering-the-days-hot-videos/"><u>[New] 2024 Approved Tweet Treasure Trove Discovering the Day's Hot Videos</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-harmonizing-cityscapes-and-nature-the-role-of-green-spaces-for-2024/"><u>[New] Harmonizing Cityscapes and Nature The Role of Green Spaces for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-joining-in-on-tiktok-gigs-without-causing-a-ruckus/"><u>[Updated] 2024 Approved Joining in on TikTok Gigs Without Causing a Ruckus</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-high-fidelity-game-recording-tools/"><u>[Updated] High Fidelity Game Recording Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-strategic-branding-techniques-for-higher-youtube-followings/"><u>[Updated] In 2024, Strategic Branding Techniques for Higher YouTube Followings</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/can-i-trust-ai-technology-like-chatgpt-with-designing-my-personalized-workouts-that-are-both-secure-and-efficient/"><u>Can I Trust AI Technology Like ChatGPT With Designing My Personalized Workouts That Are Both Secure And Efficient?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-fun-singing-with-singing-machine-sml385btbk-a-colorful-simplified-karaoke-solution-for-all-skill-levels/"><u>Experience Fun Singing with Singing Machine SML385BTBK - A Colorful, Simplified Karaoke Solution for All Skill Levels</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-best-outboard-media-players-of-the-year-2024/"><u>Expert Picks: Best Outboard Media Players of the Year 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-of-linksyss-wrt1900acs-the-open-source-wifi-router-you-should-consider/"><u>Expert Review of Linksys's WRT1900ACS - The Open Source WiFi Router You Should Consider</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-ace-your-network-with-our-best-2024-long-range-router-recommendations/"><u>Expert Review: Ace Your Network with Our Best 2024 Long-Range Router Recommendations</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-decide-iphone-versus-samsung-the-ultimate-buyers-guide/"><u>How to Decide: IPhone Versus Samsung – The Ultimate Buyer’s Guide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-11-pro-to-other-iphone-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 11 Pro to other iPhone? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-how-lensdirect-combats-digital-eye-strain-with-specialized-blue-light-glasses/"><u>In-Depth Analysis: How LensDirect Combats Digital Eye Strain with Specialized Blue Light Glasses</u></a></li>
+<li><a href="https://some-skills.techidaily.com/ultimate-photoshop-pro-with-ai-intelligence-for-2024/"><u>Ultimate Photoshop Pro with AI Intelligence for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unbeatable-october-sale-metas-latest-512gb-quest-3-offers-top-value-on-prime-day-insights-from-zdnet/"><u>Unbeatable October Sale: Meta's Latest 512GB Quest 3 Offers Top Value on Prime Day - Insights From ZDNet</u></a></li>
 </ul></div>
 

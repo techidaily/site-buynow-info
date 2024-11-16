@@ -1,7 +1,7 @@
 ---
 title: "Stylish and Economical: Dive Into Our Review of the Moto G Phone with Built-In Stylus Feature"
-date: 2024-09-04T01:44:04.195Z
-updated: 2024-09-05T01:44:04.195Z
+date: 2024-11-09T23:20:32.211Z
+updated: 2024-11-15T23:25:27.767Z
 categories:
   - BestProducts
 description: "This Article Describes Stylish and Economical: Dive Into Our Review of the Moto G Phone with Built-In Stylus Feature"
@@ -36,9 +36,23 @@ Lifewire / Danny Chadwick
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Z-Edge Z3 Plus Dashcam
 
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/sE7fZzxcPjZXohzroVqLVr5l4qs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
 
@@ -65,18 +79,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Small but solid**
 
  If you didn’t know this device was a dashcam, you could be forgiven for mistaking it for a point-and-shoot camera. It has a three-inch screen, and while that is small by the standards of today’s mobile devices, it’s a great size for your windshield. All the indicator lights and icons fit nicely on the screen and you only need to glance at it briefly while you drive to see that it’s recording.
@@ -103,12 +105,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Super straightforward**
 
  If you’re even passingly familiar with digital cameras, you can have the Z3 Plus set up and ready to go within a few minutes of taking it out of the box. And while you should read the user manual before turning it on, you probably won’t run into any major difficulties if you don’t. The most time-consuming part of the setup is running the power cable up and around your windshield so it’s not dangling down to the power supply while you drive. This requires you to tuck the cord under your car’s upholstery and panels, which takes about 20 minutes to complete.
@@ -120,11 +116,12 @@ Lifewire / Danny Chadwick
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024326/7443" target="_top" id="2024326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Camera Quality: Beyond high definition**
 
  The Z3 Plus has outstanding recording abilities for a camera this size and can capture footage up to 2560 x 1440 resolution. However, this will fill up your camera quite fast, so you can set it as low as 720p if you don’t need super high-resolution footage. You can also adjust the frame rate to 30 and 60 frames per second (for resolutions exceeding 1920 x 1080, only 30 fps is available).
@@ -146,21 +143,22 @@ Lifewire / Danny Chadwick
  We did experience one strange glitch at the end of our testing—a couple of minutes after we had boxed up the Z3 Plus and put it away, we noticed loud, rapid beeping coming from the box. We took the Z3 Plus back out and it was frozen on the power-up screen. We couldn’t get it to turn off (or stop beeping) until the battery died a few minutes later. The camera appeared to work fine after that and we weren’t able to replicate the problem, but it was something of an alarming glitch from such a new device.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Price: Fair price for a fair product**
 
  As of the time of this writing, you can pick up this dashcam from Z-Edge for between $120 and $140, which seems like a good value to us. Given its features, tools, and image quality, it’s a fair price for a useful and reliable device.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Z-Edge Z3 Plus vs. Apeman C450 Dash Camera**
 
  We tested the Z3 Plus alongside the Apeman C450 Series A dashcam. The two are comparable in size and function, but the Apeman is a more budget-friendly model that costs around $50\. We definitely noticed a difference when it comes to the construction quality, image resolution, clarity of the user manual, and overall experience—the Z3 Plus was superior in almost every way.
@@ -177,18 +175,6 @@ Lifewire / Danny Chadwick
 
  The Z-Edge Z3 Plus is easy to set up, intuitive to use, captures clear video footage for a reasonable price. We would like to have seen a second mounting option to the suction cup and a longer-lasting battery, but those are minor quibbles in light of this device’s reliable performance.
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Z3 Plus Dashcam
@@ -212,8 +198,6 @@ Lifewire / Danny Chadwick
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -221,4 +205,21 @@ Lifewire / Danny Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/new-tips-and-tricks-for-gopro-get-the-most-from-your-gopro/"><u>[New] Tips and Tricks for GoPro Get the Most From Your GoPro</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unraveling-metaverse-and-multimetase-distinctions-expert-explanation/"><u>[New] Unraveling Metaverse and Multimetase Distinctions (Expert Explanation)</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-how-asmr-can-boost-your-health-and-happiness/"><u>[Updated] 2024 Approved How ASMR Can Boost Your Health & Happiness</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-fraps-as-a-video-recorder-what-you-need-to-know-for-2024/"><u>[Updated] Fraps as a Video Recorder What You Need To Know for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-navigating-instas-archive-maze-for-optimal-results/"><u>[Updated] Navigating Insta’s Archive Maze for Optimal Results</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-samsung-galaxy-f14-5g-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Samsung Galaxy F14 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-in-depth-minecraft-gameplay-recording-strategies/"><u>2024 Approved In-Depth Minecraft Gameplay Recording Strategies</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-samsung-galaxy-note20-ultra-with-5g-technology/"><u>Comprehensive Analysis of the Samsung Galaxy Note20 Ultra with 5G Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-kobo-clara-hd-tablet-experience/"><u>In-Depth Analysis: Kobo Clara HD Tablet Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-and-inexpensive-topmate-c302-pad-analysis-highly-efficient-heat-management-for-budget-conscious-users/"><u>Innovative and Inexpensive TopMate C302 Pad Analysis: Highly Efficient Heat Management for Budget-Conscious Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/powering-up-with-confidence-a-thorough-examination-of-the-beatit-bt-d11-jump-starter/"><u>Powering Up with Confidence: A Thorough Examination of the Beatit BT-D11 Jump Starter</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-samsung-galaxy-s23plus-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Samsung Galaxy S23+</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-pick-analysis-of-the-asus-vivobook-11-a-mini-laptop-with-all-round-superiority/"><u>Top Pick Analysis of the Asus Vivobook 11 - A Mini Laptop with All-Round Superiority</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/understanding-the-distinctions-of-kindle-and-fire-tablets-by-amazon/"><u>Understanding the Distinctions of Kindle and Fire Tablets by Amazon</u></a></li>
+</ul></div>
 

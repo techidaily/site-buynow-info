@@ -1,7 +1,7 @@
 ---
 title: Can Motorola Edge+ Hold Its Own Against Flagship Rivals? Our Review Says...
-date: 2024-09-04T01:44:04.513Z
-updated: 2024-09-05T01:44:04.513Z
+date: 2024-11-12T21:13:35.358Z
+updated: 2024-11-16T02:06:11.816Z
 categories:
   - BestProducts
 description: This Article Describes Can Motorola Edge+ Hold Its Own Against Flagship Rivals? Our Review Says...
@@ -37,6 +37,13 @@ Lifewire / Jordan Provost
 
 4.5
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Asus RT-AC88U AC3100 Dual Band Wi-Fi Router
 
 ![Asus RT-AC88U Gaming Router](https://www.lifewire.com/thmb/zQBwlUOVfknw2K2XN5_SYt4oLt8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4038590-1-_1_V2-0b72aeeaf52f48d1b51615e1cae8abf2.jpg)
@@ -67,27 +74,22 @@ Lifewire / Jordan Provost
  The Asus RT-AC88U, in fact, may be one of the best single-unit wireless routers on the market today, as it offers a respectable range, awesome performance, and a suite of features that make it stand out among the competition. We spent over a week testing it in a home environment, using it with multiple devices for all purposes including browsing, streaming, downloads, and gaming.
 
 <!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Design: Watch the edge
 
  Most gaming accessories in 2018_look_ like gaming products. They have edgy angular designs, red accents and bright LEDs. For the Asus RT-AC88U, the first two are certainly true—this router looks like something straight out of Battlestar Galactica. It has a black, angular design with four antennas jutting out of the sides and the back. These antennae have red highlights, making the router eye-catching if you put it in your living room or next to your PC. This design won’t appeal to everyone, obviously, but if it doesn’t offend your aesthetic, the Asus RT-AC88U is capable of some pretty amazing things.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Setup: Get up and running quickly
 
  Setting up the Asus RT-AC88U is a breeze, which was a bit surprising since most gaming routers take a bit of tinkering. You’ll have to reset your[modem](https://www.lifewire.com/what-is-a-modem-817861) , and hardwire it into a desktop computer via the[Ethernet port](https://www.lifewire.com/what-is-an-ethernet-port-817546) —no smartphone app-based setup here. Then, a portal will pop up in your web browser, where you’ll enter the default password that’s provided with the router. After creating a more secure password, you can run through the setup wizard. The Asus RT-AC88U will automatically detect your ISP and configure settings to get the best performance. All you’ll really have to do is choose your SSID and password and you’ll be good to go.
@@ -95,17 +97,12 @@ Lifewire / Jordan Provost
 ![Asus RT-AC88U Gaming Router](https://www.lifewire.com/thmb/tJSyhJYa8-MA9hCZoZxMCn1_GoI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4038590-1_6-3b7dfd6e10f84ca0a965905f4fbceb6c.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
 
  We connected it to our 250 Mbps Xfinity connection, and within a few minutes, after updating the firmware, we were getting phenomenal speeds with little to no fiddling.
@@ -127,6 +124,13 @@ Lifewire / Jordan Provost
  You can manage clients connected to your router, view system logs, change which wireless channels you run on and so much more. The Asus RT-AC88U is a dream come true for the power users out there and is filled to the brim with software features.
 
 ![Asus RT-AC88U Gaming Router](https://www.lifewire.com/thmb/HIJ1YoiZU5EbjoLtmqEOszPEwQc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4038590-1_3-7da5546e1b544459a0a87a7b1698cb47.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
@@ -157,17 +161,12 @@ Lifewire / Jordan Provost
  But what’s more surprising is that this QoS prioritization didn’t get in the way of the streams themselves being smooth. The Asus RT-AC88U isn’t just going to be great for anyone looking to minimize their gaming downtime, it’s going to be great for everyone in the household. You can eliminate arguments over bandwidth entirely — everyone can do whatever they need to do, without inconveniencing other people in the house.
 
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Price: Premium price for a premium experience
 
  The Asus RT-AC88U is not a cheap router by any means, and you’re paying a premium for the gaming-centric features this router boasts. And, we don’t really have a problem with this. At $299, it’s pricey, but not so much that it’s out of reach for large, multi-device households that really need its features.
@@ -188,24 +187,12 @@ Lifewire / Jordan Provost
 
  Beyond jumping to a wireless mesh system, which brings problems of its own, this router offers some of the best performance you can ask for. It’s a great choice for anyone looking to squeeze out all the potential from their broadband connection.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Asus ROG Rapture GT-AC5300](https://www.lifewire.com/asus-rog-gt-ac5300-review-4788185)
 * [Netgear Nighthawk X6 AC3200](https://www.lifewire.com/netgear-nighthawk-x6-ac3200-review-4788257)
 * [Linksys EA9500 Router](https://www.lifewire.com/linksys-ea9500-router-review-4774016)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  RT-AC88U AC3100 Dual Band Wi-Fi Router
@@ -223,14 +210,11 @@ Lifewire / Jordan Provost
 * Range  Very large homes
 * Parental Controls  Yes
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -239,4 +223,26 @@ Lifewire / Jordan Provost
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-comprehensive-durecorder-manual-review/"><u>[New] In 2024, Comprehensive DuRecorder Manual Review</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-unmasked-story-watching-a-guide-to-anonymous-instagram-stories-accessibility-pcandroidios/"><u>[New] In 2024, Unmasked Story Watching A Guide to Anonymous Instagram Stories Accessibility [PC/Android/iOS]</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-beginners-guide-to-youtube-shorts-nuances/"><u>[Updated] In 2024, A Beginner's Guide to YouTube Shorts Nuances</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unmatched-video-downloads-top-8-for-2024/"><u>[Updated] Unmatched Video Downloads Top 8 for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/ace-the-fix-troubleshooting-and-repairing-0x80070643-error-during-windows-updates/"><u>Ace the Fix: Troubleshooting and Repairing 0X80070643 Error During Windows Updates</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-realme-gt-neo-5-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Realme GT Neo 5 Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/authoritative-ranking-the-elite-choices-of-bodycams-for-security-forces/"><u>Authoritative Ranking: The Elite Choices of Bodycams for Security Forces</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-samsung-galaxy-fit-assessment-the-perfect-partner-for-health-conscious-individuals/"><u>Comprehensive Samsung Galaxy Fit Assessment - The Perfect Partner for Health-Conscious Individuals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/eardial-hifi-earplug-review-great-low-profile-concert-earplugs/"><u>EarDial HiFi Earplug Review: Great, Low-Profile Concert Earplugs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-nook-glowlight-4-ereader-analysis/"><u>In-Depth Nook GlowLight 4 Ereader Analysis</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/innovative-high-definition-software-top-8-free-listings-for-2024/"><u>Innovative High Definition Software Top 8 FREE Listings for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-your-commute-with-aphaca-bt69-bluetooth-fm-car-stereo-transmitter-detailed-examination-and-insights/"><u>Mastering Your Commute with Aphaca BT69 Bluetooth FM Car Stereo Transmitter - Detailed Examination and Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/performance-vs-appearance-for-the-2v-hdtv-antenna-by-clearstream-top-quality-just-not-pretty/"><u>Performance vs Appearance for the 2V HDTV Antenna by ClearStream: Top Quality, Just Not Pretty</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-cost-efficient-choice-for-watchful-pet-owners/"><u>The Cost-Efficient Choice for Watchful Pet Owners</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-a-fitbit-charge-6-based-on-user-reviews/"><u>The Ultimate Guide to Choosing a Fitbit Charge 6 Based on User Reviews</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/transforming-ideas-into-videos-top-30-strategies/"><u>Transforming Ideas Into Videos Top 30 Strategies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultra-portable-orlink-usb-631-superior-wi-fi-connectivity-compact-design/"><u>Ultra-Portable ORLINK USB 631: Superior Wi-Fi Connectivity, Compact Design</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/vital-considerations-when-opting-for-renewed-pcs/"><u>Vital Considerations When Opting for Renewed PCs</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/windows-11-font-customization-made-simple-your-ultimate-guide/"><u>Windows 11 Font Customization Made Simple - Your Ultimate Guide</u></a></li>
+</ul></div>
 

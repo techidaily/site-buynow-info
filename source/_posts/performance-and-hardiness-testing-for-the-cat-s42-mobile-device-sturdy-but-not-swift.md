@@ -1,7 +1,7 @@
 ---
 title: "Performance and Hardiness Testing for the CAT S42 Mobile Device: Sturdy but Not Swift"
-date: 2024-11-02T18:07:11.855Z
-updated: 2024-11-05T18:00:10.295Z
+date: 2024-11-10T22:03:31.369Z
+updated: 2024-11-16T00:18:49.719Z
 categories:
   - BestProducts
 description: "This Article Describes Performance and Hardiness Testing for the CAT S42 Mobile Device: Sturdy but Not Swift"
@@ -56,6 +56,13 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
 **TL;DR:** Highly customizable for any situation, simple to use, and regularly updated, the Apple Watch Series 9 is the one to beat.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Why We Recommend This
 
  I’ve been using Apple Watches since they first launched in 2015\. Over the years, the format has been refined, and the Apple Watch Series 9 is easily the best yet for most people.
@@ -90,13 +97,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
 * **Who else recommends it?** Digital Trends, TechRadar, CNET, ZDNet, and PCMag all recommend the Apple Watch Series 9.
 * **What do buyers think?** The Apple Watch Series 9 has over 2,400 ratings on Amazon, with 83% of those giving the watch five stars for an average rating of 4.7 out of 5.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Best Android Smartwatch
 
@@ -141,10 +141,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **What do buyers think?** The Samsung Galaxy Watch 6 has over 3,900 ratings on Amazon, with 88% of those rating the watch either five or four stars. The overall average rating is 4.5 out of 5.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Easiest on the Budget
@@ -158,13 +158,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 [$267 at Amazon](https://www.amazon.com/Garmin-v%C3%ADvoactive-Fitness-Smartwatch-Display/dp/B0CG6NR413?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CG6NR413)
 
 **TL;DR:** More affordable than most Garmin watches, the Garmin Vivoactive 5 offers all the key features while not looking too sporty.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Why We Recommend This
 
@@ -199,10 +192,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **What do buyers think?** The Garmin Vivoactive 5 has over 1,800 ratings on Amazon, with 76% of them rating it five or four stars. Its average rating is 4.4 out of 5.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How We Test
@@ -230,6 +223,13 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 [The Best Running Watches of 2024](https://www.lifewire.com/best-running-watches-8681631)
 
 [The Best Fitness Trackers of 2024](https://www.lifewire.com/best-fitness-trackers-8656291)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Other Smartwatches We Reviewed
 
@@ -266,24 +266,24 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-secrets-of-finding-exclusive-youtube-design-archives/"><u>[New] 2024 Approved Secrets of Finding Exclusive YouTube Design Archives</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-swipe-to-enhance-turning-videos-upside-down/"><u>[New] Swipe to Enhance Turning Videos Upside Down</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-clip-concoction-station/"><u>2024 Approved Clip Concoction Station</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/a-guide-motorola-moto-g73-5g-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Motorola Moto G73 5G Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/boosting-your-internet-experience-thorough-assessment-of-the-netgear-ex3700-wi-fi-range-extender-ac750/"><u>Boosting Your Internet Experience: Thorough Assessment of the Netgear EX3700 Wi-Fi Range Extender (AC750)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comparative-analysis-of-chromecast-and-roku-for-optimal-streaming-experience/"><u>Comparative Analysis of Chromecast and Roku for Optimal Streaming Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-dell-xps-13-gen-7-7390-mastering-flexibility-with-an-unmatched-design/"><u>Comprehensive Evaluation of the Dell XPS 13 Gen 7 (7390): Mastering Flexibility with an Unmatched Design</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-netgear-nighthawk-x10-ad7200-router-for-lightning-speed-wi-fi-connectivity/"><u>Comprehensive Evaluation of the Netgear Nighthawk X10 AD7200 Router for Lightning Speed Wi-Fi Connectivity</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/easy-steps-to-keep-your-chromecast-current-with-the-latest-version/"><u>Easy Steps to Keep Your Chromecast Current with the Latest Version</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-breakthrough-lenovo-thinkpad-x1-fold-pros-cons-and-performance-insights/"><u>Exploring the Breakthrough Lenovo ThinkPad X1 Fold: Pros, Cons & Performance Insights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-wi-fi-6-capabilities-with-the-netgear-nighthawk-rax80-a-users-perspective/"><u>Exploring Wi-Fi 6 Capabilities with the Netgear Nighthawk RAX80 – A User's Perspective</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-vivo-s18-pro-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Vivo S18 Pro Phone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-online-course-sites-a-list-of-the-10-best-educational-resources/"><u>Leading Online Course Sites: A List of the 10 Best Educational Resources</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigate-the-future-of-digital-art-with-the-finest-tablet-pads-of-2024/"><u>Navigate the Future of Digital Art with the Finest Tablet Pads of 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/seamless-connectivity-with-latest-msi-bluetooth-drivers-for-modern-windows-versions/"><u>Seamless Connectivity with Latest MSi Bluetooth Drivers for Modern Windows Versions</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/to-windows-11-or-not-assessing-your-systems-compatibility/"><u>To Windows 11 or Not: Assessing Your System's Compatibility</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/top-screen-recording-tools-face-off-summary/"><u>Top Screen Recording Tools Face-Off Summary</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-evolution-of-echo-dots-the-third-generation-review-with-all-alexa-features-in-a-compact-package/"><u>Unveiling the Evolution of Echo Dots - The Third Generation Review with All Alexa Features in a Compact Package</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1722992713227-windows-11-users-rejoice-microsoft-edge-crashes-now-resolved/"><u>Windows 11 Users Rejoice: Microsoft Edge Crashes Now Resolved!</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-reawakening-dormant-connections-with-your-obs-cam/"><u>[New] In 2024, Reawakening Dormant Connections with Your OBS Cam</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-navigating-the-complexities-of-chroma-removal-kinemaster-edition-for-2024/"><u>[New] Navigating the Complexities of Chroma Removal (KineMaster Edition) for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tep-by-step-revenue-building-for-youtube-creators-for-2024/"><u>[New] Step-by-Step Revenue Building for YouTube Creators for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-master-the-art-of-audio-alteration-in-sony-games/"><u>2024 Approved Master the Art of Audio Alteration in Sony Games</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-the-rexing-v1-dashcam-a-stealthy-and-economical-safety-device/"><u>Comprehensive Guide to the Rexing V1 DashCam - A Stealthy and Economical Safety Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/critical-takeaways-from-testing-a-troublesome-and-expensive-microsoft-surface-duo/"><u>Critical Takeaways From Testing a Troublesome & Expensive Microsoft Surface Duo</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elgoog-decoded-insights-into-googles-quirky-doppelganger-and-its-features-compared-to-the-search-giant/"><u>ElgooG Decoded: Insights Into Google's Quirky Doppelganger and Its Features Compared to The Search Giant</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/embrace-rejuvenating-slumber-unveiling-the-ihome-zenergy-sleep-aid-masterclass/"><u>Embrace Rejuvenating Slumber: Unveiling the IHome Zenergy Sleep Aid Masterclass</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enjoy-vivid-visuals-on-a-tough-screen-the-sunbritetv-55-built-to-endure-and-excellent-in-4k-quality/"><u>Enjoy Vivid Visuals on a Tough Screen - The SunBriteTV 55, Built to Endure & Excellent in 4K Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/essential-guide-to-selecting-the-perfect-usb-wi-fi-receiver/"><u>Essential Guide to Selecting the Perfect USB Wi-Fi Receiver</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-cost-of-airpods-max-earpieces/"><u>Evaluating the Cost of AirPods Max Earpieces</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-fitbit-charge-3-against-modern-rivals-a-comprehensive-review/"><u>Evaluating the Fitbit Charge 3 Against Modern Rivals – A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-lenovo-thinkpad-x1-fold-a-game-changing-laptop-with-room-for-improvement/"><u>Evaluating the Lenovo ThinkPad X1 Fold: A Game-Changing Laptop with Room for Improvement</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-itel-p55-5g-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Itel P55 5G Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-lenovo-thinkphone-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Lenovo ThinkPhone to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-iphone-dialing-difficulties-a-guide-to-fixing-common-errors/"><u>Overcoming iPhone Dialing Difficulties: A Guide to Fixing Common Errors</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-birth-and-evolution-of-artificocal-intelligence/"><u>The Birth and Evolution of Artificocal Intelligence</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/top-rated-tools-for-effortless-conversion-from-webm-to-mp4/"><u>Top-Rated Tools for Effortless Conversion From WebM to MP4</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlocking-your-computers-map-potential-with-google/"><u>Unlocking Your Computer's Map Potential with Google</u></a></li>
 </ul></div>
 

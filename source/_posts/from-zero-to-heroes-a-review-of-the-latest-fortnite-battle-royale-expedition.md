@@ -1,7 +1,7 @@
 ---
 title: "From Zero to Heroes: A Review of the Latest Fortnite Battle Royale Expedition"
-date: 2024-10-31T19:41:55.066Z
-updated: 2024-11-05T21:08:57.875Z
+date: 2024-11-13T20:11:06.440Z
+updated: 2024-11-16T03:35:17.662Z
 categories:
   - BestProducts
 description: "This Article Describes From Zero to Heroes: A Review of the Latest Fortnite Battle Royale Expedition"
@@ -43,10 +43,10 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Amazon Echo Dot (4th Gen)
@@ -79,6 +79,13 @@ Lifewire / Erika Rawes
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/TtbQpfhvpeKgt-Aso1WoKQ6m2VI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-2-89fbd54fb6a14efba195a0094b8d7b6f.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
  As time has passed and Amazon has released newer versions of its Echo Dot speaker, the company has shied away from sharp edges and hard plastic shells in favor of softer designs. You may remember the 2nd-gen model had more of a puck-shape, with a hard plastic shell and more defined edges. The earlier Dots looked more like networking equipment than home devices. However, this changed with the[3rd-Gen Dot](https://www.lifewire.com/echo-dot-3rd-gen-review-4772274#:~:text=The%20Amazon%20Echo%20Dot%20%283rd,Dot%20is%20a%20great%20buy.) , which had an airier feel, slightly rounded edges, and a fabric surround. This made the Dot feel more like a speaker made for the home and less like an office product.
@@ -88,13 +95,6 @@ Lifewire / Erika Rawes
  The new Dot measures 3.94 inches in diameter and 3.54 inches tall. The light ring sits on the bottom and the four main button controls sit on top of the speaker. The raised buttons make the Echo Dot look kind of like a small bowling ball from certain angles, but it’s nice to have the microphone off button right on top of the device for easy access.
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/HELf_jWdoxnVe1w7XOL9sC7GoO8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-4-f100069b4b7d40dc8661b1614e150934.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -108,14 +108,14 @@ Lifewire / Erika Rawes
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/dVUkRuy5SxFHmCHXxSseZY5tjhw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-3-320d298cdb18405d9d326c272464ef0d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Sound Quality: A front-firing speaker**
 
@@ -129,18 +129,18 @@ Lifewire / Erika Rawes
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/UFZM9HpoakK6sRg-7Vm2W8uLIQ8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-6-with-Clock-86c91da96d4043369f0a4e97b22c4209.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Features: The same Alexa**
 
  The Echo Dot (4th Gen) is powered by[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) . The Alexa voice assistant on the new Echo Dot is the same Alexa that you get on the Echo Dot (3rd Gen). You’ll be able to control your smart devices, listen to music, hear the news, set routines, shop, manage your schedule, and do all of the same things you could do before.[Alexa is always learning new skills](https://www.lifewire.com/alexa-skills-4126799) though. Amazon announced new Alexa features (coming soon) like Care Hub, which is a free feature that lets you check in on loved ones.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Echo Dot (4th Gen) With Clock: A Design Game Changer**
 
@@ -158,18 +158,18 @@ Lifewire / Erika Rawes
 
  I like the Echo Dot (4th Gen) with Clock better than the regular Echo Dot (4th Gen), as the regular version feels like it’s missing something.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: $60 with clock, $50 without**
 
  The Echo Dot (4th Gen) retails for $50, and for $10 more, you can pick up the “with clock” version. The clock is very much worth it simply because the device looks so much better with it (aside from the obvious added functionality), and for first-time buyers, the default model is definitely worth $50\. It looks great, sounds good, and provides an affordable way to access Alexa and control your smart home.
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/fdW9QpFUSBjNMTYTGdjFggaOH9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-5-Comparison-6841e2f32a734282b509976489bd0383.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -184,10 +184,10 @@ Lifewire / Erika Rawes
  The new Echo Dot is a great speaker at a great price, but it’s not worth an upgrade if you already have the 3rd-gen Dot unless you’re going with the clock version. For first time buyers, it's a no-brainer.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -222,22 +222,18 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-reverse-the-norm-flipping-videos-for-social-media/"><u>[New] In 2024, Reverse the Norm Flipping Videos for Social Media</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-6-best-youtube-shorts-downloaders-free-and-online-for-2024/"><u>[Updated] 6 Best YouTube Shorts Downloaders [Free & Online] for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-your-go-to-list-for-immersive-sandboxes-for-2024/"><u>[Updated] Your Go-To List for Immersive Sandboxes for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-proven-methods-for-youtubers-rapid-subscriber-expansion/"><u>2024 Approved Proven Methods for Youtubers' Rapid Subscriber Expansion</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-value-for-money-detailed-review-of-the-vuebell-video-doorbell-on-the-market/"><u>Best Value for Money: Detailed Review of the VueBell Video Doorbell on the Market</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-gimp-image-editing-software-assessment-a-cost-free-solution-across-platforms/"><u>Comprehensive GIMP Image Editing Software Assessment: A Cost-Free Solution Across Platforms</u></a></li>
-<li><a href="https://win-cheats.techidaily.com/entdecken-sie-7-methoden-zur-offline-datei-sichtbarkeit-in-windows-betriebssystemen-windows-11-8-und-7/"><u>Entdecken Sie 7 Methoden Zur Offline-Datei-Sichtbarkeit in Windows-Betriebssystemen (Windows 11, 8 Und 7)</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-lenovo-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Lenovo</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-jumpstart-your-filming-setups-8-sites-offering-free-eco-screens/"><u>In 2024, Jumpstart Your Filming Setups - 8 Sites Offering Free Eco-Screens</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-ultimate-guide-to-adding-gifs-on-instagram-easy-steps/"><u>In 2024, The Ultimate Guide to Adding GIFs on Instagram [Easy Steps]</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-xbox-series-s-making-a-big-impact-in-a-small-frame/"><u>In-Depth Analysis of Xbox Series S: Making a Big Impact in a Small Frame</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mlb-the-show-19-review-a-good-looking-sports-game-with-surprising-rpg-elements/"><u>MLB The Show 19 Review: A Good Looking Sports Game with Surprising RPG Elements</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/patek-fly-12s-adaptive-support-system-revealed/"><u>Patek Fly 12'S Adaptive Support System Revealed</u></a></li>
-<li><a href="https://fox-that.techidaily.com/tackle-troublesome-iphone-x-quirks-with-these-7-essential-fixes/"><u>Tackle Troublesome iPhone X Quirks with These 7 Essential Fixes</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-apeman-c450-revealed-quality-dashcam-at-a-budget-price-expert-review/"><u>The Apeman C450 Revealed: Quality Dashcam at a Budget Price – Expert Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-directors-cut-showcase-for-the-wasteland-2-an-in-depth-look-at-the-revamped-rpg-experience/"><u>The Director's Cut Showcase for The Wasteland 2: An In-Depth Look at the Revamped RPG Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unseen-worlds-in-water-with-insta360-x2s-360-features/"><u>Unseen Worlds in Water with Insta360 X2's 360 Features</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-reviving-the-past-flipping-iphone-video-streams/"><u>[New] Reviving the Past Flipping iPhone Video Streams</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-how-to-seamlessly-blend-apples-siri-into-your-tiktok-content/"><u>[Updated] In 2024, How to Seamlessly Blend Apple's Siri Into Your TikTok Content</u></a></li>
+<li><a href="https://app-tips.techidaily.com/banking-industry-leader-urges-innovative-thinking-over-easy-solutions-in-artificial-intelligence-insights-from-a-top-cio-zdnet/"><u>Banking Industry Leader Urges Innovative Thinking Over Easy Solutions in Artificial Intelligence - Insights From a Top CIO | ZDNet</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/eliminate-not-supported-errors-in-windows-a-quick-guide/"><u>Eliminate 'Not Supported' Errors in Windows: A Quick Guide</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/experience-ultimate-gaming-with-alienwares-360-hz-oled-monitor-scores-high-and-costs-low/"><u>Experience Ultimate Gaming with Alienware’s 360 Hz OLED Monitor - Scores High and Costs Low</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-the-soft-bricked-itel-a60s-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Itel A60s? | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-turn-a-flood-of-fails-into-success-with-precision-in-tiktok-editing/"><u>In 2024, Turn a Flood of Fails Into Success with Precision in TikTok Editing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-perfect-blend-of-exercise-tracking-and-music-streaming-discover-the-garmin-vivoactive-3/"><u>The Perfect Blend of Exercise Tracking & Music Streaming: Discover the Garmin Vivoactive 3!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-travelers-choice-in-laptops-detailed-analysis-of-lenovos-thinkpad-x1-nano/"><u>The Traveler’s Choice in Laptops: Detailed Analysis of Lenovo's ThinkPad X1 Nano</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-notch-samsung-savings-unbeatable-black-friday-and-cyber-monday-offers/"><u>Top Notch Samsung Savings: Unbeatable Black Friday & Cyber Monday Offers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-htpc-systems-your-ultimate-guide/"><u>Top Rated HTPC Systems - Your Ultimate Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tp-link-archer-a9-top-performance-in-a-sub-100-router/"><u>TP-Link Archer A9 - Top Performance in a Sub-$100 Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/turbocharge-your-drive-exploring-the-cutting-edge-car-code-readers-and-articles-released-so-far-in-los-angeles-rev/"><u>Turbocharge Your Drive: Exploring the Cutting Edge Car Code Readers and Articles Released So Far In Los Angeles (Rev.)</u></a></li>
 </ul></div>
 
