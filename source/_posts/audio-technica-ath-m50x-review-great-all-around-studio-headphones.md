@@ -1,7 +1,7 @@
 ---
 title: "Audio-Technica ATH-M50x Review: Great All-Around Studio Headphones"
-date: 2024-08-30T14:20:35.534Z
-updated: 2024-08-31T14:20:35.534Z
+date: 2024-11-18T20:13:42.619Z
+updated: 2024-11-25T06:11:46.619Z
 categories:
   - BestProducts
 description: "This Article Describes Audio-Technica ATH-M50x Review: Great All-Around Studio Headphones"
@@ -65,8 +65,9 @@ Lifewire / Jeff Dojillo
  Lifewire / Jeff Dojillo
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Modern but plastic**
 
  The Audio-Technica AT-LP120XUSB-BK is a lightweight turntable with a modern design. The all black, polished metal turntable comes with a professional-grade, anti-resonance, die-cast aluminum platter and a felt mat to help reduce vibration when playing records.
@@ -81,9 +82,6 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Set up: Quick and painless**
 
  Removing the Audio-Technica AT-LP120XUSB-BK from the box, we were able to assemble it pretty quickly, though the instructions were a bit vague. We installed the platter and the felt mat on the turntable easily, and the headshell and phono cartridge on the Audio-Technica AT-LP120XUSB-BK were also a breeze to install. Balancing the tonearm was fairly straightforward as well, it just required a few trial and error adjustments of the counterweight.
@@ -91,8 +89,9 @@ Lifewire / Jeff Dojillo
  Lifewire / Jeff Dojillo
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Great audio output and format support**
 
  While testing the Audio-Technica AT-LP120XUSB-BK, we realized that it not only looks great, it performs well. After placing a record on the turntable we found it easy to choose the correct speed to play the record, with controls for 33/45/78 RPM right next to the start button.
@@ -103,9 +102,6 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ## **Sound Quality: Varies from system to system**
 
  The Audio-Technica AT-LP120XUSB-BK generally sounds great, but audio quality can vary significantly depending on the system to which the turntable is attached. When testing the AT-VM95E Dual Magnet phono cartridge with a dedicated stereo amp it created a wonderful soundstage with crisp high tones and rich bass. Even though our tests were positive, the sound produced from the turntable relies more on the quality of speakers, amp, and sound dynamics of the room than other models.
@@ -114,20 +110,22 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Digital to Analog Conversion: Quick and easy**
 
  According to the instructions that were provided with the Audio-Technica AT-LP120XUSB-BK, all we had to do to convert vinyl records to digital audio was to connect the turntable via[USB](https://www.lifewire.com/universal-serial-bus-usb-2626039) and download Audacity recording software. Converting analog audio to digital was then as simple as selecting the turntable as our input device. This turntable is perfect for those looking for a simple way to record their favorite records or archive a rare vinyl collection.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## **Price: Decent price for what it delivers**
 
  Retailing at around $250 the Audio-Technica AT-LP120XUSB-BK is a great direct-drive turntable. Geared toward those that enjoy high-definition music through vinyl records, this is a great turntable that not only looks wonderful but delivers great functionality.
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Audio-Technica AT-LP120XUSB-BK vs Sony PS-LX310BT**
 
  Coming in at around $178, the Sony PS-LX310BT is a great entry level turntable that has Bluetooth connectivity and, like the AT-LP120XUSB-BK, has the added benefit of connecting to your computer via USB to convert records to digital. Both models are plastic, but both are also reasonably attractive and won’t stand out in a negative way like some of the cheaper eyesores in this category do. The Sony model edges out the Audio-Technica based largely on price; the latter’s audio quality is so drastically better as to justify a $121 price bump.
@@ -139,6 +137,10 @@ Lifewire / Jeff Dojillo
  **An excellent premium option for serious audiophiles.**
 
  The Audio-Technica AT-LP120XUSB-BK is a great turntable for those that are looking for a serious, enthusiast option. Vinyl lovers that are serious about sound will want this turntable due to its customizable features and excellent sound quality—as long as it’s paired with a similarly high-end system.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -179,8 +181,6 @@ Lifewire / Jeff Dojillo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -188,4 +188,24 @@ Lifewire / Jeff Dojillo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enhancing-visual-appeal-youtube-images-in-presentations-for-2024/"><u>[New] Enhancing Visual Appeal YouTube Images in Presentations for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-easy-peasy-guide-to-capturing-online-events-for-mac-and-windows-users/"><u>[New] In 2024, Easy-Peasy Guide to Capturing Online Events For Mac & Windows Users</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-from-basic-recording-to-masterpiece-your-webcam-guide/"><u>[Updated] From Basic Recording to Masterpiece Your WebCam Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unveiling-the-role-of-emotions-in-executive-choices-a-neuroscientific-perspective-for-2024/"><u>[Updated] Unveiling the Role of Emotions in Executive Choices A Neuroscientific Perspective for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/acurite-pro-weather-station-01036m-review/"><u>AcuRite Pro Weather Station 01036M Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/an-insightful-review-of-the-syma-x5-4-channel-rc-helicopter-ideal-for-first-time-flyers/"><u>An Insightful Review of the SYMA X5 4 Channel RC Helicopter - Ideal for First-Time Flyers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boost-your-blogs-profitability-through-buyselladscom-advertising-solutions/"><u>Boost Your Blog's Profitability Through BuySellAds.com Advertising Solutions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/buyers-pick-for-highest-quality-external-players/"><u>Buyer's Pick for Highest Quality External Players</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-t-play-mov-files-on-sony-by-aiseesoft-video-converter-play-mov-on-android/"><u>Can't play .mov files on Sony </u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722621870163-fun-filled-reviews-of-the-ddpai-mini-3-a-unique-spin-on-dashcam-entertainment/"><u>Fun-Filled Reviews of the DDpai Mini 3 - A Unique Spin on Dashcam Entertainment!</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-exploring-the-art-of-audio-mixdowns-via-crossfade/"><u>In 2024, Exploring the Art of Audio Mixdowns via Crossfade</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Stop My Spouse from Spying on My Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/inside-the-magic-box-how-does-vr-function-in-2024/"><u>Inside the Magic Box How Does VR Function, In 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-beginners-blueprint-for-windows-11-desktop-art/"><u>The Beginner's Blueprint for Windows 11 Desktop Art</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-splurge-when-you-can-save-experience-excellence-with-lgs-affordable-24lh4830-smart-tv/"><u>Why Splurge When You Can Save? Experience Excellence with LG's Affordable 24LH4830 Smart TV</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/wii-us-winning-strategy-an-insight-into-its-global-commercial-triumph/"><u>Wii U's Winning Strategy: An Insight Into Its Global Commercial Triumph</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/your-ultimate-guide-to-using-and-maximizing-your-new-lenovo-9-inch-nook-tablet/"><u>Your Ultimate Guide to Using and Maximizing Your New Lenovo 9-Inch Nook Tablet</u></a></li>
+</ul></div>
 

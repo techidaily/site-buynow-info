@@ -1,7 +1,7 @@
 ---
 title: "Midland LXT500VP3 Handheld Radios: An Insightful Review on a Product with Many Features but Poor Performance"
-date: 2024-11-13T20:33:52.970Z
-updated: 2024-11-16T02:28:57.170Z
+date: 2024-11-22T09:10:50.412Z
+updated: 2024-11-25T02:18:43.469Z
 categories:
   - BestProducts
 description: "This Article Describes Midland LXT500VP3 Handheld Radios: An Insightful Review on a Product with Many Features but Poor Performance"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Beatit 800A BT-D11 Car Jump Starter
 
@@ -48,6 +52,10 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Tony Mitera
 
 [View On EBay](https://www.ebay.com/p/563813511)
@@ -71,13 +79,6 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: A lot of power packed into a small frame**
 
  The Beatit Jump Starter D11’s main unit's effectively a small black brick with red accents. Roughly the size of a small paperback book, the unit's constructed out of durable plastic and features a flashlight at one end. Along one of the long sides there's a small display that shows battery status, the on/off switch, two USB power outputs, and the device’s charging port. On the opposing side a rubber flap covers the jumper cable port; a unique port that the jumper cable accessory plugs in to.
@@ -89,10 +90,7 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: It can’t realistically be much simpler**
@@ -112,16 +110,7 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Key Features: The flashlight is nice but is basically a spotlight**
@@ -138,13 +127,6 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
  At that price point, it packs a ton of value into its diminutive size.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
 **_DBPOWER 600A Peak 18000mAh Portable Car Jump Starter:_**  When it comes down to it these two units are surprisingly similar, down to the case and overall design of the unit. If you really want the ability to use your jump starter to also charge your laptop the DBPOWER is worth a look. Otherwise, save yourself around $10 and stick with the Beatit BT-D11.
@@ -160,6 +142,10 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 **For the price, it's perfect.**
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -192,19 +178,24 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-info.techidaily.com/battle-for-neighborville-an-unforgettable-encounter-with-hilarious-plant-zombie-shooting-action/"><u>'Battle for Neighborville': An Unforgettable Encounter with Hilarious Plant-Zombie Shooting Action</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-vsdc-insight-an-in-depth-look-at-its-features-and-rivals/"><u>[New] 2024 Approved VSDC Insight An In-Depth Look at Its Features and Rivals</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-art-of-selecting-and-using-b-roll-in-productions/"><u>[New] In 2024, The Art of Selecting and Using B-Roll in Productions</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-snapchats-visual-language-mastering-the-art-of-gifting-with-gifs/"><u>[Updated] In 2024, Snapchat's Visual Language Mastering the Art of Gifting with Gifs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-critical-review-of-google-pixel-slate-surviving-the-turmoil-within-chromeos/"><u>A Critical Review of Google Pixel Slate: Surviving the Turmoil Within ChromeOS</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-step-by-step-guide-installing-and-using-arlo-security-cameras/"><u>A Step-by-Step Guide: Installing and Using Arlo Security Cameras</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-excellence-how-zte-blade-a3y-stands-up-against-budget-competitors/"><u>Affordable Excellence: How ZTE Blade A3Y Stands Up Against Budget Competitors</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazon-fire-hd-8-eighth-generation-review-outstanding-entry-level-device-worth-the-investment/"><u>Amazon Fire HD 8 (Eighth Generation) Review: Outstanding Entry Level Device Worth the Investment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/brighten-up-your-daybreak-a-comprehensive-analysis-of-the-ihome-zenergy-sleep-therapy-machine/"><u>Brighten Up Your Daybreak: A Comprehensive Analysis of the IHome Zenergy Sleep Therapy Machine</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/imessage-communication-guide-sending-and-receiving-texts-on-your-pc-with-windows/"><u>IMessage Communication Guide: Sending & Receiving Texts on Your PC with Windows</u></a></li>
-<li><a href="https://games-able.techidaily.com/mac-gaming-enhanced-counter-strike-2-basics/"><u>Mac Gaming Enhanced: Counter-Strike 2 Basics</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-in-2024-protect-your-privacy-10-best-free-face-blurring-apps-for-images-and-clips/"><u>New In 2024, Protect Your Privacy 10 Best Free Face Blurring Apps for Images and Clips</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-9-essential-factors-for-choosing-the-perfect-dash-cam/"><u>Top 9 Essential Factors for Choosing the Perfect Dash Cam</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/unleash-creative-potential-tips-and-tricks-for-filming-with-logitech-cam-for-2024/"><u>Unleash Creative Potential Tips and Tricks for Filming with Logitech Cam for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-how-to-choose-between-filmora-and-democreator/"><u>[Updated] 2024 Approved How to Choose Between Filmora and Democreator</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-6-unparalleled-mac-apps-for-video-grabbing-for-2024/"><u>[Updated] 6 Unparalleled Mac Apps for Video Grabbing for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-your-youtube-content-with-7-premium-free-audio-sounds-for-2024/"><u>[Updated] Elevate Your YouTube Content With 7 Premium, Free Audio Sounds for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-monetizing-on-youtube-can-you-earn-monthly/"><u>[Updated] Monetizing on YouTube Can You Earn Monthly?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-excellent-video-and-picture-capture-for-iphones-and-androids-here/"><u>2024 Approved Excellent Video & Picture Capture for iPhones & Androids Here</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-the-ultimate-selection-of-inexpensive-web-explorers-for-remote-work/"><u>2024 Approved The Ultimate Selection of Inexpensive Web Explorers for Remote Work</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-most-innovative-and-reliable-smartwatch-models-unveiled/"><u>2024'S Most Innovative and Reliable Smartwatch Models Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-top-rated-bodycams-the-complete-selection-for-professionals/"><u>2024'S Top-Rated Bodycams: The Complete Selection for Professionals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-balanced-view-exploring-both-sides-the-strengths-and-weaknesses-of-webex-online-meetings/"><u>A Balanced View: Exploring Both Sides - The Strengths and Weaknesses of WebEx Online Meetings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-users-guide-to-the-viair-88p-compact-compressor-high-capacity-meets-few-limitations/"><u>A User's Guide to the Viair 88P Compact Compressor: High Capacity Meets Few Limitations</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/acer-chromebook-r-11-review/"><u>Acer Chromebook R 11 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722748105159-does-the-tp-link-archer-ax6000-excel-past-the-netgear-nighthawk-ax12-in-depth-review-analysis/"><u>Does the TP-Link Archer AX6000 Excel Past the NETGEAR Nighthawk AX12? In-Depth Review Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722556131253-elevate-your-home-entertainment-with-the-budget-friendly-1byone-indoor-hdtv-signal-enhancer-reviews-inside/"><u>Elevate Your Home Entertainment with the Budget-Friendly 1ByOne Indoor HDTV Signal Enhancer - Reviews Inside</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-a-compreenasion-of-siri-integration-into-tiktok-filmmaking/"><u>In 2024, A Compreenasion of Siri Integration Into TikTok Filmmaking</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722781532171-is-the-tp-link-archer-ax6000-a-better-choice-than-the-nighthawk-ax12-review-insights/"><u>Is the TP-Link Archer AX6000 a Better Choice Than the Nighthawk AX12? Review Insights!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ize-engagement-the-top-14-youtube-gaming-video-strategies-for-2024/"><u>Maximize Engagement The Top 14 YouTube Gaming Video Strategies for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722715729717-revolutionize-your-office-space-with-modern-chic-designs-flexispots-theodore-standing-desk-revealed/"><u>Revolutionize Your Office Space with Modern Chic Designs - Flexispot's Theodore Standing Desk Revealed</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-essence-of-whatsapp-call-conversations/"><u>The Essence of WhatsApp Call Conversations</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-xiaomi-13t-pro-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Xiaomi 13T Pro Phones</u></a></li>
 </ul></div>
 

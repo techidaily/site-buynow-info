@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis and Insights on the Large-Screen Nook eReader by Barnes & Noble
-date: 2024-08-30T14:22:50.818Z
-updated: 2024-08-31T14:22:50.818Z
+date: 2024-11-24T01:22:04.509Z
+updated: 2024-11-24T17:09:30.400Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis and Insights on the Large-Screen Nook eReader by Barnes & Noble
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/jfgwfkiNAIzXpA4nS7szHYRVXHo=/400x300/fi
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/GshnCnk_G-hNSwDTRjGVB28Nl-o=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -37,6 +41,10 @@ thumbnail: https://www.lifewire.com/thmb/jfgwfkiNAIzXpA4nS7szHYRVXHo=/400x300/fi
 [View On Amazon $185](https://www.amazon.com/dp/B07T89YZWD?tag=lifewire-onsite-prod-20&ascsubtag=4846125%7Cn35b11b2c61b54fa1a2d951691d1a61ed04%7CB07T89YZWD) [View On Walmart $379](https://www.walmart.com/ip/NETGEAR-Nighthawk-AX6000-Dual-Band-WiFi-Wireless-6-Mesh-Range-Extender-EAX80-100NAS/122370265) [View On Best Buy $197](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-nighthawk-ax6000-ax8-dual-band-wi-fi-6-range-extender-black%2F6359409.p%3FskuId%3D6359409)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
@@ -66,9 +74,6 @@ thumbnail: https://www.lifewire.com/thmb/jfgwfkiNAIzXpA4nS7szHYRVXHo=/400x300/fi
 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -77,9 +82,6 @@ thumbnail: https://www.lifewire.com/thmb/jfgwfkiNAIzXpA4nS7szHYRVXHo=/400x300/fi
 
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Avoid the app**
 
  The setup options for the Netgear Nighthawk AX8 are the same as with Netgear’s other extenders—even those without Wi-Fi 6 support. You’ll begin with the extender plugged in near your router. If your router supports[WPS](https://www.lifewire.com/what-is-wps-4842308) , then you can pair the extender with it easily by following the process listed in the included booklet, which is as simple as pressing a button on the router and then doing the same on the extender.
@@ -92,10 +94,11 @@ thumbnail: https://www.lifewire.com/thmb/jfgwfkiNAIzXpA4nS7szHYRVXHo=/400x300/fi
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Connectivity: Smooth sailing**
 
@@ -121,9 +124,6 @@ thumbnail: https://www.lifewire.com/thmb/jfgwfkiNAIzXpA4nS7szHYRVXHo=/400x300/fi
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: More than most**
 
  The Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender is listed at $250, although it’s being sold for $220 at multiple retailers as of this writing. That’s definitely on the higher end for an extender.
@@ -131,8 +131,9 @@ thumbnail: https://www.lifewire.com/thmb/jfgwfkiNAIzXpA4nS7szHYRVXHo=/400x300/fi
  Should you really spend that much on an extender? If you don’t already have a new Wi-Fi 6 router, then probably not. You might see higher peaks of speed as I did, but rather than trying to mix and match old and new tech, you’re probably better off investing in a new Wi-Fi mesh system that can cover the entire house. Netgear’s Orbi is a favorite, as is Google’s similar Nest Wi-Fi system.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Netgear Nighthawk AX8 vs. Netgear Nighthawk X6S (EX8000)**
 
  Both of these Netgear Nighthawk Wi-Fi extenders will set you back $200 or more, and the key difference between them—aside from design—is the Wi-Fi 6 compatibility of the Nighthawk AX8\. The Nighthawk X6S (see on[Amazon](https://www.amazon.com/NETGEAR-Wi-Fi-Range-Extender-EX8000/dp/B074F3M2W8/?tag=lifewire-onsite-prod-20&ascsubtag=4846125%7Cn35b11b2c61b54fa1a2d951691d1a61ed04%7C) ) doesn’t have that, but it does deliver excellent 5GHz range and has four Gigabit Ethernet ports for wired devices. The Nighthawk AX8 is more future-proof as a result, but at a greater cost that becomes increasingly difficult to justify the higher, it climbs.
@@ -144,8 +145,9 @@ thumbnail: https://www.lifewire.com/thmb/jfgwfkiNAIzXpA4nS7szHYRVXHo=/400x300/fi
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
@@ -163,8 +165,6 @@ thumbnail: https://www.lifewire.com/thmb/jfgwfkiNAIzXpA4nS7szHYRVXHo=/400x300/fi
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -172,4 +172,26 @@ thumbnail: https://www.lifewire.com/thmb/jfgwfkiNAIzXpA4nS7szHYRVXHo=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-ultimate-2024-lists-high-quality-unboxers-on-youtube/"><u>[New] Ultimate 2024 Lists - High-Quality Unboxers on YouTube</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-art-and-science-of-crafting-a-captivating-trailer-for-youtube/"><u>[Updated] The Art and Science of Crafting a Captivating Trailer for YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-transforming-youtube-content-using-the-power-of-imovie-for-2024/"><u>[Updated] Transforming YouTube Content Using the Power of iMovie for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-the-cleverly-engineered-ring-doorbell-pro/"><u>Comprehensive Evaluation of the Cleverly Engineered Ring Doorbell Pro</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/educators-guide-top-screen-capture-tools-for-2024/"><u>Educator's Guide Top Screen Capture Tools for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Vivo Y27s? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-exploring-your-liked-movies-and-shows-on-facebook/"><u>In 2024, Exploring Your Liked Movies and Shows on Facebook</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-full-guide-to-unlock-your-gionee-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Gionee</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-oneplus-open-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on OnePlus Open</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/premium-noiseless-audio-to-text-applications/"><u>Premium Noiseless Audio-To-Text Applications</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-revolutionary-portable-display-discover-the-features-of-the-msi-pro-mp161-e2-monitor/"><u>The Revolutionary Portable Display: Discover the Features of the MSI PRO MP161 E2 Monitor</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-nikon-z7-assessment-mirrorless-mastery-in-focus/"><u>The Ultimate Nikon Z7 Assessment: Mirrorless Mastery in Focus</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-list-find-your-next-favorite-movies-with-these-7-trailer-hubs/"><u>Ultimate List: Find Your Next Favorite Movies with These 7 Trailer Hubs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unbiased-review-selecting-the-optimal-power-inverter-for-solar-systems/"><u>Unbiased Review: Selecting the Optimal Power Inverter for Solar Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-the-samsung-ru7300-does-its-unique-shape-add-to-its-smart-tv-charm/"><u>Unboxing and Testing the Samsung RU7300 - Does Its Unique Shape Add to Its Smart TV Charm?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlock-robust-protection-the-top-6-cybersecurity-choices-for-iphone-users/"><u>Unlock Robust Protection: The Top 6 Cybersecurity Choices for iPhone Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-capabilities-a-complete-review-of-the-intelligent-linksys-ea9500-wifi-router/"><u>Unveiling the Capabilities: A Complete Review of the Intelligent Linksys EA9500 WiFi Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-performance-of-linksys-wrt3nacm-acm-a-leading-choice-for-enthusiasts-in-open-source-routers/"><u>Unveiling the Performance of Linksys WRT3nacm ACM: A Leading Choice for Enthusiasts in Open Source Routers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-perks-and-pitfalls-of-the-google-pixelbook-gos-pricing-strategy/"><u>Unveiling the Perks and Pitfalls of the Google Pixelbook Go's Pricing Strategy</u></a></li>
+</ul></div>
 

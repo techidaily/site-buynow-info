@@ -1,7 +1,7 @@
 ---
 title: "SYMA X5C RC Drone Evaluation: Budget-Friendly Beginner's Choice"
-date: 2024-11-09T00:10:22.730Z
-updated: 2024-11-15T20:17:33.662Z
+date: 2024-11-21T19:00:22.754Z
+updated: 2024-11-24T23:16:20.707Z
 categories:
   - BestProducts
 description: "This Article Describes SYMA X5C RC Drone Evaluation: Budget-Friendly Beginner's Choice"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/1a9ff9a0df36e63422a5b90ac24e55bb1f02f4633
 ## TP-Link Archer C9 Wireless Router
 
 ![TP-Link Archer C9 AC1900](https://www.lifewire.com/thmb/6VSQssBUxUcvd585IJcj9jrMZWE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAC1900_HeroSquare-68c63e89f59a47a2944b2a73434417e9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -69,13 +73,6 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer C9 AC1900 is a budget-friendly router, so it doesn’t include too many of the features you see in newer, more expensive models. It doesn’t include[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) control or MU-MIMO technology, but it’s supposed to provide a long signal range for larger homes, as well as support fast enough speeds for online gaming and 4K media. I tested the TP-Link AC1900 alongside several other[long range routers](https://www.lifewire.com/best-long-range-routers-4122554) to see how well it performs in the real world.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Fingerprints galore**
 
  The Archer AC1900 definitely isn’t the most attractive router I’ve seen. The version I tested is black, but TP-Link also makes the C9 in white. The gloss finish gives the AC1900 a cheap look, and it, unfortunately, shows each and every smudge and fingerprint when you touch the surface. The indicator lights sit on the front face, and you can easily see the network status with a quick glance.
@@ -88,15 +85,16 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup: Takes less than 10 minutes**
 
  Setup is simple, and you can use the Tether app or the TP-Link site. There’s a QR code in the quick setup leaflet, so you can easily find the app. As it goes with most routers, you’ll find a temporary network name, password, and login info on the label. The app walks you through the setup process step-by-step, guiding you through creating your 2.4 and 5 GHz networks.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Connectivity: Decent speeds, long range**
@@ -121,13 +119,6 @@ Lifewire / Erika Rawes
 
  The router performed extremely well at close proximity, but not so well at a distance.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software: TP-Link Tether app**
 
  You can control the router’s functions from the companion app, Tether. In the app, you can do things like set parental time limits on devices, create a guest network, block devices from the network, and perform basic network maintenance.
@@ -141,10 +132,7 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: A budget router**
@@ -162,10 +150,7 @@ Lifewire / Erika Rawes
  The TP-Link Archer C9 AC1900 is a good option for those who want a reasonably fast and stable network connection, but don’t want to pay a lot of cash for extra bells and whistles.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -204,18 +189,21 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-diving-into-youtube-creation-and-making-it-monetary/"><u>[New] In 2024, Diving Into YouTube Creation & Making It Monetary</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-understanding-adobe-storage-alternatives-explained/"><u>[Updated] In 2024, Understanding Adobe Storage, Alternatives Explained</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-twitch-replay-tricks-20-ways-to-retrace-your-stream-trail/"><u>2024 Approved Twitch Replay Tricks 20 Ways to Retrace Your Stream Trail</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/discovering-the-sovol-sv08-the-ultimate-fusion-of-speed-and-voron-design/"><u>Discovering the Sovol SV08: The Ultimate Fusion of Speed and Voron Design</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/how-does-shap-e-simplify-ml-complexities/"><u>How Does SHAP E Simplify ML Complexities?</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-best-ways-to-bypass-icloud-activation-lock-on-iphone-6ipadipod-by-drfone-ios/"><u>In 2024, Best Ways to Bypass iCloud Activation Lock on iPhone 6/iPad/iPod</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/no-more-distractions-expert-guide-to-removing-youtube-ads-for-2024/"><u>No More Distractions - Expert Guide to Removing YouTube Ads for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Infinix Smart 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/smartdesk-levitate-unveiled-challenging-assembly-process-meets-satisfactory-functionality-reviewed/"><u>SmartDesk Levitate Unveiled: Challenging Assembly Process Meets Satisfactory Functionality Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-mesh-wi-fi-solutions/"><u>Top Rated Mesh Wi-Fi Solutions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-performing-asus-wireless-routers-reviewed-2024-edition/"><u>Top-Performing ASUS Wireless Routers Reviewed: 2024 Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-document-and-photo-scanners-in-2e24/"><u>Top-Rated Document & Photo Scanners in 2E24</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tp-link-archer-c80-evaluated-delivering-rapid-connectivity-for-less-than-a-hundred-dollars/"><u>TP-Link Archer C80 Evaluated: Delivering Rapid Connectivity for Less Than a Hundred Dollars</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-beginning-basics-the-ultimate-guide-to-starting-a-reviews-centric-youtube-channel/"><u>[New] 2024 Approved Beginning Basics The Ultimate Guide to Starting a Reviews-Centric YouTube Channel</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-craft-comical-caricatures-using-giphys-kit-for-2024/"><u>[Updated] Craft Comical Caricatures Using Giphy's Kit for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-free-music-for-videos-finding-the-right-sources/"><u>[Updated] In 2024, Free Music for Videos Finding the Right Sources</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/2024s-ultimate-guide-to-choosing-floodlights-for-enhanced-home-safety-gadgetflow-review/"><u>2024'S Ultimate Guide to Choosing Floodlights for Enhanced Home Safety - GadgetFlow Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/drone-enthusiasts-choice-decoding-the-best-multirotor-options-for-hobbyists-vs-serious-flyers/"><u>Drone Enthusiast's Choice: Decoding the Best Multirotor Options for Hobbyists Vs. Serious Flyers</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-y78plus-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo Y78+ Phone FRP Lock</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-unlock-your-boost-mobile-apple-iphone-x-before-the-plan-expires-by-drfone-ios/"><u>In 2024, Unlock Your Boost Mobile Apple iPhone X Before the Plan Expires</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-the-portable-lenovo-ideapad-n320-redefined-with-renowned-lenovo-keyboard-layout/"><u>In-Depth Analysis: The Portable Lenovo Ideapad N320, Redefined with Renowned Lenovo Keyboard Layout</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-the-samsung-cf591-a-top-contender-in-gaming-displays-our-in-depth-review/"><u>Is the Samsung CF591 a Top Contender in Gaming Displays? Our In-Depth Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lg-24lh4830-smart-tv-a-budget-friendly-tv-that-wont-let-you-down/"><u>LG 24LH4830 Smart TV: A Budget-Friendly TV That Won’t Let You Down</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/optimizing-techniques-broadcasting-via-obs-to-facebook/"><u>Optimizing Techniques Broadcasting via OBS to Facebook</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-contacts-after-lava-yuva-2-has-been-deleted-by-fonelab-android-recover-contacts/"><u>Recover your contacts after Lava Yuva 2 has been deleted.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-budsplus-unveiled-a-comprehensive-handheld-trial-report/"><u>Samsung Galaxy Buds+ Unveiled: A Comprehensive Handheld Trial Report</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sci-fi-adventure-gaming-at-its-finest-in-the-outer-worlds-in-depth-review/"><u>Sci-Fi Adventure Gaming at Its Finest in 'The Outer Worlds' – In-Depth Review</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-ultimate-guide-to-instagram-video-descriptions/"><u>The Ultimate Guide to Instagram Video Descriptions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/upgrading-your-machine-windows-11s-bitness-shift/"><u>Upgrading Your Machine: Windows 11'S Bitness Shift</u></a></li>
 </ul></div>
 

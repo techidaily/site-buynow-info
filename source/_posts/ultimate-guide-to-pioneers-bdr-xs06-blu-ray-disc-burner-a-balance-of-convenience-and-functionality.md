@@ -1,7 +1,7 @@
 ---
 title: Ultimate Guide to Pioneer's BDR-XS06 Blu-Ray Disc Burner - A Balance of Convenience & Functionality
-date: 2024-10-25T17:07:34.844Z
-updated: 2024-10-30T16:48:53.743Z
+date: 2024-11-18T22:18:02.069Z
+updated: 2024-11-25T13:08:55.613Z
 categories:
   - BestProducts
 description: This Article Describes Ultimate Guide to Pioneer's BDR-XS06 Blu-Ray Disc Burner - A Balance of Convenience & Functionality
@@ -43,15 +43,16 @@ Lifewire / Andrew Hayward
 4.7
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Oculus Quest 2 Elite Strap with Battery and Carrying Case
 
 ![Oculus Quest 2 Elite Strap With Battery and Carrying Case](https://www.lifewire.com/thmb/AUbeOfD3DzRDIqQzgZlx11gGrs4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus_Quest_2_Elite_Strap_HeroSquare-44edad5e6e114dc3887c4d81912b0181.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -98,13 +99,6 @@ Lifewire / Andrew Hayward
 
  Meanwhile, the included carrying case in this bundle is large enough to fit the entire headset with the Elite Strap, as well as the two Oculus Touch controllers and the charger. The large pill-shaped design is non-traditional for a gadget case, looking like light grey sweatpants and with a wool-like felt texture. The case can be a little awkward to unzip, but it’s functional and roomy enough to hold everything, even if it doesn’t look nearly as cool as what it holds.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Setup Process: Snap it on
 
  Oculus built in a clever strap support system with the Quest 2 that lets you securely and seamlessly attach different kinds of straps. When you remove the standard strap, you’ll be left with these plastic “wings” on either side of the visor, and those snap right into the Elite Strap’s plastic bands to firmly attach it to the visor.
@@ -112,22 +106,12 @@ Lifewire / Andrew Hayward
 ![Oculus Quest 2 Elite Strap With Battery and Carrying Case](https://www.lifewire.com/thmb/kePEj93uGIlmO7iyZMsHMaUpHEE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus_Quest_2_Elite_Strap_03-4d5ab74d783144e0aee262248d5cdb89.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
  Once it’s secured, simply plug the USB-C cable on the side of the Elite Strap into the Quest 2 visor, as this adds power from the battery pack into your total supply. Now you’ll charge the entire headset via the USB-C port beneath the dial on the Elite Strap, which provides power to both the visor and strap batteries.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Comfort: Effective and adjustable
 
@@ -138,19 +122,6 @@ Lifewire / Andrew Hayward
  The Oculus Quest 2 Elite Strap fixes that issue for me, and I can’t imagine anyone will find it to be less comfortable than the standard strap. It’s a clever design that pulls inspiration from previous VR headsets to ably support the weight of the visor, while still allowing for subtle adjustments without needing to take the headset off your dome. It feels great in use, and more importantly, it helps take away some of the friction that bad straps can create, letting you sink further into the immersive illusion.
 
 ![Oculus Quest 2 Elite Strap With Battery and Carrying Case](https://www.lifewire.com/thmb/v5qFVd_vGEfVkRoTgyxHCnpNO7Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Oculus_Quest_2_Elite_Strap_04-6b671f2308db4225b4f355d0abd12f2d.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -163,6 +134,10 @@ Lifewire / Andrew Hayward
  The battery pack adds roughly two more hours of use, meaning you’ll have the freedom to play for much longer sessions and/or charge the headset less often.
 
  Granted, there are DIY options out there for boosting the Quest 2’s battery life, including plugging in a portable power bank and either sticking it into your pocket or otherwise affixing it to your body or headset. Depending on the size of the power bank, you could get significantly more uptime from that kind of solution and at a lower cost—but that’s more hassle and it’s a less elegant solution than the official option here.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Price: Not cheap, but it’s worth it
 
@@ -188,11 +163,19 @@ Lifewire / Andrew Hayward
 
  If your Oculus Quest 2 doesn’t quite fit right, pick up the Elite Strap. It’s a much better-designed strap that securely and comfortably keeps the VR headset in place during use, and is well worth the extra cash. True, you might grimace at the thought of spending more money on something that should’ve come with the standard headset, but the improved experience should ultimately outweigh that frustration. The bundle with the battery pack and carrying case adds further value and is worthwhile if you’re keen on longer play sessions or not needing to charge the headset as often, but the Elite Strap itself is the most essential add-on in this set.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Oculus Quest 2](https://www.lifewire.com/oculus-quest-2-review-5092839)
 * [Oculus Rift Headset and Controllers](https://www.lifewire.com/oculus-rift-review-4690370)
 * [Oculus Go Standalone VR Headset](https://www.lifewire.com/oculus-go-vr-headset-review-4690298)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -222,21 +205,21 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-google-meetings-mastered-best-practices-4/"><u>[Updated] 2024 Approved Google Meetings Mastered Best Practices #4</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-editing-essentials-your-go-to-guide-for-beginner-vloggers-for-2024/"><u>[Updated] Editing Essentials Your Go-To Guide for Beginner Vloggers for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-a-step-by-step-approach-to-boosting-your-podcasts-seo/"><u>2024 Approved A Step-by-Step Approach to Boosting Your Podcast's SEO</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-excellence-a-detailed-look-at-the-hisense-50-hdr-tv-with-4k-resolution/"><u>Affordable Excellence: A Detailed Look at the Hisense 50 HDR TV with 4K Resolution</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazon-kindle-paperwhite-7th-generation-review/"><u>Amazon Kindle Paperwhite (7Th Generation) Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/assessment-of-discreet-and-dependable-rexing-v1-dashcam-for-value-oriented-users/"><u>Assessment of Discreet and Dependable Rexing V1 Dashcam for Value-Oriented Users</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Samsung Galaxy A14 5G | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Samsung Galaxy S23 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-imac-with-apples-new-m1-processor-visual-upgrade-and-enhanced-performance/"><u>In-Depth Analysis of iMac with Apple's New M1 Processor: Visual Upgrade & Enhanced Performance</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/seamless-broadcasting-gamers-secrets-from-obs/"><u>Seamless Broadcasting Gamers' Secrets From OBS</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/symas-budget-marvel-the-107g-rc-helicopter-unleashed-a-complete-product-evaluation-and-insights/"><u>Syma's Budget Marvel: The 107G RC Helicopter Unleashed – A Complete Product Evaluation and Insights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/to-monterey-or-not-on-my-mac/"><u>To Monterey, or Not on My Mac?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/top-strategies-for-quick-and-easy-anime-downloads-from-gogoanime/"><u>Top Strategies for Quick & Easy Anime Downloads From GogoAnime</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-review-of-the-luxury-glion-dolly-electric-scooter-fast-but-costly/"><u>Ultimate Review of the Luxury Glion Dolly Electric Scooter - Fast but Costly</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/unlock-missing-data-effective-strategies-to-display-overlooked-files-within-folders-across-windows-systems-xpvistawindows-7/"><u>Unlock Missing Data: Effective Strategies to Display Overlooked Files Within Folders Across Windows Systems (XP/Vista/Windows 7)</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ing-vs-micro-video-which-outperforms-youtubes-shorts-or-tiktoks/"><u>Vlogging Vs. Micro-Video Which Outperforms? YouTubes Shorts or TikToks?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-essential-tips-for-vlc-based-online-streaming/"><u>[New] In 2024, Essential Tips for VLC-Based Online Streaming</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-bend-the-light-homegrown-animated-innovations/"><u>[Updated] 2024 Approved Bend the Light Homegrown Animated Innovations</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-the-9gag-pathway-to-piling-up-popular-memes-for-2024/"><u>[Updated] The 9GAG Pathway to Piling Up Popular Memes for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-superior-animation-pack-for-text/"><u>2024 Approved Superior Animation Pack for Text</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/akaso-ek7000-pro-4k-action-camera-review-great-quality-at-a-budget-friendly-price/"><u>AKASO EK7000 Pro 4K Action Camera Review: Great Quality At a Budget Friendly Price</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-art-tools-in-depth-look-at-monoprices-feature-packed-drawing-tablet/"><u>Budget-Friendly Art Tools: In-Depth Look at Monoprice's Feature Packed Drawing Tablet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhance-your-nintendo-experience-tips-for-adding-more-titles-to-the-nes-classic/"><u>Enhance Your Nintendo Experience: Tips for Adding More Titles to the NES Classic</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-nubia-red-magic-8s-proplus-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Nubia Red Magic 8S Pro+ to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-samsung-galaxy-a15-4g-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Samsung Galaxy A15 4G to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-the-blueprint-for-brilliant-broadcasts-dos-and-donts-unveiled/"><u>In 2024, The Blueprint for Brilliant Broadcasts Do's & Don'ts Unveiled</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-times-own-tutorial-swiftly-reverse-iphone-videos/"><u>In 2024, Time's Own Tutorial Swiftly Reverse iPhone Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-out-perspective-on-the-innovatively-engineered-samsung-galaxy-watch/"><u>Inside-Out Perspective on the Innovatively Engineered Samsung Galaxy Watch</u></a></li>
+<li><a href="https://extra-support.techidaily.com/linux-windows-and-mac-10-budget-video-player-options-for-2024/"><u>Linux, Windows & Mac 10 Budget Video Player Options for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/motorola-one-showdown-can-it-hold-its-own-against-the-iphone/"><u>Motorola One Showdown: Can It Hold Its Own Against the iPhone?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tp-link-archer-ax6000-vs-nighthawk-ax12-which-wins-the-wifi-showdown/"><u>TP-Link Archer AX6000 Vs. Nighthawk AX12: Which Wins the WiFi Showdown?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-choosing-a-great-affordable-indoor-hdtv-antenna-featuring-1byone-digital-model/"><u>Ultimate Guide to Choosing a Great Affordable Indoor HDTV Antenna - Featuring 1Byone Digital Model</u></a></li>
 </ul></div>
 

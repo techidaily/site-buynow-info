@@ -1,7 +1,7 @@
 ---
 title: Exploring the Omnicharge Omni ˈ20 Multipurpose Power Bank - Qi Wireless and More
-date: 2024-11-11T21:11:28.570Z
-updated: 2024-11-15T21:53:06.627Z
+date: 2024-11-21T16:33:27.996Z
+updated: 2024-11-24T20:45:30.020Z
 categories:
   - BestProducts
 description: This Article Describes Exploring the Omnicharge Omni ˈ20 Multipurpose Power Bank - Qi Wireless and More
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/23f15d03527dcdfd4e30255dbd41a14d668e3faaf
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Omni 20+ Wireless Power Bank
 
@@ -49,6 +53,10 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/_EV0MTLRfFPHdqFJ2gKyMJff5YY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-HERO-SQ-e459d44e1a2c432f80fec058b858ccfe.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
 [View On Amazon $299](https://www.amazon.com/dp/B01NBJX99D?tag=lifewire-onsite-prod-20&ascsubtag=4843549%7Cn5152ded2d52b4aacaed13fadd747a0da04%7CB01NBJX99D) [View On B&H Photo Video $236](https://www.bhphotovideo.com/c/product/1478529-REG/omnicharge%5Fop2ha004%5Fomni%5F20%5Fpowerbank%5Fportable.html/)
@@ -76,21 +84,7 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/lFGiT6009F_OKGOJ-sLcNKNylt0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-2-9a3217b3ee154a3ebcb38e61aac3be52.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Design: Slick all-black appearance that’s dulled a bit by soft-touch rubber**
 
@@ -120,27 +114,17 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/QOfV3Sc5THi3Z0gKZq0e-ciPUEE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-5-000854ae3c4347b7adc13130dcb9d1b9.jpg)
 
- Lifewire / Jeremy Laukkonen
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Jeremy Laukkonen
 
 ## **Display: Crisp and easy to read, but confusing**
 
  The display is small, but it’s quite bright and easy to read. The only issue is that it isn’t particularly easy to figure out what the individual icons mean, or how to use the display to change input and output settings, without referring to an instruction manual that isn’t included in the box.
 
  I’ve already covered the issue with the manual in the previous section, so suffice it to say I recommend avoiding frustration and just downloading the manual from the Omnicharge website rather than trying to figure out the display and controls on your own.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Sockets and Ports: Excellent array, including wireless**
 
@@ -158,6 +142,10 @@ Lifewire / Jeremy Laukkonen
 
  On the front of the power bank, next to the display, you’ll find two USB-A ports. These ports are capable of charging all your standard USB devices. One is a Qualcomm 3.0 compatible quick charge port, and the other is a standard USB port that’s capable of putting out up to 3A.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery: Decent battery capacity for the size**
 
  The Omni 20+ includes a 20,000 mAh battery, which is a decent capacity for the size of this power bank. I’d like to see a larger capacity based on the price of this unit, but it’s clear that you’re paying for extra features like fast USB-Charging and[wireless charging](https://www.lifewire.com/qi-wireless-charging-4151894) instead of a big battery.
@@ -172,14 +160,11 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/aZDfINCcUg9uIHRuhVr2k3wmX94=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-1-815fe3c777eb4f46a77cb00127bd88c2.jpg)
 
- Lifewire / Jeremy Laukkonen
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Jeremy Laukkonen
 
 ## **Charging Speed: True fast charging available for some USB-C devices**
 
@@ -215,6 +200,10 @@ Lifewire / Jeremy Laukkonen
 
  The Omnicharge Omni 20+ is one of the best power banks out there, and it had better be for the price they’re asking. This is the power bank you need if you count a high wattage USB-C port, barrel connector input and output, wireless charging, and a standard power outlet among your needs. You can find cheaper power banks that provide more juice, but you won’t find one with this same feature set.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  20+ Wireless Power Bank
@@ -241,17 +230,15 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-unlock-the-mystery-of-smooth-media-imports-into-windows-10/"><u>[New] Unlock the Mystery of Smooth Media Imports Into Windows 10</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-apowersoft-screen-recorder-review-and-alternative/"><u>2024 Approved Apowersoft Screen Recorder Review and Alternative</u></a></li>
-<li><a href="https://fox-http.techidaily.com/essential-skills-for-effective-phone-note-taking-for-2024/"><u>Essential Skills for Effective Phone Note-Taking for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-zte-blade-a73-5g-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your ZTE Blade A73 5G</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastering-gui-diskspace-windows-menu-integration-guide/"><u>Mastering GUI Diskspace: Windows Menu Integration Guide</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overcoming-portaudio-error-in-audacity-windows-11-and-11-devices/"><u>Overcoming PortAudio Error in Audacity, Windows 11 & 11 Devices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/side-by-side-comparison-how-does-an-ipad-differ-from-an-ipad-air/"><u>Side-by-Side Comparison: How Does an iPad Differ From an iPad Air?</u></a></li>
-<li><a href="https://win-answers.techidaily.com/step-by-step-guide-crafting-interdependent-combo-box-selections-within-ms-excel/"><u>Step-by-Step Guide: Crafting Interdependent Combo Box Selections Within MS Excel</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-acer-predator-triton-n-300-se-slim-powerful-and-packed-with-value-for-its-size/"><u>The Acer Predator Triton N 300 SE – Slim, Powerful and Packed with Value for Its Size</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-complete-guide-to-the-singing-machine-sml3singing-machine-review-plug-and-play-perfection/"><u>The Complete Guide to the Singing Machine SML3^[Singing Machine] Review - Plug and Play Perfection!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-new-standard-in-slender-computing-razer-blade-stealth-13-review-a-giant-leap-forward-for-ultraportable-power/"><u>The New Standard in Slender Computing: Razer Blade Stealth 13 Review - A Giant Leap Forward for Ultraportable Power</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-blh4100-blade-helicopter-a-top-choice-for-outdoor-enthusiasts/"><u>The Ultimate Guide to BLH4100 Blade Helicopter - A Top Choice for Outdoor Enthusiasts!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-3-step-financial-forecasting-assessing-revenue-from-googles-platform-youtube/"><u>[Updated] In 2024, 3-Step Financial Forecasting Assessing Revenue From Google's Platform, YouTube</u></a></li>
+<li><a href="https://blog-min.techidaily.com/como-transformar-mensajes-de-whatsapp-en-archivos-mp3-sin-coste/"><u>Cómo Transformar Mensajes De WhatsApp en Archivos MP3 Sin Coste</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-x-chair-x4-optimal-office-furniture-selection/"><u>Comprehensive Review of the X-Chair X4: Optimal Office Furniture Selection</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exclusive-insights-on-conquering-rare-creatures-in-monster-hunter-world/"><u>Exclusive Insights on Conquering Rare Creatures in Monster Hunter: World</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/from-raw-footage-to-broadcast-gold-twitch-recording-techniques/"><u>From Raw Footage to Broadcast Gold Twitch Recording Techniques</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-sculpting-stories-how-to-enrich-your-instagram-videos-through-editing/"><u>In 2024, Sculpting Stories How to Enrich Your Instagram Videos Through Editing</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/resurrect-your-iphone-data-a-curated-list-of-the-best-software-supporting-ios-17/"><u>Resurrect Your iPhone Data : A Curated List of the Best Software Supporting iOS 17</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-consumers-guide-to-choosing-an-amplified-hdtv-antenna-spotlight-on-1byone-for-indoors/"><u>The Ultimate Consumer's Guide to Choosing an Amplified HDTV Antenna: Spotlight on 1Byone for Indoors</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-latest-apple-m4-chip-released-learn-about-its-features/"><u>Unveiling the Latest: Apple M4 Chip Released – Learn About Its Features</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-top-rated-free-3gp-video-orientation-changers/"><u>Updated 2024 Approved Top-Rated Free 3GP Video Orientation Changers</u></a></li>
 </ul></div>
 

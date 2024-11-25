@@ -1,7 +1,7 @@
 ---
 title: "Cost-Effective Networking Gear Spotlight: The Capabilities of the TP-Link Archer C50"
-date: 2024-11-12T03:56:20.910Z
-updated: 2024-11-15T18:36:02.810Z
+date: 2024-11-21T18:35:50.032Z
+updated: 2024-11-24T16:39:33.438Z
 categories:
   - BestProducts
 description: "This Article Describes Cost-Effective Networking Gear Spotlight: The Capabilities of the TP-Link Archer C50"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
 ## Docooler USB 2.0 12 Megapixel
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/9tSqTK9OEckACvQEhU5iBbHvMfM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_HERO_1LW4065141_7_Final_Square-bd507bc5d1d646f9a0d8d7466601f569.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / James Huenink
 
@@ -47,13 +51,6 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/23qFdg2CyjsEX1uFEK5ESBb8kO0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_HERO_1LW4065141_7_Final_Square-bd507bc5d1d646f9a0d8d7466601f569.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / James Huenink
 
 [View On Amazon](https://www.amazon.com/dp/B00OB883F6/?tag=lifewire-onsite-prod-20&ascsubtag=4784227%7Cnb8fa7df8bea04ca4a06f94beab613f8802%7CB00OB883F6)
@@ -77,6 +74,10 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/YIcu00ga1PIrZWJzNk-mS5C4z-A=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_5_Final_Horiz-23ef27f359f24e919ebb2f47f9089957.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / James Huenink
 
 ## **Design: Flimsy and difficult to use**
@@ -88,6 +89,10 @@ Lifewire / James Huenink
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/a_8Gd66JN0RtfWzKKcRq95S8EmY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_6_Final_Horiz-1dd3a45479614483b0f4f5883f27094a.jpg)
 
  Lifewire / James Huenink
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup process: Awkward to position**
 
@@ -105,19 +110,14 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/BxI5asxQavdUO5cT3iIpSIqM9Mk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_10_Final_Horiz-8acc6be9290c439496f17a63684115ae.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / James Huenink
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Underwhelming performance in video and audio**
@@ -132,23 +132,9 @@ Lifewire / James Huenink
 
  The audio performance of the Docooler USB 2.0 12 Megapixel was also lackluster. The built-in microphone produced poor quality sound, and when we tested it on Skype, voices were both muffled and echoey. People on the other end could understand what we were saying, but it was an unpleasant experience.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Cheap price, even cheaper webcam**
 
  The Docooler USB 2.0 12 Megapixel is the most inexpensive webcam you can buy, ranging from $8 up to around $15, but there’s a reason it’s priced so low. The image and audio quality are both terrible, and the camera is difficult to use.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Falls short**
 
@@ -196,20 +182,15 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/updated-giggle-engine-for-the-internet/"><u>[Updated] Giggle Engine for the Internet</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-meme-titans-reddit-and-twitters-biggest-sensations/"><u>[Updated] The Meme Titans Reddit & Twitter's Biggest Sensations</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/10-best-sites-to-buy-mystery-boxes/"><u>10 Best Sites to Buy Mystery Boxes</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-itel-s23plus-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Itel S23+</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-watch-hulu-outside-us-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>How to Watch Hulu Outside US On Apple iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/improve-sound-quality-a-guide-on-audio-sample-rate-conversion-for-easy-file-sharing/"><u>Improve Sound Quality: A Guide on Audio Sample Rate Conversion for Easy File Sharing</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-budget-friendly-apeman-c450-dvr-car-camera/"><u>In-Depth Analysis of the Budget-Friendly Apeman C450 DVR Car Camera</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-how-ps4-pro-brings-4k-gaming-to-life/"><u>In-Depth Analysis: How PS4 Pro Brings 4K Gaming to Life</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-assessment-how-does-the-amazon-fire-hd-10-cater-to-everyone-in-your-family/"><u>In-Depth Assessment: How Does the Amazon Fire HD 10 Cater to Everyone in Your Family?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-the-huion-kamvas-gt-191-tablet-splendid-and-spacious-for-digital-artists/"><u>In-Depth Evaluation of the Huion Kamvas GT-191 Tablet: Splendid and Spacious for Digital Artists</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-madden-19-stellar-options-with-a-touch-of-wear-and-tear/"><u>In-Depth Look at Madden 19: Stellar Options with a Touch of Wear and Tear</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-best-gameplay-experience-samsung-q60r-series-tv-unveiled/"><u>In-Depth Look at the Best Gameplay Experience - Samsung Q60R Series TV Unveiled</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/inside-look-at-the-google-pixel-6s-photographic-capabilities-and-image-quality/"><u>Inside Look at the Google Pixel 6'S Photographic Capabilities and Image Quality</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unmissable-opportunity-amazon-slashes-price-on-apple-vision-pro-by-200-limited-time-offer/"><u>Unmissable Opportunity: Amazon Slashes Price on Apple Vision Pro by $200 - Limited Time Offer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/s55-awaits-your-click-scan-through-our-detailed-review-of-this-affordable-high-definition-radar-detector/"><u>'S55' Awaits Your Click: Scan Through Our Detailed Review of This Affordable, High Definition Radar Detector</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-evaluating-the-effectiveness-of-shake-reduction-in-adobe-photos/"><u>[Updated] Evaluating the Effectiveness of 'Shake' Reduction in Adobe Photos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unveiling-the-mysteries-of-ig-metrics-an-essential-toolkit-for-marketers/"><u>[Updated] Unveiling the Mysteries of IG Metrics An Essential Toolkit for Marketers</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-honor-90-pro-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Honor 90 Pro Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-tecno-pova-6-pro-5g-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-best-rtf-experience-with-the-blade-e-flite-mcx2-helicopter-a-comprehensive-review/"><u>Discover the Best RTF Experience with the Blade E-Flite mCX2 Helicopter - A Comprehensive Review</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-latest-epson-wf-2630-driver-for-win-78110-fast-and-reliable-installation-guide/"><u>Download Latest Epson WF-2630 Driver for Win 7/8.1/10 - Fast and Reliable Installation Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-blh4100-by-blade-an-insightful-rtf-indooroutdoor-copter-analysis-for-enthusiasts/"><u>Exploring the BLH4100 by Blade - An Insightful RTF Indoor/Outdoor Copter Analysis for Enthusiasts</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-apple-iphone-6s-plus-by-name-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Apple iPhone 6s Plus by Name | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-thrifty-tune-trail-inside-look-at-oneplus-buds/"><u>The Thrifty Tune Trail - Inside Look at OnePlus Buds</u></a></li>
 </ul></div>
 

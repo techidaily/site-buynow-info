@@ -1,7 +1,7 @@
 ---
 title: M1 Surge Protector - Robust Power Management with Built-In Charging Capabilities for Your Devices
-date: 2024-11-12T03:34:03.270Z
-updated: 2024-11-15T23:36:29.077Z
+date: 2024-11-22T21:06:53.570Z
+updated: 2024-11-25T06:05:12.656Z
 categories:
   - BestProducts
 description: This Article Describes M1 Surge Protector - Robust Power Management with Built-In Charging Capabilities for Your Devices
@@ -17,6 +17,10 @@ thumbnail: https://www.lifewire.com/thmb/6wth6CzRLPjcELs8n-eLSz0Zmy4=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Omni 20+ Wireless Power Bank
 
@@ -49,13 +53,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/_EV0MTLRfFPHdqFJ2gKyMJff5YY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-HERO-SQ-e459d44e1a2c432f80fec058b858ccfe.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Jeremy Laukkonen
 
 [View On Amazon $299](https://www.amazon.com/dp/B01NBJX99D?tag=lifewire-onsite-prod-20&ascsubtag=4843549%7Cn5152ded2d52b4aacaed13fadd747a0da04%7CB01NBJX99D) [View On B&H Photo Video $236](https://www.bhphotovideo.com/c/product/1478529-REG/omnicharge%5Fop2ha004%5Fomni%5F20%5Fpowerbank%5Fportable.html/)
@@ -83,13 +80,14 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/lFGiT6009F_OKGOJ-sLcNKNylt0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-2-9a3217b3ee154a3ebcb38e61aac3be52.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Slick all-black appearance that’s dulled a bit by soft-touch rubber**
@@ -123,10 +121,7 @@ Lifewire / Jeremy Laukkonen
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Display: Crisp and easy to read, but confusing**
@@ -134,6 +129,10 @@ Lifewire / Jeremy Laukkonen
  The display is small, but it’s quite bright and easy to read. The only issue is that it isn’t particularly easy to figure out what the individual icons mean, or how to use the display to change input and output settings, without referring to an instruction manual that isn’t included in the box.
 
  I’ve already covered the issue with the manual in the previous section, so suffice it to say I recommend avoiding frustration and just downloading the manual from the Omnicharge website rather than trying to figure out the display and controls on your own.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Sockets and Ports: Excellent array, including wireless**
 
@@ -151,13 +150,6 @@ Lifewire / Jeremy Laukkonen
 
  On the front of the power bank, next to the display, you’ll find two USB-A ports. These ports are capable of charging all your standard USB devices. One is a Qualcomm 3.0 compatible quick charge port, and the other is a standard USB port that’s capable of putting out up to 3A.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery: Decent battery capacity for the size**
 
  The Omni 20+ includes a 20,000 mAh battery, which is a decent capacity for the size of this power bank. I’d like to see a larger capacity based on the price of this unit, but it’s clear that you’re paying for extra features like fast USB-Charging and[wireless charging](https://www.lifewire.com/qi-wireless-charging-4151894) instead of a big battery.
@@ -174,6 +166,10 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Charging Speed: True fast charging available for some USB-C devices**
 
  For the most part, the Omni 20+ is able to charge each device as fast as it’s designed to be charged. Older devices that charge over standard USB-A ports will draw between 1 and 3 A, depending on the device, and charge quite slowly. But if you have a Qualcomm 3.0 compatible device, you can plug it into the appropriate USB port and enjoy faster charging.
@@ -187,13 +183,6 @@ Lifewire / Jeremy Laukkonen
  By plugging the Omni 20+ into power when available, I found it to be a fantastic replacement for an otherwise bulky assortment of power adapters for my laptop, phone, and other devices.
 
  The built-in Qi charger is capable of putting out 10 watts, and I found it to work just as well as other 10 watt Qi chargers I’ve used. It is a bit touchy in terms of positioning, but I was able to get the hang of it pretty fast.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: High end**
 
@@ -241,20 +230,17 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-seamless-video-sharing-from-youtube-to-fb/"><u>[New] 2024 Approved Seamless Video Sharing From YouTube to FB</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-real-time-fbx-filming-tips/"><u>[New] In 2024, Real-Time FBX Filming Tips</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-win10-screen-grabbing-top-quality-captures/"><u>[New] Win10 Screen Grabbing - Top Quality Captures</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-voiceover-guide-for-engaging-videography/"><u>2024 Approved Voiceover Guide for Engaging Videography</u></a></li>
-<li><a href="https://techtrends.techidaily.com/boost-your-pcs-performance-expert-strategies-for-window-10-enhancement/"><u>Boost Your PC's Performance: Expert Strategies for Window 10 Enhancement</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/freestyle2-blue-software-tested-and-approved-by-mac-lovers-in-depth-insights-for-optimal-compatibility/"><u>Freestyle2 Blue Software Tested and Approved by Mac Lovers: In-Depth Insights for Optimal Compatibility</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/from-portability-to-power-understanding-what-sets-macbook-air-apart-from-pro/"><u>From Portability to Power: Understanding What Sets MacBook Air Apart From Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/google-pixel-4a-5g-reviewed-a-high-performing-cost-effective-entry-into-the-world-of-5g-android-phones/"><u>Google Pixel 4a 5G Reviewed - A High-Performing, Cost-Effective Entry Into the World of 5G Android Phones</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-does-the-bookbook-v2-hold-up-in-depth-review-by-twelve-south-for-macbook-users/"><u>How Does the BookBook V2 Hold Up? In-Depth Review by Twelve South for MacBook Users</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-radpower-radcity-ergyplus-bicycle-features-and-mass-considerations/"><u>In-Depth Analysis of the RadPower RadCity Ergy+ Bicycle: Features and Mass Considerations</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-tp-link-av2000-adapter-high-velocity-internet-with-unimpressive-design/"><u>In-Depth Analysis of the TP-Link AV2000 Adapter: High Velocity Internet with Unimpressive Design</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-garmin-forerunner-265-is-it-worth-buying/"><u>In-Depth Analysis: Garmin Forerunner 265 - Is It Worth Buying?</u></a></li>
-<li><a href="https://games-able.techidaily.com/leading-blue-filter-sunglasses-for-pcs/"><u>Leading Blue Filter Sunglasses for PCs</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/on-the-go-cinematographers-essentials/"><u>On-the-Go Cinematographer’s Essentials</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/pioneering-methods-to-develop-a-memorable-youtube-introduction/"><u>Pioneering Methods to Develop a Memorable YouTube Introduction</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagrams-top-25-leaders-in-digital-influence/"><u>[New] 2024 Approved Instagram's Top 25 Leaders in Digital Influence</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-mastering-the-art-of-hash-tracking-top-apps-reviewed-fbtwitterinsta/"><u>[New] In 2024, Mastering the Art of Hash Tracking Top Apps Reviewed (FB/Twitter/Insta)</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-transform-meetings-with-a-simple-webcam-record/"><u>[New] Transform Meetings with a Simple Webcam Record</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-unlocking-the-secrets-of-captivating-auditory-and-visual-sensations-in-asmr-videos/"><u>[Updated] In 2024, Unlocking the Secrets of Captivating Auditory & Visual Sensations in ASMR Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-crafting-stellar-instagram-content-for-maximum-influence/"><u>2024 Approved Crafting Stellar Instagram Content for Maximum Influence</u></a></li>
+<li><a href="https://android-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-nokia-g22-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Nokia G22 FRP Locks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-scoop-on-tropico-6-disrupting-paradise-at-your-fingertips/"><u>Inside Scoop on Tropico 6: Disrupting Paradise at Your Fingertips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/optimal-performance-assured-the-apc-gaming-backup-unit-breakdown-and-review/"><u>Optimal Performance Assured: The APC Gaming Backup Unit Breakdown and Review</u></a></li>
+<li><a href="https://win-lab.techidaily.com/resolvez-votre-macbook-proair-en-panne-avec-ces-8-solutions-pour-le-blues-defatigable/"><u>Résolvez Votre MacBook Pro/Air en Panne Avec Ces 8 Solutions Pour Le Blues Défatigable!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-complete-guide-to-mophies-power-station-ac-worth-the-cost/"><u>The Complete Guide to Mophie's Power Station AC - Worth the Cost?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-budget-entertainment-system-insignia-ns-43df710na19-fire-tv-with-alexa-revealed/"><u>Ultimate Budget Entertainment System: Insignia NS-43DF710NA19 Fire TV with Alexa, Revealed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultra-hd-and-smart-assistant-combined-a-look-into-the-insignia-43df710ns-fire-tv-stick-for-less/"><u>Ultra HD & Smart Assistant Combined - A Look Into the Insignia 43DF710NS Fire TV Stick for Less</u></a></li>
 </ul></div>
 

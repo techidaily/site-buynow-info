@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive BYB E4n30 LED Pendant Lamp Assessment: Luxurious Swing Arm Feature"
-date: 2024-08-30T14:18:08.581Z
-updated: 2024-08-31T14:18:08.581Z
+date: 2024-11-17T20:01:02.420Z
+updated: 2024-11-24T23:48:18.630Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive BYB E4n30 LED Pendant Lamp Assessment: Luxurious Swing Arm Feature"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/061c3cb51f73174994130ac8ba7737b4e102bdd69
 ## Apeman C450 Dash Cam
 
 ![Apeman C450 Dashcam](https://www.lifewire.com/thmb/R-SkTPUBgYZCUaD9aixocd8OUy8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_HeroSquare2-c752b8527e31471e9018279dea42a8ca.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
 
@@ -36,6 +40,10 @@ Lifewire / Danny Chadwick
 [View On Apemans.com](https://apemans.com/products/apeman-dash-cam-c450a)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Apeman C450 Dash Cam
 
@@ -67,13 +75,9 @@ Lifewire / Danny Chadwick
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: All the basics**
 
  The Apeman C450 has a three-inch screen that’s bright, detailed, and provides an at-a-glance view of the camera’s status. If it were much bigger, it would be both a distraction and dangerous visual obstruction.
@@ -90,9 +94,6 @@ Lifewire / Danny Chadwick
 
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/A63ztrIxThbZlrb_lHJH3YL7778=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_02-6ef4e204d0bd452b9601ec468e5358bf.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Danny Chadwick
 
 ## **Setup Process: You’ll have to figure a lot of stuff out for yourself**
@@ -109,9 +110,6 @@ Lifewire / Danny Chadwick
 
  Your first time using the Apeman C450, you also have the option to set up a time and date stamp as well as a car identification number on your videos. This is a nice option to keep track of when a video was recorded, and which car it was recorded from if you have more than one camera in different vehicles.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## **Camera Quality: Acceptable for a budget device**
 
  You can set this dashcam to capture video in 1080p, 720p, and VGA resolution. That’s impressive for a camera this size, and Apeman puts 1080p Full HD front and center in their marketing materials. While it provides a good level of detail and clarity in the video, it’s worth noting that other dashcams out there can record in resolutions up to 1440p.
@@ -119,6 +117,10 @@ Lifewire / Danny Chadwick
  The camera also has the ability to record audio, but it’s an internal mic and not very directional so it picks up everything. When we tested it, we heard a lot of engine and wind noise while driving. Voices came through alright, but it’s not a high-quality recording and didn’t pick up anything happening outside the vehicle.
 
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/Hp7FvJ_BMgl0S2-Dsd-hd2qiQ7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_04-82d0af63043344a6b7b44863790050d7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Danny Chadwick
 
@@ -143,15 +145,13 @@ Lifewire / Danny Chadwick
  One thing to note about this car dashboard camera is that the battery life is quite short. When we tested the Apeman C450, it powered down 28 minutes after we unplugged it. If you want continuous recording, it must be connected to power at all times.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Affordable even on a budget**
 
  The defects of this dashcam can be forgiven pretty easily considering that it costs less than $50\. If you’re looking for a very inexpensive device, the Apeman C450 is a decent if somewhat flawed solution—it’s definitely not built as solidly and lacks the high resolution of its more expensive competitors, but if you are comfortable working around those shortcomings, this dashcam performs pretty well for the price.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Apeman C450 vs. Z-Edge Z3 Plus**
 
  We tested the Apeman C450 side by side with the Z-Edge Z3 Plus dashcam. The Z3 Plus is considerably more expensive, and while we found these two devices to be generally similar in form and function, we ultimately favored the Z3 Plus because it lacks the small annoyances that made the Apeman C450 frustrating.
@@ -166,9 +166,6 @@ Lifewire / Danny Chadwick
 
  Despite a poor-quality build and some design quirks, the Apeman C450 does its job as a dashcam. It has a discreet design, captures pretty good-quality video, and has important extra features like collision detection and a surveillance mode. If you can get past some of its foibles, it's definitely worth the price tag.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [DDpai mini3](https://www.lifewire.com/ddpai-mini3-review-4770579)
@@ -191,14 +188,11 @@ Lifewire / Danny Chadwick
 * Storage  Up to 32GB SDHC card (Class 10)
 * Warranty  12 months
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -207,4 +201,26 @@ Lifewire / Danny Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-ready-set-edit-top-15-fast-and-fun-tricks-to-use-in-pixlr/"><u>[New] Ready, Set, Edit! Top 15 Fast and Fun Tricks to Use in Pixlr</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-mastering-video-recording-camstudios-total-package/"><u>[Updated] Mastering Video Recording CamStudio's Total Package</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-no-cost-to-you-heres-a-list-of-7-free-editing-apps/"><u>2024 Approved No Cost to You? Here's a List of 7 Free Editing Apps</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-consumers-perspective-on-the-ring-doorbell-pro-functionality-design-and-review-comparisons/"><u>A Consumer's Perspective on the Ring Doorbell Pro: Functionality, Design & Review Comparisons</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-fresh-take-on-smart-casting-chromecast-with-google-tv-reviewed/"><u>A Fresh Take on Smart Casting: Chromecast with Google TV Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-topmate-c302-cooler-pad-evaluation-a-budget-friendly-solution-for-your-laptop/"><u>Affordable TopMate C302 Cooler Pad Evaluation: A Budget-Friendly Solution for Your Laptop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-vuebell-video-doorbell-evaluation-best-budget-friendly-choice/"><u>Affordable VueBell Video Doorbell Evaluation: Best Budget-Friendly Choice</u></a></li>
+<li><a href="https://win-trending.techidaily.com/chill-out-zone-movie-downloads-available-in-multiple-video-codecs-mp4-wmv-mov-flv-avi-compatible-with-pc-and-mac-systems/"><u>Chill Out Zone Movie Downloads Available in Multiple Video Codecs - MP4, WMV, MOV, FLV, AVI Compatible with PC and Mac Systems</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/flv-to-mp4/"><u>FLV to MP4変換ガイド：オンラインおよびオフラインでの大容量データ</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-newest-logitech-g910-software-compatible-with-windows-operating-system/"><u>Get the Newest Logitech G910 Software Compatible with Windows Operating System</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-clearsnapzoommax-7-professional-photo-scaling/"><u>In 2024, ClearSnapZoomMax 7 Professional Photo Scaling</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/maximizing-user-engagement-with-optimal-search-outcome-presentation/"><u>Maximizing User Engagement with Optimal Search Outcome Presentation</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723175714568-pocket-friendly-power-the-thermalight-spirit-phantom-120-se-your-best-value-air-cooler-for-a-steal-at-just-35/"><u>Pocket-Friendly Power: The Thermalight Spirit Phantom 120 SE, Your Best-Value Air Cooler for a Steal at Just $35!</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tackling-geforce-now-failure-code-xc0f1103f-on-windows/"><u>Tackling GeForce Now Failure Code XC0F1103F on Windows</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultra-light-lg-gram-17-unveiling-high-performance-at-an-astounding-weight/"><u>Ultra-Light LG Gram 17: Unveiling High-Performance at an Astounding Weight</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-features-and-limitations-in-our-comprehensive-asus-x441ba-laptop-review/"><u>Unpacking the Features and Limitations in Our Comprehensive Asus X441BA Laptop Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-google-nate-hello-smart-bell-cutting-edge-facial-scanning-and-innovative-parcel-sensing-features/"><u>Unveiling Google Nate Hello Smart Bell: Cutting-Edge Facial Scanning & Innovative Parcel Sensing Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-michael-kors-access-series-5e-mkgo-collection-where-glamour-fuses-with-clever-mechanics/"><u>Unveiling the Michael Kors Access Series 5E MKGO Collection: Where Glamour Fuses with Clever Mechanics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-the-omoton-t1-is-your-go-to-budget-friendly-choice-for-a-reliable-tablet-stand/"><u>Why the Omoton T1 Is Your Go-To Budget-Friendly Choice for a Reliable Tablet Stand</u></a></li>
+</ul></div>
 

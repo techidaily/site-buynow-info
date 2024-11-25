@@ -1,7 +1,7 @@
 ---
 title: "Master the Art of Coding & Combat: An In-Depth Review of DJI Robomaster S1, The Fun & Educational Battle Drone"
-date: 2024-11-11T23:19:45.552Z
-updated: 2024-11-15T18:33:51.305Z
+date: 2024-11-22T10:41:51.886Z
+updated: 2024-11-24T23:37:01.810Z
 categories:
   - BestProducts
 description: "This Article Describes Master the Art of Coding & Combat: An In-Depth Review of DJI Robomaster S1, The Fun & Educational Battle Drone"
@@ -18,9 +18,17 @@ thumbnail: https://thmb.techidaily.com/e2b3e6d5f3444ca9eb9fe2e05133bcedc239a2116
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Netgear AC1200 Wireless WiFi Range Extender (EX6200)
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/5uYQ7n2CL2KkI81CwaUI6k-kg6I=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-2LW4043312-1-5c924aa1c9e77c0001e11e41.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Fred Meyer
 
@@ -86,13 +94,6 @@ Lifewire / Fred Meyer
 
  For example, our[router](https://www.lifewire.com/what-is-a-router-2618162) sits in the living room entertainment center against one wall. On the opposite side of the wall sits an entertainment center in our bedroom. Now, we could run an Ethernet cord around the wall, through the bedroom door, and to the entertainment center, which would be around 60 feet or so, or we could drill through the wall and install an Ethernet socket. However, with the EX6200 we didn’t have to do either. Since it's right on the other side of the wall, we can set up the EX6200 and get the full signal to hardwire our TV,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and Xbox One, which gives better speed and reliability than if we used them with WiFi-only.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: A familiar process**
 
  Getting the EX6200 up and running is the same process used with pretty much every wireless extender on the market. Pull the thing out of the box, plug it in within 10-15 feet of your Wi-Fi router, and hit the WPS button. Then head over to your router and hit the corresponding WPS button on it. Voila! You're good to go.
@@ -107,13 +108,6 @@ Lifewire / Fred Meyer
 
  If you've followed the above steps and your Wi-Fi connection is strong, you're good-to-go and you can start living your life with the Wi-Fi coverage you always knew you deserved. Otherwise, you'll have to shuffle the extender either closer to the dead zone or closer to the router until you find the sweet spot.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software: Netgear magic**
 
  The Netgear EX6200 doesn't require any special software installation. If you need to access the interface, you just need to be connected to it in some manner, either through Wi-Fi or Ethernet, and you can open the control panel in a browser. You can access the extender by either using the local address (<www.mywifiext.net>) or via the device's IP.
@@ -123,13 +117,6 @@ Lifewire / Fred Meyer
  All-in-all, the Netgear Genie software isn't going to blow your mind, but it's straightforward, and since most network configuration settings are done at the router, you don't need a ton of options.
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/C3GG9BATc7pjzGQZsIXmC4hlBTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-4-5c924c5046e0fb000146ae2c-e8aa858c433c410696d08b615cdee234.jpeg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Fred Meyer
 
@@ -149,14 +136,11 @@ Lifewire / Fred Meyer
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/ZHlEjP4KLtEcUqCvuXTg1eZBnFg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-3-5c924c8f46e0fb0001770187-2a10c24af5834857aeb7b4cfcd1cc6a9.jpg)
 
-Lifewire / Fred Meyer
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Lifewire / Fred Meyer
 
 ## **Network Performance: Adequate but not spectacular**
 
@@ -169,6 +153,10 @@ Lifewire / Fred Meyer
 ## **Price: A solid balance**
 
  At $99.99 (MSRP) the EX6200 isn't exactly cheap. You can get extenders for $30 or lower that get the job done, but that's all they'll do. We found that the EX6200 struck a good balance between price and features, and is an excellent extender for most use cases.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Middle of the road choice**
 
@@ -184,16 +172,17 @@ Lifewire / Fred Meyer
 
  If you're in the market for an extender, the EX6200 is one of our favorites. It doesn't excel in any category, but it does everything it’s designed to do well.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008)
 * [TP-Link AC1200 RE305](https://www.lifewire.com/tp-link-ac1200-wifi-range-extender-re305-review-4589559)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -231,24 +220,22 @@ Lifewire / Fred Meyer
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-assessing-gopro-hero5-session-quality/"><u>[New] In 2024, Assessing GoPro Hero5 Session Quality</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-emulate-hand-held-shooting-effects-in-ps-for-2024/"><u>[Updated] Emulate Hand-Held Shooting Effects in PS for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-the-ultimate-playbook-for-exceptional-obs-studio-content/"><u>2024 Approved The Ultimate Playbook for Exceptional OBS Studio Content</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ai-coding-face-off-determining-the-best-between-chatgpt-and-gemini/"><u>AI Coding Face-Off: Determining the Best Between ChatGPT & Gemini</u></a></li>
-<li><a href="https://win-forum.techidaily.com/how-to-delete-files-and-folders-with-command-prompt-in-windows-10/"><u>How to Delete Files and Folders with Command Prompt in Windows 10 -</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-any-oppo-a2-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Oppo A2 Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/masterful-gameplay-transmission-with-obs-studio/"><u>Masterful Gameplay Transmission with OBS Studio</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/optimizing-performance-purging-app-cache-from-your-android-smartphone/"><u>Optimizing Performance: Purging App Cache From Your Android Smartphone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-note-9-review/"><u>Samsung Galaxy Note 9 Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/save-big-with-these-lowest-cost-mobile-plans/"><u>Save Big with These Lowest Cost Mobile Plans</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sonic-vibes-3d-earpiece-assessment/"><u>Sonic Vibes 3D Earpiece Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tech-shoppers-dream-deals-your-guide-to-amazon-prime-day-bargains/"><u>Tech Shoppers' Dream Deals – Your Guide to Amazon Prime Day Bargains !</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/tech-triad-analysis-understanding-the-intersection-of-vr-ar-and-mr-for-2024/"><u>Tech Triad Analysis Understanding the Intersection of VR, AR & MR for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-benefits-and-limitations-of-utilizing-pidgin-for-instant-communication/"><u>The Benefits and Limitations of Utilizing Pidgin for Instant Communication</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-in-between-brilliance-of-the-avengers-from-marvel-studios-our-critique/"><u>The In-Between Brilliance of The Avengers From Marvel Studios - Our Critique</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-lg-k51-smartphone-critique-impressive-aesthetics-overshadowed-by-lagging-cpu-speed/"><u>The LG K51 Smartphone Critique - Impressive Aesthetics Overshadowed by Lagging CPU Speed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-premier-list-of-cable-modems-find-the-perfect-match/"><u>The Premier List of Cable Modems - Find the Perfect Match</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-troubled-reality-of-cyberpunk-nk-2077-a-game-beyond-its-unpolished-state/"><u>The Troubled Reality of Cyberpunk Nk 2077: A Game Beyond Its Unpolished State</u></a></li>
-<li><a href="https://win-able.techidaily.com/wwe-cufflink-fix-ultimate-guide-to-solving-pc-game-crashes-in-2k22/"><u>WWE Cufflink Fix: Ultimate Guide to Solving PC Game Crashes in 2K22</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-capturing-games-in-plain-sight-choose-between-obs-and-shadowplay/"><u>[Updated] Capturing Games in Plain Sight Choose Between OBS and ShadowPlay</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-pioneering-viewer-retention-discovering-6-video-forms/"><u>[Updated] Pioneering Viewer Retention Discovering 6 Video Forms</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-scriptwriting-the-art-of-utilizing-slug-lines/"><u>2024 Approved Scriptwriting The Art of Utilizing Slug Lines</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-review-of-the-iphone-14-meeting-consumer-needs-adequately-insights/"><u>Comprehensive Review of the iPhone 14: Meeting Consumer Needs Adequately Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/crucial-tips-what-you-need-to-know-before-getting-an-older-model-ipad/"><u>Crucial Tips: What You Need to Know Before Getting an Older Model iPad</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-asus-ax6000-wi-fi-6-router-detailed-analysis-of-its-impressive-functionality-and-user-experience/"><u>Exploring the Asus AX6000 Wi-Fi 6 Router: Detailed Analysis of Its Impressive Functionality and User Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-benefits-of-natural-light-therapy-with-philipss-hf3505-alarm-clock-innovation/"><u>Exploring the Benefits of Natural Light Therapy with Philips's HF3505 Alarm Clock Innovation</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/get-the-latest-free-hevc-h265-codec-software-to-improve-4k8k-video-streaming-experience/"><u>Get the Latest FREE Hevc (H.265) Codec Software to Improve 4K/8K Video Streaming Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/google-facebook-twitter-face-presidential-censorship-suit/"><u>Google, Facebook, Twitter Face Presidential Censorship Suit</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-oppo-reno-10-pro-5g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Oppo Reno 10 Pro 5G Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-your-new-google-nest-hub-complete-lets-talk-about-missing-cameras/"><u>Is Your New Google Nest Hub Complete? Let's Talk About Missing Cameras!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-gopro-experience-in-hero9-black/"><u>The Ultimate GoPro Experience in HERO9 Black?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-gaming-ready-mini-pcs-of-the-year/"><u>Top Gaming-Ready Mini PCs of the Year</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/ultimate-screen-companionship-the-right-cms-guidebook-for-2024/"><u>Ultimate Screen Companionship The Right CMS Guidebook for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/unraveling-and-solving-nvidias-geforce-experience-mishap-understanding-error-code-0x0003/"><u>Unraveling and Solving NVIDIA's GeForce Experience Mishap: Understanding Error Code 0X0003</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-the-huawei-p30-pro-continues-to-impress-me-even-after-all-these-days/"><u>Why the Huawei P30 Pro Continues to Impress Me Even After All These Days</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/windows-evolution-moving-from-7-to-11/"><u>Windows Evolution: Moving From 7 to 11</u></a></li>
 </ul></div>
 

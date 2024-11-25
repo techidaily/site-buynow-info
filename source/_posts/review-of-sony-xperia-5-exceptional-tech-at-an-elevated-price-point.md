@@ -1,7 +1,7 @@
 ---
 title: "Review of Sony Xperia 5: Exceptional Tech at an Elevated Price Point"
-date: 2024-10-29T21:40:41.659Z
-updated: 2024-10-30T20:10:02.653Z
+date: 2024-11-22T21:50:56.462Z
+updated: 2024-11-25T07:36:05.406Z
 categories:
   - BestProducts
 description: "This Article Describes Review of Sony Xperia 5: Exceptional Tech at an Elevated Price Point"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/367ee4c24820f3014ce079b27a52261c1491c40b5
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
@@ -48,13 +52,6 @@ thumbnail: https://thmb.techidaily.com/367ee4c24820f3014ce079b27a52261c1491c40b5
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/EEEMCdq2FsBPMcT8nPUgndDIw4A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 [View On Amazon](https://www.amazon.com/dp/B078WG6DBH/?tag=lifewire-onsite-prod-20&ascsubtag=4796693%7Cn899f0376278d4881a5af76b596b54aa000%7CB078WG6DBH) [View On EBay](https://www.ebay.com/itm/Sony-XBR65X850F-65-Inch-4K-Ultra-HD-Smart-LED-TV-2018-Model/312237520273)
@@ -76,13 +73,6 @@ thumbnail: https://thmb.techidaily.com/367ee4c24820f3014ce079b27a52261c1491c40b5
  _We purchased the Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV so our expert reviewer could thoroughly test and assess it. Keep reading for our full product review._
 
  Though Sony panels are sometimes on the expensive end of the spectrum, there are some older Sony 4K TVs that can be had for a nice little discount. One such TV is Sony’s XBR65X850F from their X850F series. This specific model has now been replaced by the X850G, but that doesn’t mean you necessarily need to go with the most current model. In fact, snagging one of these earlier generation sets can save you some cash without forcing you to compromise too much.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Design: Standard Sony**
 
@@ -111,10 +101,7 @@ thumbnail: https://thmb.techidaily.com/367ee4c24820f3014ce079b27a52261c1491c40b5
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vvIZMf3BNAr8JmiDAVdv4o3ceHg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-2-7eabd63fb6c0415ab75fd927d664a841.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -124,10 +111,7 @@ thumbnail: https://thmb.techidaily.com/367ee4c24820f3014ce079b27a52261c1491c40b5
  With the initial process done, you will likely need to run a quick update check. This should automatically pop up, but check under the settings tab if it doesn’t. An update to the firmware should improve things considerably, especially if you need to upgrade to the latest version of Android TV. Updating takes a bit of time to do, so maybe go watch some TV while…oh right. Well, whatever you do during this process, just remember not to unplug the power while it’s running through updates.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Image Quality: Impressive 4K for IPS with some shortcomings**
@@ -137,13 +121,6 @@ thumbnail: https://thmb.techidaily.com/367ee4c24820f3014ce079b27a52261c1491c40b5
  Starting off with some of this unit’s strengths, this particular series uses an IPS panel for the screen, which means you’re going to get vibrant colors, a nice backlight for viewing in bright rooms, and excellent viewing angles. This all adds up to a superb experience if you’ve got a big living room that’s brightly lit by windows, where viewers might not be able to sit completely centered.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/r5reh9LkA7QvieX1JzBg5J8qNjY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-5-00a73edbf91c48c6aa2718ab211f2e5d.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -167,6 +144,10 @@ thumbnail: https://thmb.techidaily.com/367ee4c24820f3014ce079b27a52261c1491c40b5
 
  Right off the bat, this TV can get quite loud and you shouldn’t run into any volume issues. That being said, the overall experience is mediocre at best. The louder you turn it up, the more distortion is added. These speakers should suffice in quiet environments if you’re primarily looking for nice clear dialogue with treble and mid, but the bass is not so good.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: A bit sluggish but good enough**
 
  Android TV has come a long way since its debut, but not all TVs are getting timely updates, and these lower-end Sony TVs are notoriously slow for this. While some TVs are already running Android TV 9.0, many are stuck with older versions.
@@ -181,6 +162,10 @@ thumbnail: https://thmb.techidaily.com/367ee4c24820f3014ce079b27a52261c1491c40b5
 
  One last thing, your phone can also be used as a remote if you so choose. All you need to do is download the app and connect it to the TV. This works with both Android and iOS devices (thanks Google). While it’s not a good as the regular remote, it works fine enough if you’re too lazy to get up and find the standard remote.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Not bad for the size, but not the cheapest**
 
  The X850F series come in a range of sizes, from 65 to 85 inches, so the prices can vary considerably depending on which one you go with. Any TV in this size range is going to cost a good bit of coin, no matter the manufacturer, but Sony isn’t too bad here.
@@ -188,6 +173,10 @@ thumbnail: https://thmb.techidaily.com/367ee4c24820f3014ce079b27a52261c1491c40b5
  On Sony’s website, the 65-inch model we tested here is listed at $1,300, the 75 at $2,300, and the 85 at a whopping $4,000\. Now these prices aren’t exactly accurate, especially since these are an older series. Typically you can find the 65-inch for about $1,100 or so. The other models are also heavily discounted depending on where you look, so definitely shop around. It’s likely that you can snag them for even less during sales.
 
  But how do these prices stack up against comparable TVs from competitors like LG or Samsung? Taking a quick look around online, you can easily save a few hundred dollars by going with a comparable LG TV, while Samsung was pretty closely matched with Sony. In the end, the price for the X850F series isn’t the best bang for your buck, but it ain’t bad either.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Sony XBR65X850F vs. Samsung UN65RU8000**
 
@@ -236,20 +225,20 @@ thumbnail: https://thmb.techidaily.com/367ee4c24820f3014ce079b27a52261c1491c40b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-9-essential-apps-for-pulling-youtube-videos-android/"><u>[New] In 2024, 9 Essential Apps for Pulling YouTube Videos (Android)</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-unmatched-collection-10-excellent-platforms-for-vimeo-video-downloaders/"><u>[Updated] 2024 Approved Unmatched Collection 10 Excellent Platforms for Vimeo Video Downloaders</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-ideal-4k-recorder-software-selections/"><u>2024 Approved Ideal 4K Recorder Software Selections</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/android-essentials-for-immersive-video-and-vr-content-for-2024/"><u>Android Essentials for Immersive Video and VR Content for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/app-alert-chatgpt-now-on-ios/"><u>App Alert: ChatGPT Now on iOS</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-portable-gaming-computers-power-in-a-pocket-sized-package/"><u>Best Portable Gaming Computers: Power in a Pocket-Sized Package</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/head-to-head-battle-features-and-differences-between-google-nest-audio-and-nest-mini/"><u>Head-to-Head Battle: Features and Differences Between Google Nest Audio and Nest Mini</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-t2x-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo T2x 5G Location by Number | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-maximizing-your-walls-with-windows-11-a-guide-to-changing-backdrops/"><u>In 2024, Maximizing Your Walls with Windows 11 A Guide to Changing Backdrops</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/overcooked-2-analysis-a-culinary-chaos-adventure/"><u>Overcooked! 2 Analysis: A Culinary Chaos Adventure</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/streamline-your-screen-time-step-by-step-towards-a-well-curated-playlist-for-2024/"><u>Streamline Your Screen Time Step-by-Step Towards a Well-Curated Playlist for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-enhancing-signal-strength-testing-the-netgear-ex3700-ac750-range-extender/"><u>The Ultimate Guide to Enhancing Signal Strength: Testing the Netgear Ex3700 AC750 Range Extender</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unleash-your-potential-with-fitbit-versa-3-comprehensive-wellness-applications-and-built-in-gps-for-maximum-motivation/"><u>Unleash Your Potential with Fitbit Versa 3: Comprehensive Wellness Applications and Built-In GPS for Maximum Motivation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-pros-and-cons-in-depth-look-at-the-google-pixel-5-flagship-experience/"><u>Unveiling the Pros and Cons: In-Depth Look at the Google Pixel 5 Flagship Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/your-all-in-one-wellness-partner-unveiling-the-samsung-galaxy-fit2-portability-meets-fitness-tracking/"><u>Your All-in-One Wellness Partner - Unveiling the Samsung Galaxy Fit2: Portability Meets Fitness Tracking</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-yt-watch-tactics-streamlining-screen-sessions-for-all/"><u>[New] 2024 Approved YT Watch Tactics Streamlining Screen Sessions for All</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-crafting-classic-cinematography-step-by-step-guide/"><u>[New] In 2024, Crafting Classic Cinematography Step-by-Step Guide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-secrets-of-professionals-mastering-video-recordingediting-with-adobe-connect/"><u>[New] In 2024, Secrets of Professionals Mastering Video Recording/Editing with Adobe Connect</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1-master-the-art-of-3d-printing-with-hairspray-a-must-have-technique-unveiled/"><u>1. Master the Art of 3D Printing with Hairspray: A Must-Have Technique Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/advantages-and-disadvantages-why-gamers-should-consider-vpn-use/"><u>Advantages & Disadvantages: Why Gamers Should Consider VPN Use</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-music-services-explained-contrasting-prime-vs-unlimited-offerings-for-streamers/"><u>Amazon Music Services Explained: Contrasting Prime Vs. Unlimited Offerings for Streamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/are-you-prepared-recognizing-the-signals-to-move-beyond-mobile-gaming-with-advanced-handheld-systems/"><u>Are You Prepared? Recognizing the Signals to Move Beyond Mobile Gaming with Advanced Handheld Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/avoid-imposters-ensure-authenticity-in-your-next-switch-gaming-purchase/"><u>Avoid Imposters: Ensure Authenticity in Your Next Switch Gaming Purchase</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-free-movie-streaming-apps-for-smartphones-watch-your-favorites-without-paying/"><u>Best Free Movie Streaming Apps for Smartphones: Watch Your Favorites Without Paying</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/complete-tutorial-on-viewing-international-swim-events-online/"><u>Complete Tutorial on Viewing International Swim Events Online</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-poco-c51-is-unlocked-by-drfone-android/"><u>How To Check if Your Poco C51 Is Unlocked</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/most-memorable-tiktok-videos-and-their-twitter-spreads/"><u>Most Memorable TikTok Videos & Their Twitter Spreads</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-ezvid-for-mac-the-ultimate-slideshow-and-video-making-solution/"><u>New 2024 Approved Ezvid for Mac The Ultimate Slideshow and Video Making Solution</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/skyvault-budget-edition-unlimited-mass-files-save-for-2024/"><u>SkyVault Budget Edition Unlimited Mass Files Save for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/the-moto-g-smartphone-with-a-pen-an-economical-choice-for-digital-sketchers/"><u>The Moto G Smartphone with a Pen - An Economical Choice for Digital Sketchers</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Performance and Hardiness Testing for the CAT S42 Mobile Device: Sturdy but Not Swift"
-date: 2024-11-10T22:03:31.369Z
-updated: 2024-11-16T00:18:49.719Z
+date: 2024-11-18T18:33:37.293Z
+updated: 2024-11-25T01:52:59.568Z
 categories:
   - BestProducts
 description: "This Article Describes Performance and Hardiness Testing for the CAT S42 Mobile Device: Sturdy but Not Swift"
@@ -56,13 +56,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
 **TL;DR:** Highly customizable for any situation, simple to use, and regularly updated, the Apple Watch Series 9 is the one to beat.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Why We Recommend This
 
  I’ve been using Apple Watches since they first launched in 2015\. Over the years, the format has been refined, and the Apple Watch Series 9 is easily the best yet for most people.
@@ -110,6 +103,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
 **TL;DR:** Sleek and stylish, the Samsung Galaxy Watch 6 has some great features provided you’re an Android phone owner. Its body composition tool is a particular highlight.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Why We Recommend This
 
  The Samsung Galaxy Watch 6 looks and feels lovely to use. Its circular watch face feels more natural than the angular edges of the Apple Watch. The AMOLED screen lights up nicely but in a warm and inviting way rather than harsh.
@@ -141,10 +138,7 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **What do buyers think?** The Samsung Galaxy Watch 6 has over 3,900 ratings on Amazon, with 88% of those rating the watch either five or four stars. The overall average rating is 4.5 out of 5.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Easiest on the Budget
@@ -158,6 +152,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 [$267 at Amazon](https://www.amazon.com/Garmin-v%C3%ADvoactive-Fitness-Smartwatch-Display/dp/B0CG6NR413?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CG6NR413)
 
 **TL;DR:** More affordable than most Garmin watches, the Garmin Vivoactive 5 offers all the key features while not looking too sporty.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Why We Recommend This
 
@@ -192,10 +190,7 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **What do buyers think?** The Garmin Vivoactive 5 has over 1,800 ratings on Amazon, with 76% of them rating it five or four stars. Its average rating is 4.4 out of 5.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How We Test
@@ -225,10 +220,7 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 [The Best Fitness Trackers of 2024](https://www.lifewire.com/best-fitness-trackers-8656291)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Other Smartwatches We Reviewed
@@ -266,24 +258,16 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-reawakening-dormant-connections-with-your-obs-cam/"><u>[New] In 2024, Reawakening Dormant Connections with Your OBS Cam</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-navigating-the-complexities-of-chroma-removal-kinemaster-edition-for-2024/"><u>[New] Navigating the Complexities of Chroma Removal (KineMaster Edition) for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/tep-by-step-revenue-building-for-youtube-creators-for-2024/"><u>[New] Step-by-Step Revenue Building for YouTube Creators for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-master-the-art-of-audio-alteration-in-sony-games/"><u>2024 Approved Master the Art of Audio Alteration in Sony Games</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-the-rexing-v1-dashcam-a-stealthy-and-economical-safety-device/"><u>Comprehensive Guide to the Rexing V1 DashCam - A Stealthy and Economical Safety Device</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/critical-takeaways-from-testing-a-troublesome-and-expensive-microsoft-surface-duo/"><u>Critical Takeaways From Testing a Troublesome & Expensive Microsoft Surface Duo</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elgoog-decoded-insights-into-googles-quirky-doppelganger-and-its-features-compared-to-the-search-giant/"><u>ElgooG Decoded: Insights Into Google's Quirky Doppelganger and Its Features Compared to The Search Giant</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/embrace-rejuvenating-slumber-unveiling-the-ihome-zenergy-sleep-aid-masterclass/"><u>Embrace Rejuvenating Slumber: Unveiling the IHome Zenergy Sleep Aid Masterclass</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/enjoy-vivid-visuals-on-a-tough-screen-the-sunbritetv-55-built-to-endure-and-excellent-in-4k-quality/"><u>Enjoy Vivid Visuals on a Tough Screen - The SunBriteTV 55, Built to Endure & Excellent in 4K Quality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/essential-guide-to-selecting-the-perfect-usb-wi-fi-receiver/"><u>Essential Guide to Selecting the Perfect USB Wi-Fi Receiver</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-cost-of-airpods-max-earpieces/"><u>Evaluating the Cost of AirPods Max Earpieces</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-fitbit-charge-3-against-modern-rivals-a-comprehensive-review/"><u>Evaluating the Fitbit Charge 3 Against Modern Rivals – A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-lenovo-thinkpad-x1-fold-a-game-changing-laptop-with-room-for-improvement/"><u>Evaluating the Lenovo ThinkPad X1 Fold: A Game-Changing Laptop with Room for Improvement</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-itel-p55-5g-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Itel P55 5G Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-lenovo-thinkphone-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Lenovo ThinkPhone to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/overcoming-iphone-dialing-difficulties-a-guide-to-fixing-common-errors/"><u>Overcoming iPhone Dialing Difficulties: A Guide to Fixing Common Errors</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-birth-and-evolution-of-artificocal-intelligence/"><u>The Birth and Evolution of Artificocal Intelligence</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/top-rated-tools-for-effortless-conversion-from-webm-to-mp4/"><u>Top-Rated Tools for Effortless Conversion From WebM to MP4</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unlocking-your-computers-map-potential-with-google/"><u>Unlocking Your Computer's Map Potential with Google</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-authentic-follower-acquisition-on-tiktok/"><u>2024 Approved Authentic Follower Acquisition on TikTok</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-maximize-browser-functionality-chromes-full-screen-video-playback/"><u>2024 Approved Maximize Browser Functionality Chrome's Full-Screen Video Playback</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-comprehensive-guide-to-the-top-tier-performance-of-the-netgear-nighthawk-c7000-wireless-modem/"><u>A Comprehensive Guide to the Top-Tier Performance of the Netgear Nighthawk C7000 Wireless Modem</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722734219869-chromebookflipc302ca-by-asus-a-budget-friendly-transformative-laptop-with-exceptional-features-reviewed/"><u>ChromebookFlipC302CA by ASUS: A Budget-Friendly, Transformative Laptop with Exceptional Features Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722671674297-exploring-the-beanthetech-bitwatch-s1-plus-an-engaging-gadget-at-an-unbeatable-price-point/"><u>Exploring the BeantheTech Bitwatch S1 Plus – An Engaging Gadget at an Unbeatable Price Point</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722660952698-fun-meets-functionality-the-ddpai-mini3-dashcam-reviewed/"><u>Fun Meets Functionality: The DDPai Mini3 Dashcam Reviewed!</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/gmail-e-mail-archivierung-mit-zwei-leichtblitzmethoden-sicheres-lokales-herunterladen/"><u>Gmail-E-Mail Archivierung Mit Zwei Leichtblitzmethoden: Sicheres Lokales Herunterladen</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Vivo Y56 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722761800378-minecraft-gameplay-tested-and-reviewed-perfect-family-adventure-sandbox/"><u>Minecraft Gameplay Tested and Reviewed - Perfect Family Adventure Sandbox</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/prime-choices-purchasing-your-dreams-in-youtube-ringtones-for-2024/"><u>Prime Choices Purchasing Your Dreams in YouTube Ringtones for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-ultimate-accessory-compendium-for-psvr2/"><u>The Ultimate Accessory Compendium for PSVR2</u></a></li>
 </ul></div>
 

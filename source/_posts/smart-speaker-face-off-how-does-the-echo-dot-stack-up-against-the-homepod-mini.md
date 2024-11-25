@@ -1,7 +1,7 @@
 ---
 title: "Smart Speaker Face-Off: How Does the Echo Dot Stack Up Against the HomePod Mini?"
-date: 2024-11-14T16:51:10.824Z
-updated: 2024-11-16T03:09:53.451Z
+date: 2024-11-18T13:30:49.950Z
+updated: 2024-11-25T02:40:24.236Z
 categories:
   - BestProducts
 description: "This Article Describes Smart Speaker Face-Off: How Does the Echo Dot Stack Up Against the HomePod Mini?"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/487b81e16ea9432c9b3bc7ae56246949ca490ff5d
 ## Microsoft Xbox Series S
 
 ![Xbox Series S](https://www.lifewire.com/thmb/AIM68phvq5X0vRf1yv3G8I9S2ic=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -45,13 +49,6 @@ Lifewire / Jeremy Laukkonen
 [View On Amazon $276](https://www.amazon.com/dp/B08G9J44ZN?tag=lifewire-onsite-prod-20&ascsubtag=5085770%7Cn852b6f87dac743c99d9ca07d1832825a20%7CB08G9J44ZN) [View On Walmart $285](https://www.walmart.com/ip/606518560) [View On Best Buy $300](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fmicrosoft-xbox-series-s-512-gb-all-digital-console-disc-free-gaming-white%2F6430277.p%3FskuId%3D6430277)
 
 4.2
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Microsoft Xbox Series S
 
@@ -89,10 +86,7 @@ Lifewire / Jeremy Laukkonen
 ![Xbox Series S](https://www.lifewire.com/thmb/3-mUIkkRYilM5F2tvCYMPXtW1Ew=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1-04d996bcdfbb489d84e8945e4c475713.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
@@ -100,13 +94,6 @@ Lifewire / Jeremy Laukkonen
  The overall form factor of the Series S is similar to the Xbox One S, but the Series S lacks an optical drive and includes a massive circular vent on one side. This striking design choice has drawn comparisons to a speaker and a washing machine. It also bears a passing resemblance to Microsoft’s[adaptive controller](https://www.lifewire.com/what-is-the-xbox-adaptive-controller-4707753) , which is boxy, white, and features two large black circular pads. This aesthetic might not be for everyone, but I like how it stands next to my television.
 
  Aside from the bold vent grill, the Series S doesn’t break any new ground regarding design choices. It has sturdy rubber feet on two sides, so you can lay it flat or stand it up on end, as has become more or less standard with home consoles. It feels pretty sturdy in both positions.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Easier than ever before**
 
@@ -117,6 +104,10 @@ Lifewire / Jeremy Laukkonen
  I highly recommend setting up the Xbox Series S with the help of the Xbox app. It massively streamlines the process, makes it easier to connect to Wi-Fi since you don’t need to type out your password with the Xbox’s on-screen keyboard, and even pre-loads the Series S with settings from your old Xbox One if you had one.
 
  I ended up wiping the console back to factory settings a few times while I put it through its paces, so I also tried the traditional setup method after circling back. It’s similar to setting up an Xbox One; not that difficult or time-consuming, but the app option is better.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Rock solid 1440p gaming**
 
@@ -140,13 +131,6 @@ Lifewire / Jeremy Laukkonen
 
  Load times were negligible in each game I played, which I expected from a super-fast NVME SSD storage system. Some games had more noticeable load times than others, but not enough to disrupt gameplay.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Games: Microsoft still has an exclusivity problem**
 
  You won't have any shortage of games to play on the Xbox Series S, especially if you're a[Game Pass](https://www.lifewire.com/xbox-game-pass-4178809) subscriber. I predicted that the Series S would be the ultimate Game Pass machine at release, and that prediction has borne fruit in my home, at least.
@@ -163,13 +147,6 @@ Lifewire / Jeremy Laukkonen
 
  Microsoft's $7.5B purchase of Bethesda's parent company, Zenimax, brought some hope of additional exclusives appearing in Microsoft's arsenal. (Bethesda is the publisher of Fallout, DOOM, Dishonored, Skyrim, Wolfenstein, The Elder Scrolls, and more.) However, the situation is murky as the company has yet to clarify which (if any) Bethesda titles will be exclusive to Xbox.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Storage: Disappointingly shallow, so bring your USB drive**
 
  The biggest problem with the Xbox Series S is the lack of storage. Unlike the Series X, which packs in a 1TB drive, the Series S only offers 512GB of space. That's an extremely shallow pool to swim in when dealing with an all-digital console, as you have to download every game you play.
@@ -184,18 +161,15 @@ Lifewire / Jeremy Laukkonen
 
  So if you go with an external USB drive, you'll only be able to play Xbox One, Xbox 360, and original Xbox games stored on it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Internet Connectivity: Fast when wired, but Wi-Fi is a mixed bag**
 
  With all those massive games and the fact that the Series S is a digital-only console, you will spend a lot of time downloading. The Series S has built-in Wi-Fi and an Ethernet port, so you have options, but a wired connection is the way to go here.
 
 ![Xbox Series S](https://www.lifewire.com/thmb/_GSxQvNgtJMhoyNl62qlg671Qvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2-25991056c5c2486695923f7c1b61c7b5.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -205,11 +179,19 @@ Lifewire / Jeremy Laukkonen
 
  The bottom line is that the Series S provided fairly unimpressive download speeds over Wi-Fi but tore it up when connected via Ethernet. You’ll want to connect this all-digital console via Ethernet to a fast internet connection.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software and User Interface: Familiar and cozy**
 
  Microsoft isn’t looking to rock the boat with the Xbox Series X|S in terms of the user interface. If you’ve used an Xbox One, you’ll find the Xbox Series X|S user interface strangely familiar. The dashboard looks almost the same, and the guide functions as expected. There are a few upgrades and changes here and there, but this is nothing like the massive change between the Xbox 360 dashboard and the Xbox One dashboard.
 
  An overhaul of the dashboard is currently in the works, and we expect it to arrive in 2023.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Controller: Iteration more than innovation**
 
@@ -228,6 +210,10 @@ Lifewire / Jeremy Laukkonen
 ![Xbox Series S](https://www.lifewire.com/thmb/MZdEnnFWPzhGzv_P5GO8byAY5qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3-dd9458b294e74205acad2ff6fee33913.JPG)
 
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Jaw-droppingly low**
 
@@ -295,24 +281,20 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-full-circumference-video-rigging/"><u>[New] Full-Circumference Video Rigging</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-iphone-time-travel-mastering-prolonged-photo-captures/"><u>[New] In 2024, IPhone Time Travel Mastering Prolonged Photo Captures</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-minecraft-masterpieces-creative-buildings-guide/"><u>[Updated] 2024 Approved Minecraft Masterpieces Creative Buildings Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-posting-vimeo-perfecting-your-instagram-content/"><u>[Updated] In 2024, Posting Vimeo Perfecting Your Instagram Content</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-future-of-mobile-videography-6-pioneering-apps-beyond-periscope/"><u>[Updated] The Future of Mobile Videography 6 Pioneering Apps Beyond Periscope</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-transforming-images-the-art-of-applying-luts-in-pro/"><u>2024 Approved Transforming Images The Art of Applying LUTs in Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-comprehensive-review-of-the-oneplus-8t-speedy-yet-flawed-cameras/"><u>A Comprehensive Review of the OnePlus 8T: Speedy Yet Flawed Cameras</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-excellence-a-review-of-the-40-hisense-tv-model-40h5590f-with-smart-technology/"><u>Affordable Excellence - A Review of the 40 Hisense TV Model 40H5590F with Smart Technology</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/discover-the-best-mac-gif-recorders-now-in-2024/"><u>Discover the Best Mac GIF Recorders Now, In 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/exploring-the-tech-savvy-side-of-pope-francis-does-he-send-and-receive-emails/"><u>Exploring the Tech-Savvy Side of Pope Francis: Does He Send and Receive Emails?</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-power-of-popularity-in-stock-images-and-stories/"><u>In 2024, The Power of Popularity in Stock Images & Stories</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722808412409-influencer-reviews-choosing-between-apple-tv-4k-or-roku-ultra-heres-what-you-need-to-know/"><u>Influencer Reviews: Choosing Between Apple TV 4K or Roku Ultra? Here's What You Need to Know</u></a></li>
-<li><a href="https://win-webster.techidaily.com/titre-seo-ameliore-comment-eliminer-efficacement-une-page-specifique-en-un-clin-doeil-avec-cette-astucieuse-methode-pour-word/"><u>Titre SEO Amélioré : Comment Éliminer Efficacement Une Page Spécifique en Un Clin D'œil Avec Cette Astucieuse Méthode Pour Word !</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlock-the-potential-and-limitations-of-pidgin-messenger-a-detailed-review/"><u>Unlock the Potential and Limitations of Pidgin Messenger - A Detailed Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722802208683-unlocking-power-and-charm-of-the-4k-display-comprehensive-apple-imac-215-inch-review/"><u>Unlocking Power & Charm of the 4K Display - Comprehensive Apple iMac 21.5-Inch Review.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-performance-apple-homepod-mini-assessment-for-audio-enthusiasts-smart-functionality-and-siri-support/"><u>Unveiling the Performance: Apple HomePod Mini Assessment for Audio Enthusiasts, Smart Functionality & Siri Support</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/wonder-workshop-dash-review-this-connected-toy-is-ready-to-roll/"><u>Wonder Workshop Dash Review: This Connected Toy Is Ready to Roll</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/workout-playlist-perfected-with-garmin-vivoactive-3-tune-in-and-stay-motivated/"><u>Workout Playlist Perfected with Garmin Vivoactive 3 - Tune In & Stay Motivated</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/your-comprehensive-list-of-superior-key-finder-products-for-a-hassle-free-2-groovy-day-2024-edition/"><u>Your Comprehensive List of Superior Key Finder Products for a Hassle-Free 2 Groovy Day - 2024 Edition!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/treamline-your-content-youtube-to-dailymotion-shift-for-2024/"><u>[New] Streamline Your Content YouTube to Dailymotion Shift for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-how-much-do-podcasters-make-in-2024/"><u>[Updated] How Much Do Podcasters Make, In 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unseen-wealth-the-underground-auction-of-elusive-artifacts-2023-edition-for-2024/"><u>[Updated] Unseen Wealth The Underground Auction of Elusive Artifacts, 2023 Edition for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-imaging-dilemma-the-nikon-coolpix-a10-saga/"><u>Affordable Imaging Dilemma: The Nikon COOLPIX A10 Saga</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-ring-alarm-solutions-doorbell-edition/"><u>Comprehensive Evaluation of the Ring Alarm Solutions – Doorbell Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-netgear-c3000-is-it-time-to-upgrade/"><u>Comprehensive Review of Netgear C3000 – Is It Time to Upgrade?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/eero-pro-wi-fi-coverage-test-drive-full-house-connectivity-as-reviewed-by-users/"><u>Eero Pro Wi-Fi Coverage Test Drive – Full House Connectivity as Reviewed by Users</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-locked-iphone-14-plus-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>Forgot Locked iPhone 14 Plus Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-honor-play-8t-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-motorola-moto-g73-5g-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Motorola Moto G73 5G</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-hues-harmony-crafting-colorful-artistry/"><u>In 2024, Hues Harmony Crafting Colorful Artistry</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/seal-the-best-apple-steals-of-the-season-prime-day-edition/"><u>Seal the Best Apple Steals of The Season: Prime Day Edition.</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/ultimate-guide-from-iphone-8-plus-icloud-activation-lock-bypass-by-drfone-ios/"><u>Ultimate Guide from iPhone 8 Plus iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-secrets-behind-the-lg-gram-17-a-revolutionary-fusion-of-minimal-weight-and-superior-performance/"><u>Unveiling the Secrets Behind the LG Gram 17 - A Revolutionary Fusion of Minimal Weight and Superior Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/xiaomi-mi-smart-band-4-comprehensive-fitness-tracker-review/"><u>Xiaomi Mi Smart Band 4 - Comprehensive Fitness Tracker Review</u></a></li>
 </ul></div>
 

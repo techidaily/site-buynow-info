@@ -1,7 +1,7 @@
 ---
 title: Critical Review of the Viair 88P Mobile Air Compressor - Incredible Force, Yet Some Trade-Offs
-date: 2024-11-12T21:18:29.245Z
-updated: 2024-11-16T00:05:30.009Z
+date: 2024-11-24T00:28:51.747Z
+updated: 2024-11-25T07:07:05.360Z
 categories:
   - BestProducts
 description: This Article Describes Critical Review of the Viair 88P Mobile Air Compressor - Incredible Force, Yet Some Trade-Offs
@@ -17,6 +17,10 @@ thumbnail: https://www.lifewire.com/thmb/ZevQObLlQ-0zecghfgF1_QfuuRw=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Escort Passport S55
 
@@ -47,10 +51,7 @@ Lifewire / Todd Braylor
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
@@ -84,13 +85,6 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Easy installation**
 
  The S55 is straightforward and easy to install. Simply stick the windshield mount in place and plug the SmartCord lighter adapter into your car's DC cigarette lighter input. Plugging the modular jack into the S55 will automatically power on the radar detector and you can quickly customize settings for display brightness, detector sensitivity levels, and volume. Then you're ready to hit the road.
@@ -104,10 +98,7 @@ Lifewire / Todd Braylor
  It reliably delivers on its promise of long-distance sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
@@ -118,11 +109,19 @@ Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
@@ -135,13 +134,6 @@ Lifewire / Todd Braylor
  **A basic radar detector that's ideal for beginners or anyone on a budget.**
 
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -172,22 +164,17 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-audience-engagement-strategies-for-compelling-screencast-videos/"><u>[New] 2024 Approved Audience Engagement Strategies for Compelling Screencast Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-peek-into-fb-episodes-unseen/"><u>[New] 2024 Approved Peek Into FB Episodes, Unseen</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-champions-tech-the-ultimate-gaming-toolkit/"><u>[New] Champion's Tech The Ultimate Gaming Toolkit</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-discover-movie-substitutes-7-recommended/"><u>[Updated] Discover Movie Substitutes, #7 Recommended</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-mobilesync-facebook-video-grabber/"><u>[Updated] Mobilesync Facebook Video Grabber</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dive-into-the-cost-arrival-date-and-spec-sheet-for-the-amazfit-helio-ring/"><u>Dive Into the Cost, Arrival Date & Spec Sheet for the Amazfit Helio Ring</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-mighty-zmi-powerpack-2nkwh-the-authoritative-guide-to-your-go-to-compact-charger/"><u>Evaluating the Mighty ZMI PowerPack 2nkWh: The Authoritative Guide to Your Go-To Compact Charger!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-into-the-netgear-nighthawk-rax120-a-top-choice-for-lightning-fast-internet/"><u>Expert Insights Into the Netgear Nighthawk RAX120: A Top Choice for Lightning-Fast Internet</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/explore-2024s-best-sound-gear-reviews/"><u>Explore 2024'S Best Sound Gear Reviews</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-features-of-the-dell-xps-13-7390-2-in-1-a-blend-of-beauty-and-adaptability/"><u>Exploring the Features of the Dell XPS 13 (7390) 2-in-1: A Blend of Beauty & Adaptability</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/from-disconnect-to-connectedness-starlinks-4-game-changing-benefits/"><u>From Disconnect to Connectedness - Starlink's 4 Game-Changing Benefits</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Motorola Edge 40 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-spark-interest-everyones-free-with-our-youtube-banner-samples/"><u>In 2024, Spark Interest - Everyone's Free With Our YouTube Banner Samples</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-google-nest-hello-a-look-at-its-advanced-security-capabilities-including-face-recognition/"><u>In-Depth Analysis: Google Nest Hello - A Look at Its Advanced Security Capabilities Including Face Recognition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/iphone-esque-features-at-a-bargain-price-the-motorola-one-reviewed/"><u>IPhone-Esque Features at a Bargain Price – The Motorola One Reviewed</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/key-tech-accessories-every-student-should-include-in-their-school-bag/"><u>Key Tech Accessories Every Student Should Include in Their School Bag</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-steps-for-when-geforce-experience-wont-start/"><u>Troubleshooting Steps for When GeForce Experience Won't Start</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/our-essential-guide-to-mobile-asmr-sounds-for-2024/"><u>[New] Your Essential Guide to Mobile ASMR Sounds for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-excellent-apps-for-streamlined-igtv-vertical-cuts-for-2024/"><u>[Updated] Excellent Apps for Streamlined IGTV Vertical Cuts for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-astonishing-critique-and-substitutes-guide/"><u>[Updated] In 2024, Astonishing Critique & Substitutes Guide</u></a></li>
+<li><a href="https://games-able.techidaily.com/custom-gameplay-audiovisual-experience-on-series-x/"><u>Custom Gameplay Audiovisual Experience on Series X</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/giggles-on-iphones-for-2024/"><u>Giggles on iPhones for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/iphoneandroid-stabilization-elite-photo-tripods/"><u>IPhone/Android Stabilization Elite Photo Tripods</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-2024-approved-easy-steps-to-translate-video-on-twitter/"><u>New 2024 Approved Easy Steps to Translate Video on Twitter</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-microsoft-sculpt-ergo-keyboard-guide-quality-meets-savings/"><u>The Ultimate Microsoft Sculpt Ergo Keyboard Guide: Quality Meets Savings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-apples-m1-powered-ipad-pro-when-a-tablet-outperforms-a-desktop/"><u>The Ultimate Review of Apple's M1-Powered iPad Pro : When a Tablet Outperforms a Desktop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-5-mice-you-need-to-try-with-your-ipad-for-seamless-navigation/"><u>Top 5 Mice You Need to Try with Your iPad for Seamless Navigation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-performance-revealed-in-depth-alienware-aurora-r11-gaming-pc-analysis-for-2n21/"><u>Top Performance Revealed: In-Depth Alienware Aurora R11 Gaming PC Analysis for 2N21</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-key-tracking-devices/"><u>Top-Rated Key Tracking Devices</u></a></li>
 </ul></div>
 

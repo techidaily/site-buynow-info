@@ -1,7 +1,7 @@
 ---
 title: "Review of the iX Smart Escort Detection Device: A Cutting-Edge Gadget That Learns Your Routes"
-date: 2024-11-14T18:21:15.242Z
-updated: 2024-11-16T00:57:15.377Z
+date: 2024-11-20T19:16:10.188Z
+updated: 2024-11-24T22:26:39.616Z
 categories:
   - BestProducts
 description: "This Article Describes Review of the iX Smart Escort Detection Device: A Cutting-Edge Gadget That Learns Your Routes"
@@ -18,9 +18,17 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/OIHJ0F8VMR0yFUpC8veJBJ39E6A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -47,6 +55,10 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -81,6 +93,10 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
 
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: It can’t realistically be much simpler**
 
  Should you find yourself in a situation where you need to use the jump start functionality of the Beatit Jump Starter D11, you'll find it quite easy to use. On our Elantra test vehicle we simply had to pop the hood, bring the unit over, and plug the jumper cable accessory into its port. Once in place getting a proper connection is a simple matter of attaching the red clamp to the positive battery terminal and then the black clamp to the negative terminal. With a firm connection in place we simply had to set the unit down someplace where the vibration of the engine wouldn’t make it slide and then start the car. With the unit in place the car immediately started with zero hesitation, at which point we could disconnect the unit and get back on the road.
@@ -89,13 +105,6 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Plenty of power for all your needs**
 
  Time and again, the Beatit Jump Starter D11 was able to get a car with a very[depleted battery](https://www.lifewire.com/car-batteries-are-made-to-die-534765) started. Even after repeated testing the unit’s own battery only dropped down to 85% capacity.
@@ -103,13 +112,6 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
  Charging a phone with a jump starter seems like overkill, and the unit’s ability to charge at 1,200mAh confirms that impression. At such an elevated level of charging your phone or other device will likely get its battery topped off in very little time. With 18,000mAh of capacity you can fully charge a modern phone at least twice, and still leave the unit with the juice it needs in order to start a car.
 
  Lifewire / Tony Mitera
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
@@ -126,10 +128,7 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
  At that price point, it packs a ton of value into its diminutive size.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
@@ -147,13 +146,6 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
 **For the price, it's perfect.**
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -186,18 +178,21 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-seamless-viewing-at-no-extra-charge-free-vob-for-pc-and-mac/"><u>[New] Seamless Viewing at No Extra Charge Free VOB for PC & Mac</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-crown-jewels-of-community-engagement-on-reddit-top-10-for-2024/"><u>[Updated] Crown Jewels of Community Engagement on Reddit - Top 10 for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-exploring-peak-performance-best-oculus-rift-players-for-2024/"><u>[Updated] Exploring Peak Performance Best Oculus Rift Players for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-perfecting-your-on-air-presence-youtube-and-twitch-streaming-through-obs/"><u>2024 Approved Perfecting Your On-Air Presence YouTube & Twitch Streaming Through OBS</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/behind-the-goals-a-comprehensive-look-at-fifa-19s-dominance-in-e-sports-entertainment/"><u>Behind the Goals: A Comprehensive Look at FIFA 19'S Dominance in E-Sports Entertainment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/budget-4k-uhd-tv-guide-exclusive-caixun-75-inch-android-model-assessment/"><u>Budget 4K UHD TV Guide: Exclusive Caixun 75-Inch Android Model Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722795816765-experience-the-nokia-71-superior-pixels-and-lens-combo-without-breaking-the-bank/"><u>Experience the Nokia 7.1: Superior Pixels & Lens Combo without Breaking the Bank!</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-the-monetization-matrix-how-maker-gains-from-shorter-videos/"><u>In 2024, The Monetization Matrix How Maker Gains From Shorter Videos</u></a></li>
-<li><a href="https://techtrends.techidaily.com/maximizing-movie-magic-the-ultimate-guide-to-home-viewed-3d-films-via-fandango/"><u>Maximizing Movie Magic: The Ultimate Guide to Home Viewed 3D Films via Fandango</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/step-by-step-guide-integrating-flipbook-content-on-your-site-using-flipbuilder/"><u>Step-by-Step Guide: Integrating Flipbook Content on Your Site Using FlipBuilder</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-michael-kors-gen-5e-mkgo-a-symbiosis-of-elegance-and-wisdom-in-style/"><u>Unveiling the Michael Kors Gen 5E MKGO: A Symbiosis of Elegance & Wisdom in Style</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-potential-a-detailed-review-of-the-netgear-nighthawk-c7000-wireless-modem/"><u>Unveiling the Potential: A Detailed Review of the Netgear Nighthawk C7000 Wireless Modem</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/xbox-one-social-play-how-to-share-games-with-pals-effortlessly/"><u>Xbox One Social Play: How to Share Games With Pals Effortlessly</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-innovation-in-social-media-redefining-the-role-of-facebook-stories/"><u>[Updated] 2024 Approved Innovation in Social Media Redefining the Role of Facebook Stories</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-premier-tools-upload-and-convert-vids-for-tweeting/"><u>[Updated] In 2024, Premier Tools Upload & Convert Vids for Tweeting</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-the-anker-powercoreplus-26800-a-users-perspective-on-design-capacity-and-reliability/"><u>Assessing the Anker PowerCore+ 26800: A User's Perspective on Design, Capacity & Reliability</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-todays-voip-services-is-vonage-still-at-the-forefront/"><u>Evaluating Today's VoIP Services: Is Vonage Still at the Forefront?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-is-the-google-pixel-4a-the-ideal-budget-friendly-phone/"><u>Expert Analysis: Is the Google Pixel 4a the Ideal Budget-Friendly Phone?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-why-the-huawei-p30-pro-remains-a-top-choice-for-tech-enthusiasts/"><u>Exploring Why the Huawei P30 Pro Remains a Top Choice for Tech Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/finding-your-perfect-game-phone-which-iphone-reigns-supreme/"><u>Finding Your Perfect Game Phone: Which iPhone Reigns Supreme?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-the-cheapest-hd-pet-camera-petcube-revealed/"><u>Get the Cheapest HD Pet Camera - Petcube Revealed</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-xiaomi-civi-3-disney-100th-anniversary-edition-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Xiaomi Civi 3 Disney 100th Anniversary Edition to iPod | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-itel-a70-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Itel A70 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/strategies-for-successful-youtube-monetization/"><u>Strategies for Successful YouTube Monetization</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/tips-for-tweaking-taskbar-aesthetics-in-windows-11-operating-system/"><u>Tips for Tweaking Taskbar Aesthetics in Windows 11 Operating System</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-evaluation-of-samsung-galaxy-note-9-why-it-reigns-supreme-with-a-large-display/"><u>Ultimate Evaluation of Samsung Galaxy Note 9: Why It Reigns Supreme with a Large Display</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-steps-to-reboot-your-samsung-television/"><u>Ultimate Guide: Steps to Reboot Your Samsung Television</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-oneplus-11-5g-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for OnePlus 11 5G Users</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/1725284401205-winxvideo-ai/"><u>최고의 비디오 품질을 위해 Winxvideo AI를 사용하여 비디오를 강화하는 기술</u></a></li>
 </ul></div>
 

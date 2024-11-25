@@ -1,7 +1,7 @@
 ---
 title: Advancing Laptop Display with New Graphics Cards
-date: 2024-10-27T16:07:00.398Z
-updated: 2024-10-31T00:41:00.926Z
+date: 2024-11-18T11:53:38.200Z
+updated: 2024-11-25T05:20:55.796Z
 categories:
   - BestProducts
 description: This Article Describes Advancing Laptop Display with New Graphics Cards
@@ -18,9 +18,17 @@ thumbnail: https://www.lifewire.com/thmb/YPiv5ejqCr_YXF1xpA02Nj_gr14=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## HP Omen Obelisk
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Szj7RCNucny4rfZ6uBlIf8pdeiE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_HP-OMEN-Obelisk-Gaming-Desktop-Computer-1-56ba747009334162a328f46d8b4743af.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -77,10 +85,7 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design** : **Nice looks and small footprint, with many reservations**
@@ -105,19 +110,6 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/gfeGQoUwG35q5t-JwO07Ax4jm5I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-3-f4e655ec9e684a47855e9ee7373ba4b6.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
 
 ## **Performance** :**Great components for gaming and productivity**
@@ -127,6 +119,10 @@ Lifewire / Jonno Hill
  The desktop scored an impressive 6,967 in the productivity-focused benchmarking application PCMark 10\. On the gaming front, the Omen managed a score of 10,740 in 3DMark’s Time Spy. In real-world use, this means more than 60fps at 4K in many popular titles like GTA V, but less than 60fps in others like Deus Ex: Mankind Divided. In other words, the Omen is mostly capable of 4K gameplay and is nearly always capable of 60+ fps in most common resolutions shy of 4K.
 
  The Omen comes equipped with a 1TB[NVMe SSD](https://www.lifewire.com/what-is-m2-833453) and 32GB of DDR4 2666 memory. This is definitely more RAM than games alone will call for, but it’s merely an adequate amount of RAM for some creative professionals working with more demanding software like Adobe After Effects. Keep in mind though, even those that don’t normally need a lot of RAM can still benefit from having more. Among other things, it gives you the luxury of keeping all of your browser tabs and background applications running without having to start juggling applications on and off, which can be helpful from a productivity standpoint.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Gaming** :**Great for the most demanding titles**
 
@@ -145,10 +141,7 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Network** :**Great speeds, but software that doesn’t do much**
@@ -156,6 +149,10 @@ Lifewire / Jonno Hill
  The HP Omen Obelisk has gigabit LAN and a Wi-Fi 5 (2x2) networking, the latter supporting a maximum speed of 866 Mbps. Everything functioned smoothly from a networking standpoint during my tests.
 
  I made a point to try out the Network Booster software found in the OMEN Command Center and didn’t see anything tremendously useful, unfortunately. I tried setting the priority of Steam to “Low” and downloading a game, but the game still downloaded at my maximum internet speed. I took it one step further and toggled the “Block” option for Steam, and tried to resume the download, but Steam kept on downloading at the maximum speed. The software was successful in blocking Chrome when that option was switched on, however.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Just enough options**
 
@@ -167,13 +164,6 @@ Lifewire / Jonno Hill
 
  The option to overclock your system has you first run a nondescript benchmark, which produces a score with no reference point (to establish a baseline). While it’s nice to have the option, this really,_sincerely_ isn’t a system you want to be overclocking. The i9-9900K CPU already runs alarmingly hot, even with its pre-installed water cooling solution. There also isn’t enough room for anything beyond a 120mm AIO watercooler, and not nearly enough clearance for a popular air heatsink like the Noctua NH-D15.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Highly competitive**
 
  The HP OMEN Obelisk with the same specs as this one can be found for around $2,000, at least when it’s in stock. Despite a lot of flaws that I can point to a nit-pick about, the price is one of the main reasons I still consider the OMEN to be a solid deal. I went through the trouble of parting out a similar build on PCPartPicker, going as far as to cut corners where I usually wouldn’t, and still arrived at just under $1800 before tax.
@@ -183,13 +173,6 @@ Lifewire / Jonno Hill
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/J3cZUfrEy-ALtFpRbDRhw7FZI8M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-4-f78d504d7bd348eca19b7e65b4d10289.jpg)
 
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **HP OMEN Obelisk vs Corsair One Pro**
 
@@ -237,18 +220,21 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-accelerate-your-facebook-video-journey-in-depth-app-and-extension-guide/"><u>[New] In 2024, Accelerate Your Facebook Video Journey In-Depth App & Extension Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-building-an-audience-on-ig-steps-to-reach-1k-in-one-month-for-2024/"><u>[Updated] Building an Audience on IG Steps to Reach 1K in One Month for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-podcast-perfection-elite-webcam-selection-guide-for-2024/"><u>[Updated] Podcast Perfection Elite Webcam Selection Guide for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/econosounds-experience-comprehensive-examination-of-oneplus-buds/"><u>EconoSounds Experience - Comprehensive Examination of OnePlus Buds</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-new-frontier-of-wellness-with-amazons-cutting-edge-halo-fitness-device/"><u>Exploring the New Frontier of Wellness with Amazon's Cutting-Edge Halo Fitness Device</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/finding-value-in-apples-flagship-tablets-the-ipad-air-vs-ipad-pro-examined/"><u>Finding Value in Apple's Flagship Tablets: The iPad Air Vs. IPad Pro Examined</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-speeding-up-youtube-quick-video-rendering-and-transfer-tips/"><u>In 2024, Speeding Up YouTube Quick Video Rendering & Transfer Tips</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-streamline-your-soundtrack-with-these-playlist-tips-for-youtube/"><u>In 2024, Streamline Your Soundtrack with These Playlist Tips for YouTube</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/innovative-home-security-reviewed-google-nest-hellos-features-explained-from-identifying-visitors-to-detecting-deliveries/"><u>Innovative Home Security Reviewed: Google Nest Hello’s Features Explained - From Identifying Visitors to Detecting Deliveries</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-syncing-hurdles-for-your-xbox-one-controller-a-comprehensive-guide/"><u>Overcoming Syncing Hurdles for Your Xbox One Controller - A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/synology-rt2600ac-wireless-router-reviewed-discovering-the-power-of-long-range-signals-and-comprehensive-parent-protection-options/"><u>Synology RT2600ac Wireless Router Reviewed: Discovering the Power of Long Range Signals & Comprehensive Parent Protection Options</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-steps-solving-among-us-pc-voice-chat-issues/"><u>Troubleshooting Steps: Solving 'Among Us' PC Voice Chat Issues</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-capabilities-of-the-garmin-gpsmap-64st-the-ultimate-portable-navigation-solution/"><u>Unveiling the Capabilities of the Garmin GPSMAP 64St: The Ultimate Portable Navigation Solution</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-integrating-slack-and-filmora-for-smooth-meeting-operations-for-2024/"><u>[New] Integrating Slack & Filmora for Smooth Meeting Operations for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-quick-guide-to-achieving-video-freeze-effects-on-snapchat/"><u>[New] Quick Guide to Achieving Video Freeze Effects on Snapchat</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snapstrategy-101-crafting-effective-ads-for-biz-for-2024/"><u>[New] SnapStrategy 101 Crafting Effective Ads for Biz for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-video-production-pro-tips-incorporating-audio-into-youtube-content/"><u>[New] Video Production Pro Tips Incorporating Audio Into YouTube Content</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-art-of-discrete-audio-erosion-in-audacity-for-2024/"><u>[Updated] The Art of Discrete Audio Erosion in Audacity for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-vivid-detail-with-insta360s-miniature-marvel-the-tinygo-3-unveiled-in-4k/"><u>Experience Vivid Detail with Insta360's Miniature Marvel: The TinyGo 3 Unveiled in 4K</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fmv-gaming-alive-explore-top-classic-and-modern-full-motion-video-titles/"><u>FMV Gaming Alive: Explore Top Classic & Modern Full Motion Video Titles!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/from-doubter-to-fan-the-youtube-music-attributes-that-convinced-me/"><u>From Doubter to Fan: The YouTube Music Attributes That Convinced Me!</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Oppo K11x | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-apple-id-verification-code-not-working-on-apple-iphone-x-by-drfone-ios/"><u>In 2024, How To Fix Apple ID Verification Code Not Working On Apple iPhone X</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-the-use-of-game-emulators-currently-lawful-anticipating-potential-legal-hurdles/"><u>Is the Use of Game Emulators Currently Lawful? Anticipating Potential Legal Hurdles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/laptop-enthusiasts-do-you-really-need-a-dedicated-gaming-laptop/"><u>Laptop Enthusiasts: Do You Really Need a Dedicated Gaming Laptop?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/leading-self-driving-car-makers-set-to-dominate-2024-market/"><u>Leading Self-Driving Car Makers Set to Dominate 2024 Market</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/long-lasting-joy-the-panic-playdate-remains-an-engaging-gadget-after-two-years/"><u>Long-Lasting Joy: The Panic Playdate Remains an Engaging Gadget After Two Years</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/my-journey-into-intensive-android-gaming-essential-knowledge-for-beginners-and-enthusiasts-alike/"><u>My Journey Into Intensive Android Gaming - Essential Knowledge for Beginners and Enthusiasts Alike.</u></a></li>
 </ul></div>
 

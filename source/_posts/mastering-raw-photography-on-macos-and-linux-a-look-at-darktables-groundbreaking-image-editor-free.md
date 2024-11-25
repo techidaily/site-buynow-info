@@ -1,7 +1,7 @@
 ---
 title: "Mastering Raw Photography on macOS & Linux: A Look at Darktable's Groundbreaking Image Editor (Free)"
-date: 2024-11-13T01:36:48.993Z
-updated: 2024-11-16T03:12:38.468Z
+date: 2024-11-20T12:20:19.922Z
+updated: 2024-11-24T19:53:56.503Z
 categories:
   - BestProducts
 description: "This Article Describes Mastering Raw Photography on macOS & Linux: A Look at Darktable's Groundbreaking Image Editor (Free)"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/d6abae0f7e3d8fb5f7c3d204845ee10283f20e49e
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## SunBriteTV Weatherproof Outdoor 55-Inch Veranda (2nd Gen)
 
@@ -40,16 +44,13 @@ Lifewire / Gannon Burgett
 
 3.5
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## SunBriteTV Weatherproof Outdoor 55-Inch Veranda (2nd Gen)
 
 ![SunBriteTV 55-Inch Veranda 4K TV](https://www.lifewire.com/thmb/srDs47vmZPXcVAqFGXrMcO_CJi8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SunBrite_55inch_OutdoorTV_2LW4154865_HERO_Square-c68f638988064b98b6d844f1c9b06c47.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -73,10 +74,7 @@ Lifewire / Gannon Burgett
  For this review, I put SunBrite’s 55-inch Veranda 4K TV to the test to see how well it would hold up to in the chilliest of environments. Over the course of 30 hours of on-and-off use throughout the month of January, I took notes of the TV’s strengths and weaknesses and have summarized my thoughts below.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Bulky, but durable**
@@ -92,6 +90,10 @@ Lifewire / Gannon Burgett
 ![SunBriteTV 55-Inch Veranda 4K TV](https://www.lifewire.com/thmb/rdbdKiGTwmhltgpXlFZprX8UxRo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SunBrite_55inch_OutdoorTV_2LW4154865_06_Horiz-077a34626106476491659d025e498885.jpg)
 
  Lifewire / Gannon Burgett
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Durability: Come hell or high water**
 
@@ -110,13 +112,6 @@ Lifewire / Gannon Burgett
  The good news is there are some smaller devices now that you could easily plug into the TV and house right inside the water-resistant compartment, such as a[Google Chromecast](https://www.lifewire.com/set-up-google-chromecast-5323335) or[Amazon Fire TV Stick](https://www.lifewire.com/amazon-fire-tv-4152887) . It’s worth noting that the all-metal frame the TV is housed in, definitely impacts the wireless range of such devices.
 
 ![SunBriteTV 55-Inch Veranda 4K TV](https://www.lifewire.com/thmb/OXDu2alZGi-BU3sWsISvhfwGSDo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SunBrite_55inch_OutdoorTV_2LW4154865_11_Horiz-b20abbf925284d3fb1936ceb762e3fe1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -139,10 +134,7 @@ Lifewire / Gannon Burgett
 ![SunBriteTV 55-Inch Veranda 4K TV](https://www.lifewire.com/thmb/gWc18UfkuRaLKxubOAFv0zceMlU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SunBrite_55inch_OutdoorTV_2LW4154865_17_Horiz-e1118b39b8ae43f5a135c249d3d6f741.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
@@ -198,18 +190,16 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-comprehensive-kinetic-study-2023/"><u>[New] Comprehensive Kinetic Study 2023</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-optimizing-board-use-on-zoom-desktopiosandroid-techniques/"><u>[Updated] In 2024, Optimizing Board Use on Zoom - Desktop/iOS/Android Techniques</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/all-about-the-fitbit-inspire-hr-an-ultimate-review-of-a-247-wearable-tracker-for-active-lifestyles/"><u>All About The Fitbit Inspire HR: An Ultimate Review of a 24/7 Wearable Tracker for Active Lifestyles</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/complete-ipad-showdown-which-one-wins/"><u>Complete iPad Showdown: Which One Wins?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-your-vivo-x100-pro-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Vivo X100 Pro Lock Screen Password</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-transfer-your-apple-iphone-11-pro-max-apps-to-new-iphone-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Transfer your Apple iPhone 11 Pro Max Apps to New iPhone | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unleashing-artful-expression-the-most-exceptional-9-sites-for-3d-graffiti-typefaces/"><u>In 2024, Unleashing Artful Expression The Most Exceptional 9 Sites for 3D Graffiti Typefaces</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722742047962-lands-on-mars-unleashes-gusty-winds-a-cosmic-twist-to-urban-development/"><u>Lands on Mars, Unleashes Gusty Winds - A Cosmic Twist to Urban Development!</u></a></li>
-<li><a href="https://howto.techidaily.com/reasons-for-asus-rog-phone-7-ultimate-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Asus ROG Phone 7 Ultimate Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/troubleshooting-steps-fix-connection-issues-with-quick-fix-popcorn-time/"><u>Troubleshooting Steps: Fix Connection Issues with Quick-Fix Popcorn Time</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/understanding-the-gradual-vs-the-monumental-in-code/"><u>Understanding the Gradual Vs. The Monumental in Code</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-lenovo-p1-1-pro-an-overall-satisfactory-device-with-a-few-downsides/"><u>Unveiling the Lenovo P1 1 Pro: An Overall Satisfactory Device with a Few Downsides</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-the-secret-to-engaging-lower-thirds-fcpx-best-practices-revealed/"><u>Updated The Secret to Engaging Lower Thirds FCPX Best Practices Revealed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-shadow-broadcasters-master-the-art-of-anonymous-livestreaming-on-instagram/"><u>[New] In 2024, Shadow Broadcasters Master the Art of Anonymous Livestreaming on Instagram</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-ensuring-security-in-converting-youtube-tracks-to-mp3-format/"><u>[Updated] 2024 Approved Ensuring Security in Converting YouTube Tracks to MP3 Format</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-elite-hd-recorder-series-with-top-performances/"><u>[Updated] In 2024, Elite HD Recorder Series with Top Performances</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/b550-xt-unveiled-speech-recognition-and-sound-isolation/"><u>B550-XT Unveiled: Speech Recognition & Sound Isolation</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-samsung-galaxy-m14-5g-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Samsung Galaxy M14 5G Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-the-hp-zbook-firefly-15-g8-revolutionizing-mobile-computing-mastery/"><u>Expert Review: The HP ZBook Firefly 15 G8 - Revolutionizing Mobile Computing Mastery</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-honor-x50i-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Honor X50i FRP Locks</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-navigating-kinemaster-wisely-skills-and-top-ranked-digital-counterparts/"><u>In 2024, Navigating KineMaster Wisely Skills and Top-Ranked Digital Counterparts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/next-level-gaming-experience-with-the-samsung-q60r-series-qled-4k-smart-tv-a-comprehensive-review/"><u>Next-Level Gaming Experience with the Samsung Q60R Series QLED 4K Smart TV - A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/optimizing-your-connectivity-inside-look-at-asus-ax6600-mesh-wi-fis-capabilities-and-efficiency/"><u>Optimizing Your Connectivity: Inside Look at Asus AX6600 Mesh Wi-Fi's Capabilities & Efficiency</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/wonder-workshops-dash-a-connected-interactive-toy-ready-to-roll-into-action/"><u>Wonder Workshop's Dash - A Connected, Interactive Toy Ready to Roll Into Action!</u></a></li>
 </ul></div>
 

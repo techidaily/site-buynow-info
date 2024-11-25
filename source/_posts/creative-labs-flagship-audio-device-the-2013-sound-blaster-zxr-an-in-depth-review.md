@@ -1,7 +1,7 @@
 ---
 title: "Creative Lab's Flagship Audio Device, the 2013 Sound Blaster ZXR: An In-Depth Review"
-date: 2024-11-14T02:06:45.722Z
-updated: 2024-11-16T03:00:10.706Z
+date: 2024-11-18T18:28:30.836Z
+updated: 2024-11-24T19:11:30.215Z
 categories:
   - BestProducts
 description: "This Article Describes Creative Lab's Flagship Audio Device, the 2013 Sound Blaster ZXR: An In-Depth Review"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/643f417ea21e236b7a77b1b03708fbc61c8fba5f4
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Creative Sound Blaster ZxR
 
@@ -48,6 +52,10 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Emily Ramirez
 
 [View On Amazon](https://www.amazon.com/dp/B009ISU33E?tag=lifewire-onsite-prod-20&ascsubtag=4769837%7Cnf4d47b24328e45aa9d01315a6a6b3e1211%7CB009ISU33E)
@@ -72,24 +80,25 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -104,20 +113,10 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
 
@@ -126,13 +125,6 @@ Lifewire / Emily Ramirez
  Should you happen to own dynamic headphones, you should find their impedance curve. Dynamic headphones with a high impedance may be distorted by the ACM, thanks to the ACM’s high resistance. How your headphones will be affected depends on their impedance curve: for the HD800s, for example, there is a peak at 100Hz (this range captures electric bass and the lower octaves of guitars), so the upper bass range is boosted relative to the other frequencies in the audio. Increasing the volume on the ACM reduces its output resistance and in turn reduces the distortion, but it may be easier to plug equipment directly into the sound card and use the system volume instead.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -144,16 +136,13 @@ Lifewire / Emily Ramirez
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
 
@@ -218,20 +207,18 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-exploring-10-innovative-affordable-video-call-apps-iosandroid/"><u>[New] 2024 Approved Exploring 10 Innovative, Affordable Video Call Apps - iOS/Android</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-comprehensive-durecorder-manual-review-for-2024/"><u>[New] Comprehensive DuRecorder Manual Review for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-small-scale-streaming-mastery-on-youtube-without-big-subscriber-base/"><u>[Updated] 2024 Approved Small-Scale Streaming Mastery on YouTube Without Big Subscriber Base</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-recording-techniques-for-stellar-voice-over-audio-for-2024/"><u>[Updated] Recording Techniques for Stellar Voice-Over Audio for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-pros-and-cons-of-the-economical-thermopro-tp67-our-comprehensive-review/"><u>Exploring the Pros and Cons of the Economical ThermoPro TP67 - Our Comprehensive Review</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/from-concept-to-reality-pinpointing-ais-milestone-beginnings/"><u>From Concept to Reality: Pinpointing AI's Milestone Beginnings</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/gaming-on-a-budget-or-for-hardcore-gamers-nintendos-lite-vs-oled-face-off-explained/"><u>Gaming on a Budget or for Hardcore Gamers? Nintendo's Lite Vs. OLED Face-Off Explained</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-to-find-your-ideal-tablet-a-comparison-of-sizes-and-weights-for-easy-carry/"><u>How to Find Your Ideal Tablet: A Comparison of Sizes & Weights for Easy Carry</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-asus-rog-phone-7-ultimate-pictures-an-easy-method-explained-by-fonelab-android-recover-pictures/"><u>How to Restore Deleted Asus ROG Phone 7 Ultimate Pictures An Easy Method Explained.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-spyro-reignited-trilogy-tiny-hero-huge-worth/"><u>In-Depth Analysis of Spyro Reignited Trilogy: Tiny Hero, Huge Worth</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/inspecting-5-essentials-before-a-speaker-purchase/"><u>Inspecting 5 Essentials Before a Speaker Purchase</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/instant-macboost-opt-for-ssd-upgrade-guide/"><u>Instant MacBoost: Opt for SSD Upgrade Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/lowest-cost-high-performance-a-complete-examination-of-the-vuebell-video-doorbell-range/"><u>Lowest Cost, High Performance: A Complete Examination of the VueBell Video Doorbell Range</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-5-solar-powered-outdoor-lights-expert-review-by-techradar/"><u>Top 5 Solar-Powered Outdoor Lights : Expert Review by TechRadar</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ling-the-top-7-android-apps-to-banish-ads-for-2024/"><u>Unveiling The Top 7 Android Apps to Banish Ads for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-clearer-visions-advanced-techniques-for-zooming-photos-and-videos/"><u>[Updated] Clearer Visions Advanced Techniques for Zooming Photos & Videos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-essential-tools-for-every-mac-user-free-screen-recorder-guide-for-2024/"><u>[Updated] Essential Tools for Every Mac User – Free Screen Recorder Guide for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-freebox-your-map-to-fantastic-costless-tiktok-bgs/"><u>2024 Approved FREEBOX Your Map to Fantastic, Costless TikTok BGs</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-gratis-business-presentation-boosting-plugins-and-templates/"><u>2024 Approved Gratis Business Presentation Boosting Plugins & Templates</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-nokia-c300-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Nokia C300 Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/find-your-perfect-cheap-mobile-plan-the-ultimate-guide-to-savings/"><u>Find Your Perfect Cheap Mobile Plan - The Ultimate Guide to Savings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/find-your-perfect-match-elite-selection-of-17-inch-laptops/"><u>Find Your Perfect Match: Elite Selection of 17-Inch Laptops</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/michael-kors-gen-5e-mkgo-accessory-line-a-fusion-of-elegance-and-practicality-in-depth-review/"><u>Michael Kors Gen 5E MKGO Accessory Line: A Fusion of Elegance and Practicality - In-Depth Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/redefining-desktop-computing-the-groundbreaking-impact-of-apples-m1-technology-in-the-latest-imac-an-expert-assessment/"><u>Redefining Desktop Computing: The Groundbreaking Impact of Apple's M1 Technology in the Latest iMac - An Expert Assessment</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/step-by-step-solution-to-restore-snipping-tool-functionality-on-windows-1011/"><u>Step-by-Step Solution to Restore Snipping Tool Functionality on Windows 10/11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-insight-on-iphone-13-expert-review-and-comparison/"><u>The Ultimate Insight on iPhone 13: Expert Review and Comparison</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/wise-choice-with-roku-immense-media-selection-matches-low-price-range/"><u>Wise Choice with Roku: Immense Media Selection Matches Low Price Range</u></a></li>
+<li><a href="https://some-tips.techidaily.com/your-comprehensive-guide-to-all-the-top-highlights-from-apples-worldwide-developers-conference-2024/"><u>Your Comprehensive Guide to All the Top Highlights From Apple's Worldwide Developers Conference 2024</u></a></li>
 </ul></div>
 

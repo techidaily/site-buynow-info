@@ -1,7 +1,7 @@
 ---
 title: "Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
-date: 2024-11-13T17:42:58.945Z
-updated: 2024-11-16T00:41:50.649Z
+date: 2024-11-19T21:09:24.254Z
+updated: 2024-11-25T04:44:10.069Z
 categories:
   - BestProducts
 description: "This Article Describes Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Paradox Interactive Surviving Mars
 
@@ -44,15 +48,16 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 3
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -81,13 +86,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
 
 ## **Performance: Humans have never been so annoying**
@@ -103,13 +101,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  In over twenty hours of gameplay, I learned the hard way that humans in this game are not only picky, but they demand the life of luxury the second they step off the rocket and into the dome. It didn’t matter that only twelve called a single dome home. It didn’t matter that there was barely enough of them to cover operating the grocery store and space bar. A lack of space for these amenities fell upon deaf ears. They wanted access to their art stores, electronics, and fine dining immediately. In that regard, I’m a little conflicted; as much as I wanted more shopping options for Mars, I realized not long after humans arrived that Haemimont Games, in reality, gave me a blessing by keeping a bland palate. Plus, more buildings and items become available as research, funding, and planetary discoveries allow.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -136,13 +127,14 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Other city-building games**
 
@@ -183,16 +175,20 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-link-zoom-calls-to-iphoneandroid-events-seamlessly/"><u>[New] 2024 Approved Link Zoom Calls to iPhone/Android Events Seamlessly</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-ultimate-list-of-safe-toy-drones/"><u>[New] The Ultimate List of Safe Toy Drones</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-file-sharing-solutions-beyond-sharex/"><u>[Updated] File Sharing Solutions Beyond ShareX</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/find-your-perfect-match-comparing-amazon-fire-and-samsung-tablets-for-you/"><u>Find Your Perfect Match: Comparing Amazon Fire and Samsung Tablets for You</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/get-more-for-less-the-lg-24lh4480s-blend-of-affordability-and-functionality/"><u>Get More for Less: The LG 24LH4480's Blend of Affordability and Functionality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/hear-the-future-with-sony-headsets/"><u>Hear the Future with Sony Headsets</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/high-speed-5g-connectivity-meets-long-lasting-power-in-the-motorola-one-5g-ace-reviewed/"><u>High-Speed 5G Connectivity Meets Long-Lasting Power in the Motorola One 5G Ace - Reviewed!</u></a></li>
-<li><a href="https://network-issues.techidaily.com/one-click-disable-graphics-drivers-on-windows-systems/"><u>One-Click Disable: Graphics Drivers on WIndows Systems</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/step-1-step-2-and-step-3-to-video-chatting-on-snapchat-now-for-2024/"><u>Step 1, Step 2, and Step 3 to Video Chatting on Snapchat Now for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/top-5-free-mp4-video-converters-and-downloads-easy-guide/"><u>Top 5 FREE MP4 Video Converters & Downloads - Easy Guide</u></a></li>
-<li><a href="https://win-answers.techidaily.com/update-windows-os/"><u>Update Windows OS</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-best-no-cost-screen-players/"><u>[New] Best No-Cost Screen Players</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-vimeo-vs-youtube-vs-dailymotion-which-platform-is-the-one/"><u>[New] Vimeo vs YouTube vs Dailymotion Which Platform Is the One?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-essential-tools-to-upgrade-your-tiktok-creations-top-10-free/"><u>[Updated] Essential Tools to Upgrade Your TikTok Creations (Top 10 Free)</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-from-setup-to-sharing-comprehensive-guide-for-instagram-and-obs-integration-for-2024/"><u>[Updated] From Setup to Sharing Comprehensive Guide for Instagram & OBS Integration for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-premium-android-listening-helpers/"><u>[Updated] Premium Android Listening Helpers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-the-google-pixelbook-go-stellar-execution-in-a-premiumly-priced-chromebook/"><u>Assessing the Google Pixelbook Go: Stellar Execution in a Premiumly Priced Chromebook</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/could-chatgpt-be-exploited-by-cybercriminals-in-the-process-of-developing-new-malware-strains/"><u>Could ChatGPT Be Exploited by Cybercriminals in the Process of Developing New Malware Strains?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-ultimate-6-spots-for-purchasing-high-quality-laptops/"><u>Discover the Ultimate 6 Spots for Purchasing High-Quality Laptops</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/marvels-new-hero-a-detailed-look-at-spider-man-miles-morales/"><u>Marvel's New Hero - A Detailed Look at Spider-Man: Miles Morales</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-macbook-pro-speed-adding-ssd-upgrades/"><u>Maximizing MacBook Pro Speed: Adding SSD Upgrades</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/style-meets-function-on-your-wrist-an-insightful-review-of-the-amazfit-gts-smartwatch/"><u>Style-Meets-Function on Your Wrist? An Insightful Review of the Amazfit GTS Smartwatch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-nokia-72-review-surpassing-its-peers-with-style-and-functionality/"><u>Unveiling the Nokia 7.2 Review: Surpassing Its Peers with Style and Functionality</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/why-cant-i-find-libxmllibxml2httpsenwikipediaorgwikilibxml-dll-solutions-inside/"><u>Why Can't I Find Libxml^[libxml2](https://en.wikipedia.org/wiki/LibXML) DLL? Solutions Inside</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/wii-u-triumph-explained-what-made-this-gaming-system-a-hit-among-gamers/"><u>Wii U Triumph Explained: What Made This Gaming System a Hit Among Gamers?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "B550-XT Explored: Commanding Control & Quiet Output"
-date: 2024-11-13T23:46:09.345Z
-updated: 2024-11-15T16:05:14.934Z
+date: 2024-11-20T16:37:14.701Z
+updated: 2024-11-24T23:26:10.814Z
 categories:
   - BestProducts
 description: "This Article Describes B550-XT Explored: Commanding Control & Quiet Output"
@@ -42,29 +42,9 @@ Lifewire / Jonno Hill
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## YONGNUO YN560 IV Wireless Flash Speedlite Master
 
 ![Yongnuo YN560 IV Wireless Flash Speedlite Master](https://www.lifewire.com/thmb/UOD6afkRh-xS-Dh1-iagOeoOSdY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_3LW4072366-Yongnuo-YN560-1-33b6547cc9014731ab6e144b0613aaef.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -100,6 +80,10 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Features & Functionality: Full suite manual control**
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master has a lot of different options that will make it an attractive option for manual shooters. But before we dive into all the things it does well, let’s talk about what you_won’t_ find in this flash. The most notable omission is TTL. For the uninitiated, Through The Lens (TTL) is a metering mode that lets a flash unit fire a series of infrared bursts and evaluates the actual light coming through the lens to determine how much power to deliver when taking a photo. It’s very handy to have for beginners and event photographers, but by no means essential for many other types of users.
@@ -120,19 +104,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup: A lot of reading before use**
 
  Once you unpack your flash and install the four AA batteries, you’re going to want to familiarize yourself with the buttons and menu system a little. The YN560 IV has a lot of functionality, but it doesn’t have the most intuitive interface. The front of the device contains a top row of four buttons (a Light/Music icon, Mode, a Wi-Fi icon, and Zoom). Below this is a charge indicator button marked “PILOT”, a direction pad, and an On/Off button.
@@ -148,10 +119,7 @@ Lifewire / Jonno Hill
  Overall, the YN560 IV gives you a lot of functionality and control, but definitely requires some reading and troubleshooting before you can master the device.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Significant savings for manual users**
@@ -159,6 +127,10 @@ Lifewire / Jonno Hill
  Buyers that need a lot of manual control for complex flash setups will be very pleased with what the get for the approximately $60 the YN560 IV costs. It sits at a price that’s a fraction of its TTL-enabled Canon and Nikon counterparts, but twice that of even simpler options. Do you need all the functionality that the YN560 IV offers? Are you willing to troubleshoot a bit with returns to make sure you get good, non-defective units? If the answer to those questions is yes, this is definitely the flash for you.
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Yongnuo YN560 IV Wireless Flash Speedlite Master vs Neewer TT560 Flash Speedlite**
 
@@ -174,11 +146,19 @@ Lifewire / Jonno Hill
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master may not be a very simple flash, but it packs enough functionality to make a very versatile platform for more aspirational photographers. Buyers that want full manual control and radio transmission without paying an arm and a leg will be more than pleased with what they get.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Canon Speedlite 430EX III-RT Flash](https://www.lifewire.com/canon-speedlite-430ex-iii-rt-flash-review-4686835)
 * [Nikon D3400](https://www.lifewire.com/nikon-d3400-review-4776644)
 * [Fovitec SPK10-037 Softbox Lighting Kit](https://www.lifewire.com/fovitec-spk10-037-softbox-lighting-kit-review-4692503)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -212,20 +192,21 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-revealing-the-best-free-screen-capture-tools-for-your-camera/"><u>[New] 2024 Approved Revealing the Best Free Screen Capture Tools for Your Camera</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-preserving-your-periscope-content-a-detailed-process/"><u>[Updated] Preserving Your Periscope Content A Detailed Process</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-captivating-images-mastering-the-art-of-motion-blur-in-ps/"><u>In 2024, Captivating Images Mastering the Art of Motion Blur in PS</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-google-pixel-8-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Google Pixel 8</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Motorola G24 Power? | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/pc-gaming-errors-solved-eliminate-final-fantasy-xv-crashes-with-these-expert-tips/"><u>PC Gaming Errors Solved: Eliminate Final Fantasy XV Crashes with These Expert Tips</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/perfecting-gameplay-with-steam-switch-pro-controller-for-2024/"><u>Perfecting Gameplay with Steam Switch Pro Controller for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sound-strategy-comparative-review-of-apples-airpods-and-samsungs-buds-pro/"><u>Sound Strategy: Comparative Review of Apple's Airpods and Samsung's Buds Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-verdict-on-lg-k92-to-skip-or-not-for-its-5g-feature-expert-analysis-inside/"><u>The Verdict on LG K92: To Skip or Not for Its 5G Feature – Expert Analysis Inside</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unihertz-atom-xl-evaluation-a-compact-sturdy-smartphone-with-mighty-performance/"><u>Unihertz Atom XL Evaluation: A Compact, Sturdy Smartphone with Mighty Performance</u></a></li>
-<li><a href="https://win-dash.techidaily.com/unleash-superior-gaming-audio-download-and-install-the-arctis-5-driver-package-from-steelseries/"><u>Unleash Superior Gaming Audio - Download and Install the Arctis 5 Driver Package From SteelSeries</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlocking-ultra-fast-connectivity-the-netgear-nighthawk-rax80-wi-fi-6-router-and-its-revolutionary-impact/"><u>Unlocking Ultra-Fast Connectivity: The Netgear Nighthawk RAX80 Wi-Fi 6 Router and Its Revolutionary Impact</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unsubscribe-from-hassle-eufy-t8200-review-reveals-premium-doorbell-security-without-monthly-fees/"><u>Unsubscribe From Hassle: Eufy T8200 Review Reveals Premium Doorbell Security Without Monthly Fees</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-of-imo-instant-messaging-a-detailed-assessment/"><u>Unveiling the Features of Imo Instant Messaging - A Detailed Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-latest-upgrades-on-dji-phantom-4-pro-v2-an-ultimate-review-for-drone-enthusiasts/"><u>Unveiling the Latest Upgrades on DJI Phantom 4 Pro V2: An Ultimate Review for Drone Enthusiasts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-expert-guide-to-crafting-immersive-experiences-through-instagram-vids-for-2024/"><u>[New] Expert Guide to Crafting Immersive Experiences Through Instagram Vids for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-simplifying-image-editing-with-picsarts-background-tool-for-2024/"><u>[Updated] Simplifying Image Editing with Picsart's Background Tool for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-ultimate-video-booster-guide-uncovering-the-top-20-tips/"><u>2024 Approved The Ultimate Video Booster Guide - Uncovering the Top 20 Tips</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-motorola-edge-2023-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Motorola Edge 2023 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/fix-sluggish-printers-fast/"><u>Fix Sluggish Printers Fast</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-network-locked-tecno-pop-8-phone-by-drfone-android/"><u>How to Unlock a Network Locked Tecno Pop 8 Phone?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/logitechs-affordable-prodigy-unveiling-the-capabilities-of-the-c615-webcam/"><u>Logitech's Affordable Prodigy? Unveiling the Capabilities of the C615 Webcam</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/make-the-most-of-your-tunes-top-5-tools-for-converting-spotify-to-youtube-playlists/"><u>Make the Most of Your Tunes Top 5 Tools for Converting Spotify to YouTube Playlists</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximize-your-signal-with-the-clearstream-eclipse-a-top-tier-performance-in-a-user-friendly-package/"><u>Maximize Your Signal With The ClearStream Eclipse: A Top-Tier Performance in a User-Friendly Package</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/raspberry-pi-400-examination-breaking-down-the-features-of-this-unique-keyboard-computer/"><u>Raspberry Pi 400 Examination: Breaking Down the Features of This Unique Keyboard Computer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviews-of-razers-gaming-accessory-unleashing-powerful-wi-fi-connectivity/"><u>Reviews of Razer's Gaming Accessory - Unleashing Powerful Wi-Fi Connectivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviving-standards-with-nulaxys-bluetooth-car-stereo-review-the-timelessly-effective-km18-model/"><u>Reviving Standards with Nulaxy's Bluetooth Car Stereo Review - The Timelessly Effective KM18 Model</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionary-graphics-with-touch-an-intricate-review-of-huions-kamvas-htc-paper-hdplus/"><u>Revolutionary Graphics with Touch: An Intricate Review of Huion's Kamvas HTC Paper HD+</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sandisk-clip-jam-mp3-player-review-small-great-bargain/"><u>SanDisk Clip Jam MP3 Player Review: Small, Great Bargain</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-no-audio-issues-on-your-apple-device/"><u>Troubleshooting No Audio Issues on Your Apple Device</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-tips-eliminate-stutter-and-cutouts-in-starfield-game-audio/"><u>Troubleshooting Tips: Eliminate Stutter and Cutouts in Starfield Game Audio</u></a></li>
 </ul></div>
 

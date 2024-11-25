@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Evaluation of the Portable Lenovo Ideapad ^320 - Featuring Lenovo’s Signature Keyboard Experience
-date: 2024-11-11T02:37:32.474Z
-updated: 2024-11-16T00:32:42.448Z
+date: 2024-11-18T05:04:37.800Z
+updated: 2024-11-25T06:32:07.518Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Evaluation of the Portable Lenovo Ideapad ^320 - Featuring Lenovo’s Signature Keyboard Experience
@@ -42,16 +42,13 @@ Lifewire / Todd Braylor
 
 3.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -74,6 +71,10 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -83,19 +84,6 @@ Lifewire / Todd Braylor
  The speaker on this radar detector is very small, about a quarter-inch square, but the audio alerts are high volume. You can select between standard and loud tones. The SmartCord power cable for the S55 has a handy mute button on it so you don't have to reach over the dash.
 
  Lifewire / Todd Braylor
-
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process: Easy installation**
 
@@ -110,10 +98,7 @@ Lifewire / Todd Braylor
  It reliably delivers on its promise of long-distance sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
@@ -125,16 +110,7 @@ Lifewire / Todd Braylor
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: You get what you pay for**
@@ -154,6 +130,10 @@ Lifewire / Todd Braylor
  **A basic radar detector that's ideal for beginners or anyone on a budget.**
 
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -184,17 +164,22 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-advanced-tips-for-capturing-iphone-7-content/"><u>[Updated] Advanced Tips for Capturing iPhone 7 Content</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-master-facebook-seo-essential-techniques-to-skyrocket-engagement/"><u>[Updated] Master Facebook SEO Essential Techniques to Skyrocket Engagement</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024top13-gopro-gopro/"><u>2024年度Top13 GoPro編輯器選擇 - 最佳Gopro剪接軟件推薦列表</u></a></li>
-<li><a href="https://fox-http.techidaily.com/selecting-the-ideal-vr-device-seeking-simplicity-with-wireless-or-precision-with-tethers-for-2024/"><u>Selecting the Ideal VR Device Seeking Simplicity with Wireless, Or Precision With Tethers for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/smooth-audio-transitions-2-methods-to-fade-in-and-out-in-fcp-for-2024/"><u>Smooth Audio Transitions 2 Methods to Fade In and Out in FCP for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/the-ultimate-guide-to-sj-cam-s6s-superiority/"><u>The Ultimate Guide to SJ-CAM S6's Superiority</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-4-methods-for-capturing-screen-images-on-windows-11/"><u>Top 4 Methods for Capturing Screen Images on Windows 11</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-tips-for-connecting-and-streaming-online-content-on-your-residential-movie-setup/"><u>Top Tips for Connecting and Streaming Online Content on Your Residential Movie Setup</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/transform-your-internet-experience-with-amplifi-hd-mesh-say-goodbye-to-weak-wi-fi-areas/"><u>Transform Your Internet Experience with Amplifi HD Mesh - Say Goodbye to Weak Wi-Fi Areas</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/travel-friendly-lenovo-ideapad-320-a-deep-dive-into-its-attractive-exterior-and-legendary-keyboard-complete-review/"><u>Travel-Friendly Lenovo Ideapad 320: A Deep Dive Into Its Attractive Exterior and Legendary Keyboard - Complete Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unleashing-potential-the-impact-of-ipados-on-the-latest-102-inch-7th-gen-ipad-reviewed-for-professionals/"><u>Unleashing Potential: The Impact of iPadOS on the Latest 10.2-Inch (7Th Gen) iPad Reviewed for Professionals</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unpacking-the-soundbot-sb210-top-notch-acoustics-and-reliability-explored-in-this-review/"><u>Unpacking the Soundbot SB210: Top-Notch Acoustics and Reliability Explored in This Review</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-dynamic-imagery-illustrator-motion-blur-techniques-for-2024/"><u>[New] Dynamic Imagery Illustrator Motion Blur Techniques for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-from-capture-to-share-proven-methods-for-live-360-video-on-youtube/"><u>[New] From Capture to Share Proven Methods for Live 360° Video on Youtube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-insiders-guide-to-instagram-photo-integrity-for-2024/"><u>[New] The Insider’s Guide to Instagram Photo Integrity for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-top-7-budget-pc-screenshot-and-recording-apps/"><u>[New] Top 7 Budget PC Screenshot & Recording Apps</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/common-in-prostate-cancer-osteoblastic-lesions-can-lead-to-osteosclerosis-and-structurally-unsound-bones/"><u>Common in Prostate Cancer, Osteoblastic Lesions Can Lead to Osteosclerosis and Structurally Unsound Bones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-cyberpunk-eon-2077-an-exploration-of-its-shortcomings-and-brilliance/"><u>Decoding Cyberpunk Eon 2077: An Exploration of Its Shortcomings and Brilliance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-ultimate-picks-6-prime-websites-for-buying-tvs/"><u>Discover The Ultimate Picks: 6 Prime Websites for Buying TVs</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877284-9781612834092-dreaming-on-both-sides-of-the-brain/"><u>Dreaming on Both Sides of the Brain | Free Book</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hp-stream-14-in-depth-review-navigating-the-trade-offs-of-an-affordable-windows-pc/"><u>HP Stream 14 In-Depth Review: Navigating the Trade-Offs of an Affordable Windows PC</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-your-vivo-y55s-5g-2023-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Vivo Y55s 5G (2023) Lock Screen Password</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Tecno Spark 20? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-vivo-s18-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Vivo S18 Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/marvels-spider-man-miles-morales-critique-a-compact-story-with-a-profound-effect/"><u>Marvel's Spider-Man: Miles Morales Critique - A Compact Story with a Profound Effect</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-logitech-c920-hd-webcam-unveiled-a-comprehensive-review-for-video-conferencing-excellence/"><u>The Logitech C920 HD Webcam Unveiled: A Comprehensive Review for Video Conferencing Excellence</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-mighty-giant-in-a-tiny-frame-an-expert-review-of-apples-iphone-12-mini/"><u>The Mighty Giant in a Tiny Frame: An Expert Review of Apple's iPhone 12 Mini</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-noco-genius-boost-pro-gadgets-a-detailed-look-into-the-cost-and-value-of-this-tech-marvel-281-characters/"><u>Unboxing NoCo Genius Boost Pro Gadgets - A Detailed Look Into the Cost and Value of This Tech Marvel 🎧(281 Characters)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-best-in-beanie-hats-a-comprehensive-test-drive-of-rotibox-bluetooth-audio-headwear/"><u>Unveiling the Best in Beanie Hats: A Comprehensive Test Drive of Rotibox Bluetooth Audio Headwear</u></a></li>
 </ul></div>
 

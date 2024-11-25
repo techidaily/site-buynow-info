@@ -1,7 +1,7 @@
 ---
 title: Logitech C615 Webcam Review
-date: 2024-11-09T03:06:06.367Z
-updated: 2024-11-15T22:13:11.051Z
+date: 2024-11-22T22:59:59.913Z
+updated: 2024-11-25T05:53:11.553Z
 categories:
   - BestProducts
 description: This Article Describes Logitech C615 Webcam Review
@@ -42,15 +42,16 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -74,13 +75,6 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -94,10 +88,7 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup: Easier than most**
@@ -109,16 +100,7 @@ Lifewire / Erika Rawes
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels**
@@ -144,6 +126,10 @@ Lifewire / Erika Rawes
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -188,22 +174,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/taying-within-the-limits-key-youtube-policies-for-2024/"><u>[New] Staying Within the Limits Key YouTube Policies for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-unmasking-phony-fans-in-social-media/"><u>[New] Unmasking Phony Fans in Social Media</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-perfectly-uploading-srt-files-a-comprehensively-reviewed-methodology/"><u>[Updated] In 2024, Perfectly Uploading SRT Files A Comprehensively Reviewed Methodology</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-a-comprehensive-guide-to-understanding-and-using-slug-lines/"><u>2024 Approved A Comprehensive Guide to Understanding and Using Slug Lines</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-acclaimed-pioneers-premier-instragram-highlight-makers/"><u>2024 Approved Acclaimed Pioneers Premier Instragram Highlight Makers</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/5pya5a6m576o6yg455so/"><u>最完美選用</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/approach-define-bisphosphonates-and-explain-their-mechanism-of-action-in-relation-to-bone-turnover/"><u>Approach: Define Bisphosphonates and Explain Their Mechanism of Action in Relation to Bone Turnover</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/best-top-5-featherweight-camcorders-for-adventures-for-2024/"><u>Best Top 5 Featherweight Camcorders for Adventures for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/budget-friendly-amazon-basics-6-sheet-crosscut-paper-shredder-evaluation/"><u>Budget-Friendly Amazon Basics 6-Sheet Crosscut Paper Shredder Evaluation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-escort-max/"><u>Comprehensive Escort Max</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-samsungs-top-tier-tablet-the-galaxy-tab-s7plus-reviewed/"><u>Comprehensive Guide to Samsung's Top-Tier Tablet: The Galaxy Tab S7+ Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/environmental-impact/"><u>Environmental Impact</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exclusive-headphone-range-best-sounds-for-screen-viewing/"><u>Exclusive Headphone Range: Best Sounds for Screen Viewing</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-why-the-2018-apple-ipad-pro-11-inch-version-continues-to-lead-in-performance-and-quality/"><u>Experience Why the 2018 Apple iPad Pro (11-Inch Version) Continues to Lead in Performance and Quality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-how-nintendos-wii-u-became-an-iconic-gaming-console/"><u>Exploring How Nintendo's Wii U Became an Iconic Gaming Console</u></a></li>
-<li><a href="https://common-error.techidaily.com/get-help-with-file-explorer-in-windows-11-easily/"><u>Get Help with File Explorer in Windows 11, Easily!</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-touch-screen-on-vivo-y78t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Vivo Y78t | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-25-top-rated-gratis-online-photography-tools/"><u>[New] 25 Top-Rated, Gratis Online Photography Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-transform-your-photos-with-simple-grading-techniques-for-2024/"><u>[New] Transform Your Photos with Simple Grading Techniques for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-grasping-the-basics-of-av1-compression/"><u>[Updated] In 2024, Grasping the Basics of AV1 Compression</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/advanced-tips-for-minecraft-gaming-streams/"><u>Advanced Tips for Minecraft Gaming Streams</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-luxury-at-its-finest-with-the-fossil-brands-timepieces/"><u>AFFORDABLE Luxury at Its Finest with the Fossil Brand's Timepieces</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-macbook-pro-13-inch-m1-2020-review/"><u>Apple MacBook Pro 13-Inch (M1, 2020) Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-huion-inspiroy-g10t-art-pen-display-evaluation-exceptional-craftsmanship-and-superior-function/"><u>Comprehensive Huion Inspiroy G10T Art Pen Display Evaluation: Exceptional Craftsmanship & Superior Function</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-vivo-y56-5g-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Vivo Y56 5G</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-overcome-boredom-these-10-top-video-games-will-keep-your-mind-engaged/"><u>How to Overcome Boredom? These 10 Top Video Games Will Keep Your Mind Engaged</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-poco-c55-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Poco C55 | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/in-depth-tutorial-tweaking-3d-configuration-via-nvidia-control-panel/"><u>In-Depth Tutorial: Tweaking 3D Configuration via NVIDIA Control Panel</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-radar-protection-with-escort-max-360-an-expert-review-of-cutting-edge-gps-features-and-capabilities/"><u>Innovative Radar Protection with Escort Max 360: An Expert Review of Cutting-Edge GPS Features and Capabilities</u></a></li>
+<li><a href="https://extra-support.techidaily.com/integrated-dynamic-movement-analysis-for-2024/"><u>Integrated Dynamic Movement Analysis for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2212458-9780007536856-leo-2014-your-personal-horoscope/"><u>Leo 2014: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/w15a-photo-display-marvels-and-minor-mishaps/"><u>W15A Photo Display: Marvels & Minor Mishaps</u></a></li>
 </ul></div>
 

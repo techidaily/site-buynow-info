@@ -1,7 +1,7 @@
 ---
 title: "The All-New Dell XPS 13 (7390): A Flexible, Elegant Ultrabook That Redefines Portability"
-date: 2024-11-10T18:11:11.900Z
-updated: 2024-11-15T21:38:24.648Z
+date: 2024-11-18T23:40:14.180Z
+updated: 2024-11-25T00:10:07.318Z
 categories:
   - BestProducts
 description: "This Article Describes The All-New Dell XPS 13 (7390): A Flexible, Elegant Ultrabook That Redefines Portability"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/0b724e890933179083e665890982beb41082b155e
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
@@ -42,15 +46,16 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
@@ -98,10 +103,7 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: T-minus one minute**
@@ -109,19 +111,6 @@ Lifewire / Jeffrey Daniel Chadwick
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
 
  Lifewire / Jeffrey Daniel Chadwick
-
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
 
@@ -143,6 +132,10 @@ Lifewire / Jeffrey Daniel Chadwick
 
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
@@ -160,13 +153,6 @@ Lifewire / Jeffrey Daniel Chadwick
  **A portable tire inflator that can work well in a car or at home.**
 
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -193,22 +179,24 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-navigate-your-gaming-world-with-steams-switch-controller/"><u>[New] In 2024, Navigate Your Gaming World with Steam's Switch Controller</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-10-must-know-iphone-x-tricks-to-enhance-usage/"><u>[Updated] 2024 Approved 10 Must-Know iPhone X Tricks to Enhance Usage</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-best-5-book-video-promotions-ever-made/"><u>[Updated] 2024 Approved The Best 5 Book Video Promotions Ever Made</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-cutting-edge-techniques-for-setting-the-optimal-size-of-your-youtube-videos/"><u>[Updated] In 2024, Cutting-Edge Techniques for Setting the Optimal Size of Your YouTube Videos</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/dive-into-high-definition-fb-streaming-in-1080p-for-2024/"><u>Dive Into High Definition FB Streaming in 1080P for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-seamless-transition-turning-srt-into-sub/"><u>In 2024, Seamless Transition Turning SRT Into SUB</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/meme-mayhem-top-twenty-from-reddit-and-twitter-for-2024/"><u>Meme Mayhem Top Twenty From Reddit & Twitter for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-the-market-top-spots-for-purchasing-premium-phones-with-confidence/"><u>Navigating the Market: Top Spots for Purchasing Premium Phones with Confidence</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/owc-mercury-pro-ssd-breakdown-leading-the-pack-with-superior-quality/"><u>OWC Mercury Pro SSD Breakdown: Leading the Pack with Superior Quality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/quality-meets-cost-effectiveness-the-ultimate-guide-to-choosing-fellowes-microban-wired-keyboard-for-your-needs/"><u>Quality Meets Cost-Effectiveness: The Ultimate Guide to Choosing Fellowes' Microban Wired Keyboard for Your Needs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revealing-the-unique-charm-of-brand-less-audio-devices/"><u>Revealing the Unique Charm of Brand-Less Audio Devices</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/screen-savvy-taking-screenshots-on-windows-for-2024/"><u>Screen Savvy Taking Screenshots on Windows for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tech-savvy-or-tech-stylish-a-deep-dive-into-the-features-and-performance-of-the-tcl-32s325-2019-with-built-in-roku-smart-technology/"><u>Tech Savvy or Tech Stylish? A Deep Dive Into the Features and Performance of The TCL 32S325 (2019) with Built-In Roku Smart Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-battle-of-tech-titans-analyzing-ipad-pro-against-macbook-pro/"><u>The Battle of Tech Titans: Analyzing iPad Pro Against MacBook Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-blend-of-chic-and-functionality-in-nixplay-iris/"><u>The Ultimate Blend of Chic and Functionality in Nixplay Iris</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-uniden-r3-robust-build-and-exceptional-long-range-performance/"><u>The Ultimate Verdict on Uniden R3: Robust Build & Exceptional Long Range Performance</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ultimate-guide-to-choosing-your-perfect-airtag-wallet-in-202e-expert-opinions-and-ratings/"><u>Ultimate Guide to Choosing Your Perfect AirTag Wallet in 202E: Expert Opinions & Ratings</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-sound-capture-gadget-testing/"><u>[New] 2024 Approved Sound Capture Gadget Testing</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-connectedviewing-premium-streaming-plus-local-channels-synergy/"><u>[New] ConnectedViewing Premium Streaming + Local Channels Synergy</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-verifying-online-self-portraits-on-insta/"><u>[New] In 2024, Verifying Online Self-Portraits on Insta</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-cant-see-only-cursor-a6400-issue/"><u>2024 Approved Can't See, Only Cursor! - A6400 Issue</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/dont-miss-out-secure-your-meta-quest-3-for-a-bargain-at-prime-day-prices-insider-info-inside-zdnet/"><u>Don’t Miss Out! Secure Your Meta Quest 3 for a Bargain at Prime Day Prices, Insider Info Inside | ZDNET</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/full-rotational-scope-vr-device-insight-for-2024/"><u>Full Rotational Scope VR Device Insight for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-fix-the-microsoft-store-error-0x800704cf-in-windows-10-and-11/"><u>How to Fix the Microsoft Store Error 0X800704CF in Windows 10 & 11</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-monitoring-and-alerts/"><u>In 2024, Monitoring and Alerts</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Lava Yuva 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/outstanding-beginners-guide-unpacking-the-amazfit-bip-smartwatch/"><u>Outstanding Beginner's Guide: Unpacking the Amazfit Bip Smartwatch</u></a></li>
+<li><a href="https://common-error.techidaily.com/restore-netflix-sound-effective-methods-for-immediate-results/"><u>Restore Netflix Sound: Effective Methods for Immediate Results</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-inexpensive-ssl-certificate-providers/"><u>Review of Inexpensive SSL Certificate Providers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sony-wh-1000xm4-headphones-reviewed-industry-pioneers/"><u>Sony WH-1000XM4 Headphones Reviewed - Industry Pioneers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/test-ride-the-simple-and-accessible-sidecar-electric-bike-by-mod/"><u>Test Ride the Simple and Accessible Sidecar Electric Bike by Mod</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-lightest-laptop-with-muscle-a-thorough-examination-of-the-lg-gram-17-model/"><u>The Lightest Laptop with Muscle - A Thorough Examination of the LG Gram 17 Model</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-lenovo-yoga-a940-review-pros-and-cons/"><u>The Ultimate Guide to Lenovo Yoga A940 - Review, Pros & Cons</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-streaming-device-faceoff-chromecast-with-google-tv-versus-amazon-firetv/"><u>The Ultimate Streaming Device Faceoff: Chromecast with Google TV Versus Amazon FireTV</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-home-theater-computers-the-ultimate-guide-to-2024-models/"><u>Top Rated Home Theater Computers: The Ultimate Guide to 2024 Models</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-key-trackers/"><u>Top Rated Key Trackers</u></a></li>
 </ul></div>
 

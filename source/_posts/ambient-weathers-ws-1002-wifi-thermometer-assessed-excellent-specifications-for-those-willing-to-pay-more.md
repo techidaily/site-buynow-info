@@ -1,7 +1,7 @@
 ---
 title: Ambient Weather's WS-1002 WiFi Thermometer Assessed – Excellent Specifications for Those Willing to Pay More
-date: 2024-08-30T14:21:29.575Z
-updated: 2024-08-31T14:21:29.575Z
+date: 2024-11-21T02:14:15.527Z
+updated: 2024-11-24T20:55:41.265Z
 categories:
   - BestProducts
 description: This Article Describes Ambient Weather's WS-1002 WiFi Thermometer Assessed – Excellent Specifications for Those Willing to Pay More
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/_l5BbUURYoQnwwhE4_8736v4eQ4=/400x300/fi
 ## Ensure the Document Remains Informative and Comprehensive After Simplification, Using No More than Two Sentences for Analogies
 
 4.3
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## ClearStream 2V Indoor/Outdoor HDTV Antenna
 
@@ -36,6 +40,10 @@ Lifewire / Jonno Hill
 [View On Amazon $88](https://www.amazon.com/dp/B007RH5GZI/?tag=lifewire-onsite-prod-20&ascsubtag=4843109%7Cn245c3b842cae4efcb285c88c84d3394016%7CB007RH5GZI) [View On Walmart $88](https://www.walmart.com/ip/30312147) [View On Tractor Supply Co. $108](https://www.tractorsupply.com/tsc/product/antennas-direct-clearstream-2v-uhf-vhf-indoor-outdoor-dtv-antenna-with-mount-adic2vcjm?slfpid=3)
 
 4.3
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## ClearStream 2V Indoor/Outdoor HDTV Antenna
 
@@ -68,9 +76,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Glimpsing an ugly future**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna looks something like what I would imagine a space prison to look like. It’s far larger than any of the other antennas that I tested, and during every step of the assembly I kept thinking to myself “well that part can’t possibly be necessary.” From the comically long antennas and giant metal grate, to the bulbous hollowed out spheres, there is a lot going on here.
@@ -79,9 +84,6 @@ Lifewire / Jonno Hill
 
  As you’ll see later though, this is because the ClearStream 2V Indoor/Outdoor HDTV Antenna doesn’t really care about looks. Everything is 100% about function. There are, however, a few little elements from a design perspective that help make the ClearStream a somewhat thoughtful device nonetheless. Once assembled, all the parts fit together nicely like a lego set.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup: Buckle up**
 
  Setup of the ClearStream 2V Indoor/Outdoor HDTV Antenna has by far the most complicated setup of the antennas that I tested in our roundup. The instructions that come included have illustrations that show how everything fits together, but it isn’t outlined in the simplest manner possible.
@@ -90,9 +92,6 @@ Lifewire / Jonno Hill
 
  Once the entire device is assembled, the real work begins in my opinion. Now you have to figure out how and where to mount this beast of an antenna. Antenna’s Direct has you covered here, including a hefty bracket and swiveling mast that will help you mount the antenna to just about anywhere with a flat surface that you don’t mind screwing some bolts into.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Top tier**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna might be an unsightly space jail, but it sure gets good reception. I tested the antenna indoors along with the rest of the suite of indoor antennas, and in the same orientation. Perhaps it would have benefited from being placed outside, but in the interest of fairness I used the same method for all.
@@ -101,9 +100,6 @@ Lifewire / Jonno Hill
 
  In my channel acquisition test, the ClearStream managed 76 channels consistently, far and away the best result from any of the devices I tested. The worst antenna I tested picked up just 47 channels, and the second best, 69\. Needless to say, all the wires, cages, and bulbous plastic spheres are clearly doing something here, because this was the best result I saw.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Range: Extensive**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna is rated for up to 60 miles. These ratings are generally based on relatively unobstructed paths between the signal and your device. There is a lot less than 60 miles between me and my local TV broadcast source, but if the other results are any indication, the ClearStream has a fighting chance at living up to these claims.
@@ -111,13 +107,15 @@ Lifewire / Jonno Hill
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/NoQoQy3-EFUpi1z9oMTpD2JGWHQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_04-70f5a48ac9a347d286c71240b85cbc1c.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Performance doesn’t come cheap**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna has a list price of $120 and a 90-day rolling average price on Amazon of $83\. This is significantly more than any of the other antennas I tested, some of which could be had for around $25\. If you live far enough that you need a better performing antenna, however, it could easily be worth every penny. I would only caution buyers to make sure they really do need this performance before pulling the trigger on this very large antenna.
@@ -133,6 +131,10 @@ Lifewire / Jonno Hill
 **Great performance for those that need it.**
  The ClearStream 2V Indoor/Outdoor HDTV Antenna isn’t the cheapest or best-looking antenna on the market, but it gets the job done better than any of the other antennas we tested. Buyers who know they need an antenna with better range and performance will find this to be a noticeable bump from cheaper indoor antennas.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  2V Indoor/Outdoor HDTV Antenna
@@ -144,14 +146,11 @@ Lifewire / Jonno Hill
 * Range  60 miles
 * Warranty  Lifetime parts
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -160,4 +159,19 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-foundations-in-creating-animated-imagery-for-2024/"><u>[New] Foundations in Creating Animated Imagery for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-ultimate-guide-to-learning-top-15-sci-yt-channels/"><u>[Updated] 2024 Approved The Ultimate Guide to Learning Top 15 Sci-YT Channels</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-unleashing-humor-the-kapwing-meme-builder-way/"><u>[Updated] Unleashing Humor The Kapwing Meme Builder Way</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/6-proven-ways-to-unlock-gionee-f3-pro-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Gionee F3 Pro Phone When You Forget the Password</u></a></li>
+<li><a href="https://techidaily.com/optimized-with-cookiebot-technology-elevate-user-engagement-and-conversion-rates/"><u>Optimized with Cookiebot Technology: Elevate User Engagement & Conversion Rates</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/steam-playback-perfection-in-video-games-for-2024/"><u>Steam Playback Perfection in Video Games for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/supercharge-youtube-traffic-with-key-hash-tags-for-2024/"><u>Supercharge YouTube Traffic with Key Hash Tags for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-secret-to-happy-journeys-finding-laughter-and-glee-in-pokemon-shining-pearl/"><u>The Secret to Happy Journeys: Finding Laughter and Glee in Pokémon Shining Pearl</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-understanding-the-incredible-performance-features-in-the-new-dell-xps-13-convertible-laptop/"><u>The Ultimate Guide to Understanding the Incredible Performance Features in the New Dell XPS 13 Convertible Laptop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-the-new-samsung-galaxy-tab-s6-discovering-its-innovative-features-and-dex-functionality/"><u>The Ultimate Review of the New Samsung Galaxy Tab S6 - Discovering Its Innovative Features and DeX Functionality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/thermopro-tp67-examination-low-price-comes-with-high-unreliability-risks/"><u>ThermoPro TP67 Examination: Low Price Comes with High Unreliability Risks</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1726223597128-mp4-3gpp-movavi/"><u>무료 MP4 풍부한 3GPP 구성원에 대한 인터넷 기술의 유용한 방법 - Movavi</u></a></li>
+</ul></div>
 

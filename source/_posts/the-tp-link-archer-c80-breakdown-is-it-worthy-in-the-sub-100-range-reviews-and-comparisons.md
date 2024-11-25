@@ -1,7 +1,7 @@
 ---
 title: "The TP-Link Archer C80 Breakdown: Is It Worthy in the Sub-$100 Range? - Reviews & Comparisons"
-date: 2024-11-11T19:42:17.897Z
-updated: 2024-11-15T22:46:46.049Z
+date: 2024-11-23T12:13:30.543Z
+updated: 2024-11-25T05:24:04.865Z
 categories:
   - BestProducts
 description: "This Article Describes The TP-Link Archer C80 Breakdown: Is It Worthy in the Sub-$100 Range? - Reviews & Comparisons"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/ba04435a9c29d64e6b54466059bc1d63c6b55c0d2
 ## Microsoft Xbox Series S
 
 ![Xbox Series S](https://www.lifewire.com/thmb/AIM68phvq5X0vRf1yv3G8I9S2ic=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -45,6 +49,10 @@ Lifewire / Jeremy Laukkonen
 [View On Amazon $276](https://www.amazon.com/dp/B08G9J44ZN?tag=lifewire-onsite-prod-20&ascsubtag=5085770%7Cn852b6f87dac743c99d9ca07d1832825a20%7CB08G9J44ZN) [View On Walmart $285](https://www.walmart.com/ip/606518560) [View On Best Buy $300](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fmicrosoft-xbox-series-s-512-gb-all-digital-console-disc-free-gaming-white%2F6430277.p%3FskuId%3D6430277)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Microsoft Xbox Series S
 
@@ -75,13 +83,6 @@ Lifewire / Jeremy Laukkonen
 
  This console is remarkably compact and has a surprisingly low price point. Gamers looking for a[4K UHD in HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) experience will need to pay a premium for the Series X, but the Xbox Series S offers an enticing alternative if you’re looking to save some money or haven’t yet made the jump to 4K.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Sleek and compact**
 
  The Xbox Series S is small, and it's almost impossible to oversell that point. I had seen pictures and videos of the console and the spec sheet, but I was still surprised at how compact this thing was when I unboxed it. It's smaller than the Xbox One S, and Microsoft bills it as "our smallest Xbox ever." That's especially noteworthy since Microsoft and Sony went exceptionally big with their flagship consoles, the Series X and PlayStation 5.
@@ -89,10 +90,7 @@ Lifewire / Jeremy Laukkonen
 ![Xbox Series S](https://www.lifewire.com/thmb/3-mUIkkRYilM5F2tvCYMPXtW1Ew=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1-04d996bcdfbb489d84e8945e4c475713.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
@@ -102,10 +100,7 @@ Lifewire / Jeremy Laukkonen
  Aside from the bold vent grill, the Series S doesn’t break any new ground regarding design choices. It has sturdy rubber feet on two sides, so you can lay it flat or stand it up on end, as has become more or less standard with home consoles. It feels pretty sturdy in both positions.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easier than ever before**
@@ -140,13 +135,6 @@ Lifewire / Jeremy Laukkonen
 
  Load times were negligible in each game I played, which I expected from a super-fast NVME SSD storage system. Some games had more noticeable load times than others, but not enough to disrupt gameplay.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Games: Microsoft still has an exclusivity problem**
 
  You won't have any shortage of games to play on the Xbox Series S, especially if you're a[Game Pass](https://www.lifewire.com/xbox-game-pass-4178809) subscriber. I predicted that the Series S would be the ultimate Game Pass machine at release, and that prediction has borne fruit in my home, at least.
@@ -162,6 +150,10 @@ Lifewire / Jeremy Laukkonen
  Other consoles, like the PlayStation 5 and Nintendo Switch, have games you can't get anywhere else, while the Xbox Series X|S has timed exclusives and console exclusives. That isn't a knock against Microsoft, as the availability of Xbox exclusives on the PC is fantastic for computer gamers. Still, it does put Xbox consoles in a tough spot compared to consoles from other manufacturers.
 
  Microsoft's $7.5B purchase of Bethesda's parent company, Zenimax, brought some hope of additional exclusives appearing in Microsoft's arsenal. (Bethesda is the publisher of Fallout, DOOM, Dishonored, Skyrim, Wolfenstein, The Elder Scrolls, and more.) However, the situation is murky as the company has yet to clarify which (if any) Bethesda titles will be exclusive to Xbox.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Storage: Disappointingly shallow, so bring your USB drive**
 
@@ -190,6 +182,10 @@ Lifewire / Jeremy Laukkonen
  When connected via Ethernet, the Series S reported 880Mbps down and 65Mbps up on the network status screen. That’s right on the money in terms of what I see directly at my Eero router. Actual download speeds topped out at 500Mbps and typically hung out between 270 and 320Mbps.
 
  The bottom line is that the Series S provided fairly unimpressive download speeds over Wi-Fi but tore it up when connected via Ethernet. You’ll want to connect this all-digital console via Ethernet to a fast internet connection.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software and User Interface: Familiar and cozy**
 
@@ -225,13 +221,6 @@ Lifewire / Jeremy Laukkonen
 
  One expense you may need to budget is a high-speed USB 3.1 drive. The console is perfectly usable without an external drive, but expect to uninstall games regularly to make more space if you limit yourself to the onboard storage.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Xbox Series S vs. PS5 Digital**
 
  This comparison is a bit of an unfair fight because Microsoft and Sony took entirely different approaches when designing their lower-priced console options. Microsoft cut back on hardware to offer an incredibly low price point, while Sony removed the optical drive. The result is that the PS5 Digital blows the Xbox Series S out of the water in terms of graphics and performance, but they aren’t even in the same time zone in terms of price.
@@ -247,10 +236,7 @@ Lifewire / Jeremy Laukkonen
  The Xbox Series S might be a bit of a step back from the Xbox One X in performance, but the fact is that it’s a next-gen console that plays next-gen games with some impressive hardware and an unreal price tag. Gamers in search of the best graphics possible will want to look at the Xbox Series X instead, but gamers who haven’t yet made the 4K plunge, parents in need of an affordable console for their kids, or anyone looking to save money will all find something to like here.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -295,16 +281,22 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-marketing-mastery-discerning-real-engagement-from-skewed-statistics/"><u>[New] 2024 Approved Marketing Mastery Discerning Real Engagement From Skewed Statistics</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-tailoring-your-content-youtube-video-length-reduction-guide/"><u>[Updated] 2024 Approved Tailoring Your Content YouTube Video Length Reduction Guide</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-tips-for-effective-mov-file-saving-on-windows-11/"><u>[Updated] 2024 Approved Tips for Effective MOV File Saving on Windows 11</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-compendium-of-top-rated-instagram-analytics-applications-for-2024/"><u>[Updated] The Ultimate Compendium of Top-Rated Instagram Analytics Applications for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/latest-hp-laserjet-p3amodel-p3015-driver-software-for-windows-operating-system/"><u>Latest HP LaserJet P3amodel P3015 Driver Software for Windows Operating System</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/resolve-instagrams-video-problems-swiftly/"><u>Resolve Instagram's Video Problems Swiftly</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-poweradd-pilot-pro2-unveiled-innovative-solutions-for-powering-your-tech-expert-insight/"><u>The POWERADD Pilot Pro2 Unveiled: Innovative Solutions for Powering Your Tech - Expert Insight</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-a-value-packed-ergonomic-microsoft-sculpt-keyboard/"><u>The Ultimate Guide to Choosing a Value-Packed, Ergonomic Microsoft Sculpt Keyboard</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-oneplus-nord-n10-5g-expert-insights/"><u>The Ultimate Verdict on OnePlus Nord N10 5G – Expert Insights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-virtual-frontier-a-complete-breakdown-of-star-wars-squadrons-immersive-space-battles/"><u>The Virtual Frontier: A Complete Breakdown of Star Wars: Squadrons Immersive Space Battles</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/theta-sc2-revealed-a-small-package-big-imagination/"><u>Theta SC2 Revealed: A Small Package, Big Imagination</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-gopro-guide-achieving-excellent-underwater-cinematography-for-2024/"><u>[New] GoPro Guide Achieving Excellent Underwater Cinematography for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-mastering-video-editing-on-a-budget-with-free-fcp/"><u>[New] In 2024, Mastering Video Editing on a Budget with Free FCP</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-pioneering-techniques-in-documentary-scripting/"><u>[New] Pioneering Techniques in Documentary Scripting</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-props-to-the-best-android-tools-for-playstation-2-experience-for-2024/"><u>[Updated] Props to the Best Android Tools for PlayStation 2 Experience for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-nokia-150-2023-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Nokia 150 (2023) | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/ogmmpeg-movavi/"><u>無成本在網路上OGM到MPEG轉換 - 使用Movavi的方法</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-halo-review-the-unorthodox-and-thoroughly-detailed-wellness-monitor/"><u>Amazon Halo Review: The Unorthodox and Thoroughly Detailed Wellness Monitor</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dash-and-go-robotics-the-ultimate-review-of-the-wonderful-innovative-dash-playset/"><u>Dash & Go Robotics – The Ultimate Review of the Wonderful, Innovative Dash Playset</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-samsung-galaxy-s20-fe-with-5g-why-its-a-top-choice-for-tech-enthusiasts/"><u>Expert Analysis of the Samsung Galaxy S20 FE with 5G - Why It's a Top Choice for Tech Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-microsoft-surface-go-a-budget-friendly-tablet-struggling-with-its-purpose/"><u>Exploring the Microsoft Surface Go: A Budget-Friendly Tablet Struggling with Its Purpose</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-up-close-with-the-new-apple-iphone-15-pro-a-hands-on-review/"><u>Get Up Close with the New Apple iPhone 15 Pro: A Hands-On Review</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-realme-12plus-5g-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Realme 12+ 5G</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/mastery-in-converting-classic-vhs-into-high-quality-pictures-for-2024/"><u>Mastery in Converting Classic VHS Into High-Quality Pictures for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nulaxy-km18-fm-transmitter-user-guide-insights-on-a-dependable-classic-model/"><u>Nulaxy KM18 FM Transmitter User Guide: Insights on a Dependable Classic Model</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-lenovos-budget-friendly-tab-m10-hd-your-ideal-companion-for-web-surfing-and-online-entertainment/"><u>Review of Lenovo's Budget-Friendly Tab M10 HD: Your Ideal Companion for Web Surfing and Online Entertainment</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/top-10-filmora-editing-traits-for-fan-loyalty/"><u>Top 10 Filmora Editing Traits for Fan Loyalty</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-the-secrets-of-the-budget-friendly-lg-um7300-your-49-inch-4k-tv-analysis/"><u>Unlocking the Secrets of the Budget-Friendly LG UM7300: Your 49 Inch 4K TV Analysis</u></a></li>
 </ul></div>
 

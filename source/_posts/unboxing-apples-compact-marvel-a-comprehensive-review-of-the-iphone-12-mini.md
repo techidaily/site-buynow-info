@@ -1,7 +1,7 @@
 ---
 title: Unboxing Apple's Compact Marvel - A Comprehensive Review of the iPhone 12 Mini
-date: 2024-11-12T18:36:47.131Z
-updated: 2024-11-15T21:41:48.464Z
+date: 2024-11-18T20:25:04.172Z
+updated: 2024-11-25T11:14:51.154Z
 categories:
   - BestProducts
 description: This Article Describes Unboxing Apple's Compact Marvel - A Comprehensive Review of the iPhone 12 Mini
@@ -21,6 +21,10 @@ thumbnail: https://www.lifewire.com/thmb/RRm7SO68Yut-wFBusZ-z3LplvZA=/400x300/fi
 ## Apple iMac 21.5-inch 4K
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/dIY3bLJSRioBJmHFFCGQjcgcxbU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4045927-1-625cb1ba7a894cc38db8565dd81072b3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -72,10 +76,7 @@ Lifewire / Gannon Burgett
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/TCcSm-nkER9HhHM8YIPMWbaezRA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-4-fa6cf253bfd44ab991c366691b68bdf5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
@@ -96,13 +97,6 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: One plug and you’re good to go**
 
  One of Apple’s core tenets is simplicity, and the 4K iMac is no exception to this rule. Inside the box is the computer itself and a box which contains the Magic Keyboard and Magic Mouse 2\. Additional components include the power connection for the computer, a Lightning cable for charging the mouse and keyboard, and a small package of documentation.
@@ -110,6 +104,10 @@ Lifewire / Gannon Burgett
  Setting up the iMac is as simple as unwrapping it from its protective cover, setting it on the desk, plugging it in with the included power cord, and pressing the power button. As it boots up, we turned on the Magic Keyboard and Magic Mouse 2\. By the time the iMac was to the setup screen — a process that took approximately 60 seconds — the two were already paired with the computer and ready to be used.
 
  Going through the setup process took us approximately five minutes, which included setting up our iCloud account and getting the various login settings in place. We opted to set this up as a new computer, but there’s also the ability to set it up from an Apple Time Capsule backup or transfer content from a PC via USB. The amount of time those options take will vary depending on the device you’re transferring the information from as well as the amount of data being transferred.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Display: Bright, brilliant, and ready to shine**
 
@@ -122,13 +120,6 @@ Lifewire / Gannon Burgett
  As mentioned above, it would’ve been nice to see a smaller bezel, but that’s about the only department the display falls short.
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/IKZ75jBAosAG3M1Py_-E0ElYAfM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-5-a705ea67b88b4cf694c53e4715a9aceb-f57b3be92a934d8ab579d90728e23fe8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -148,18 +139,15 @@ Lifewire / Gannon Burgett
 
  All-in-all, the iMac seems to punch right at or above its specifications when compared to similar hardware. It’s not going to be pumping out 8K footage, but for basic 4K video editing and image post-processing, the graphics card is more than enough. As for productivity, there’s not much you can throw at the iMac that it can’t handle. The only thing we noticed slowing down the computer was the 8GB of RAM when we had over a dozen applications open, but that can be fixed by upgrading to the 16GB or 32GB model (although it’s not a cheap upgrade).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Network: Fast and reliable**
 
  The 21.5-inch 4K iMac features both wired and wireless connectivity for internet access. As previously mentioned, the iMac features a Gigabit Ethernet (RJ-45) port on the rear of the computer for a hardwired internet connection. For Wi-Fi, the iMac uses an 802.11ac network adapter with support for IEEE 802.11a/b/g/n.
 
  In our hardwired tests, the iMac maxed out our Gigabit fiber optic internet no problem, with steady download and upload speeds. Wireless connectivity was equally impressive, regardless of whether the iMac was in the same room as the router or a few rooms over. We didn’t notice any drops throughout our tests and both uploading and downloading content was consistent.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Camera: Decent built-in option for basic tasks**
 
@@ -177,18 +165,15 @@ Lifewire / Gannon Burgett
 
  Unlike Windows, macOS doesn’t come with any bloatware either. There’s a number of pre-installed apps developed by Apple, including four new ones borrowed from Apple’s mobile operating system, iOS, but most of the pre-installed apps are the standard array of programs you’d expect to see on any modern computer.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: The Apple tax is real**
 
  The 21.5-inch 4K iMac we tested with the aforementioned specifications retails for $1,499\. Compared to other Windows PCs with similar specifications, the iMac is without pricey for the specs it offers. However, this is par for the course with Apple, so much so that the term “Apple tax” has become a commonly-used phrase. What you’re paying for is the entire package, wrapped up in one of the best-looking frames out there.
 
  Could you build a PC with better specs for far less money? Absolutely. But it won’t be running macOS and it certainly won’t be as slim and streamlined as the iMac. If you’re invested in the Apple ecosystem and don’t need to shell out for the more expensive 27-inch 5K iMac, the 21.5-inch 4K iMac is priced much more reasonably and still has plenty to offer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: A unique option in a small market**
 
@@ -209,10 +194,7 @@ Lifewire / Gannon Burgett
  The 21.5-inch 4K iMac is a solid all-in-one computer that packs a lot of power into a tiny, well-designed package. It’s not going to blow anyone away on benchmarks and it’s not cheap for the internal components you’re getting, but it has a lot to offer for multimedia and productivity. That’s not to mention the sheer convenience of having everything simply work out of the box.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -220,6 +202,10 @@ Lifewire / Gannon Burgett
 * [Microsoft Surface Studio 2](https://www.lifewire.com/microsoft-surface-studio-2-review-4689102)
 * [Alienware Aurora R7](https://www.lifewire.com/alienware-aurora-r7-review-4689097)
 * [Lenovo ThinkCentre M720 Tower](https://www.lifewire.com/lenovo-thinkcentre-m720-tower-review-4776238)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -252,21 +238,24 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/updated-ultimate-6-devices-for-flawless-film-translation/"><u>[Updated] Ultimate 6 Devices for Flawless Film Translation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-tech-on-tap-with-the-alcatel-joy-tab-2-lte-expert-review-inside/"><u>Affordable Tech on Tap with the Alcatel Joy Tab 2 LTE - Expert Review Inside</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/best-caller-id-changers-and-their-enchanting-alternatives-for-2024/"><u>Best Caller ID Changers & Their Enchanting Alternatives for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/orth-of-kids-celebrity-reaches-new-heights/"><u>Net Worth of Kids Celebrity Reaches New Heights</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/selecting-a-media-streamer-a-detailed-comparison-of-roku-vs-fire-tv-stick/"><u>Selecting a Media Streamer: A Detailed Comparison of Roku vs Fire TV Stick</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-oneplus-nord-3-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on OnePlus Nord 3 5G with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-oneplus-ace-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on OnePlus Ace 3 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-elite-eight-leading-games-featured-on-google-play-pass/"><u>The Elite Eight: Leading Games Featured on Google Play Pass</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-thrill-of-online-gaming-in-the-latest-ice-hockey-sensation-nhl-19/"><u>The Thrill of Online Gaming in the Latest Ice Hockey Sensation, NHL 19</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-rated-high-intensity-led-torches-professional-picks-techradar/"><u>Top-Rated High-Intensity LED Torches : Professional Picks | TechRadar</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-usb-stick-devices-the-ultimate-2024-guide/"><u>Top-Rated USB Stick Devices: The Ultimate 2024 Guide</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/ultimate-guide-to-corsair-mouse-setup-and-download-essentials/"><u>Ultimate Guide to Corsair Mouse Setup and Download Essentials</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-hidden-gem-oneplus-nord-n10-5g-a-comprehensive-review/"><u>Unveiling the Hidden Gem: OnePlus Nord N10 5G – A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/why-you-cant-miss-out-on-yakuza-like-a-dragon-best-of-the-genre-unveiled/"><u>Why You Can’t Miss Out on 'Yakuza: Like a Dragon' - Best of the Genre Unveiled</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/zebra-zp450-driver-downloading-and-updating-made-simple-follow-this-in-depth-stepwise-process/"><u>Zebra ZP450 Driver Downloading and Updating Made Simple: Follow This In-Depth, Stepwise Process</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-android-freedom-the-most-popular-top-10-fb-video-extraction-tools/"><u>[New] 2024 Approved Android Freedom The Most Popular Top 10 FB Video Extraction Tools</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-essential-tips-for-incorporating-soundtracks-in-adobe-premiere-for-2024/"><u>[Updated] Essential Tips for Incorporating Soundtracks in Adobe Premiere for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-premium-selection-top-8-tripods-for-clear-4k-videos/"><u>[Updated] Premium Selection Top 8 Tripods for Clear 4K Videos</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-rapid-reader-advanced-windows-photoshop/"><u>[Updated] Rapid Reader - Advanced Windows Photoshop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/0-hub-reliable-speed-meets-modern-design-aesthetics/"><u>0 Hub: Reliable Speed Meets Modern Design Aesthetics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-best-software-for-voice-recognition-transcription/"><u>2024'S Best Software for Voice Recognition Transcription</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-hits-for-hardcore-home-fitness-enthusiasts/"><u>2024'S Hits for Hardcore Home Fitness Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-comprehasterview-smooth-and-effortless-gaming-with-amazon-luna/"><u>A Comprehasterview: Smooth and Effortless Gaming with Amazon Luna</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-comprehensive-barnes-and-noble-nook-glowlight-3-assessment-ideal-for-dark-reading-environments/"><u>A Comprehensive Barnes & Noble Nook Glowlight ^3 Assessment: Ideal for Dark Reading Environments</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-fresh-take-on-zombies-7-days-to-die-an-intriguing-multiplayer-adventure-in-a-sandbox-world/"><u>A Fresh Take on Zombies: '7 Days to Die' - An Intriguing Multiplayer Adventure in a Sandbox World</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-readers-perspective-on-the-barnes-and-noble-nook-glowlight-4-full-review/"><u>A Reader's Perspective on the Barnes & Noble Nook GlowLight 4: Full Review</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On OnePlus Ace 2V | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/guide-mastering-the-art-of-lossless-dvd-ripping-and-preserving-pristine-video-quality/"><u>Guide: Mastering the Art of Lossless DVD Ripping & Preserving Pristine Video Quality</u></a></li>
+<li><a href="https://video-capture.techidaily.com/harvesting-hours-top-10-friendly-farm-gaming-experiences/"><u>Harvesting Hours Top 10 Friendly Farm Gaming Experiences</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722569112996-how-the-dual-displays-of-mobvoi-ticwatch-pro-3-supercharge-its-gps-and-battery-life/"><u>How the Dual Displays of Mobvoi TicWatch Pro 3 Supercharge Its GPS and Battery Life</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-huawei-nova-y91-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Huawei Nova Y91 to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-vr-todays-technological-scene/"><u>In 2024, VR Today's Technological Scene</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722549661001-top-tech-picks-expert-analysis-of-apples-201-11-ipad-pro-why-it-reigns-supreme-in-tablets/"><u>Top Tech Picks: Expert Analysis of Apple's 201# 11 iPad Pro – Why It Reigns Supreme in Tablets</u></a></li>
+<li><a href="https://games-able.techidaily.com/unplug-and-play-the-allure-of-netflixs-gaming/"><u>Unplug and Play: The Allure of Netflix’s Gaming</u></a></li>
 </ul></div>
 

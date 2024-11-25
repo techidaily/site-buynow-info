@@ -1,7 +1,7 @@
 ---
 title: "Small Size, Big Flair: Sony LX310BT Reviewed"
-date: 2024-08-30T14:18:04.783Z
-updated: 2024-08-31T14:18:04.783Z
+date: 2024-11-20T06:05:01.395Z
+updated: 2024-11-24T23:19:10.779Z
 categories:
   - BestProducts
 description: "This Article Describes Small Size, Big Flair: Sony LX310BT Reviewed"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/d44947af2d23263a61b2bb19233d3717a7fd17839
 ## Experts' Take on the Jaco SmartPro: Ultimate Compact and Robust Tire Inflator Reviewed
 
 4.9
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Jaco SmartPro Digital Tire Inflator Pump
 
@@ -38,9 +42,17 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.9
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Jaco SmartPro Digital Tire Inflator Pump
 
 ![Jaco SmartPro Digital Tire Inflator](https://www.lifewire.com/thmb/fTLjCd9CqbSCdmXD-XxJjBhyfSw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/JacoTireInflator_HeroSquare-3363a32b2cad4c91b4662ed6f6a93ce1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -65,8 +77,9 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design and Features: Simple, compact, intuitive**
 
  At just 7.5 inches wide, 2.5 inches tall and 6 inches long, this is the smallest, most compact portable tire inflator we tested. When it’s in its carrying case, it only weighs 2 pounds, 31 ounces. Even small children should be able to carry it. If you need a portable tire inflator but don't have a lot of space, this pump is exactly what you want.
@@ -91,10 +104,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## **Setup Process: Up and running in less than three minutes**
 
  Jaco provides a brief, but informative user manual tucked in the carrying case. Despite how intuitive this pump is to use, you should take five minutes to read the whole thing. During testing, we timed how long it takes to get out of your driver’s seat, retrieve the pump from the trunk, connect it to power, attach it to an under-inflated tire, set the pressure and start the pump. On average, the whole process took about 1 minute, 30 seconds.
@@ -103,9 +112,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## **Performance: Reliable across the highways of America**
 
  In order to recreate the situations that you’re most likely to use a portable tire inflator, we took the models we tested on a long road trip through the states of Nevada, Utah, and Wyoming. When we stopped at rural rest areas and gas stations along the way, we deflated the tires on our car to 20 PSI—the point where they are dangerously low to drive on.
@@ -120,9 +126,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  That also shouldn’t be an issue because the pump automatically cycles down after 30 minutes of continuous use, and you’ll have to wait until it cools down to use it again. This shouldn't be a problem, since you can conceivably fill all four of your car’s tires in under 10 minutes. You’d have to inflate something exceptionally large to run this pump for that long.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: On the expensive end, but worth it for the peace of mind**
 
  With a list price of $90, this is the most expensive portable tire inflator we tested, but it’s typically on sale for half the price. That makes it more reasonable, especially if you need a portable compressor but are really tight on space. Or if you want to ensure maximum safety and visibility at night. But it certainly isn’t a budget model like the Audew Portable Air Compressor Pump.
@@ -130,8 +133,9 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
  It’s impossible to predict how long a product will last after just a few days or using it, however, the warranty period is a good indicator of the long-term durability. Jaco offers a lifetime warranty on this compressor, so it should last a really long time, or at least until you forget it’s still under warranty.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Jaco SmartPro Digital Tire Inflator vs. Kensun Portable Tire Inflator**
 
  We tested this the SmartPro Digital Tire Inflator side-by-side with the Kensun Portable Tire Inflator. Although the Kensun is about twice as large as the Jaco, they’re designed to do the same thing. For example, they both draw power from your car’s 12V socket, but if you want to get away from your car, the Kensun comes with an AC power cord that you can plug into a wall socket. This makes the Kensun a much more versatile pump. And while the built-in light on the Kensun provides great illumination at night, it lacks the hazard and emergency lights you get with Jaco.
@@ -144,9 +148,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  The Jaco SmartPro Digital Tire Inflator is a great addition to the jumper cables and triangle reflectors in your trunk. Its focus on safety, portability, and accuracy makes it very attractive for people looking to be prepared, and you can usually find it on sale for a reasonable price.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  SmartPro Digital Tire Inflator Pump
@@ -164,8 +165,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -173,4 +172,21 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-adding-youtube-music-to-video-for-2024/"><u>[New] Adding YouTube Music To Video for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-popularize-with-pizzazz-infuse-instagram-reels-with-tiktok-energy/"><u>[Updated] 2024 Approved Popularize with Pizzazz Infuse Instagram Reels With TikTok Energy</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-recording-the-next-level-of-play/"><u>2024 Approved Recording the Next Level of Play</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-asus-proart-pa-329q-professional-4k-monitor-review/"><u>In 2024, Asus ProArt PA 329Q Professional 4K Monitor Review</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-poco-x6-pro-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Poco X6 Pro to New Phone | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nokia-72-analysis-surpassing-expectations-in-the-mid-range-market/"><u>Nokia 7.2 Analysis: Surpassing Expectations in the Mid-Range Market</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/on-the-go-motion-dampener-for-videography/"><u>On-the-Go Motion Dampener for Videography</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/performance-overview-of-the-asus-zenbook-17-fold-navigating-pros-and-cons-on-a-big-screen-device/"><u>Performance Overview of the Asus ZenBook 17 Fold - Navigating Pros and Cons on a Big Screen Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/picking-the-best-phone-in-depth-iphone-vs-android-analysis-for-consumers/"><u>Picking the Best Phone: In-Depth iPhone vs Android Analysis for Consumers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rise-and-shine-naturally-unboxing-the-heimvision-a80s-sunrise-light-therapy-clock/"><u>Rise and Shine Naturally: Unboxing the HeimVision A80S Sunrise Light Therapy Clock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sony-hdrcx405-hd-camcorder-review-image-stabilizationdual-recording-modes-at-a-budget-price/"><u>Sony HDRCX405 HD Camcorder Review: Image Stabilization/Dual Recording Modes at a Budget Price</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sturdy-construction-meets-superior-functionality-in-canon-430ex-iii-rt/"><u>Sturdy Construction Meets Superior Functionality in Canon 430EX III-RT</u></a></li>
+<li><a href="https://fox-access.techidaily.com/the-quick-fix-efficient-use-of-the-eraser-in-psx/"><u>The Quick Fix Efficient Use of the Eraser in PSX</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/mp3flv-online-mp3flv-movavi/"><u>무료 MP3/FLV 데이터가 있는 바이트를 소모하지 않고 원형화: Online 크로스오프라인 MP3/FLV 변환기 - Movavi</u></a></li>
+</ul></div>
 

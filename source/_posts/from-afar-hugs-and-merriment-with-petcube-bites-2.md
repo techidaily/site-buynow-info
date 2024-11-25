@@ -1,7 +1,7 @@
 ---
 title: From Afar, Hugs and Merriment with Petcube Bites 2
-date: 2024-11-08T19:55:36.204Z
-updated: 2024-11-16T03:56:07.957Z
+date: 2024-11-20T10:48:12.527Z
+updated: 2024-11-25T10:05:31.980Z
 categories:
   - BestProducts
 description: This Article Describes From Afar, Hugs and Merriment with Petcube Bites 2
@@ -21,6 +21,10 @@ thumbnail: https://www.lifewire.com/thmb/AveEElAwsJ-yfNPFL8X7KyXcAdA=/400x300/fi
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/NltNTWtb6Y6gHFCHDQXlLsrWKTI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -43,6 +47,10 @@ Lifewire / Andy Zahn
 [View On Walmart $562](https://www.walmart.com/ip/Canon-PowerShot-SX70-HS-20-3MP-65x-Optical-Zoom-Digital-Point-Shoot-Camera/773178799?slfpid=3) [View On Adorama.com $699](https://www.adorama.com/icasx70.html) [View On B&H Photo Video $599](https://www.bhphotovideo.com/c/product/1435399-REG/canon%5F3071c001%5Fpowershot%5Fsx70%5Fhs%5Fdigital.html)
 
 4.3
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
@@ -110,13 +118,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Autofocus: Blazing fast**
 
  We were shocked by how fast and consistent the autofocus is in the SX70 HS, even in low-light situations. It rarely fails to lock on to your intended subject, and focus tracking works flawlessly.
@@ -124,6 +125,10 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -142,10 +147,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Modes: Plenty to choose from (and only some are useful)**
@@ -163,10 +165,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
@@ -184,10 +183,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: Lots of options**
@@ -205,13 +201,6 @@ Lifewire / Andy Zahn
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
 
@@ -269,18 +258,17 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-info.techidaily.com/prime-ready-a-comprehensive-review-of-the-toshiba-55lf711u20-the-ultimate-streaming-tv/"><u>'Prime-Ready': A Comprehensive Review of the Toshiba 55LF711U20 - The Ultimate Streaming TV</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-tips-and-tricks-to-elevate-your-youtube-production-through-subtitle-integration/"><u>[New] 2024 Approved Tips and Tricks to Elevate Your YouTube Production Through Subtitle Integration</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-the-straightforward-pathway-for-tiktok-to-facebook-for-2024/"><u>[New] The Straightforward Pathway for TikTok to Facebook for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-top-6-youtube-shorts-downloaders-free-and-online/"><u>[Updated] In 2024, Top 6 YouTube Shorts Downloaders [Free & Online]</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-ultimate-image-booster-intense-visual-upgrade/"><u>[Updated] Ultimate Image Booster Intense Visual Upgrade</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mlb-the-show-2019-game-review-stunning-graphics-and-unanticipated-rpg-components-explored/"><u>MLB The Show 2019 Game Review: Stunning Graphics and Unanticipated RPG Components Explored</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/nokia-71-review-great-screen-and-camera-affordable-price/"><u>Nokia 7.1 Review: Great Screen and Camera, Affordable Price</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/snap-and-save-affordable-instant-cameras-for-everyone-2024/"><u>Snap & Save: Affordable Instant Cameras for Everyone, 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/stay-active-with-fitbit-versa-3s-inbuilt-gps-and-comprehensive-health-apps-for-enhanced-motivation/"><u>Stay Active with Fitbit Versa 3'S Inbuilt GPS & Comprehensive Health Apps for Enhanced Motivation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/step-into-the-world-of-possibilities-with-minecraft-your-ultimate-guide-to-a-timeless-adventure/"><u>Step Into the World of Possibilities with Minecraft - Your Ultimate Guide to a Timeless Adventure</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/conomic-sphere-of-the-philanthropic-mr-beast/"><u>The Economic Sphere of the Philanthropic Mr. Beast</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-leading-voice-modification-tools-at-zero-cost-an-in-depth-filmora-video-voice-editing-handbook-for-2024/"><u>Updated Leading Voice Modification Tools at Zero Cost An In-Depth Filmora Video Voice Editing Handbook for 2024</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-vllo-on-mac-a-comprehensive-guide-with-alternative-solutions-for-2024/"><u>Updated VLLO on Mac A Comprehensive Guide with Alternative Solutions for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/iscally-flourishing-through-film-reviewing-retail-relics/"><u>[New] Fiscally Flourishing Through Film Reviewing Retail Relics</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-top-free-software-selection-8-advanced-low-cost-3d-vids-plugins/"><u>[Updated] In 2024, Top Free Software Selection 8 Advanced, Low-Cost 3D Vids Plugins</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/an-iconic-series-reborn-the-new-era-of-ratchet-and-clank/"><u>An Iconic Series Reborn – The New Era of Ratchet & Clank</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/comprehensive-tutorial-for-installing-llama-2-on-a-pc-or-laptop/"><u>Comprehensive Tutorial for Installing LLAMA 2 on a PC or Laptop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enjoy-endless-hours-of-music-on-the-go-with-the-amazing-ion-audio-tailgater-plus-sound-system/"><u>Enjoy Endless Hours of Music On-the-Go with The Amazing Ion Audio Tailgater Plus Sound System.</u></a></li>
+<li><a href="https://win-forum.techidaily.com/expert-advice-deleting-user-settings-in-windows-11-effectively-via-revouninstaller/"><u>Expert Advice: Deleting User Settings in Windows 11 Effectively via RevoUninstaller</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-itel-a60s-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Itel A60s | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/perfect-virtual-scenes-enhancing-zoomgoogle-experience-for-2024/"><u>Perfect Virtual Scenes Enhancing Zoom/Google Experience for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/resolving-the-ksuserdll-file-not-detected-a-step-by-step-guide/"><u>Resolving the ksuser.dll File Not Detected: A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-the-criacry-bluetooth-fm-transmitter-model-cp24-tiny-design-with-some-limitations/"><u>Review of the CriaCry Bluetooth FM Transmitter Model CP24: Tiny Design with Some Limitations</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/roku-vs-chromecast-showdown-determining-the-top-streaming-stick/"><u>Roku vs Chromecast Showdown: Determining the Top Streaming Stick</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smart-buying-guide-key-aspects-to-verify-in-a-pre-owned-ipad/"><u>Smart Buying Guide: Key Aspects to Verify in a Pre-Owned iPad</u></a></li>
 </ul></div>
 

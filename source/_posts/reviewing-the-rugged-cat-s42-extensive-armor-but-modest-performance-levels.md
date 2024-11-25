@@ -1,7 +1,7 @@
 ---
 title: "Reviewing the Rugged Cat S42: Extensive Armor but Modest Performance Levels"
-date: 2024-11-08T19:08:15.361Z
-updated: 2024-11-16T03:59:05.017Z
+date: 2024-11-20T06:21:56.302Z
+updated: 2024-11-24T17:23:04.674Z
 categories:
   - BestProducts
 description: "This Article Describes Reviewing the Rugged Cat S42: Extensive Armor but Modest Performance Levels"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/4701af21fbd3236ee27b5d0a75fe2af600bece4b4
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/87Y0vp91-Opdxctf3M6BGQ6r1d8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -47,6 +51,10 @@ Lifewire / Emily Ramirez
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -85,10 +93,7 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -103,13 +108,14 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
@@ -119,13 +125,6 @@ Lifewire / Emily Ramirez
  Should you happen to own dynamic headphones, you should find their impedance curve. Dynamic headphones with a high impedance may be distorted by the ACM, thanks to the ACM’s high resistance. How your headphones will be affected depends on their impedance curve: for the HD800s, for example, there is a peak at 100Hz (this range captures electric bass and the lower octaves of guitars), so the upper bass range is boosted relative to the other frequencies in the audio. Increasing the volume on the ACM reduces its output resistance and in turn reduces the distortion, but it may be easier to plug equipment directly into the sound card and use the system volume instead.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -140,13 +139,6 @@ Lifewire / Emily Ramirez
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
 
@@ -168,17 +160,14 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -218,24 +207,18 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-implementing-gradual-diminishing-techniques-on-soundtracks-with-audacity/"><u>[New] 2024 Approved Implementing Gradual Diminishing Techniques on Soundtracks with Audacity</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-deactivating-linkedin-a-comprehensive-guide-to-closing-down/"><u>[Updated] 2024 Approved Deactivating LinkedIn A Comprehensive Guide to Closing Down</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-how-to-use-zoom-to-stream-facebook-live/"><u>[Updated] How to Use Zoom to Stream Facebook Live</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-planting-prowess-in-valheim-uncovering-premium-saplings/"><u>[Updated] Planting Prowess in Valheim Uncovering Premium Saplings</u></a></li>
-<li><a href="https://network-issues.techidaily.com/align-screen-horizons-uniformly/"><u>Align Screen Horizons Uniformly</u></a></li>
-<li><a href="https://techidaily.com/complete-tutorial-for-xiaomi-13-ultra-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Xiaomi 13 Ultra Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/does-lava-blaze-pro-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Lava Blaze Pro 5G Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/elite-software-stacks-for-animation-models/"><u>Elite Software Stacks for Animation Models</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-allure-of-small-size-mp3-players-sandisk-clip-jam/"><u>The Allure of Small-Size MP3 Players - SanDisk Clip Jam</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-definitive-guide-to-the-asus-zephyrus-g14-a-perfect-blend-for-serious-gamers-on-the-go/"><u>The Definitive Guide to the Asus Zephyrus G14: A Perfect Blend for Serious Gamers on the Go</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-blueears-bluetooth-enabled-beanie-fashion-meets-audio-prowess-reviewed/"><u>The Ultimate Guide to Blueear's Bluetooth-Enabled Beanie: Fashion Meets Audio Prowess Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-roku-specials-unbeatable-discounts-during-prime-day/"><u>Top Roku Specials: Unbeatable Discounts During Prime Day</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-router-comparison-why-the-nighthawk-rax120-leads-in-speed/"><u>Top Router Comparison: Why the Nighthawk RAX120 Leads in Speed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxed-delving-into-jabras-speak-v25-efficient-charges-and-talks/"><u>Unboxed: Delving Into Jabra's Speak V25, Efficient Charges & Talks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-garmin-vivosmart-4s-powerful-features-a-review-on-body-battery-and-stress-assessment-tools/"><u>Unveiling Garmin Vivosmart 4'S Powerful Features – A Review on Body Battery & Stress Assessment Tools</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-of-sonys-ultra-hd-smart-led-tv-xbr49x900f/"><u>Unveiling The Features Of Sony's Ultra HD Smart LED TV - XBR49X900F</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-lg-stylo-6-the-epitome-of-beauty-and-utility-in-one-handset-pen-included/"><u>Unveiling the LG Stylo 6 - The Epitome of Beauty and Utility in One Handset, Pen Included</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-replace-vsdc-with-these-top-notch-video-editors-on-mac/"><u>Updated In 2024, Replace VSDC with These Top-Notch Video Editors on Mac</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/your-next-favorite-channel-for-global-adventures-for-2024/"><u>Your Next Favorite Channel for Global Adventures for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-joining-google-meet-easily-anytime-anywhere/"><u>[Updated] 2024 Approved Joining Google Meet Easily, Anytime, Anywhere</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-formulating-attractive-instagram-story-captions/"><u>2024 Approved Formulating Attractive Instagram Story Captions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-comprehensive-guide-to-earn-more-from-your-blog-with-buysellads-solutions/"><u>A Comprehensive Guide to Earn More From Your Blog with BuySellAds Solutions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-new-era-for-in-car-entertainment-systems/"><u>A New Era for In-Car Entertainment Systems</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/chime-catcher-where-to-securely-download-tones-for-2024/"><u>Chime Catcher Where to Securely Download Tones for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722531411211-comprehensive-truecaller-application-analysis/"><u>Comprehensive TrueCaller Application Analysis</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/convertire-i-file-mxf-in-mp4-senza-costi-le-strategie-migliore-su-pc-o-mac/"><u>Convertire I File MXF in MP4 Senza Costi: Le Strategie Migliore Su PC O Mac</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/expert-tips-for-efficient-music-integration-in-premiere-pro/"><u>Expert Tips for Efficient Music Integration in Premiere Pro</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/exploring-the-elgato-stream-deck-neo-unboxing-and-early-analysis/"><u>Exploring the Elgato Stream Deck Neo - Unboxing and Early Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722712391549-fellowes-microban-wired-keyboard-unveiled-top-value-pick-for-budget-buyers/"><u>Fellowes Microban Wired Keyboard Unveiled - Top Value Pick for Budget Buyers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-realme-11-pro-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Realme 11 Pro to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/removing-borders-quick-and-effective-image-retouch-methods/"><u>Removing Borders Quick & Effective Image Retouch Methods</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722607680810-the-premier-list-of-cable-modems-find-the-perfect-match/"><u>The Premier List of Cable Modems - Find the Perfect Match!</u></a></li>
 </ul></div>
 

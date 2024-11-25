@@ -1,7 +1,7 @@
 ---
 title: Lenovo ThinkPad X12 Convertible Laptop - An In-Depth Examination of the Superior Keyboard and Exceptional Dual Functionality
-date: 2024-11-12T03:59:20.279Z
-updated: 2024-11-16T00:15:50.653Z
+date: 2024-11-19T23:51:31.783Z
+updated: 2024-11-24T21:01:27.159Z
 categories:
   - BestProducts
 description: This Article Describes Lenovo ThinkPad X12 Convertible Laptop - An In-Depth Examination of the Superior Keyboard and Exceptional Dual Functionality
@@ -21,6 +21,10 @@ thumbnail: https://www.lifewire.com/thmb/M7cbcf9RaLnWFD_BZCSTd_n3AbI=/400x300/fi
 ## Z-Edge Z3 Plus Dashcam
 
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/OL3QdFJ2E8lLE0w3IGyxR-rAD4Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
 
@@ -46,16 +50,7 @@ Lifewire / Danny Chadwick
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/sE7fZzxcPjZXohzroVqLVr5l4qs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
@@ -83,6 +78,10 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Small but solid**
 
  If you didn’t know this device was a dashcam, you could be forgiven for mistaking it for a point-and-shoot camera. It has a three-inch screen, and while that is small by the standards of today’s mobile devices, it’s a great size for your windshield. All the indicator lights and icons fit nicely on the screen and you only need to glance at it briefly while you drive to see that it’s recording.
@@ -109,6 +108,10 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Super straightforward**
 
  If you’re even passingly familiar with digital cameras, you can have the Z3 Plus set up and ready to go within a few minutes of taking it out of the box. And while you should read the user manual before turning it on, you probably won’t run into any major difficulties if you don’t. The most time-consuming part of the setup is running the power cable up and around your windshield so it’s not dangling down to the power supply while you drive. This requires you to tuck the cord under your car’s upholstery and panels, which takes about 20 minutes to complete.
@@ -118,13 +121,6 @@ Lifewire / Danny Chadwick
  The user manual is excellent, detailed and provides comprehensive instructions for all the features this dashcam offers—this is worth mentioning because some other cameras we tested have subpar instructions.
 
  Lifewire / Danny Chadwick
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Camera Quality: Beyond high definition**
 
@@ -138,6 +134,10 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Never failed**
 
  We tested the Z-Edge Z3 Plus on a six-hour road trip, and throughout the drive, the Z3 Plus nor the suction cup failed. So long as it was plugged into power, it functioned flawlessly.
@@ -145,13 +145,6 @@ Lifewire / Danny Chadwick
  The only complaint we have about the performance of the dashcam is its battery life. When we unplugged it, it only lasted about 20 minutes before shutting down. You need to keep it connected constantly and can only rely on the battery to capture footage in Parking Mode.
 
  We did experience one strange glitch at the end of our testing—a couple of minutes after we had boxed up the Z3 Plus and put it away, we noticed loud, rapid beeping coming from the box. We took the Z3 Plus back out and it was frozen on the power-up screen. We couldn’t get it to turn off (or stop beeping) until the battery died a few minutes later. The camera appeared to work fine after that and we weren’t able to replicate the problem, but it was something of an alarming glitch from such a new device.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Fair price for a fair product**
 
@@ -172,13 +165,6 @@ Lifewire / Danny Chadwick
  **A durable, reliable dashboard camera that captures high-quality footage.**
 
  The Z-Edge Z3 Plus is easy to set up, intuitive to use, captures clear video footage for a reasonable price. We would like to have seen a second mounting option to the suction cup and a longer-lasting battery, but those are minor quibbles in light of this device’s reliable performance.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -212,24 +198,20 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-seamless-tv-recording-on-pc-with-zero-cost-software/"><u>[New] 2024 Approved Seamless TV Recording on PC with Zero Cost Software</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-how-to-switch-windows-11-to-auto-hdr-mode/"><u>[New] In 2024, How to Switch Windows 11 To Auto HDR Mode</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-palette-perfection-in-photoshop-top-3-efficient-techniques/"><u>[New] Palette Perfection in Photoshop Top 3 Efficient Techniques</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-why-filmora-stands-out-its-top-10-alluring-features-for-2024/"><u>[New] Why Filmora Stands Out Its Top 10 Alluring Features for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-25plus-best-practices-for-crafting-witty-metaverse-visual-jokes/"><u>[Updated] 25+ Best Practices for Crafting Witty Metaverse Visual Jokes</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-launchpad-gear-list-enhance-your-beginners-gopro-journey/"><u>[Updated] Launchpad Gear List - Enhance Your Beginner's GoPro Journey</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-comprehensive-guide-to-attractive-and-engaging-instagram-puzzle-feeds/"><u>2024 Approved The Comprehensive Guide to Attractive and Engaging Instagram Puzzle Feeds</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/discover-the-ultimate-6-motivations-for-investing-in-an-apple-watch-expertly-detailled-by-wearable-specialist-at-zdnet/"><u>Discover the Ultimate 6 Motivations for Investing in an Apple Watch, Expertly Detailled by Wearable Specialist at ZDNet</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-duality-of-mlb-the-show-19-exceptional-graphics-meet-unexpected-role-playing-dynamics/"><u>The Duality of MLB The Show 19: Exceptional Graphics Meet Unexpected Role-Playing Dynamics</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-quintessential-guide-to-understanding-the-legendary-lg-watch-style-and-its-role-in-shaping-wearable-gadget-innovation-with-wear-os/"><u>The Quintessential Guide to Understanding the Legendary LG Watch Style and Its Role in Shaping Wearable Gadget Innovation with Wear OS</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-travelers-best-friend-a-comprehensive-look-at-the-portable-prowess-of-the-msi-mp161-e2-monitor/"><u>The Traveler's Best Friend: A Comprehensive Look at the Portable Prowess of the MSI MP161 E2 Monitor</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-lenovo-ideapad-320-laptop-review-stunning-aesthetics-and-mobility-meet-lenovos-iconic-keyboard/"><u>Top Lenovo IdeaPad 320 Laptop Review: Stunning Aesthetics & Mobility Meet Lenovo's Iconic Keyboard</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-tp-link-ac1200-wi-fi-expander-re305-features-and-functionality-insights/"><u>Top TP-Link AC1200 Wi-Fi Expander (RE305) Features and Functionality Insights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/transform-your-tech-upgrading-windows-10-home-to-pro-edition/"><u>Transform Your Tech: Upgrading Windows 10 Home to Pro Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/transform-your-typing-experience-with-2024s-top-ergonomic-keyboard-selections/"><u>Transform Your Typing Experience with 2024'S Top Ergonomic Keyboard Selections</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-mw3-pc-glitches-easy-fixes-to-keep-you-in-the-action/"><u>Troubleshooting MW3 PC Glitches - Easy Fixes to Keep You in the Action</u></a></li>
-<li><a href="https://win11.techidaily.com/troubleshooting-how-to-reconstruct-icon-cache-efficiently/"><u>Troubleshooting: How To Reconstruct Icon Cache Efficiently</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-conquer-the-wild-in-monster-hunter-world-reviews-and-tips/"><u>Ultimate Guide: Conquer the Wild in 'Monster Hunter: World' - Reviews & Tips</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-future-bestheadphonesfor2024/"><u>Unveiling the Future: #BestHeadphonesFor2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-the-ultimate-wmm-tutorial-for-aspiring-animators/"><u>[New] In 2024, The Ultimate WMM Tutorial for Aspiring Animators</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-tutorial-extracting-audio-from-vimeo-video/"><u>[New] In 2024, Tutorial Extracting Audio From Vimeo Video</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-gopro-mastery-top-15-dynamic-color-look-up-table-reviews/"><u>[Updated] GoPro Mastery Top 15 Dynamic Color Look-Up Table Reviews</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-fundamental-techniques-converting-visual-media-on-pinterest-to-mp3s/"><u>[Updated] In 2024, Fundamental Techniques Converting Visual Media on Pinterest To MP3s</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/canons-small-giant-an-in-depth-look-at-sx740-hs/"><u>Canon's Small Giant: An In-Depth Look at SX740 HS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/clash-of-titans-a-comprehensive-look-at-the-differences-between-iphone-15-pro-max-and-samsung-s24-ultra/"><u>Clash of Titans: A Comprehensive Look at the Differences Between iPhone 15 Pro Max and Samsung S24 Ultra</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/connect-and-enjoy-the-lihan-lhfm1039-bluetooth-transmitter-for-a-wireless-hands-free-driving-setup-review/"><u>Connect and Enjoy - The LIHAN LHFM1039 Bluetooth Transmitter for a Wireless, Hands-Free Driving Setup (Review)</u></a></li>
+<li><a href="https://extra-information.techidaily.com/create-meme-on-giphy-for-2024/"><u>Create Meme on Giphy for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/detailed-review-of-the-netatmo-meteorological-unit-a-sophisticated-solution-for-tech-savvy-weather-trackers/"><u>Detailed Review of the Netatmo Meteorological Unit: A Sophisticated Solution for Tech-Savvy Weather Trackers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dive-into-quality-how-the-samsung-qn55q6f-smart-tv-revolutionizes-viewing-with-immersive-4k-hdr-visuals/"><u>Dive Into Quality: How the Samsung QN55Q6F Smart TV Revolutionizes Viewing with Immersive 4K, HDR Visuals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-high-quality-augmented-reality-on-a-budget-with-arcshells-ar-5-glasses-user-insights-and-evaluation/"><u>Experience High-Quality Augmented Reality on a Budget with ArcShell's AR- 5 Glasses – User Insights & Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-superior-viewing-with-antopt-at-127-elegant-design-meets-high-performance-review/"><u>Experience Superior Viewing with AntOpt AT-127 – Elegant Design Meets High Performance Review</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-tecno-spark-10cmirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Tecno Spark 10CMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Xiaomi Redmi Note 12T Pro? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722214696625-unlock-your-potential-sign-up-for-enhanced-chatgpt-plugins-today/"><u>Unlock Your Potential: Sign Up for Enhanced ChatGPT Plugins Today</u></a></li>
 </ul></div>
 

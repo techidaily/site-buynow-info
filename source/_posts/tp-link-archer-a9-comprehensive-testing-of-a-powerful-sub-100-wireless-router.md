@@ -1,7 +1,7 @@
 ---
 title: TP-Link Archer A9 - Comprehensive Testing of a Powerful Sub-$100 Wireless Router
-date: 2024-10-27T18:12:15.164Z
-updated: 2024-10-30T22:02:09.732Z
+date: 2024-11-20T02:20:11.949Z
+updated: 2024-11-25T06:18:46.628Z
 categories:
   - BestProducts
 description: This Article Describes TP-Link Archer A9 - Comprehensive Testing of a Powerful Sub-$100 Wireless Router
@@ -17,6 +17,10 @@ thumbnail: https://www.lifewire.com/thmb/_dREsVYrj4hW6KtI2UvhJGoOPdk=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Samsung UN55RU7300FXZA 55-Inch 4KUHD 7 Series
 
@@ -76,14 +80,11 @@ thumbnail: https://www.lifewire.com/thmb/_dREsVYrj4hW6KtI2UvhJGoOPdk=/400x300/fi
 
 ![Samsung 55-inch RU7300](https://www.lifewire.com/thmb/LtRcWBwD090kcd6bXSRbOUiTiLA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_CurvedTVs_RU7300_02-2035b246c96446388cc49504b68842ba.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: An appealing arc**
 
@@ -97,6 +98,10 @@ thumbnail: https://www.lifewire.com/thmb/_dREsVYrj4hW6KtI2UvhJGoOPdk=/400x300/fi
 
  Low input lag means that games feel responsive, making this set well-suited for gaming.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Legs or wall**
 
  If you’re setting the Samsung RU7300 up on a stand or table, then you’ll need to install the legs. That is extremely straightforward: each is designated for a certain side and simply requires popping in and tightening a couple of screws. Meanwhile, if you opt for wall-mounting, you’ll need a standard VESA 200x200 mount—however, you may need longer screws. The screws on my existing wall mount (for a flat-screen TV) weren’t long enough, so I had to order specialized ones.
@@ -104,10 +109,7 @@ thumbnail: https://www.lifewire.com/thmb/_dREsVYrj4hW6KtI2UvhJGoOPdk=/400x300/fi
  Initial software setup can take a few minutes, as you’ll be prompted to log into a Wi-Fi network if you don’t have an Ethernet cable plugged into an active connection, and you may have to download updates to Samsung’s built-in interface. It was a pretty quick process for me.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Image Quality: Crisp, but could be bolder**
@@ -126,13 +128,6 @@ thumbnail: https://www.lifewire.com/thmb/_dREsVYrj4hW6KtI2UvhJGoOPdk=/400x300/fi
 
  The Samsung 55-inch RU7300 has a pair of stereo speakers with a total output of 20W, and they’ll get the job done for everyday viewing of streaming shows and movies, and playing games. Playback is clear and full, although it’s not heavy on bass—and unlike a lot of other modestly-priced televisions, I wasn’t immediately itching for a soundbar. You’ll see an improvement from external speakers, certainly, but it doesn’t feel as necessary here.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software: Clean, but incomplete**
 
  Samsung’s own[Tizen OS-based](https://www.lifewire.com/what-is-tizen-4580383) Smart Hub interface is used on this curved smart TV, providing easy access to streaming video apps and settings. Most of the heavy hitters are here, either already installed or available via the built-in app marketplace, including Netflix, Hulu, Amazon Prime Video, YouTube, and even[Apple TV](https://www.lifewire.com/what-is-apple-tv-1994193) . There are some omissions, however: both Twitch and Bravo were missing in action when I searched for them. Samsung also offers a number of free streaming channels in partnership with Pluto TV, in case you miss the sensation of flipping channels for something to watch.
@@ -142,10 +137,7 @@ thumbnail: https://www.lifewire.com/thmb/_dREsVYrj4hW6KtI2UvhJGoOPdk=/400x300/fi
  Native 4K media looks fantastic, as expected, and lower-resolution media scales up pretty smoothly.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Curves cost extra**
@@ -193,22 +185,24 @@ thumbnail: https://www.lifewire.com/thmb/_dREsVYrj4hW6KtI2UvhJGoOPdk=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-innovative-snapchat-strategies-the-ultimate-list/"><u>[New] Innovative Snapchat Strategies The Ultimate List</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-professional-top-10-hd-webcams-and-buyers-advice-for-2024/"><u>[New] Professional Top 10 HD Webcams & Buyer's Advice for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/breaking-down-the-efficacy-of-mohus-blade-antenna-a-closer-review-on-its-stylish-appearance-and-superior-indoor-signal-quality/"><u>Breaking Down The Efficacy of Mohu's Blade Antenna - A Closer Review on Its Stylish Appearance & Superior Indoor Signal Quality</u></a></li>
-<li><a href="https://games-able.techidaily.com/can-imacs-influence-pc-gaming-paradigms/"><u>Can iMacs Influence PC Gaming Paradigms?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/can-motorola-edgeplus-hold-its-own-against-flagship-rivals-our-review-says/"><u>Can Motorola Edge+ Hold Its Own Against Flagship Rivals? Our Review Says...</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/echoes-for-every-call-the-ultimate-guide-to-tamil-ringtones/"><u>Echoes for Every Call The Ultimate Guide to Tamil Ringtones</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/enhancing-audio-pickup-how-to-make-your-microphone-louder-again/"><u>Enhancing Audio Pickup: How to Make Your Microphone Louder Again</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/for-operation-1-maintain-a-persuasive-tone-by-starting-with-phrases-like-did-you-know-or-imagine-if-include-at-least-one-supportive-statement-from-a-reputab10/"><u>For Operation 1, Maintain a Persuasive Tone by Starting with Phrases Like Did You Know... Or Imagine If.... Include at Least One Supportive Statement From a Reputable Cancer Treatment Center After the First Mention of Chemotherapy and Radiation Therapy</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/high-end-wifi-weather-observer-ws-1e1002-review-superior-quality-expensive-investment/"><u>High-End WiFi Weather Observer WS-1e1002 Review: Superior Quality, Expensive Investment</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-most-improved-10-elements-of-terraria/"><u>In 2024, Most Improved 10 Elements of Terraria</u></a></li>
-<li><a href="https://extra-support.techidaily.com/iphone-lens-mastery-unleashing-creativity-for-2024/"><u>IPhone Lens Mastery - Unleashing Creativity for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/overcoming-red-dead-online-freezing-problems-in-pc-gaming/"><u>Overcoming Red Dead Online Freezing Problems in PC Gaming</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionizing-road-safety-a-complete-guide-to-bouncie-driving-connected-reviews/"><u>Revolutionizing Road Safety: A Complete Guide to Bouncie Driving Connected Reviews</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/to-replace-or-not-weighing-phone-and-pod-battery-lifespans/"><u>To Replace or Not: Weighing Phone & Pod Battery Lifespans</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-10-password-cracking-tools-for-samsung-galaxy-m14-4g-by-drfone-android/"><u>Top 10 Password Cracking Tools For Samsung Galaxy M14 4G</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-5-advantages-is-subscribing-to-youtube-tv-a-smart-move/"><u>Top 5 Advantages: Is Subscribing to YouTube TV a Smart Move?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-weather-monitoring-applications-in-2e24/"><u>Top-Rated Weather Monitoring Applications in 2E24</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-iphone-photography-wonders-capturing-surface-mirrors/"><u>[New] 2024 Approved IPhone Photography Wonders Capturing Surface Mirrors</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-decoding-your-path-to-prominence-on-youtube/"><u>[New] In 2024, Decoding Your Path to Prominence on YouTube</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-sierras-best-the-top-5-choices-for-mac-video-editing/"><u>[New] Sierra's Best The Top 5 Choices for Mac Video Editing</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-explore-exceptional-economically-priced-asmr-gear/"><u>2024 Approved Explore Exceptional, Economically-Priced ASMR Gear</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-ultimate-list-of-10-online-free-jpg-to-gif-conversion-programs/"><u>2024 Approved Ultimate List of 10 Online, Free JPG to GIF Conversion Programs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/black-garlic/"><u>Black Garlic</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-a-gentle-morning-awakening-in-depth-look-at-the-heimvision-a80s-alarm-clock/"><u>Experience a Gentle Morning Awakening: In-Depth Look at the HeimVision A80S Alarm Clock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experiencing-the-next-generation-of-macs-a-look-at-the-imacs-transformative-m1-chip-capabilities/"><u>Experiencing the Next Generation of Macs: A Look at the iMac's Transformative M1 Chip Capabilities</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Lava Yuva 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Poco C51? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ipad-pro-vs-macbook-pro-showdown-a-comprehensive-guide-to-their-unique-features/"><u>IPad Pro Vs. MacBook Pro Showdown: A Comprehensive Guide to Their Unique Features</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/maximizing-language-learning-with-chatgptplus-features/"><u>Maximizing Language Learning with ChatGPT+ Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-alert-the-ddpai-mini3-bringing-a-new-level-of-entertainment-to-dashcams/"><u>Review Alert! The DDPai Mini3 - Bringing a New Level of Entertainment to Dashcams</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-essential-how-to-manual-for-using-telnet-on-windows-pcs/"><u>The Essential How-To Manual for Using Telnet on Windows PCs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-insightful-assessment-of-vyncs-tracker-steady-performance-but-bewildering-payment-plans/"><u>The Insightful Assessment of Vyncs Tracker: Steady Performance but Bewildering Payment Plans</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-recommended-television-streaming-services/"><u>Top Recommended Television Streaming Services</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/troubleshooting-the-driver-corruptedexpool-problem-on-windows-10-expert-tips-and-tricks/"><u>Troubleshooting the DRIVER CORRUPTED_EXPOOL Problem on Windows 10: Expert Tips & Tricks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-potential-with-the-newest-technology-review-of-apples-improved-ipados-on-the-102-inch-screen/"><u>Unlocking Potential with The Newest Technology: Review of Apple's Improved IPadOS on the 10.2 Inch Screen.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unmatched-gameplay-viewing-the-philips-evnia-49-oled-monitor/"><u>Unmatched Gameplay Viewing: The Philips Evnia 49 OLED Monitor</u></a></li>
 </ul></div>
 

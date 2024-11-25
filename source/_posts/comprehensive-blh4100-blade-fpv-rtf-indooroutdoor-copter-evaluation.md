@@ -1,7 +1,7 @@
 ---
 title: Comprehensive BLH4100 Blade FPV RTF Indoor/Outdoor Copter Evaluation
-date: 2024-11-14T01:22:51.239Z
-updated: 2024-11-15T21:54:14.845Z
+date: 2024-11-19T02:25:08.587Z
+updated: 2024-11-25T00:06:19.619Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive BLH4100 Blade FPV RTF Indoor/Outdoor Copter Evaluation
@@ -43,10 +43,7 @@ Lifewire / Jeffrey Daniel Chadwick
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Kensun AC/DC Portable Air Pump Tire Inflator
@@ -54,10 +51,7 @@ Lifewire / Jeffrey Daniel Chadwick
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
@@ -82,19 +76,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -118,10 +99,7 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: T-minus one minute**
@@ -129,6 +107,10 @@ Lifewire / Jeffrey Daniel Chadwick
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
 
  Lifewire / Jeffrey Daniel Chadwick
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
 
@@ -168,6 +150,10 @@ Lifewire / Jeffrey Daniel Chadwick
 
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  AC/DC Portable Air Pump Tire Inflator
@@ -193,17 +179,22 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-unveiling-the-best-ps5-and-xbox-gaming-monitors/"><u>[New] In 2024, Unveiling the Best PS5 & Xbox Gaming Monitors</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-quick-tips-transferring-camera-roll-from-your-device-to-snapchat-app-for-2024/"><u>[New] Quick Tips Transferring Camera Roll From Your Device to Snapchat App for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/2024s-ultimate-guide-to-selecting-a-superior-netgear-router/"><u>2024'S Ultimate Guide to Selecting a Superior Netgear Router</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-tale-of-two-consoles-distinguishing-features-between-nintendo-switch-lite-and-oled/"><u>A Tale of Two Consoles: Distinguishing Features Between Nintendo Switch Lite and OLED</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-fitness-monitoring-made-excellent-the-detailed-xiaomi-mi-smart-band-4-review/"><u>Affordable Fitness Monitoring Made Excellent - The Detailed Xiaomi Mi Smart Band 4 Review</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/comprehensive-guide-to-m4v-file-restoration-on-os-xpc/"><u>Comprehensive Guide to M4V File Restoration on OS X/PC</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/exploring-advanced-gadgets-with-tom-the-ultimate-guide-to-hardware-innovations/"><u>Exploring Advanced Gadgets with Tom - The Ultimate Guide to Hardware Innovations</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Oppo A59 5G | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Infinix GT 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/troubleshoot-and-fix-dreamlight-valley-pc-crashes-using-our-top-6-tips/"><u>Troubleshoot and Fix Dreamlight Valley PC Crashes Using Our Top 6 Tips</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-capabilities-of-soundbot-sb210-for-exceptional-sound-output-during-chilly-weather/"><u>Unveiling the Capabilities of Soundbot SB210 for Exceptional Sound Output During Chilly Weather</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-of-the-modestly-powered-dell-inspiron-3671-desktop/"><u>Unveiling the Features of the Modestly Powered Dell Inspiron 3671 Desktop</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-master-the-art-of-audible-social-media-posts-without/"><u>[Updated] 2024 Approved Master the Art of Audible Social Media Posts (Without)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-elevate-your-video-visibility-11-secrets-of-successful-seo-for-2024/"><u>[Updated] Elevate Your Video Visibility 11 Secrets of Successful SEO for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-get-savvy-with-screen-recording-on-xiaomi-mi-11-for-2024/"><u>[Updated] Get Savvy with Screen Recording on Xiaomi Mi 11 for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-archivists-collection-essential-retro-visual-hacks-for-video-editors/"><u>[Updated] The Archivist's Collection Essential Retro Visual Hacks for Video Editors</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-topview-assessment-report/"><u>2024 Approved TopView Assessment Report</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/3-ways-to-erase-apple-iphone-xs-max-when-its-locked-within-seconds-drfone-by-drfone-ios/"><u>3 Ways to Erase Apple iPhone XS Max When Its Locked Within Seconds | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/aura-carver-digital-photo-frame-review/"><u>Aura Carver Digital Photo Frame Review</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/evaluating-the-performance-of-the-modestly-priced-dell-inspiron-3671-desktop-pc/"><u>Evaluating the Performance of the Modestly Priced Dell Inspiron 3671 Desktop PC</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-amd-rx-5700-xt-driver-software-for-windows-operating-systems-version-111087/"><u>Get the Latest AMD RX 5700 XT Driver Software for Windows Operating Systems: Version 11/10/8/7</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/grab-your-essential-electronics-find-the-ultimate-deals-for-tribit-wireless-speakers-and-budget-earphones-this-prime-day/"><u>Grab Your Essential Electronics: Find the Ultimate Deals for Tribit Wireless Speakers & Budget Earphones This Prime Day!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hero9s-peak-performance-vs-price-tag-discussion/"><u>HERO9's Peak Performance Vs. Price Tag Discussion</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/hosted-network-problem-on-windows-10-heres-how-to-fix-it/"><u>Hosted Network Problem on Windows 10? Here's How to Fix It</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-radio-waves-with-midlands-top-of-the-line-gxt1000vp4-transceiver-review/"><u>Mastering Radio Waves with Midland's Top-of-the-Line GXT1000VP4 Transceiver Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-amazon-basics-tablet-stand-the-ultimate-pocket-sized-solution-for-on-the-go-users/"><u>Review of Amazon Basics Tablet Stand: The Ultimate Pocket-Sized Solution for On-The-Go Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-an-optimal-connection-with-amplifi-hd-mesh-networking-technology-eradicating-wi-fi-black-spots-effectively/"><u>The Ultimate Guide to an Optimal Connection with Amplifi HD Mesh Networking Technology: Eradicating Wi-Fi Black Spots Effectively</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/understanding-the-iphone-se-2020-a-logical-review-of-apples-compact-powerhouse/"><u>Understanding the iPhone SE (2020): A Logical Review of Apple’s Compact Powerhouse</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unleash-potential-upgrade-your-homes-into-pros-with-win11/"><u>Unleash Potential: Upgrade Your Homes Into Pros with Win11</u></a></li>
 </ul></div>
 

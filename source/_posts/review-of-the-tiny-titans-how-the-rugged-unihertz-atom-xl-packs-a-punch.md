@@ -1,7 +1,7 @@
 ---
 title: "Review of the Tiny Titans: How the Rugged Unihertz Atom XL Packs a Punch"
-date: 2024-11-15T00:39:06.876Z
-updated: 2024-11-15T17:27:52.915Z
+date: 2024-11-23T12:55:07.980Z
+updated: 2024-11-25T01:50:24.676Z
 categories:
   - BestProducts
 description: "This Article Describes Review of the Tiny Titans: How the Rugged Unihertz Atom XL Packs a Punch"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Withings Withings Move Hybrid Smartwatch
 
@@ -48,13 +52,6 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/0q_63hnHYzqQ5_H2Q2RzjXF5Nls=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4161013-1-a308b649704344f6b5fd15dc900e5742.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Yoona Wagener
 
 [View On Amazon](https://www.amazon.com/dp/B07L7168W9/?tag=lifewire-onsite-prod-20&ascsubtag=4766870%7Cn4d8585d7485f4f72aafd3d2cb40e105b12%7CB07L7168W9) [View On Walmart](https://www.walmart.com/ip/Withings-Move-Activity-Tracker-Black/727305177) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fwithings-move-activity-tracker-coral%2F6351601.p%3FskuId%3D6351601)
@@ -83,16 +80,7 @@ Lifewire / Yoona Wagener
 ![Withings Move](https://www.lifewire.com/thmb/SRCqvDOet8fouJ8uY8ze0LlCiog=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-2-1fdc9f06eb6a45f2baa2b840822fba5d.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
@@ -113,13 +101,6 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/Qz1dlsE8jl99mXc7-kQ5LCVoiK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-3-b1e97631284d40829bd5714c59dc5f2a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Yoona Wagener
 
 ## **Setup Process** :**As easy as 1-2-3**
@@ -131,13 +112,6 @@ Lifewire / Yoona Wagener
  The first thing we had to do was sign up for an account in order to move forward with the installation. After we did that, most of the steps took just a few seconds or up to a minute at the longest.
 
  First, we paired the Withings Move with our phone via Bluetooth, which was instantaneous. Next, we provided profile information for better activity metrics, downloaded an update, made sure the watch dials were working and the time was set correctly, and we were good to go.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Comfort: Light as a feather, even while sleeping**
 
@@ -167,7 +141,15 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/vaUmI1isQP98tmL8uIZSghmAWGs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-6-259d8034cfb64485be60f9c5754fec79.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Battery: Long-lasting and hassle-free**
 
@@ -176,10 +158,7 @@ Lifewire / Yoona Wagener
 ![Withings Move](https://www.lifewire.com/thmb/02bkMrpkzqBOue1ffhHNfQqaIuk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-4-df866fafd70a44c592e0e06e0ea53ae7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
@@ -195,13 +174,6 @@ Lifewire / Yoona Wagener
  Despite the lack of a[touchscreen](https://www.lifewire.com/what-is-a-touchscreen-4144770) or dashboard interface on the watch, it was never difficult to sync data with the Health Mate app or view metrics. It’s easy and uncomplicated to use for recording or launching activities—including[tracking food](https://www.lifewire.com/best-food-tracker-apps-4172287) with the MyFitnessPal integration. Since the app is really what provides the “smart” qualities of the device, we hoped it would deliver on that, and it did.
 
  There are also a number of other supplemental programs you can sign up for through the Health Connect app in order to up your general wellness. Most of these programs, which are free to join, require a specific type of Withings device, but others, like a meditation and pregnancy tracking program, don’t need any additional equipment.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: A bargain for the value**
 
@@ -222,6 +194,10 @@ Lifewire / Yoona Wagener
 **Best for those who prefer the analog experience.**
 
  The Withings Move is a strong entry-level fitness tracker for the person who wants to track activities without going all-in on a smartwatch. It’s inexpensive, sporty, and subtle, which makes it compelling for those who don’t want to be distracted by notifications and all the hands-on features smartwatches bring to the table.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -250,20 +226,24 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-superior-free-fb-visual-storyteller-tool-for-2024/"><u>[New] Superior Free FB Visual Storyteller Tool for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-audience-allure-video-marketing-strategies-for-youtube-trailers-via-filmora/"><u>[Updated] Audience Allure Video Marketing Strategies for YouTube Trailers via Filmora</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-pathway-understanding-adobes-storage-solutions-and-best-backups/"><u>2024 Approved The Ultimate Pathway Understanding Adobe's Storage Solutions & Best Backups</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-balancing-cost-against-performance-in-the-swagtron-swagboard-t1/"><u>Comprehensive Review: Balancing Cost Against Performance in the Swagtron Swagboard T1</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/decoding-chipset-technologies-for-pc-builders/"><u>Decoding Chipset Technologies for PC Builders</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dissecting-the-shortcomings-of-nikon-l340/"><u>Dissecting the Shortcomings of Nikon L340</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/examining-luminances-contribution-to-hdr-artscape/"><u>Examining Luminance’s Contribution to HDR Artscape</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-unveiling-the-power-and-quality-of-the-samsung-qn55q60rafxza-smart-tv-with-hdr1nplus/"><u>Expert Review: Unveiling the Power and Quality of the Samsung QN55Q60RAFXZA Smart TV with HDR1n+</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ring-the-depths-of-asmr-audio-magic/"><u>Exploring the Depths of ASMR Audio Magic</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-market-the-finest-netgear-routers-of-2024-for-enhanced-connectivity/"><u>Exploring the Market: The Finest NETGEAR Routers of 2024 for Enhanced Connectivity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/gopros-high-end-black-camera-the-hero9-review/"><u>GoPro's High-End Black Camera - The HERO9 Review</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-tecno-camon-30-pro-5g-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-virtual-excellence-top-5-upcoming-playstation-vr-titles/"><u>In 2024, Unveiling Virtual Excellence Top 5 Upcoming PlayStation VR Titles</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/new-how-to-use-adjustment-layer-in-photoshop-in-2024/"><u>New How to Use Adjustment Layer in Photoshop, In 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/top-7-standing-desks-of-2023-comprehensive-review/"><u>Top 7 Standing Desks of 2023: Comprehensive Review</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-essential-audio-gear-for-active-cameras-for-2024/"><u>[New] Essential Audio Gear for Active Cameras for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastering-immersive-video-expert-techniques-to-enhance-your-360-edits-in-premierepro/"><u>[New] Mastering Immersive Video Expert Techniques to Enhance Your 360° Edits in PremierePro</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-obs-issue-full-screen-bug-fixed/"><u>[New] Obs Issue Full-Screen Bug Fixed</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-tips-for-using-google-meets-built-in-photo-functionality/"><u>[Updated] 2024 Approved Tips for Using Google Meet's Built-In Photo Functionality</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-explore-the-best-no-cost-video-meeting-apps-iosandroid-for-2024/"><u>[Updated] Explore the Best No-Cost Video Meeting Apps - iOS/Android for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-optimize-your-youtube-content-for-maximum-viewership-and-engagement/"><u>[Updated] Optimize Your YouTube Content for Maximum Viewership and Engagement</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-pinpointing-the-premier-hdr-cameras-for-photography-for-2024/"><u>[Updated] Pinpointing the Premier HDR Cameras for Photography for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boost-your-network-with-tp-link-re505x-a-detailed-wi-fi-range-extender-evaluation/"><u>Boost Your Network with TP-Link RE505X: A Detailed Wi-Fi Range Extender Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-extending-your-wireless-network-range/"><u>Comprehensive Guide to Extending Your Wireless Network Range</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-oneplus/"><u>Comprehensive OnePlus</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-bargain-streaming-device-roku-express-packed-with-content-low-cost/"><u>Discover the Bargain Streaming Device: Roku Express Packed with Content, Low-Cost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-unveiling-the-excellence-of-apples-newest-iphone-12-release/"><u>Expert Review: Unveiling the Excellence of Apple's Newest iPhone 12 Release</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-take-on-affordable-and-user-friendly-bouncie-driving-tracker-a-comprehensive-guide/"><u>Expert Take on Affordable and User-Friendly Bouncie Driving Tracker: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hisense-50-inch-4k-uhd-smart-led-tv-high-fidelity-visuals-affordable-price/"><u>Hisense 50-Inch 4K UHD Smart LED TV - High Fidelity Visuals, Affordable Price</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Oppo A56s 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-lenovo-p11-pro-highlighting-its-advantages-and-limitations/"><u>In-Depth Look at the Lenovo P11 Pro: Highlighting Its Advantages and Limitations</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-verdict-on-using-bots-for-economic-planning/"><u>The Verdict on Using Bots for Economic Planning</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unleashing-memories-above-ground-top-tier-cloud-options-reviewed-for-2024/"><u>Unleashing Memories Above Ground Top-Tier Cloud Options Reviewed for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unraveling-the-distinctions-macbook-air-vs-macbook-pro-showdown/"><u>Unraveling the Distinctions: MacBook Air Vs. MacBook Pro Showdown</u></a></li>
 </ul></div>
 

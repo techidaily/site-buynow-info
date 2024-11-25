@@ -1,7 +1,7 @@
 ---
 title: "Razer Book 13 Evaluation: Maximizing Performance in a Portable Package"
-date: 2024-11-08T16:21:00.374Z
-updated: 2024-11-16T00:11:53.611Z
+date: 2024-11-21T20:27:13.310Z
+updated: 2024-11-25T02:29:04.979Z
 categories:
   - BestProducts
 description: "This Article Describes Razer Book 13 Evaluation: Maximizing Performance in a Portable Package"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/8398659134dc24374c71d0ed649ae9e802ceefac0
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Halo Bolt Portable Charger/Jump Starter
 
@@ -81,10 +85,7 @@ Lifewire / Andrew Hayward
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/nYYltjJN71EGK1Dwv2_XABixuhs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-04-85b590a9939a4f44b0c7a510a456b80f.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -97,7 +98,15 @@ Lifewire / Andrew Hayward
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/mUdXUjWxeupVqNR_y43_eFTC0ic=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-02-69b93dc934684ef5b71a40215f6162f2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Charging Speed and Battery: Not so long-lasting**
 
@@ -115,31 +124,11 @@ Lifewire / Andrew Hayward
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/MNFqifirQ0sn61GPO1e-bLQ1t8s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-06-8bc3449bd35243aaaf67272c1d3774a6-bc803e0a114b4116adf3078af6a2de00.jpeg)
 
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
 ## **Price: It’s priced right**
 
  For a jack-of-all-trades power brick that can jump-start your car and charge its battery, serve as a bright flashlight for roadside emergencies, and charge a wide array of portable devices, the $100 price seen on Amazon looks pretty reasonable. However, given that it couldn’t charge my laptop to total capacity and lacks a USB-C port, handier, higher-capacity charging bricks are available specifically for laptop and smartphone charging needs.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Halo Bolt ACDC 58830 vs. ZMI PowerPack 20000**
 
@@ -154,10 +143,7 @@ Lifewire / Andrew Hayward
  The Halo Bolt isn’t the best option for charging laptops, but it is a solid all-around device for providing backup power to a broader array of gadgets, not to mention jump-starting a car. This versatile device is smart to have around if you drive a car and are frequently mobile with your portable gadgets. I wouldn’t bring it with me on vacation, but it could prove useful before long as a backup device to keep handy.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -186,21 +172,20 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-how-to-add-radial-blur-effect-to-photos-in-photoshop/"><u>[New] In 2024, How to Add Radial Blur Effect to Photos in Photoshop</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-high-definition-pet-cam-a-closer-look-at-petcube/"><u>Affordable High Definition Pet Cam: A Closer Look at Petcube</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/budget-friendly-and-compact-the-ultimate-samsung-galaxy-s10e-assessment/"><u>Budget-Friendly and Compact: The Ultimate Samsung Galaxy S10e Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comparative-insights-fitbit-versa-lites-price-and-performance-breakdown/"><u>Comparative Insights: Fitbit Versa Lite's Price and Performance Breakdown</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-apple-homepod-mini-analysis-featuring-audio-quality-and-smart-assistant-capabilities/"><u>Comprehensive Apple HomePod Mini Analysis: Featuring Audio Quality & Smart Assistant Capabilities</u></a></li>
-<li><a href="https://games-able.techidaily.com/decoding-twitch-platform-features-and-usage-tips/"><u>Decoding Twitch: Platform Features and Usage Tips</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/elite-selections-8-incredible-tools-to-elevate-your-4k-video/"><u>Elite Selections 8 Incredible Tools to Elevate Your 4K Video</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-latest-tech-blog-movavi-screencapture-update/"><u>In 2024, Latest Tech Blog Movavi ScreenCapture Update</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/laptop-as-external-monitor-how-to-easily-project-your-desktop/"><u>Laptop as External Monitor: How to Easily Project Your Desktop</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/the-next-leap-in-gaming-inside-look-at-apples-rumored-revolutionary-game-mode-what-you-need-to-know-now/"><u>The Next Leap in Gaming? Inside Look at Apple's Rumored Revolutionary Game Mode - What You Need to Know Now!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unboxing-the-power-of-compact-tech-an-in-depth-analysis-of-apples-iphone-12-mini/"><u>Unboxing the Power of Compact Tech: An In-Depth Analysis of Apple's iPhone 12 Mini</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/unlock-improved-data-insights-with-our-site-powered-by-cookiebot/"><u>Unlock Improved Data Insights with Our Site, Powered by Cookiebot</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-cinema-magic-explore-the-best-websites-for-movie-trailers/"><u>Unveiling Cinema Magic: Explore the Best Websites for Movie Trailers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-visual-brilliance-of-the-49-inch-sony-xbr49x900f-4k-led-smart-television-expert-review/"><u>Unveiling the Visual Brilliance of the 49-Inch Sony XBR49X900F 4K LED Smart Television: Expert Review</u></a></li>
-<li><a href="https://win11.techidaily.com/work-smart-not-harder-top-time-management-windows-apps/"><u>Work Smart, Not Harder: Top Time Management Windows Apps</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722641134533-xiaomi-mi-smart-band-4-the-ultimate-budget-fitness-tracker-review-why-its-my-choice/"><u>Xiaomi Mi Smart Band 4: The Ultimate Budget Fitness Tracker Review – Why It's My Choice</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-easiest-path-to-personalizing-your-pubg-characters-speech/"><u>[New] 2024 Approved The Easiest Path to Personalizing Your PUBG Character’s Speech</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-vidextracter-facebook-streams/"><u>2024 Approved VidExtracter Facebook Streams</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-poco-c51-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Poco C51 System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/browse-bargains-without-spending-a-penny-on-oodles-classified-listings/"><u>Browse Bargains Without Spending a Penny on Oodle's Classified Listings</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/crafting-videos-top-10-text-styling-hacks/"><u>Crafting Videos Top 10 Text Styling Hacks</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/effektivste-software-fur-die-verkleinerung-von-videodateien-ein-leitfaden/"><u>Effektivste Software Für Die Verkleinerung Von Videodateien - Ein Leitfaden</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-potential-of-asus-rog-gt-ac5300-an-elite-picks-for-gamers-and-tech-aficionados/"><u>Exploring the Potential of Asus ROG GT-AC5300: An Elite Picks for Gamers and Tech Aficionados</u></a></li>
+<li><a href="https://win-net.techidaily.com/flash-presentation-maker-transform-your-powerpoint-slides-into-interactive-flash-with-ease/"><u>Flash Presentation Maker - Transform Your PowerPoint Slides Into Interactive Flash with Ease</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/investigation-unveiling-the-financial-sense-in-owning-an-ipad/"><u>Investigation: Unveiling the Financial Sense in Owning an iPad</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/michael-kors-gen-5e-mkgo-revealed-a-perfect-blend-of-opulence-and-intelligence-in-design/"><u>Michael Kors Gen 5E MKGO Revealed: A Perfect Blend of Opulence and Intelligence in Design</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/middle-of-the-road-meets-modesty-a-critical-look-at-the-dell-inspiron-3671-desktop/"><u>Middle-of-the-Road Meets Modesty: A Critical Look at the Dell Inspiron 3671 Desktop</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/pro-screen-reader-best-video-grabbing-picks/"><u>Pro Screen Reader Best Video Grabbing Picks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-leading-8-mobile-video-games-you-cant-miss/"><u>The Leading 8 Mobile Video Games You Can't Miss</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-language-is-widely-used-by-israelis/"><u>Which Language Is Widely Used by Israelis?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Why You Can't Miss the Epic RPG Adventure in 'Yakuza: Like A Dragon'"
-date: 2024-10-23T20:37:20.683Z
-updated: 2024-10-30T20:58:35.351Z
+date: 2024-11-20T13:32:44.356Z
+updated: 2024-11-25T01:50:27.532Z
 categories:
   - BestProducts
 description: "This Article Describes Why You Can't Miss the Epic RPG Adventure in 'Yakuza: Like A Dragon'"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/dcd52c68a0261301dc49a434565ff933798115ab3
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## SEGA Yakuza: Like a Dragon
 
@@ -68,24 +72,15 @@ Lifewire / Erika Rawes
 
  The[best PC games](https://www.lifewire.com/best-pc-games-4147292) offer something unique that keeps you coming back for more. Yakuza: Like a Dragon takes the standard Yakuza formula and stands it on its head, moving the fighting system from real-time to turn-based and making this entry to the series feel like a true JRPG. I played Yakuza: Like a Dragon[on PC](https://www.lifewire.com/best-pc-games-4147292) to find out if these changes make this game better or worse. Should you play the new Yakuza or skip it? Read on to check out my full review of Yakuza: Like a Dragon.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Setting and Plot: A very long intro
 
  Yakuza: Like a Dragon places you in the shoes of Ichiban Kasuga, a young Yakuza upstart who was raised as an orphan in a Soap House by the owner and the women who worked there. Kasuga gets into a bit of trouble with a Yakuza family but is saved by Masumi Arakawa, the patriarch of the Arakawa family. Because of this, Kasuga pledges his life to Arakawa, promising to repay the debt.
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/Mo4mMH944CddmYJTyCxtMRxK9-k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_05-e59c99ba9bd249e7a2241f532dd742dc.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -96,10 +91,7 @@ Lifewire / Erika Rawes
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/_ksFqEWrm3B3MbfrBujuNtLpcXw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_03-37ca82f2a4cd42c4ad65f34e2ca63b68.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -111,13 +103,6 @@ Lifewire / Erika Rawes
  Yakuza: Like a Dragon is clearly inspired by games like Dragon Quest. So much so that eventually, and in a truly hilarious fashion, Kasuga begins having delusions of being a hero, and makes it his life's mission to become a hero who can save everyone around him. These delusions play out in a physical change that takes place over enemies during combat. Their eyes turn red, and their bodies change, but Kasuga is the only one who can see these changes.
 
  Overall, the story is interesting and engaging, with excellent voice acting and deep and interesting characters. There are plenty of opportunities to get to know the people who travel with you, and you come to care about the characters and their motivations. Yakuza: Like a Dragon is story-rich, and you won’t be disappointed at the amount of content to explore.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Gameplay: Fun, yet slow-paced at times
 
@@ -132,10 +117,7 @@ Lifewire / Erika Rawes
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/ZvcwNcecc79umImvw53CUJlLvIc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_02-6396bcd8866c4a479331a02e160eb890.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -162,6 +144,10 @@ Lifewire / Erika Rawes
 
 Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Price: The typical $60
 
  The base version of Yakuza: Like a Dragon comes in at $60 like most new titles. The price is reasonable for the amount of gameplay. However, you have two other purchase options as well. The Hero Edition, which costs $70, includes the Job Set and the Management Mode set and features two extra jobs and three sets of Management mode employees.
@@ -177,13 +163,6 @@ Lifewire / Erika Rawes
 **An entertaining and addictive JRPG.**
 
  A well-crafted masterpiece. Yakuza: Like a Dragon falls into the must-play category for anyone who loves a good story, JRPGs, or a wild game that will make you laugh. It’s definitely a departure from the rest of the series, but that contributes to a lot of the fun and uniqueness of the game.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -219,19 +198,19 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-superior-virtual-music-showcase-for-2024/"><u>[New] Superior Virtual Music Showcase for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-cinematic-lighting-5-must-haves-for-streams/"><u>2024 Approved Cinematic Lighting 5 Must-Haves for Streams</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/canadian-fongo-plan-evaluation-comprehensive-analysis-of-the-top-voip-solution/"><u>Canadian Fongo Plan Evaluation: Comprehensive Analysis of the Top VoIP Solution</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/effortlessly-auto-code-with-these-7-powerful-solutions-no-chatgpt-required/"><u>Effortlessly Auto-Code with These 7 Powerful Solutions (No ChatGPT Required)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exercise/"><u>Exercise</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/expert-advice-on-repairing-missing-or-corrupted-msodll-files/"><u>Expert Advice on Repairing Missing or Corrupted Mso.dll Files</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/fun-and-riveting-overwatch-review-a-high-octane-cooperative-shooter-gaming-adventure/"><u>Fun & Riveting Overwatch Review: A High-Octane, Cooperative Shooter Gaming Adventure</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-overcoming-invisible-vids-on-facebook-master-the-12-essentials-in-23/"><u>In 2024, Overcoming Invisible Vids on Facebook – Master the 12 Essentials in '23</u></a></li>
-<li><a href="https://win-best.techidaily.com/preserve-your-data-while-refreshing-mastering-the-art-of-no-loss-windows-11-reboots-with-these-techniques/"><u>Preserve Your Data While Refreshing: Mastering the Art of No-Loss Windows 11 Reboots with These Techniques</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/restoring-your-touch-functionality-on-windows-11-5-effective-strategies/"><u>Restoring Your Touch Functionality on Windows 11 – 5 Effective Strategies</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-bouncie-the-user-friendly-budget-conscious-gps-tracking-solution/"><u>Review of Bouncie: The User-Friendly, Budget-Conscious GPS Tracking Solution</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-logitechs-pro-hd-c92-1-webcam-for-crystal-clear-video-quality/"><u>The Ultimate Review of Logitech's Pro HD C92 1 Webcam for Crystal Clear Video Quality</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-when-realme-v30t-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Realme V30T Has Black Screen of Death? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/why-the-netgear-orbi-is-your-ideal-choice-for-premium-mesh-routers/"><u>Why the Netgear Orbi Is Your Ideal Choice for Premium Mesh Routers</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-producing-dynamic-content-for-discord-channels/"><u>[New] In 2024, Producing Dynamic Content for Discord Channels</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-digital-download-king-comprerante-video-acquisition-guide/"><u>[Updated] Digital Download King Comprerante Video Acquisition Guide</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-navigating-the-best-spots-for-quality-instagram-ringtone-purchases/"><u>2024 Approved Navigating the Best Spots for Quality Instagram Ringtone Purchases</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/exchange-success-stories-with-it-whiz-fabio-goncalves/"><u>Exchange Success Stories with IT Whiz Fabio Goncalves</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/fast-conversion-techniques-for-changing-avi-files-to-the-efficient-h264-codec/"><u>Fast Conversion Techniques for Changing AVI Files to the Efficient H.264 Codec</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-health-monitoring-with-fitbit-sense-a-smart-alternative-to-the-popular-apple-watch/"><u>Innovative Health Monitoring with Fitbit Sense - A Smart Alternative to the Popular Apple Watch</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/parallel-screen-data-replay-for-2024/"><u>Parallel Screen Data Replay for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionize-your-audio-experience-with-ions-tailgater-plus-seamless-boosted-sound-explained/"><u>Revolutionize Your Audio Experience with ION's Tailgater Plus: Seamless, Boosted Sound Explained</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/smart-security-simplified-an-in-depth-review-of-the-ring-video-doorbell-pro/"><u>Smart Security Simplified: An In-Depth Review of the Ring Video Doorbell Pro</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/step-up-your-slide-shows-with-these-top-10-free-resources/"><u>Step Up Your Slide Shows with These Top 10 Free Resources</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-lenovo-thinkpad-x12-detachable-dissected-a-game-changing-2-in-1-with-an-unparalleled-keyboard-for-professionals/"><u>The Lenovo ThinkPad X1^2 Detachable Dissected - A Game-Changing 2-in-1 with an Unparalleled Keyboard for Professionals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-understanding-imo-messengers-strengths-and-weaknesses/"><u>The Ultimate Guide to Understanding Imo Messenger's Strengths & Weaknesses</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-4k-is-getting-popular-these-days-while-in-this-article-introduces-top-10plus-free-4k-video-converters-for-windows-and-mac-in-case-that-you-have-limi/"><u>Updated 4K Is Getting Popular These Days, While in This Article Introduces Top 10+ Free 4K Video Converters for Windows and Mac in Case that You Have Limited Access to 4K Video Playing</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-en-2022-puede-editar-todos-los-videos-inmediatamente-despues-de-capturarlos-pero-primero-debe-descubrir-una-aplicacion-de-edicion-de-vlogs-que-realm/"><u>Updated En 2022, Puede Editar Todos Los Videos Inmediatamente Después De Capturarlos, Pero Primero Debe Descubrir Una Aplicación De Edición De Vlogs Que Realmente Le Guste Usar</u></a></li>
 </ul></div>
 

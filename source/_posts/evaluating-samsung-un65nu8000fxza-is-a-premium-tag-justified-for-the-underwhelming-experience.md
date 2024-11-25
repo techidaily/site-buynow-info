@@ -1,7 +1,7 @@
 ---
 title: Evaluating Samsung UN65NU8000FXZA - Is a Premium Tag Justified for the Underwhelming Experience?
-date: 2024-11-09T01:06:42.815Z
-updated: 2024-11-15T19:03:59.609Z
+date: 2024-11-19T22:43:10.501Z
+updated: 2024-11-25T01:02:57.752Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating Samsung UN65NU8000FXZA - Is a Premium Tag Justified for the Underwhelming Experience?
@@ -17,6 +17,10 @@ thumbnail: https://www.lifewire.com/thmb/-VS2-Etc0zkaOlIkOJ7aMJ5ymJo=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Alienware Aurora R9
 
@@ -43,15 +47,16 @@ Lifewire / Zach Sweat
 3.3
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Alienware Aurora R9
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/BiBvvSXCg5l15o1T-fJmijAM9PQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -87,6 +92,10 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Polarizing sci-fi aesthetics**
 
  The best way to describe Alienware’s design for a vast majority of their products can be summed up as “polarizing.” Going all the way back to the company’s early days, their sci-fi and alien-esque aesthetics have always appealed to some, while those who prefer clean lines and minimal looks flee in the opposite direction.
@@ -107,13 +116,6 @@ Lifewire / Zach Sweat
 
  Inside the case, Alienware has made the new R9 quite upgradeable, allowing owners to easily pull things apart for access to various components. Though it’s a bit cramped inside, the genius ability to swing the PSU (power supply unit) out to the side when the case is removed provides easier access to the motherboard and all its parts. While we’re a bit concerned with the airflow due to this tight fit inside the case, it does allow you to upgrade hardware down the line if you want.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Plug and play**
 
  Because this is a prebuilt, setting up your new PC is super simple—essentially plug and play. This is another hugely important thing to consider if you want to get into PC gaming, but don’t know the first thing about installing an OS, troubleshooting build issues or navigating the BIOS.
@@ -125,13 +127,6 @@ Lifewire / Zach Sweat
  Upon landing at your new desktop within Windows 10, the rest of the setup process is mostly up to you. Typically, I continue the initial process by checking for Windows updates, installing those first and restarting as necessary, followed by downloading updates for drivers and graphics cards. Once you’ve got the important software updated, the next best thing is to download your favorite apps and software you want to use, like Steam, Spotify, Chrome, etc.
 
  From here, you can either fine tune your new PC’s looks within the settings menu or keep things as they are. If you’re using a monitor with a higher refresh rate or resolution, it’s also a good idea to ensure your PC is fully utilizing this by perusing the display settings and options. After all, nobody likes finding out they’ve been stuck on 60Hz with their display that’s capable of hitting 144Hz.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Results may vary**
 
@@ -151,6 +146,10 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Gaming: From ok to amazing, if you have the cash**
 
  Much like performance in everyday tasks, your performance in gaming is based on what hardware your Aurora features. You can go all the way up to a monsterous gaming rig with a GTX 2080, or all the way down to our little base model with a GTX 1650, so it’s up to you how much performance you’re willing to pay for.
@@ -167,13 +166,6 @@ Lifewire / Zach Sweat
 
  Your gaming performance in relation to the Aurora is subject to your hardware, peripherals and network speeds if playing an online game, so choose the best model you can afford within your budgetary restrictions and keep in mind how you plan to use your PC.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Audio: Decent prebuilt performance and surround sound**
 
  A quality audio setup is something often overlooked when it comes to computers, but it’s something that can really add to the overall enjoyment of your PC. Immersive soundscapes in games and movies, astounding dynamic range in music and crisp, clear dialogue combine to separate the mediocre computers from the great.
@@ -185,6 +177,10 @@ Lifewire / Zach Sweat
  If you’ve got a beefy external audio setup with lots of speakers, you’re in luck, as the R9 features tons of ports for your equipment. Ports on the back include a center/subwoofer output, rear surround output, side surround output and two coaxial S/PDIF ports for connecting an amplifier, speakers or a TV for digital audio output through a coaxial cable.
 
  Although true audiophiles will still want to stick with a DAC, or digital-to-analog converter, the Aurora R9 packs in pretty decent audio options for most users.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Network: Solid Ethernet, average Wi-Fi**
 
@@ -201,13 +197,6 @@ Lifewire / Zach Sweat
  There are multiple Wi-Fi options for hardware on the R9 if you’re willing to pay extra, but the included 802.11ac 2x2 Wireless, Wi-Fi and Bluetooth 4.1 worked well enough for us in a pinch. Even still, you’re better off using a cable.
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wMnVqt6RV24C1Vfncnf2J3E0fAg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-15-fe70fca5ffd04da6abd8c0ef8f026eef-f6d5eaf9efcb461a902fc750a192dd0c.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -281,24 +270,22 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagrams-slow-motion-secrets-reels-done-right/"><u>[New] In 2024, Instagram's Slow Motion Secrets Reels Done Right</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-navigating-freezing-of-fb-video-ads/"><u>[Updated] 2024 Approved Navigating Freezing of FB Video Ads</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-smoothmoves-recordwatcher-study/"><u>2024 Approved SmoothMoves RecordWatcher Study</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-trusted-picks-best-5-videographer-software-tools/"><u>2024 Approved Trusted Picks Best 5 Videographer Software Tools</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210711808-9781454936718-a-little-bit-of-goddess/"><u>A Little Bit of Goddess | Free Book</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/alexa-or-google-assistant-an-in-depth-comparison-to-help-you-decide-which-is-better-for-your-needs/"><u>Alexa or Google Assistant? An In-Depth Comparison to Help You Decide Which Is Better for Your Needs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/all-in-one-laptop-assessment-studying-working-and-enjoying-life-on-the-hp-chromebook-11/"><u>All-in-One Laptop Assessment: Studying, Working & Enjoying Life on the HP Chromebook 11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-eero-pro-mesh-network-router-assessment-ideal-choice-for-whole-house-connectivity/"><u>Comprehensive Eero Pro Mesh Network Router Assessment – Ideal Choice For Whole House Connectivity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-alcatels-joy-tab-2-best-value-lte-tablets-compared/"><u>Comprehensive Review of Alcatel's Joy Tab 2 - Best Value LTE Tablets Compared</u></a></li>
-<li><a href="https://fox-info.techidaily.com/daily-video-consumption-gb-breakdown/"><u>Daily Video Consumption GB Breakdown</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/deconstructing-googles-pixel-slate-an-in-depth-chromeos-review/"><u>Deconstructing Google's Pixel Slate: An In-Depth ChromeOS Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-americas-best-value-singing-rooms-karaoke-nights-for-150-or-less/"><u>Discover America's Best Value Singing Rooms: Karaoke Nights For $150 or Less</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/economical-studiolightkit-unveiled/"><u>Economical StudioLightkit Unveiled</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Samsung Galaxy M14 4G | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-crafting-winning-marketing-campaigns-based-on-market-research-data/"><u>In 2024, Crafting Winning Marketing Campaigns Based on Market Research Data</u></a></li>
-<li><a href="https://fox-that.techidaily.com/navigating-iphone-snapshot-complications-strategies-for-successful-management-and-editing/"><u>Navigating iPhone Snapshot Complications – Strategies for Successful Management and Editing</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/remove-the-lock-screen-fingerprint-of-your-samsung-galaxy-m54-5g-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Samsung Galaxy M54 5G</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-top-contender-in-smart-tracking-devices-a-deep-dive-into-apple-airtags-for-iphone-users/"><u>Unveiling The Top Contender in Smart Tracking Devices: A Deep Dive Into Apple AirTags for iPhone Users</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/upgrading-gpus-simplified-tips-and-tricks-for-improved-performance/"><u>Upgrading GPUs Simplified: Tips and Tricks for Improved Performance</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-ultimate-low-cost-gaming-setups-keyboard-picks/"><u>[New] 2024 Approved Ultimate Low-Cost Gaming Setups Keyboard Picks</u></a></li>
+<li><a href="https://win-blog.techidaily.com/a-cycle-of-adversity-and-endurance-the-story-of-black-survival-through-generations/"><u>A Cycle of Adversity and Endurance: The Story of Black Survival Through Generations</u></a></li>
+<li><a href="https://win-blog.techidaily.com/download-the-movavi-video-converter-pro-top-ranked-free-mac-video-transcoding-tool/"><u>Download the Movavi Video Converter Pro - Top-Ranked Free Mac Video Transcoding Tool</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/email-showdown-determining-if-gmail-or-outlook-rules-the-inbox-space/"><u>Email Showdown: Determining if Gmail or Outlook Rules the Inbox Space</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-financial-investment-for-youtube-ads-success/"><u>In 2024, Financial Investment for Youtube Ads Success</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-gently-ebbing-sounds-with-logic-pros-dimming-function/"><u>In 2024, Gently Ebbing Sounds with Logic Pro's Dimming Function</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-how-does-the-rexing-v1-dashcam-stand-out-for-discretion-and-dependability/"><u>In-Depth Analysis: How Does the Rexing V1 Dashcam Stand Out for Discretion and Dependability?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-the-hp-stream-14-navigating-trade-offs-for-an-economical-windows-experience/"><u>Inside the HP Stream 14 – Navigating Trade-Offs for an Economical Windows Experience</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/leading-titles-for-3d-visuals-and-lustrous-text-online-for-2024/"><u>Leading Titles for 3D Visuals & Lustrous Text Online for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nba-2k19-the-premiere-basketball-simulator/"><u>NBA 2K19: The Premiere Basketball Simulator</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nvidia-shield-tv-pro-exposed-top-tier-entertainment-hub-for-avid-gamers/"><u>Nvidia Shield TV Pro Exposed: Top-Tier Entertainment Hub for Avid Gamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/overcooked-2-review-delicious-mayhem/"><u>Overcooked! 2 Review: Delicious Mayhem</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-fusion-of-vintage-charm-and-modern-upgrades-on-the-samsung-galaxy-watch3/"><u>Reviewing the Fusion of Vintage Charm and Modern Upgrades on the Samsung Galaxy Watch3</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/universal-unlock-pattern-for-samsung-galaxy-a15-4g-by-drfone-android/"><u>Universal Unlock Pattern for Samsung Galaxy A15 4G</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlock-hidden-desktop-shortcut-magic-learn-to-enable-the-finder-path-bar/"><u>Unlock Hidden Desktop Shortcut Magic - Learn to Enable the Finder Path Bar</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unmatched-tech-elevation-through-srs-enhancement/"><u>Unmatched Tech Elevation Through SRS Enhancement</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/us-premiere-of-nickwatch-a-highlight-from-this-years-kids-choice-awards/"><u>US Premiere of NickWatch: A Highlight From This Year's Kids' Choice Awards</u></a></li>
 </ul></div>
 
