@@ -1,7 +1,7 @@
 ---
 title: Unrivaled Gadget Selections for the Seasoned Geek's Christmas Wishlist, 2021 Edition
-date: 2024-08-30T14:04:30.243Z
-updated: 2024-08-31T14:04:30.243Z
+date: 2024-11-28T03:49:26.781Z
+updated: 2024-12-05T00:43:04.093Z
 tags:
   - buying-guides
 categories:
@@ -29,6 +29,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021
 
  \[commerce\_authority\_block\]
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  The Best Tech Gifts for the Geek That Has it All
 
  As adults, many of us take advantage of any disposable income to treat ourselves to the things we couldn't afford as kids on an allowance. It means that whatever someone is into is often tricky to buy for them because they've already invested their disposable income into it.
@@ -42,8 +46,9 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021
 ![Pursonic toothbrush sanitizer on pink background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/toothbrush-sanitizer.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Pursonic
 
  Oral hygiene is essential to everyone. In a gift-giving sense, this offers a chance to buy someone who loves a cool gadget they're unlikely to already own. The [Pursonic UV Toothbrush Sanitizer](https://www.amazon.com/Pursonic-S1-Portable-Toothbrush-Sanitizer/dp/B004ZXN3XO?tag=hotoge-20&ascsubtag=UUhtgUeUpU208235&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F763016%2Fgifts-for-geeks%2F&asc%5Fcampaign=Short-Term) is a neat little device that kills off bacteria on a toothbrush, making teeth brushing that much more effective.
@@ -52,9 +57,6 @@ Pursonic
 
 ![41rDvaciNCS._SL500_-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/41rdvacincs-_sl500_-1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 #####  Pursonic S1 Portable UV Toothbrush Sanitizer
 
 $13 $20 Save $7 
@@ -67,9 +69,6 @@ Clean the thing that makes their teeth clean. It makes sense.
 
 ![Samsung sanitizer surrounded by devices](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/samsung-uv-sanitizer.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 Samsung
 
  We've all become a bit more aware of how dirty things can be over the last two years, so it's good to keep things we often touch clean. [Mashable reports](https://www.anrdoezrs.net/links/3607085/type/dlg/sid/UUhtgUeUpU208235/https://www.youtube.com/watch?v=x00otjSL6GQ) that mobile phones can be dirtier than toilets because of how often we touch them, so it's an important priority to clean a smartphone regularly.
@@ -87,8 +86,9 @@ Help them keep their phone as clean as possible, and keep it charged.
 [$25 at Amazon](https://www.amazon.com/Samsung-Electronics-Wireless-Charger-Sanitizer/dp/B08BJFRS78) 
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Rocketbook Smart Notebook: High-Tech Note Taking
 
 ![person writing in rocketbook](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/07/student-gifts-rocketbook.jpg) 
@@ -105,15 +105,16 @@ Rocketbook
 
 ![41hFNYEu2RL._SL500_-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/41hfnyeu2rl-_sl500_-1.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #####  Rocketbook Wave Smart Notebook
 
 A reusable smark notebook for the note-loving person in your life. 
 
 [See at Amazon](https://www.amazon.com/Rocketbook-Wave-Smart-Notebook-Executive/dp/B01GTYVEHI) 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  Milwaukee Heated Jacket: Look Cool, Stay Warm
 
 ![Heated Jacket on yellow background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/heated-jacket.jpg) 
@@ -126,9 +127,6 @@ Milwaukee
 
 ![51MyvayxLtL._SL500_-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/51myvayxltl-_sl500_-1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 #####  Milwaukee Hoodie M12 12V Lithium-Ion Heated Jacket
 
 A jacket that'll keep them warmer than ever before. 
@@ -136,20 +134,16 @@ A jacket that'll keep them warmer than ever before.
 [$182 at Amazon](https://www.amazon.com/Milwaukee-Hoodie-Lithium-Ion-Heated-Jacket/dp/B01N0MZJXW?th=1%22target%3D%22%5Fblank&tag=hotoge-20&ascsubtag=UUhtgUeUpU208235&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F763016%2Fgifts-for-geeks%2F&asc%5Fcampaign=Short-Term) 
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  DJI Osmo Pocket: A Livestreamer's Best Friend
 
 ![Person using Osmo Pocket with phone](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/omso.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Osmo
 
@@ -169,16 +163,10 @@ A surprisingly powerful camera in a very lightweight and easy-to-use frame.
 
 [$129 at Amazon](https://www.amazon.com/DJI-Stabilizer-integrated-Attachable-Smartphone/dp/B07KVV1W5S/) 
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Philips SmartSleep Wake-up Light: Make Mornings Better
 
 ![Person using Philips wake up light](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/philips-wake-up-light.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Philips
 
  Most aren't morning people. But, the reason for that could well be that we're just using the wrong alarms to wake up to.
@@ -189,25 +177,16 @@ Philips
 
 ![416+pm4GweL._SL500_-4](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/416-pm4gwel-_sl500_-4.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #####  Philips SmartSleep Wake-Up Light
 
 Help them wake up with a gentle light, some nice noises, and a smile.
 
 [$109 at Amazon](https://www.amazon.com/Philips-Simulation-Headspace-Subscription-HF3520/dp/B0093162RM) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  Wacaco Minipresso: Coffee on the Go
 
 ![espresso maker being used outside](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/wacaco-espresso-maker.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Wacaco
 
  Sometimes people need an extra shot of coffee to get through the day. Or through a road trip. Or through anything, really.
@@ -221,6 +200,10 @@ Wacaco
 A perfect espresso on the go. All they need to do is add water and squeeze. 
 
 [$55 at Amazon](https://www.amazon.com/dp/B00VTA9F6U/) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Ember Smart Mug: Keep Things Hot
 
@@ -248,6 +231,10 @@ Keep hot drinks hot for as long as is needed with one handy device.
 
 ![Jackyled Balancing Lamp turned on](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/balance-lamp.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Jackyled
 
  Having a good light source is incredibly useful, but there's no reason that has to be the only function when there are so many cool options available.
@@ -259,8 +246,9 @@ Jackyled
 ![313hb6bFIAL._SL500_-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/313hb6bfial-_sl500_-1.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 #####  Jackyled Balance Lamp
 
 A lamp with a quirky twist. A very practical feature piece. 
@@ -271,6 +259,10 @@ A lamp with a quirky twist. A very practical feature piece.
 
 ![Word clock on table](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/word-clock.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Sharper Image
 
  There are many ways to tell the time, but most people opt for a digital clock nowadays. If you're looking for a more interesting time-based gift for someone you love, then we suggest the [Sharper Image Light Up Electronic Word Clock](https://www.amazon.com/SHARPER-Electronic-Display-Adapter-Contemporary/dp/B07CD7S9PZ?tag=hotoge-20&ascsubtag=UUhtgUeUpU208235&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F763016%2Fgifts-for-geeks%2F&asc%5Fcampaign=Short-Term).
@@ -279,9 +271,6 @@ Sharper Image
 
 ![51CgTIuAX+L._SL500_-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/51cgtiuax-l-_sl500_-1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 #####  Sharper Image Light Up Electronic Word Clock
 
 $26 $27 Save $1 
@@ -296,8 +285,6 @@ An entirely different way of telling the time that'll never get old.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -305,4 +292,20 @@ An entirely different way of telling the time that'll never get old.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-reigning-over-micro-drones-the-dji-spark-breakdown-for-selfies-for-2024/"><u>[New] Reigning Over Micro Drones The DJI Spark Breakdown for Selfies for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ho-holds-sway-over-youtube-subscribers-for-2024/"><u>[New] Who Holds Sway Over YouTube Subscribers for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/broadcast-tools-battle-wirecast-versus-obs-in-detail/"><u>Broadcast Tools Battle Wirecast versus OBS in Detail</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/compre-cookie-cutter-webinar-logging-a-windows-and-macos-manual-for-2024/"><u>Compre Cookie Cutter Webinar Logging A Windows & macOS Manual for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cost-effective-choice-evaluation-6-sheet-amazon-basics-paper-cutter-a-detailed-look/"><u>Cost-Effective Choice Evaluation: 6-Sheet Amazon Basics Paper Cutter - A Detailed Look</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/effortless-illumination-with-neewers-tt560-speedlite/"><u>Effortless Illumination with Neewer's TT560 Speedlite</u></a></li>
+<li><a href="https://win11.techidaily.com/enhancing-system-repair-accessibility-in-windows-11/"><u>Enhancing System Repair Accessibility in Windows 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fire-hd-8-a-budget-friendly-tablet-with-top-notch-performance/"><u>Fire HD 8 : A Budget-Friendly Tablet with Top-Notch Performance</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-vivo-y100i-power-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Vivo Y100i Power 5G? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/how-to-keep-the-momentum-ios-and-android-gif-savings/"><u>How to Keep the Momentum IOS & Android GIF Savings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-netgear-nighthawk-rax80-brilliance-packaged-for-speed-and-style/"><u>In-Depth Look at the Netgear Nighthawk RAX80 - Brilliance Packaged for Speed and Style</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-performance-unleashed-a-comprehensive-alienware-aurora-r11-gaming-computer-assessment-top-pick/"><u>Ultimate Performance Unleashed: A Comprehensive Alienware Aurora R11 Gaming Computer Assessment - Top Pick</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/understanding-your-devices-potential-with-the-latest-iphone-features/"><u>Understanding Your Device’s Potential with the Latest iPhone Features</u></a></li>
+</ul></div>
 

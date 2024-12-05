@@ -1,7 +1,7 @@
 ---
 title: TIG Welding Uses a Non-Consumable Tungsten Electrode.
-date: 2024-08-30T14:11:46.065Z
-updated: 2024-08-31T14:11:46.065Z
+date: 2024-12-02T03:50:13.136Z
+updated: 2024-12-05T02:40:25.963Z
 categories:
   - BestProducts
 description: This Article Describes TIG Welding Uses a Non-Consumable Tungsten Electrode.
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/QRd22JA4rSzaW5pz7rXlvq6QS8Q=/400x300/fi
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/OIHJ0F8VMR0yFUpC8veJBJ39E6A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -67,8 +71,9 @@ thumbnail: https://www.lifewire.com/thmb/QRd22JA4rSzaW5pz7rXlvq6QS8Q=/400x300/fi
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: A lot of power packed into a small frame**
 
  The Beatit Jump Starter D11’s main unit's effectively a small black brick with red accents. Roughly the size of a small paperback book, the unit's constructed out of durable plastic and features a flashlight at one end. Along one of the long sides there's a small display that shows battery status, the on/off switch, two USB power outputs, and the device’s charging port. On the opposing side a rubber flap covers the jumper cable port; a unique port that the jumper cable accessory plugs in to.
@@ -79,6 +84,10 @@ thumbnail: https://www.lifewire.com/thmb/QRd22JA4rSzaW5pz7rXlvq6QS8Q=/400x300/fi
 
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: It can’t realistically be much simpler**
 
  Should you find yourself in a situation where you need to use the jump start functionality of the Beatit Jump Starter D11, you'll find it quite easy to use. On our Elantra test vehicle we simply had to pop the hood, bring the unit over, and plug the jumper cable accessory into its port. Once in place getting a proper connection is a simple matter of attaching the red clamp to the positive battery terminal and then the black clamp to the negative terminal. With a firm connection in place we simply had to set the unit down someplace where the vibration of the engine wouldn’t make it slide and then start the car. With the unit in place the car immediately started with zero hesitation, at which point we could disconnect the unit and get back on the road.
@@ -87,9 +96,6 @@ thumbnail: https://www.lifewire.com/thmb/QRd22JA4rSzaW5pz7rXlvq6QS8Q=/400x300/fi
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Plenty of power for all your needs**
 
  Time and again, the Beatit Jump Starter D11 was able to get a car with a very[depleted battery](https://www.lifewire.com/car-batteries-are-made-to-die-534765) started. Even after repeated testing the unit’s own battery only dropped down to 85% capacity.
@@ -99,9 +105,9 @@ thumbnail: https://www.lifewire.com/thmb/QRd22JA4rSzaW5pz7rXlvq6QS8Q=/400x300/fi
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
  There aren’t a ton of other features present with the Beatit Jump Starter D11 but there are some of note, including the unit’s built-in flashlight. It’s a nice addition to have if you must jump start a car in the middle of the night, but it doesn’t put out of a ton of light and the beam is pretty narrow. You can pick the unit up and use it as a large flashlight, though doing so while also trying to get the clamps attached is cumbersome.
@@ -111,18 +117,15 @@ thumbnail: https://www.lifewire.com/thmb/QRd22JA4rSzaW5pz7rXlvq6QS8Q=/400x300/fi
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: A ton of value for a tiny cost**
 
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
 **_DBPOWER 600A Peak 18000mAh Portable Car Jump Starter:_**  When it comes down to it these two units are surprisingly similar, down to the case and overall design of the unit. If you really want the ability to use your jump starter to also charge your laptop the DBPOWER is worth a look. Otherwise, save yourself around $10 and stick with the Beatit BT-D11.
@@ -139,10 +142,6 @@ thumbnail: https://www.lifewire.com/thmb/QRd22JA4rSzaW5pz7rXlvq6QS8Q=/400x300/fi
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  800A BT-D11 Car Jump Starter
@@ -165,8 +164,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -174,4 +171,26 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-files.techidaily.com/new-2024-approved-sketching-your-signature-tiktok-end-note/"><u>[New] 2024 Approved Sketching Your Signature TikTok End-Note</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-innovating-imagery-through-curve-adjustment/"><u>[New] Innovating Imagery Through Curve Adjustment</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-soundsmiths-scripture-on-crossfading-in-logic/"><u>[Updated] In 2024, The Soundsmith's Scripture on Crossfading in Logic</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-vivid-imagery-with-nikon-j5s-4k-capability-revealed-for-2024/"><u>[Updated] Vivid Imagery with Nikon J5's 4K Capability Revealed for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-designing-a-memorable-youtube-sign-off/"><u>2024 Approved Designing a Memorable YouTube Sign-Off</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-direct-to-your-library-simple-windows-and-mac-techniques-for-downloading-igtv/"><u>2024 Approved Direct to Your Library Simple Windows & Mac Techniques for Downloading IGTV</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/a-taste-of-trending-the-foodie-world-of-tiktok/"><u>A Taste of Trending The Foodie World of TikTok</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-ssls-options-quality-vs-cost/"><u>Affordable SSLS Options: Quality vs Cost?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-face-off-analyzing-features-and-performance-of-iphone-15-pro-and-pro-max/"><u>Apple Face-Off: Analyzing Features and Performance of iPhone 15 Pro & Pro Max</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/artistic-image-alteration-methods/"><u>Artistic Image Alteration Methods</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/buyers-guide-to-the-superior-netgear-orbi-a-detailed-review-of-the-market-leader-in-mesh-routers/"><u>Buyers' Guide to the Superior Netgear Orbi: A Detailed Review of the Market Leader in Mesh Routers</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Oppo Find X7? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-lenovo-thinkpad-x12-exceptional-hybrid-laptop-with-superior-keyboard-quality/"><u>Comprehensive Analysis of the Lenovo ThinkPad X12: Exceptional Hybrid Laptop with Superior Keyboard Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-skagen-falster-3-stylish-and-advanced-technology-in-one-smartwatch/"><u>Expert Analysis of the Skagen Falster 3 - Stylish and Advanced Technology in One Smartwatch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-reviews-on-the-google-wireless-nest-doorbell-battery-edition/"><u>Expert Reviews on the Google Wireless Nest Doorbell – Battery Edition</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-honor-x9a-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Honor X9a Is Unlocked</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-how-stanleys-j5c09-stands-out-with-sizeable-potential/"><u>Review: How Stanley's J5C09 Stands Out with Sizeable Potential</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rotiboxs-bluetooth-enabled-earmuff-hat-review-where-coziness-meets-exceptional-acoustic-experience/"><u>Rotibox's Bluetooth-Enabled Earmuff Hat Review - Where Coziness Meets Exceptional Acoustic Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-for-windows-10-to-11-transition/"><u>The Ultimate Guide for Windows 10 to 11 Transition</u></a></li>
+</ul></div>
 

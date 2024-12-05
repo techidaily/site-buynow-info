@@ -1,7 +1,7 @@
 ---
 title: Unveiling Bose Quiet Control 30 Features
-date: 2024-08-30T14:11:53.604Z
-updated: 2024-08-31T14:11:53.604Z
+date: 2024-11-27T21:23:15.814Z
+updated: 2024-12-04T20:20:21.039Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling Bose Quiet Control 30 Features
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/ycdisyWcVUn3fqPC3BZF52LFHtc=/400x300/fi
 ## SEGA Yakuza: Like a Dragon
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/a-p7jLzGh5XDa5UjESh5w8kXrPk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_HeroSquare-ea84381e359846e6951c77b6f7e7c5a0.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -69,9 +73,6 @@ Lifewire / Erika Rawes
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/Mo4mMH944CddmYJTyCxtMRxK9-k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_05-e59c99ba9bd249e7a2241f532dd742dc.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 Lifewire / Erika Rawes
 
  A few years later, Kasuga is asked to confess to a murder that was really committed by one of the Captains in the family. Kasuga spends 18 years in prison for the crime, which brings us to modern day. Once out of prison, Kasuga finds he no longer has a place in the family due to some serious changes that have taken place while he was away. Kasuga is shot and left for dead in the Yokohama area of Isezaki Ijincho. From there, the game opens up as you try to rebuild everything that was lost and find out what happened.
@@ -81,8 +82,9 @@ Lifewire / Erika Rawes
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/_ksFqEWrm3B3MbfrBujuNtLpcXw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_03-37ca82f2a4cd42c4ad65f34e2ca63b68.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
  Once things open up, the story gets going in what can only be described as a true modern-day JRPG. It has many of the common tropes of a JRPG, like a party system that allows you to manage those who fight with you, turn-based combat, and a long sweeping epic filled with plenty of side quests.
@@ -105,10 +107,6 @@ Lifewire / Erika Rawes
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/ZvcwNcecc79umImvw53CUJlLvIc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_02-6396bcd8866c4a479331a02e160eb890.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 Lifewire / Erika Rawes
 
  The moves are creative and fun to use. After selecting the attack, timed button presses may increase the attack’s effectiveness or provide you with bonus damage. When you need a true power attack, you can use your phone to call PoundMates, which is a special “Summoning” move that calls in an ally to do massive damage. There are tons of PoundMates in the game, from a diaper-wearing adult man to a poisonous lobster named Nancy, and calling these special attacks is part of what makes Yakuza fun to play.
@@ -118,6 +116,10 @@ Lifewire / Erika Rawes
  There’s a job system, which will let you change the different abilities of your team. This lets you customize your party to fill different roles, like healer or tank. However, in Yakuza, you’ll find some rather interesting jobs. There’s gear as well, but this is pretty standard fare. You’ll encounter a ton of diversions and side quests. Some of the minigames are innovative and comical, but some are also very benign.
 
  This[PC game](https://www.lifewire.com/pc-gaming-reviews-4689600) plays just like it should, and the controls are top-notch. Everything just works, which is a rare feat these days. You should be able to finish the main story in around 45 to 55 hours, depending on how fast you run through it, but I highly recommend taking your time and enjoying all the wonderful diversions available.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Graphics: Excellent visuals
 
@@ -131,14 +133,12 @@ Lifewire / Erika Rawes
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/zrV5S3jL3_76G0PVgT1K_Ty6WWI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_04-e33b82262b344fecae27d668b3c92ba9-55ba8acb6d324eed81fbf5453e770db8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Price: The typical $60
 
  The base version of Yakuza: Like a Dragon comes in at $60 like most new titles. The price is reasonable for the amount of gameplay. However, you have two other purchase options as well. The Hero Edition, which costs $70, includes the Job Set and the Management Mode set and features two extra jobs and three sets of Management mode employees.
@@ -155,15 +155,16 @@ Lifewire / Erika Rawes
 
  A well-crafted masterpiece. Yakuza: Like a Dragon falls into the must-play category for anyone who loves a good story, JRPGs, or a wild game that will make you laugh. It’s definitely a departure from the rest of the series, but that contributes to a lot of the fun and uniqueness of the game.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Cyberpunk 2077](https://www.lifewire.com/cyberpunk-2077-review-5113844)
 * [Godfall](https://www.lifewire.com/godfall-review-5095668)
 * [Torment: Tides of Numenera](https://www.lifewire.com/torment-tides-of-numenera-review-5077302)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Yakuza: Like a Dragon
@@ -183,8 +184,6 @@ Lifewire / Erika Rawes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -192,4 +191,24 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-crafting-engaging-sims-4-gameplay-videos-for-2024/"><u>[New] Crafting Engaging Sims 4 Gameplay Videos for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-the-editors-insight-to-seamless-lut-integration-in-premiere-for-2024/"><u>[New] The Editor's Insight to Seamless LUT Integration in Premiere for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-discovering-easy-music-arrangement-in-magix-maker/"><u>2024 Approved Discovering Easy Music Arrangement in Magix Maker</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-ipad-pro-and-macbook-pro-key-distinctions-explored/"><u>Comparing iPad Pro and MacBook Pro: Key Distinctions Explored</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/critical-appraisal-of-the-improved-apple-watch-series-4-peak-performance-redefined/"><u>Critical Appraisal of the Improved Apple Watch Series ‪4: Peak Performance Redefined</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/discover-the-world-from-above-xiaomis-4k-flight-diary-for-2024/"><u>Discover the World From Above - Xiaomi's 4K Flight Diary for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/1721434527560-emoji-free-tweet-space-linuss-revelations-shared-trojans-analyzed-and-chatgpt-critique/"><u>Emoji-Free Tweet Space, Linus's Revelations Shared, Trojans Analyzed, & ChatGPT Critique</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-apple-iphone-se-2020-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Apple iPhone SE (2020) Without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/master-the-quick-fix-how-to-perform-a-hard-reset-on-any-ipad-version/"><u>Master the Quick Fix: How To Perform a Hard Reset on Any iPad Version</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-affordability-a-comprehensive-review-of-the-hp-stream-14s-tradeoffs/"><u>Maximizing Affordability: A Comprehensive Review of the HP Stream 14'S Tradeoffs</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quick-and-easy-guide-to-refreshing-sata-achi-driver-versions/"><u>Quick and Easy Guide to Refreshing SATA ACHI Driver Versions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-cutting-edge-of-home-entertainment-a-thorough-analysis-of-sonys-xbr-49x900f-smart-led-masterpiece/"><u>The Cutting Edge of Home Entertainment: A Thorough Analysis of Sony's XBR-49X900F Smart LED Masterpiece</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-smart-shoppers-guide-to-instant-cameras-under-100/"><u>The Smart Shopper's Guide to Instant Cameras Under $100</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-battle-evaluating-streaming-prowess-between-chromecast-and-roku-devices/"><u>The Ultimate Battle: Evaluating Streaming Prowess Between Chromecast and Roku Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-players-choice-in-tv-technology-in-depth-review-of-samsung-qled-q6/"><u>The Ultimate Player's Choice in TV Technology – In-Depth Review of Samsung QLED Q6</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-notch-samsung-products-at-unbeatable-prices-this-prime-day/"><u>Top Notch Samsung Products at Unbeatable Prices This Prime Day</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlocking-exclusive-privileges-how-evs-gain-edge-with-free-parking-and-carpool-lanes/"><u>Unlocking Exclusive Privileges: How EVs Gain Edge with Free Parking and Carpool Lanes</u></a></li>
+</ul></div>
 

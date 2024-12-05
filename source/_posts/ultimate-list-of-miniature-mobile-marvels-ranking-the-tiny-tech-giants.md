@@ -1,7 +1,7 @@
 ---
 title: Ultimate List of Miniature Mobile Marvels - Ranking the Tiny Tech Giants
-date: 2024-08-30T14:03:36.072Z
-updated: 2024-08-31T14:03:36.072Z
+date: 2024-12-03T22:54:38.163Z
+updated: 2024-12-05T07:01:19.028Z
 tags:
   - buying-guides
 categories:
@@ -86,9 +86,6 @@ The Apple iPhone 15 Pro features a titanium design with Action button, A17 Pro c
 
 ![OxygenOS on the OnePlus Nord N30 5G](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/06/person-holding-the-oneplus-nord-n30-5g-with-the-settings-openjpg_52920102511_o.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _Hannah Stryker / How-To Geek_
 
 | Pros                           | Cons                        |
@@ -108,9 +105,6 @@ _Hannah Stryker / How-To Geek_
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Best Small Budget Phone
 
 #####  OnePlus Nord N30 5G
@@ -122,15 +116,17 @@ The OnePlus Nord N30 might not be the most exciting phone ever built, but for le
 [See at OnePlus](https://onepluscom.pxf.io/c/5597632/916678/12532?subId1=UUhtgUeUpU2003574&subId2=ehtg&u=https%3A%2F%2Fwww.oneplus.com%2Fus%2Foneplus-n30-5g) [$250 at Amazon](https://www.amazon.com/OnePlus-Unlocked-Dual-SIM-Charging-Chromatic/dp/B0C22BRGLG?tag=hotoge-20&ascsubtag=UUhtgUeUpU2003574&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-small-phones%2F&asc%5Fcampaign=Commerce) 
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  The Smallest iPhone: [iPhone SE (3rd Gen)](https://shop-links.co/link/?exclusive=1&publisher%5Fslug=howtogeek&u1=UUhtgUeUpU2003574&article%5Fname=The+Best+Small+Phones+of+2024&article%5Furl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-small-phones%2F&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fapple-iphone-se-3rd-generation-64gb-unlocked-black%2F6507470.p) 
 
 ![Apple iPhone SE](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/apple-iphonese-hero-3up-220308_b.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Apple
 
 | Pros                                 | Cons              |
@@ -148,14 +144,8 @@ Apple
 
 ![black iphone se 2022](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/black-iphone-se-2022-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 Smallest iPhone
 
 #####  iPhone SE 2022
@@ -164,9 +154,17 @@ Although it's considered a budget iPhone compared to the current flagship series
 
 [See at Apple](https://www.apple.com/shop/buy-iphone/iphone-se) [See at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fapple-iphone-se-3rd-generation-64gb-unlocked-midnight%2F6507470.p%3FskuId%3D6507470) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Best Small Android Phone: [Samsung Galaxy Z Flip5](https://www.amazon.com/SAMSUNG-Unlocked-Smartphone-Foldable-One-Hand/dp/B0C63KD7JP?tag=hotoge-20&ascsubtag=UUhtgUeUpU2003574&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-small-phones%2F&asc%5Fcampaign=Commerce) 
 
 ![Samsung Galaxy Z Flip 5 cover display with additional apps and Good Lock widget](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/samsung-galaxy-z-flip-5-cover-display-with-additional-apps-and-good-lock-widget.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Dhruv Bhutani / How-To Geek
 
@@ -185,9 +183,6 @@ Dhruv Bhutani / How-To Geek
 
 ![flip 5-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/flip-5-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 Best Small Android Phone
@@ -205,17 +200,9 @@ The Samsung Galaxy Z Flip 5 is a flip-fold style foldable with a big outside dis
 ![Nokia 2780 Flip](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/nokia_2780_flip-dtc-simple_and_e.jpg) 
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Nokia
 
 | Pros                      | Cons             |
@@ -232,7 +219,15 @@ Nokia
 
 ![Nokia Flip](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/nokia-flip.png) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Best Small Flip Phone
 
@@ -248,8 +243,6 @@ The Nokia 2780 Flip isn't a true smartphone, but its compact size, retro styling
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -257,4 +250,22 @@ The Nokia 2780 Flip isn't a true smartphone, but its compact size, retro styling
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-insightful-analysis-of-modern-human-interaction-systems/"><u>[New] 2024 Approved Insightful Analysis of Modern Human Interaction Systems</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-unveiling-economical-virtual-reality-solutions/"><u>[New] Unveiling Economical Virtual Reality Solutions</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-aligning-content-quality-with-instagrams-user-base/"><u>[Updated] 2024 Approved Aligning Content Quality with Instagram's User Base</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-top-8-linux-screenshot-utilities-compared/"><u>[Updated] Top 8 Linux Screenshot Utilities Compared</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-vlc-video-recording-performance-study-for-2024/"><u>[Updated] VLC Video Recording Performance Study for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-features-of-moto-g-stylus-highly-effective-performance-and-fair-battery-lifespan-reviewed/"><u>Discovering the Features of Moto G Stylus: Highly Effective Performance & Fair Battery Lifespan Reviewed</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/epson-online-functionality-regained/"><u>Epson Online Functionality Regained</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/expert-hashtag-analyzers-for-social-media-giants-fbtweetig/"><u>Expert Hashtag Analyzers for Social Media Giants (FB/Tweet/IG)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/explore-the-thrill-of-digital-arabic-study-with-mondlys-help/"><u>Explore the Thrill of Digital Arabic Study with Mondly's Help</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-newest-driver-upgrades-for-your-hp-printer-on-windows-10-or-11/"><u>Get the Newest Driver Upgrades for Your HP Printer on Windows 10 or 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-ensure-crystal-clear-quality-with-your-ps4-cam-positioning/"><u>How to Ensure Crystal Clear Quality with Your PS4 Cam Positioning</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-watch-dogs-legion-breathing-new-life-into-a-beloved-franchise/"><u>Review of Watch Dogs: Legion - Breathing New Life Into a Beloved Franchise</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/simplify-your-macs-photo-edits-with-our-ultimate-guide-to-using-preview-software/"><u>Simplify Your Mac's Photo Edits with Our Ultimate Guide to Using Preview Software</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-alcatel-joy-tab-2-lte-a-cost-effective-tablet-reviewed/"><u>The Ultimate Guide to the Alcatel Joy Tab 2 LTE - A Cost-Effective Tablet Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-amazonbasics-6-sheets-shredder-on-a-shoestring-budget-our-unbiased-review/"><u>Top Rated AmazonBasics 6-Sheets Shredder on a Shoestring Budget: Our Unbiased Review</u></a></li>
+</ul></div>
 

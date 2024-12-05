@@ -1,7 +1,7 @@
 ---
 title: Comprehensive BLH4100 Blade FPV RTF Indoor/Outdoor Copter Evaluation
-date: 2024-11-19T02:25:08.587Z
-updated: 2024-11-25T00:06:19.619Z
+date: 2024-12-01T20:45:56.842Z
+updated: 2024-12-04T21:56:22.669Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive BLH4100 Blade FPV RTF Indoor/Outdoor Copter Evaluation
@@ -18,9 +18,17 @@ thumbnail: https://www.lifewire.com/thmb/0k72WSI9zpSx_0NVgOzieZdbYDg=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/NWhMBmuK3pkL9EGvdNCEAF8sWEo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -43,16 +51,12 @@ Lifewire / Jeffrey Daniel Chadwick
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -98,19 +102,11 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: T-minus one minute**
 
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
 
  Lifewire / Jeffrey Daniel Chadwick
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
 
@@ -136,6 +132,10 @@ Lifewire / Jeffrey Daniel Chadwick
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
  The Kensun Portable Tire Inflator is similar to the Jaco Digital Tire Inflator, they have similar cord and hose lengths, and can continually run for about half an hour. But the Kensun is more than twice the size of the Jaco, so it can deliver more power to fill your tires faster. Additionally, the Jaco lacks the ability to plug into an AC socket, so you can only use it in your car.
@@ -151,7 +151,7 @@ Lifewire / Jeffrey Daniel Chadwick
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -179,22 +179,19 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-master-the-art-of-audible-social-media-posts-without/"><u>[Updated] 2024 Approved Master the Art of Audible Social Media Posts (Without)</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-elevate-your-video-visibility-11-secrets-of-successful-seo-for-2024/"><u>[Updated] Elevate Your Video Visibility 11 Secrets of Successful SEO for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-get-savvy-with-screen-recording-on-xiaomi-mi-11-for-2024/"><u>[Updated] Get Savvy with Screen Recording on Xiaomi Mi 11 for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-the-archivists-collection-essential-retro-visual-hacks-for-video-editors/"><u>[Updated] The Archivist's Collection Essential Retro Visual Hacks for Video Editors</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-topview-assessment-report/"><u>2024 Approved TopView Assessment Report</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/3-ways-to-erase-apple-iphone-xs-max-when-its-locked-within-seconds-drfone-by-drfone-ios/"><u>3 Ways to Erase Apple iPhone XS Max When Its Locked Within Seconds | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/aura-carver-digital-photo-frame-review/"><u>Aura Carver Digital Photo Frame Review</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/evaluating-the-performance-of-the-modestly-priced-dell-inspiron-3671-desktop-pc/"><u>Evaluating the Performance of the Modestly Priced Dell Inspiron 3671 Desktop PC</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-the-latest-amd-rx-5700-xt-driver-software-for-windows-operating-systems-version-111087/"><u>Get the Latest AMD RX 5700 XT Driver Software for Windows Operating Systems: Version 11/10/8/7</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/grab-your-essential-electronics-find-the-ultimate-deals-for-tribit-wireless-speakers-and-budget-earphones-this-prime-day/"><u>Grab Your Essential Electronics: Find the Ultimate Deals for Tribit Wireless Speakers & Budget Earphones This Prime Day!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/hero9s-peak-performance-vs-price-tag-discussion/"><u>HERO9's Peak Performance Vs. Price Tag Discussion</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/hosted-network-problem-on-windows-10-heres-how-to-fix-it/"><u>Hosted Network Problem on Windows 10? Here's How to Fix It</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-radio-waves-with-midlands-top-of-the-line-gxt1000vp4-transceiver-review/"><u>Mastering Radio Waves with Midland's Top-of-the-Line GXT1000VP4 Transceiver Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-amazon-basics-tablet-stand-the-ultimate-pocket-sized-solution-for-on-the-go-users/"><u>Review of Amazon Basics Tablet Stand: The Ultimate Pocket-Sized Solution for On-The-Go Users</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-an-optimal-connection-with-amplifi-hd-mesh-networking-technology-eradicating-wi-fi-black-spots-effectively/"><u>The Ultimate Guide to an Optimal Connection with Amplifi HD Mesh Networking Technology: Eradicating Wi-Fi Black Spots Effectively</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/understanding-the-iphone-se-2020-a-logical-review-of-apples-compact-powerhouse/"><u>Understanding the iPhone SE (2020): A Logical Review of Apple’s Compact Powerhouse</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unleash-potential-upgrade-your-homes-into-pros-with-win11/"><u>Unleash Potential: Upgrade Your Homes Into Pros with Win11</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-mastering-the-art-of-old-facebook-features-step-by-step/"><u>[New] 2024 Approved Mastering the Art of Old Facebook Features Step-by-Step</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-step-into-fantasy-youtubes-top-10-vr-gems/"><u>[New] In 2024, Step Into Fantasy Youtube's Top 10 VR Gems</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-best-8-streamers-pick-high-end-cameras-reviewed/"><u>2024 Approved Best 8 Streamer's Pick High-End Cameras Reviewed</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-syncing-soundscapes-with-visuals-in-film-teasers/"><u>2024 Approved Syncing Soundscapes with Visuals in Film Teasers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-more-bang-for-your-buck-with-the-ambient-ws-2902a-osprey-an-in-depth-overview/"><u>Experience More BANG FOR YOUR BUCK With the Ambient WS-2902A Osprey - An In-Depth Overview!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/exploring-changes-a-comprehensive-midjourney-v52-vs-v6-alpha-showdown/"><u>Exploring Changes: A Comprehensive MidJourney v5.2 Vs. V6 Alpha Showdown</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-connected-toy-scene-an-in-depth-review-of-the-dash-by-wonder-workshop/"><u>Exploring the Connected Toy Scene: An In-Depth Review of the Dash by Wonder Workshop</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-gionee-frp-by-drfone-android/"><u>How Can We Bypass Gionee FRP?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-long-range-wireless-routers-of-2024-features-reviews-and-comparisons/"><u>Leading Long-Range Wireless Routers of 2024: Features, Reviews & Comparisons</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/power-on-the-go-elite-picks-for-portable-laptop-batteries-this-year/"><u>Power On the Go: Elite Picks for Portable Laptop Batteries This Year</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ratchet-and-clank-review/"><u>Ratchet & Clank Review</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/rediscovering-my-smartphone-after-three-years-an-in-depth-analysis-for-tech-enthusiasts/"><u>Rediscovering My Smartphone After Three Years: An In-Depth Analysis for Tech Enthusiasts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-pathway-to-aural-brilliance-incorporating-and-fine-tuning-sounds-in-canvas-for-2024/"><u>The Pathway to Aural Brilliance Incorporating & Fine-Tuning Sounds in Canvas for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-tp-link-av2000-powerline-adapter-examined-quick-data-transfer-amid-design-disappointments/"><u>The TP-Link AV2000 Powerline Adapter Examined: Quick Data Transfer Amid Design Disappointments</u></a></li>
 </ul></div>
 

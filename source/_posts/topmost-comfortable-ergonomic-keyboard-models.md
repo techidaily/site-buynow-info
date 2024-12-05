@@ -1,7 +1,7 @@
 ---
 title: Topmost Comfortable Ergonomic Keyboard Models
-date: 2024-08-30T14:05:13.298Z
-updated: 2024-08-31T14:05:13.298Z
+date: 2024-11-28T07:32:57.360Z
+updated: 2024-12-05T02:41:24.821Z
 tags:
   - buying-guides
 categories:
@@ -16,6 +16,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023
 * We've updated our buying guide with a variety of new ergonomic keyboards. Take a look!
 
  Picking the best ergonomic keyboard is an important, but personal choice. What you're looking for in terms of support will depend on what you find most comfortable. Whether you want a split keyboard or a concave design, these are the best available.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ###  UPDATE: 01/17/2024
 
@@ -39,11 +43,21 @@ Best Split Ergonomic Keyboard
 * [](https://www.amazon.com/Perixx-Periboard-612-Ergonomic-Bluetooth-Compatible/dp/B07TKLB1ML?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce)  
 ![Perixx Periboard](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/perixx-periboard.png)  
 #####  Perixx Perioboard-612 Wireless Keyboard  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Best Wireless Ergonomic Keyboard  
 [$81 at Amazon](https://www.amazon.com/Perixx-Periboard-612-Ergonomic-Bluetooth-Compatible/dp/B07TKLB1ML?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce)
 * [](https://www.amazon.com/dp/B0148NPH9I/?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce)  
 ![logitech K380](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/logitech-k380.png)  
 #####  Logitech K380 Bluetooth Keyboard  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Best Ergonomic Keyboard for Mac  
 [$29 at Amazon](https://www.amazon.com/dp/B0148NPH9I/?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce)
 * See More
@@ -100,14 +114,8 @@ _Keychron_
 
 ![keychron Q10](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/keychron-q10.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Best Ergonomic Keyboard Overall
 
 #####  Keychron Q10 Mechanical Keyboard
@@ -119,8 +127,9 @@ The Keychron Q10 is both a fantastic mechanical keyboard and ergonomic keyboard.
 [See at Keychron](https://www.keychron.com/products/keychron-q10-alice-layout-qmk-custom-mechanical-keyboard) 
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Best Budget Ergonomic Keyboard: [Logitech K860](https://www.amazon.com/Logitech-Wireless-Ergonomic-Keyboard-Wrist/dp/B07ZWK2TQT/?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce) 
 
 ![A woman's hands typing on a Logitech K860](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/logitech-k860.jpeg) 
@@ -144,9 +153,6 @@ _Logitech_
 
 ![Logitech ERGO K860](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/10/logitech-ergo-k860.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 Best Budget Ergonomic Keyboard
@@ -156,6 +162,10 @@ Best Budget Ergonomic Keyboard
 The Logitech ERGO K860 is a highly adjustable, features a split keyframe design, and comes with an wrist rest for added comfort.  
   
 [$130 at Amazon](https://www.amazon.com/Logitech-Wireless-Ergonomic-Keyboard-Wrist/dp/B07ZWK2TQT?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Best Split Ergonomic Keyboard: [Logitech ERGO K860](https://www.amazon.com/Logitech-Wireless-Ergonomic-Keyboard-Wrist/dp/B07ZWK2TQT?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce) 
 
@@ -186,14 +196,8 @@ The Logitech ERGO K860 is a highly adjustable, features a split keyframe design,
 
 ![logitech ergo K860](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/logitech-ergo-k860.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 Best Split Ergonomic Keyboard
 
 #####  Logitech ERGO K860
@@ -202,11 +206,19 @@ The Logitech ERGO K860 Bluetooth Keyboard is highly recommended for users who wa
 
 [$130 at Amazon](https://www.amazon.com/Logitech-Wireless-Ergonomic-Keyboard-Wrist/dp/B07ZWK2TQT?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce) [See at bestbuy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Flogitech__ergo_k860_%2F6395346.p%3FskuId%3D6395346) [See at Lenovo](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.lenovo.com%2Fus%2Fen%2Fp%2Faccessories-and-software%2Fkeyboards-and-mice%2Fkeyboards%2F78012409) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Best Wireless Ergonomic Keyboard: [Perixx Periboard-612](https://www.amazon.com/Perixx-Periboard-612-Ergonomic-Bluetooth-Compatible/dp/B07TKLB1ML?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce) 
 
 [](https://www.amazon.com/Perixx-Periboard-612-Ergonomic-Bluetooth-Compatible/dp/B07TKLB1ML?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce)
 
 [![Perixx Periboard on green background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/07/Perixx-Periboard-612.jpg) Perixx](https://www.amazon.com/Perixx-Periboard-612-Ergonomic-Bluetooth-Compatible/dp/B07TKLB1ML?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [](https://www.amazon.com/Perixx-Periboard-612-Ergonomic-Bluetooth-Compatible/dp/B07TKLB1ML?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce) 
 
@@ -236,12 +248,13 @@ A solid buy for its wireless connectivity, this option from Perixx is compatible
 
 [$81 at Amazon](https://www.amazon.com/Perixx-Periboard-612-Ergonomic-Bluetooth-Compatible/dp/B07TKLB1ML?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce) 
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Best Ergonomic Keyboard for Mac: [Logitech K380](https://www.amazon.com/Logitech-K380-Multi-Device-Bluetooth-Keyboard/dp/B0148NPH9I/?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce) 
 
 ![A Logitech K380 on a desk with a person's hands, one on the keyboard and one on a mouse.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/logitech-k380.jpeg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Logitech_
 
@@ -264,8 +277,9 @@ _Logitech_
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Best Ergonomic Keyboard for Mac
 
 #####  Logitech K380 Bluetooth Keyboard
@@ -280,9 +294,6 @@ Logitech's most compact FLOW keyboard can fit into almost any laptop or tablet b
 
 [![Logitech MK735 on pink background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/07/logitech-mk735.jpg) Logitech](https://www.amazon.com/Logitech-MK735-Performance-Wireless-Keyboard/dp/B0843MSWR3?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 [](https://www.amazon.com/Logitech-MK735-Performance-Wireless-Keyboard/dp/B0843MSWR3?tag=hotoge-20&ascsubtag=UUhtgUeUpU205369&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F816119%2Fbest-ergonomic-keyboard%2F&asc%5Fcampaign=Commerce) 
 
 | Pros                                                            | Cons                           |
@@ -304,13 +315,11 @@ Logitech's most compact FLOW keyboard can fit into almost any laptop or tablet b
 ![logitech MK735](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/logitech-mk735.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Best Ergonomic Keyboard and Mouse Combo
 
 #####  Logitech MK735
@@ -325,8 +334,6 @@ A major bang for your buck, this Logitech keyboard and mouse combination is frie
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -334,4 +341,16 @@ A major bang for your buck, this Logitech keyboard and mouse combination is frie
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-behind-the-scenes-of-gamers-elite-setup/"><u>[New] Behind the Scenes of Gamers' Elite Setup</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-m1-pro-vs-m1-max-identifying-core-differences/"><u>[New] M1 Pro Vs. M1 Max Identifying Core Differences</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-can-you-change-your-voice-magically-explore-alternative-tools/"><u>[Updated] 2024 Approved Can You Change Your Voice Magically? Explore Alternative Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-how-burst-mode-enhances-gopro-videos/"><u>[Updated] 2024 Approved How Burst Mode Enhances GoPro Videos</u></a></li>
+<li><a href="https://win-forum.techidaily.com/boosting-your-pcs-startup-top-tips-to-accelerate-windows-11-boot-times/"><u>Boosting Your PC's Startup: Top Tips to Accelerate Windows 11 Boot Times</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-high-end-samsung-galaxy-s10-phenomenon/"><u>Comprehensive Evaluation of the High-End Samsung Galaxy S10 Phenomenon</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-wireless-connectivity-an-authoritative-review-of-the-netgear-nighthawk-x4-wi-fi-range-extender/"><u>Mastering Wireless Connectivity: An Authoritative Review of the Netgear Nighthawk X4 Wi-Fi Range Extender</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigate-your-online-world-effortlessly-the-comprehensive-review-of-lenovos-affordable-tablet-m10-hd-2020/"><u>Navigate Your Online World Effortlessly: The Comprehensive Review of Lenovo's Affordable Tablet M10 HD (2020)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-your-nighttime-routine-a-look-at-modern-sleep-solutions/"><u>Transform Your Nighttime Routine: A Look at Modern Sleep Solutions</u></a></li>
+</ul></div>
 

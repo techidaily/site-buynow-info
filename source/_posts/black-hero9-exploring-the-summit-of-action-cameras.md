@@ -1,7 +1,7 @@
 ---
 title: "Black HERO9: Exploring the Summit of Action Cameras"
-date: 2024-08-30T14:10:38.429Z
-updated: 2024-08-31T14:10:38.429Z
+date: 2024-11-28T00:19:42.636Z
+updated: 2024-12-04T17:01:55.953Z
 categories:
   - BestProducts
 description: "This Article Describes Black HERO9: Exploring the Summit of Action Cameras"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/92ed774f3b41ac1777073a488ce58c2ba128a5ace
 ## Survive and Sprint with Friends in the Action-Packed World of Dying Light
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Dying Light
 
@@ -66,6 +70,10 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Straight into the action**
 
  The first time you launch the game you'll be treated to an artistic video over the background of a news report. It explains the situation in Harran, the city where the game takes place. The game proper starts with a cut scene that shows you on a plane, about to parachute out. There’s no character creation here, although once you get a little further into the game, you’ll be able to pick your clothes.
@@ -74,9 +82,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Plot: A character torn between obligation and friendship**
 
  The initial cutscene starts with you on a plane, preparing to jump. Your name is Kyle Crane, and you’re an undercover operative. You’ll parachute to the earth while your boss explains your mission―to find a stolen file―but the second you hit the ground, things don’t go as planned. You’re attacked and forced to fire your weapon to scatter your attackers. Of course, in zombie-infested Harran, a gunshot is zombie bait. Suddenly they're swarming toward you and things look very dire, until you're rescued by a pair of strangers, a man and a woman. The man dies saving you but you and the woman escape. Her name is Jade, and she’ll play a big role throughout the story as you try to win her and her brother’s trust.
@@ -92,8 +97,9 @@ Harran is a whole different city at night.
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Gameplay: Parkour and zombies galore**
 
  You won’t have to wait long in the game before you’re introduced to its main unique mechanic: parkour. Other zombie games focus on having slow zombies you can run away from, or dumb zombies you sneak past, but Dying Light takes a completely different approach. Instead, the basic zombies are fast and almost always know where you are―but they can’t climb or jump. This means you can stay safe by leaping between rooftops, running up ramps, balancing across bars, etc. The parkour feature is the biggest thing that makes Dying Light unique in an oversaturated genre, and also part of what makes the game so much fun. It’s entertaining to cross the city running as fast as you can without pausing, challenging yourself to get from point A to point B without ever touching the ground.
@@ -119,21 +125,23 @@ Harran is a whole different city at night.
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Worth the cost, especially with a friend**
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Competition: Other zombie and parkour games**
 
  There are a lot of other zombie survival games out there, but that doesn’t necessarily mean we’d recommend them if you liked Dying Light. You might consider Days Gone, another PlayStation 4 zombie apocalypse game set in an open world, but if the parkour was the main attraction, you might look into the game Mirror’s Edge Catalyst. The game follows a girl in a sci-fi world and features first-person parkour running and fighting. Instead of the rough and gritty world of Dying Light, Catalyst takes place in a sleek futuristic dystopia that's all glossy chrome and burnished glass.
@@ -146,23 +154,17 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Dying Light
 * Price  $14.00
 * Available Platforms  PC (Steam) Playstation 4 Xbox One OS X Linux
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -171,4 +173,24 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-accelerated-steps-to-unsettle-youtube-playlists/"><u>[Updated] 2024 Approved Accelerated Steps to Unsettle YouTube Playlists</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/alexa-integrated-ultra-hd-ready-insignia-ns-43df710na19-fire-tv-edition-an-unbeatable-combination/"><u>Alexa Integrated, Ultra HD Ready Insignia NS-43DF710NA19 Fire TV Edition - An Unbeatable Combination!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-beantech-bitwatch-s1-plus-revealed-the-ultimate-affordable-smartwatch-analysis/"><u>Comprehensive Beantech Bitwatch S1 Plus Revealed: The Ultimate Affordable Smartwatch Analysis</u></a></li>
+<li><a href="https://os-tips.techidaily.com/comprehensive-tutorial-the-ultimate-method-to-remove-browsing-data-like-search-history-and-cookies-on-your-ipad/"><u>Comprehensive Tutorial: The Ultimate Method to Remove Browsing Data Like Search History and Cookies on Your iPad</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-ultimate-selection-of-educational-sites-offering-online-classes/"><u>Discover the Ultimate Selection of Educational Sites Offering Online Classes</u></a></li>
+<li><a href="https://win-special.techidaily.com/download-stunning-kobe-wallpapers-backgrounds-and-images-from-yl-software-for-your-device/"><u>Download Stunning Kobe Wallpapers, Backgrounds & Images From YL Software for Your Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-of-microsoft-surfaces-superior-ergonomic-keyboard-features-and-quality/"><u>Expert Review of Microsoft Surface's Superior Ergonomic Keyboard Features and Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/has-your-ipad-become-a-relic-of-the-past/"><u>Has Your iPad Become a Relic of the Past?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/honor-x7b-video-recovery-recover-deleted-videos-from-honor-x7b-by-fonelab-android-recover-video/"><u>Honor X7b Video Recovery - Recover Deleted Videos from Honor X7b</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-motorola-razr-40-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Motorola Razr 40 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-narzo-60-5g-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP Lock on Narzo 60 5G</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solving-call-of-duty-warzone-stuttering-issues-a-comprehensive-guide/"><u>Solving Call of Duty: Warzone Stuttering Issues - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-balance-of-quality-and-value-in-sonys-dsc-w800-review/"><u>The Balance of Quality & Value in Sony’s DSC-W800 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-reviews-for-like-a-dragon-from-the-yakuza-series-play-this-jrpg-masterpiece/"><u>Top Reviews for 'Like A Dragon' From the Yakuza Series - Play This JRPG Masterpiece</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/twelve-south-compass-pro-analyzed-masterful-engineering-for-peak-sturdiness/"><u>Twelve South Compass Pro Analyzed: Masterful Engineering for Peak Sturdiness</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-amazonbasics-7-port-usb-30-hub-your-solution-for-connectivity/"><u>Ultimate Guide to the AmazonBasics 7 Port USB 3.0 Hub - Your Solution for Connectivity</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-to-the-most-efficient-wireless-charger-models-of-2024-a-comprehensive-analysis-from-zdnet-experts/"><u>Ultimate Guide to the Most Efficient Wireless Charger Models of 2024: A Comprehensive Analysis From ZDNET Experts</u></a></li>
+</ul></div>
 

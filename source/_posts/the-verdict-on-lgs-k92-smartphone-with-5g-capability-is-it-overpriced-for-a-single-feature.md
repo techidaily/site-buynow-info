@@ -1,7 +1,7 @@
 ---
 title: "The Verdict on LG's K92 Smartphone with 5G Capability: Is It Overpriced for a Single Feature?"
-date: 2024-08-30T14:16:06.133Z
-updated: 2024-08-31T14:16:06.133Z
+date: 2024-11-29T01:35:24.828Z
+updated: 2024-12-04T21:55:24.843Z
 categories:
   - BestProducts
 description: "This Article Describes The Verdict on LG's K92 Smartphone with 5G Capability: Is It Overpriced for a Single Feature?"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/a23b6166dff1d71405deccff3c580ba47c280d1fa
 ## TCL 50S425 50-inch 4K Smart LED Roku TV
 
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/xdZO-ddLXgWQIKHYaUynllKab-w=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_HeroSquare-beccb9820dfd4a878196fac8bdf1d541.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -68,6 +72,10 @@ Lifewire / Yoona Wagener
 
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/8IJD6mxL-mHDn0MMWWRd5yZERlc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_04-bbd6d026c9ec48df9f12c934b7def674.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
 ## **Design: Lightweight and straightforward**
@@ -83,6 +91,10 @@ Lifewire / Yoona Wagener
  There are some unfortunate design quirks. The remote’s directional buttons are quite loud. They don’t require a hard press to activate, but they make an audible clicking sound. This is slightly jarring since the other buttons are nearly silent when pressed. Another drawback is the LED status indicator located in the bottom center of the display. By default this light is always on. You can turn this indicator off, but it will continue to blink and flash during other operations, which we sometimes found distracting.
 
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/cT13RJhaMjC05v7eMym3vtM8M0s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_05-70fc23cf6c2b4a13ac9d46f9372010ef.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
 
@@ -116,10 +128,6 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ## **Audio Quality: Solid but not spellbinding**
 
  While the TCL Roku TV offers impressive picture quality, the sound is less noteworthy. The two built-in 8-watt speakers offer decent volume levels, but there’s no advanced audio settings menu in this model. You do have control over aspects like sound mode and volume mode. The default sound mode is “normal,” which is appropriate for everyday viewing. But you can also select options for higher treble, more bass, movie, or music mode. As for volume modes, you can either turn on leveling, to balance the contrast between lows and highs in audio, or enable night mode, which sets a threshold for how high the volume can go.
@@ -130,14 +138,12 @@ Lifewire / Yoona Wagener
 
 ![TCL 50S425 50-inch Roku TV (2019)](https://www.lifewire.com/thmb/oA3AbTZysdVWZbOWuuVGOa56_8c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4061017_02-04183ae8dcd44b778b4da0e7706d5df2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Software: Intuitive and streamlined**
 
  Simplicity and quality are two of the greatest strengths of this TV and a big part of the equation is the operating system. The TCL 50S425 operates on Roku OS 9.1, and it’s extremely user-friendly. Updates are automatic so there’s no manual effort required on your part, and the interface is laid out in a clear and uncomplicated manner.
@@ -146,16 +152,10 @@ Lifewire / Yoona Wagener
 
  While the remote doesn’t come with a built-in speaker, the free Roku app does offer a voice-assistant feature. It’s best when completing a general search for a show or actor or for launching a particular app. If you have a Google Assistant or Amazon Alexa enabled device, this Roku TV will support them, and they offer a generally better experience than using the Roku app voice remote function.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: A great bargain on a budget**
 
  If you don’t want to spend a fortune on a 4K TV, but you want to get as much value as possible, the TCL 50S425 50-inch Roku TV is a compelling option. It retails for $350, which situates it in the growing and competitive class of 4K TVs under $500\. In the TCL 4-Series alone you have several other models to consider that all share the same specifications except for size. The larger 55-inch TCL Roku TV retails for just $30 more than the 50-inch version and features a larger screen size of 54.6 inches. It may not seem considerable, but if you’re limited with space, the extra width and height (five and two inches, respectively) can actually feel like a pretty massive difference. And if you opt for a smaller display and a lower price tag, the 43-inch TCL Roku TV retails for about $280, but you’re sacrificing 7 inches of display.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ## **TCL 50S425 50-inch Roku TV (2019) vs. Toshiba 55LF711U20 55-inch Fire TV Edition**
 
  The TCL 50-inch Roku TV is not without external competitors either. The Toshiba 55LF711U20 55-inch Fire TV Edition retails for about $100 more and runs on the Fire OS, which stands toe-to-toe with the Roku platform with access to over 500,000 shows and movies. The Toshiba Fire TV comes with an Alexa-enabled remote, an edge for shoppers who want the ease of a voice assistant built right into the remote. But the Roku TV supports both[Google Assistant](https://www.lifewire.com/what-is-google-assistant-4120911) and[Amazon Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) as well as voice control through the Roku[mobile app](https://www.lifewire.com/what-are-apps-1616114) .
@@ -173,13 +173,18 @@ Lifewire / Yoona Wagener
  The TCL 50S425 50-inch Roku TV is a smart 4K TV that possesses many merits: an appealing price point, excellent 4K HDR picture quality, a size profile that won’t overwhelm small rooms or apartments, and an easy-to-use interface that requires little fuss. You may find better 4K picture and audio quality in a higher-end model, but this TV offers a welcome smart TV upgrade at a price that won’t empty your pockets.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Sony XBR49X900F 49-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/sony-xbr49x900f-49-inch-4k-ultra-hd-smart-led-tv-review-4796665)
 * [Insignia NS-43DF710NA19 Fire TV Edition](https://www.lifewire.com/insignia-ns-43df710na19-fire-tv-edition-review-4770716)
 * [LG 27UD58-B 27-Inch 4K UHD IPS Monitor](https://www.lifewire.com/lg-27ud58-b27-inch-4k-uhd-ips-monitor-review-4778916)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -198,14 +203,11 @@ Lifewire / Yoona Wagener
 * Connectivity Options  Wi-Fi, Ethernet
 * Warranty  1 year
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -214,4 +216,22 @@ Lifewire / Yoona Wagener
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-resource-for-youtube-studio-edition-crafting/"><u>[New] The Ultimate Resource for YouTube Studio Edition Crafting</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-documenting-the-fun-video-your-nintendo-switch-games/"><u>[Updated] 2024 Approved Documenting the Fun Video Your Nintendo Switch Games</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210803289-9783988312075-chakras-healing-for-beginners/"><u>CHAKRAS HEALING FOR BEGINNERS | Free Book</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/dominating-viewers-spaces-channel-empire-rules-for-2024/"><u>Dominating Viewers' Spaces Channel Empire Rules for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/fusing-frequencies-smoothly-with-logic-pro-x-methods/"><u>Fusing Frequencies Smoothly with Logic Pro X Methods</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-alternative-views-to-googles-ar-sticker-experience/"><u>In 2024, Alternative Views to Google's AR Sticker Experience</u></a></li>
+<li><a href="https://driver-install.techidaily.com/quick-method-upgrade-lenovo-dock-drivers/"><u>Quick Method: Upgrade Lenovo Dock Drivers</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/the-ultimate-guide-to-single-platform-gaming-in-apex-legends-for-2024/"><u>The Ultimate Guide to Single-Platform Gaming in Apex Legends for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-desk-treadmills-for-active-workers/"><u>Top Rated Desk Treadmills for Active Workers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-gaming-monitors-and-projectors-2023s-ultimate-guide/"><u>Top Rated Gaming Monitors and Projectors - 2023'S Ultimate Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-live-television-streaming-platforms/"><u>Top Rated Live Television Streaming Platforms</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-feline-gadget-playthings-the-ultimate-guide-to-2023s-must-have-cat-toys/"><u>Top-Rated Feline Gadget Playthings: The Ultimate Guide to 2023'S Must-Have Cat Toys</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-nintendo-switch-audio-gear-finding-the-ideal-headset/"><u>Top-Rated Nintendo Switch Audio Gear: Finding the Ideal Headset</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-protection-gear-for-samsung-galaxy-z-fold-6-the-ultimate-case-guide/"><u>Top-Rated Protection Gear for Samsung Galaxy Z Fold 6: The Ultimate Case Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-protective-covers-for-google-pixel-9-pro-xl-a-comprehensive-guide/"><u>Top-Rated Protective Covers for Google Pixel 9 Pro XL : A Comprehensive Guide</u></a></li>
+</ul></div>
 

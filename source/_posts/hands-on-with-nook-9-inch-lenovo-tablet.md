@@ -1,7 +1,7 @@
 ---
 title: Hands-On With Nook 9-Inch Lenovo Tablet
-date: 2024-11-20T05:35:58.134Z
-updated: 2024-11-25T08:49:41.520Z
+date: 2024-11-28T21:12:52.320Z
+updated: 2024-12-05T08:14:39.629Z
 categories:
   - BestProducts
 description: This Article Describes Hands-On With Nook 9-Inch Lenovo Tablet
@@ -23,7 +23,7 @@ thumbnail: https://www.lifewire.com/thmb/madw9taHRwBTZapEMNcHlZMo7i8=/540x405/fi
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/DGHTHeH4BLy5d9h8cxxoe8sErZU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_HeroSquare-01d50171ef9c411f82467742bfad1126.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
@@ -81,10 +81,6 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/3Q2pRvweVt3Gf6RfBaAwQ15QBag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_bottom_04-1508a99e93e94312a9477c6ec5c15022.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 ## **Design and Features: It’s flippin’ nice**
@@ -105,15 +101,15 @@ Lifewire / Andrew Hayward
 
  The Chromebook Flip’s keyboard feels great in action. The one-piece chiclet keyboard has a scissor-style key design with 1.4mm of travel, which gives it a more satisfying feel than the latest MacBooks’ keys (which have very little travel), and the keys are responsive and not especially loud in usage. It’s also brightly backlit, which isn’t always the case with Chromebooks. The touchpad below is nicely sized and wider than some we’ve seen, although not nearly as large as Apple’s luxurious trackpads of late.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: No sweat whatsoever**
 
  Setting up a Chromebook is incredibly easy. Just power it on (the button is on the left side), connect to a network, accept the terms of service and choose from any options that you’re prompted to, and then plug in your Google account info. If you do already have a Google account, then any bookmarks, Chrome extensions, and apps will automatically be added. If you don’t have a Google account, then you’ll need to sign up for one to use the Chromebook. In any case, this whole process shouldn’t take more than a matter of minutes to complete.
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/AFQh-ERthm-g0pAMcnQlyA2Rjgw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_bent_02-3dfd0720309d4d12beb5ae695a007aa1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -122,10 +118,6 @@ Lifewire / Andrew Hayward
  As mentioned, the Chromebook Flip’s 12.5-inch, 1080p screen is a little smaller than you’ll see on some rivals, but that doesn’t take away from its usability. It’s colorful and nicely vibrant, and text and graphics typically look crisp. It’s not one of the brightest screens we’ve seen, with a listed brightness of about 300 nits, but that’s pretty common amongst laptops. It’s a little dimmer than we’d like, admittedly. Visibility is impacted in direct sunlight, but in most situations, it’s hard to complain too much about this screen.
 
  It also acts like an extra-large tablet screen since it’s a touchscreen with 10 points of interaction. It felt just as responsive as any tablet we’ve used.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: It does what it can**
 
@@ -141,7 +133,15 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/7B1-43v0GHPcS2HESabWT97_XPQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_Keyboard_03-8bc37c7c2d0243bb8ed1fa10e338374f.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Audio: Sounds fine**
 
@@ -161,10 +161,14 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/VR5Y-1tDILHowNSeA408pnLVtgg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Asus-Chromebook_closed_04-bde5ec8f988c4bb49e4019f95cc47c31.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: It’s definitely different**
@@ -187,11 +191,11 @@ Lifewire / Andrew Hayward
 
 ![Asus Chromebook Flip C302CA](https://www.lifewire.com/thmb/NHrMPSrgOWsOuCEYg0M-STQUfsU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Air-v-Surface-Comparison-a255967a27e14762b5c2ad9c442df77f.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Asus Chromebook Flip C302CA vs. Apple MacBook Air**
 
@@ -206,10 +210,6 @@ Lifewire / Andrew Hayward
  **It’s an excellent, affordable laptop.**
 
  Just as the recent crop of cheap, strong mid-range phones has made many flagship smartphones seem excessive and unnecessary, the Asus Chromebook Flip C302CA does much the same for laptops. This is a seriously impressive and versatile notebook without any major deficiencies, and it’s priced at just $499—less than half the price of the cheapest Apple laptop right now.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -243,22 +243,17 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-androids-best-rated-10-ultimate-game-boy-advance-simulators/"><u>[New] 2024 Approved Android's Best-Rated 10 Ultimate Game Boy Advance Simulators</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-elevating-visuals-with-luminance-hdr-insight/"><u>[New] Elevating Visuals with Luminance-HDR Insight</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-from-still-shots-to-movies-mastering-logitech-webcam-videos/"><u>[Updated] 2024 Approved From Still Shots to Movies Mastering Logitech Webcam Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essentials-of-youtube-mastery-free-online-course-series/"><u>[Updated] In 2024, Essentials of YouTube Mastery Free Online Course Series</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1-top-4-apple-devices-that-are-not-worth-purchasing-currently-techinsights/"><u>1. Top 4 Apple Devices That Are Not Worth Purchasing Currently | TechInsights</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-a-comprehensive-walkthrough-of-adobe-presenter-recording/"><u>2024 Approved A Comprehensive Walkthrough of Adobe Presenter Recording</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elevating-productivity-in-onenote-with-onetastic-an-expert-review/"><u>Elevating Productivity in OneNote with Onetastic - An Expert Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/extollo-lansocket-1500-a-detailed-look-at-high-speed-networking-superior-low-latency-operation-and-pass-through-electrical-connections/"><u>Extollo LANSocket 1500 - A Detailed Look at High-Speed Networking, Superior Low-Latency Operation & Pass-Through Electrical Connections</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-viair-88p-handheld-compressor-immense-strength-a-few-shortcomings/"><u>In-Depth Evaluation of Viair 88P Handheld Compressor: Immense Strength, A Few Shortcomings</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-internet-speed-on-a-budget-with-the-tp-link-archer-a6-ac1200-a-thorough-review/"><u>Maximizing Internet Speed on a Budget with the TP-Link Archer A6 AC1200 - A Thorough Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-canadian-telecom-how-fongo-outperforms-other-voip-services/"><u>Navigating Canadian Telecom: How Fongo Outperforms Other VoIP Services</u></a></li>
-<li><a href="https://windows11.techidaily.com/optimizing-single-user-policy-settings-in-the-latest-windows-11/"><u>Optimizing Single-User Policy Settings in the Latest Windows 11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/stay-on-track-with-the-portable-samsung-galaxy-fit2-health-watch/"><u>Stay on Track with the Portable Samsung Galaxy Fit2 Health Watch</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-savvy-setup-for-your-home-viewing-experience-md2380-reviewed/"><u>The Savvy Setup for Your Home Viewing Experience - MD2380 Reviewed</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-final-cut-pro-x-tutorial-l-cuts-and-j-cuts/"><u>Updated In 2024, Final Cut Pro X Tutorial L-Cuts and J-Cuts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/value-for-money-in-wearable-tech-discover-why-the-fitbit-versa-lite-is-a-top-pick-for-fitness-enthusiasts/"><u>Value for Money in Wearable Tech: Discover Why the Fitbit Versa Lite Is a Top Pick for Fitness Enthusiasts</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-essential-8-websites-fusing-impressive-3d-and-opulent-texts/"><u>[Updated] In 2024, Essential 8 Websites Fusing Impressive 3D & Opulent Texts</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-interactive-overlays-redefining-experience/"><u>[Updated] Interactive Overlays Redefining Experience</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-fresh-conversation-starters-keeping-listeners-hooked/"><u>2024 Approved Fresh Conversation Starters Keeping Listeners Hooked</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/comment-reduire-la-taille-dune-video-enligne-sans-cout-3-techniques-faisables/"><u>Comment Réduire La Taille D'une Vidéo Enligne Sans Coût : 3 Techniques Faisables</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/easy-troubleshooting-guide-for-overcoming-the-division-2-bugs-swiftly/"><u>Easy Troubleshooting Guide for Overcoming The Division 2 Bugs Swiftly</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hisenses-40-inch-smart-television-model-h5590f-reviewed-a-cost-effective-home-entertainment-solution/"><u>Hisense's 40-Inch Smart Television (Model: H5590F) Reviewed: A Cost-Effective Home Entertainment Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-buds-pro-review-pro-android-headphones/"><u>Samsung Galaxy Buds Pro Review: Pro Android Headphones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/silly-and-fun-shooter-gameplay-in-plants-vs-zombies-battle-for-neighborhood-expert-review/"><u>Silly and Fun Shooter Gameplay in 'Plants Vs. Zombies: Battle for Neighborhood' - Expert Review!</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/step-by-step-guide-to-converting-google-books-into-pdf-format/"><u>Step-by-Step Guide to Converting Google Books Into PDF Format</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sunbriteverandatv-experience-high-quality-55-inch-4k-hdr-durability-in-open-air-tvs/"><u>SunBriteVerandaTV: Experience High-Quality 55-Inch 4K HDR Durability in Open Air TVs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/voip-showdown-2023-does-vonage-reign-supreme-among-competitors/"><u>VoIP Showdown 2023: Does Vonage Reign Supreme Among Competitors?</u></a></li>
 </ul></div>
 

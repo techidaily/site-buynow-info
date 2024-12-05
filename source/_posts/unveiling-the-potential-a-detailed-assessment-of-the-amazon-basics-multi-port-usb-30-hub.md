@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Potential: A Detailed Assessment of the Amazon Basics Multi-Port USB 3.0 Hub"
-date: 2024-08-30T14:11:36.608Z
-updated: 2024-08-31T14:11:36.608Z
+date: 2024-12-03T03:10:00.543Z
+updated: 2024-12-05T03:38:09.754Z
 categories:
   - BestProducts
 description: "This Article Describes Unveiling the Potential: A Detailed Assessment of the Amazon Basics Multi-Port USB 3.0 Hub"
@@ -37,6 +37,10 @@ Lifewire / Bill Thomas
 
 3.4
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Netgear C3700 Cable Modem Router
 
 ![Netgear C3700](https://www.lifewire.com/thmb/CWSAqFXf9klr-Fs5mU-YkCpwF9Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-5-1-668cca140a8e4c1ba59c13f4f2a8d8ec.jpg)
@@ -65,6 +69,10 @@ Lifewire / Bill Thomas
 
  We got our hands on the Netgear C3700 for testing and put it through the wringer to see whether or not it’s worth your cash, and what kind of performance you can expect.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Design: Small and inconspicuous
 
  With a device that packs[both a cable modem and a wireless router](https://www.lifewire.com/best-cable-modem-router-combos-to-buy-4082541) , you might expect the Netgear C3700 to be a bulky device, but that’s not the case. It’s actually quite small, measuring just 7.6 inches high and weighing a scant 0.77 pounds. This, combined with the low-key black finish and lack of external antennas means that it won’t stick out, no matter where you put it.
@@ -73,21 +81,23 @@ Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/kBtdcSRxoIsQvqmnO6OVYnfZ9z8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-4-ad3408c39a524e14a6cebcce10d3be44.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/sNdotwRQaaANrcOOFjoNRrlmeak=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-3-24f328c303ef44929cc9f49334ac5fb8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
  Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/zfaMhW3pqkYXVuVTQM9Swnx9cQk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-5-a204a239cbd549c9b5949b2536b49ff8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Bill Thomas
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Setup: Nice and simple
 
@@ -117,9 +127,6 @@ Lifewire / Bill Thomas
 
 ![Netgear C3700](https://www.lifewire.com/thmb/lPF7EXzNUljkXFySwthTmhwRbiY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-6-1c4a748dd9b644c39d8bd8c47180c74f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
  Lifewire / Bill Thomas
 
 ## Software: No frills
@@ -139,8 +146,9 @@ Lifewire / Bill Thomas
  For an 8x4 DOCSIS 3.0 cable modem with a lightweight router built in, this price is about par for the course. If you can find the Netgear C3700 for under $100, then it might be worth buying for the cable modem performance and pairing it with a solid wireless router.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Netgear C3700 vs. Arris Surfboard SBG6700-AC
 
  The Arris Surfboard SBG6700-AC has the same 8x4 DOCSIS 3.0 cable rating but ups the wireless support to AC1600 speeds. This still isn’t top-of-the-line wireless speed—and it is a bit more expensive at $119 MSRP—but that extra cash is worth the improved network performance. However, the Arris model does not have a USB 2.0 port for network-attached storage or printers.
@@ -151,16 +159,14 @@ Lifewire / Bill Thomas
  The cable modem’s performance is great, but the wireless performance is just not there. If all you want is the cheapest possible modem with built-in dual-band Wi-Fi, then the Netgear C3700 checks those boxes. But we think you’re better off spending more for better performance or just buying two standalone devices.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Motorola MG7700](https://www.lifewire.com/motorola-mg7700-review-4589346)
 * [Netgear Nighthawk C7000](https://www.lifewire.com/netgear-nighthawk-c7000-review-4686068)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  C3700 Cable Modem Router
@@ -187,8 +193,6 @@ Lifewire / Bill Thomas
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -196,4 +200,26 @@ Lifewire / Bill Thomas
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-speedy-visual-scan-of-your-pictures-on-win11/"><u>[New] In 2024, Speedy Visual Scan of Your Pictures on Win11</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-spark-the-motivation-top-inspirational-youtube-videos/"><u>[Updated] 2024 Approved Spark the Motivation Top Inspirational YouTube Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-enhancing-media-interaction-with-smart-control-options-for-2024/"><u>[Updated] Enhancing Media Interaction with Smart Control Options for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-essential-insights-for-capturing-online-meeting-transcripts/"><u>2024 Approved Essential Insights for Capturing Online Meeting Transcripts</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Additional Tips About Sinnoh Stone For Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/boost-your-social-presence-top-10-tips-for-creating-an-instagram-sensation/"><u>Boost Your Social Presence: Top 10 Tips for Creating an Instagram Sensation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/can-you-trust-hps-economical-15-notebook-with-amd-cpu-to-perform-under-pressure-find-out-here/"><u>Can You Trust HP’s Economical 15” Notebook with AMD CPU to Perform Under Pressure? Find Out Here</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-2021-apple-ipad-pro-m1-reaching-new-heights-in-tablet-computing-power/"><u>Comprehensive Analysis of the 2021 Apple iPad Pro (M1) - Reaching New Heights in Tablet Computing Power</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-advantages-an-expert-review-of-apples-giant-iphone-12-pro-max/"><u>Exploring the Advantages: An Expert Review of Apple's Giant, iPhone 12 Pro Max</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/imac-upgrades-for-intels-maximizing-efficiency-through-a-step-by-lapse-approach/"><u>IMac Upgrades for Intels: Maximizing Efficiency Through a Step-by-Lapse Approach</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210055654-9781951559069-imagining-whos-telling-who/"><u>Imagining Who's Telling Who | Free Book</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-avi-video-cutter-reviews-top-16-options-for-windows-mac-and-android-devices/"><u>In 2024, AVI Video Cutter Reviews Top 16 Options for Windows, MAC, and Android Devices</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Sony Xperia 10 V? | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/invisible-voices-techniques-for-silent-screen-recordings/"><u>Invisible Voices Techniques for Silent Screen Recordings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/most-amazing-discounts-on-oneplus-during-cyber-week-shopping/"><u>Most Amazing Discounts on OnePlus During Cyber Week Shopping</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/streamlining-transition-your-guide-from-windows-7-to-10/"><u>Streamlining Transition: Your Guide From Windows 7 To 10</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-the-fastest-cable-modems-in-2n-plus-n-overflow-determining-efficiency/"><u>The Ultimate Guide to Choosing the Fastest Cable Modems in 2^N + N Overflow: Determining Efficiency</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-performance-insights-on-razers-portable-beast-blade-pro-letech-masterpiece-unveiled/"><u>Top Performance Insights on Razer's Portable Beast - Blade Pro Letech Masterpiece Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-showdown-apple-tv-4k-versus-roku-ultra-features-and-performance/"><u>Ultimate Showdown: Apple TV 4K versus Roku Ultra – Features & Performance</u></a></li>
+</ul></div>
 

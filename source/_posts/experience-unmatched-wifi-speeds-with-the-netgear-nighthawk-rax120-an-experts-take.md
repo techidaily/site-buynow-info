@@ -1,7 +1,7 @@
 ---
 title: Experience Unmatched WiFi Speeds with the Netgear Nighthawk RAX120 - An Expert's Take
-date: 2024-08-30T14:16:40.656Z
-updated: 2024-08-31T14:16:40.656Z
+date: 2024-11-29T20:49:30.359Z
+updated: 2024-12-04T21:19:52.477Z
 categories:
   - BestProducts
 description: This Article Describes Experience Unmatched WiFi Speeds with the Netgear Nighthawk RAX120 - An Expert's Take
@@ -39,9 +39,17 @@ thumbnail: https://www.lifewire.com/thmb/gPiXgT_a0D1ZOSWgqfWGf_uaY7E=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Netgear Nighthawk X10 AD7200 Router
 
 ![Netgear Nighthawk X10 AD7200](https://www.lifewire.com/thmb/0rm8vUox5EoeaGCQJw0E5XQxwck=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_HeroSquare-885945bb208b49a583aca8da1aa09378.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -67,9 +75,6 @@ thumbnail: https://www.lifewire.com/thmb/gPiXgT_a0D1ZOSWgqfWGf_uaY7E=/400x300/fi
 
  I recently unpacked a Netgear Nighthawk X10 and plugged it into my own wireless network to see how it performs in the real world. Over several hours of intense testing, and a couple of days of more casual use, I tested connection speeds at various distances, ease of setup and use, and more.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Netgear continues to impress with its off-beat designs**
 
  I’ve tested a lot of[Netgear routers](https://www.lifewire.com/best-netgear-routers-4159862) , and this falls somewhere between the stealth bomber angles of the Nighthawk AC series and the slick flying wing designs seen in the Nighthawk RAX routers.
@@ -84,9 +89,6 @@ thumbnail: https://www.lifewire.com/thmb/gPiXgT_a0D1ZOSWgqfWGf_uaY7E=/400x300/fi
 
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/I8vaunCMjxEzWH-oM1U7fsSYe9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_04-abc45a63844e4ebe8f43e4f6facbd601-d54874ec8e984393b51c0bea9803c849.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jeremy Laukkonen
 
 ## **Setup Process: Zero hassle from start to finish**
@@ -99,9 +101,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/RfTANl22rAcY7Xy986eYa_62r44=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_02-1721b933d315435f98631847bf3ebb0b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Jeremy Laukkonen
 
 ## **Connectivity: AD7200 tri-band with MU-MIMO and 10G SFP+**
@@ -143,8 +142,9 @@ Lifewire / Jeremy Laukkonen
  Strangely enough, this 802.11ad router’s strongest selling point might be the impressively robust nature of its 5 GHz network.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Software: Netgear’s web interface and web app, plus Plex and more**
 
  Like its other offerings, Netgear gives you the option to manage the Nighthawk X10 using a web interface or a smartphone app. I used the web interface, and I found it fairly easy to understand and navigate if a bit slow.
@@ -160,9 +160,9 @@ Lifewire / Jeremy Laukkonen
  I plugged in one of my media-filled SSD USB drives and had no trouble streaming to any of the Plex clients I have on my network.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Not bad if you really need 802.11ad**
 
  With an MSRP of $500, and a street price closer to $250, the Nighthawk X10 AD7200 is a tough sell to most consumers. It features a wireless technology that hasn’t really caught on, and which most consumers just won’t be able to take advantage of. For the money you’d spend on this router, you could get a high-end 802.11ax router.
@@ -172,8 +172,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  By way of comparison, the Nighthawk Pro Gaming XR700 has similar specifications, swaps out Plex Media Server for some gaming-centric quality of life (QoL) features, and has a street price that’s close to $400.
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Netgear Nighthawk X10 AD7200 vs. Netgear Nighthawk RAX80**
 
  With an MSRP of $400, and a street price closer to $350, the Nighthawk RAX80 (see on[Amazon](https://www.amazon.com/dp/B01MQDZXA4?linkCode=ogi&th=1&psc=1&tag=lifewire-onsite-prod-20&ascsubtag=4846418%7Cnd55a891e250641509ef77229001ead8021%7C) ) is in the same general territory as the Nighthawk X10\. The big difference between these competing Nighthawk devices is that one is an 802.11ad router, and the other is an 802.11ax router.
@@ -215,8 +216,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -224,4 +223,22 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-digital-arcade-over-a-hundred-game-channels/"><u>[New] In 2024, Digital Arcade Over a Hundred Game Channels</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-10-highest-performing-business-youtube-platforms-explained/"><u>2024 Approved 10 Highest Performing Business YouTube Platforms Explained</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/admixtures-are-added-to-modify-the-fresh-or-hardened-properties-of-concrete-for-specific-needs/"><u>Admixtures Are Added to Modify the Fresh or Hardened Properties of Concrete for Specific Needs.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/advantages-embracing-the-absence-of-achievement-features-in-the-switch-gaming-experience/"><u>Advantages: Embracing the Absence of Achievement Features in The Switch Gaming Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/clearing-unwanted-preview-titles-on-steam-manage-and-update-your-game-library-easily/"><u>Clearing Unwanted Preview Titles on Steam - Manage and Update Your Game Library Easily</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/complete-tutorial-how-to-add-non-amazon-apps-to-your-fire-tv-or-fire-tv-stick-devices/"><u>Complete Tutorial: How to Add Non-Amazon Apps to Your Fire TV or Fire TV Stick Devices</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/converting-heic-images-to-jpeg-format-on-google-photos-a-step-by-step-guide/"><u>Converting HEIC Images to JPEG Format on Google Photos - A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/crossing-platforms-my-journey-with-both-pc-and-console-gaming/"><u>Crossing Platforms: My Journey with Both PC and Console Gaming</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dban-dariks-boot-and-nuke-an-open-source-software-tool-that-allows-users-to-erase-their-hard-drives-by-overwriting-all-content-with-random-data-in-a-bootabl37/"><u>DBAN (Darik's Boot and Nuke): An Open-Source Software Tool that Allows Users to Erase Their Hard Drives by Overwriting All Content with Random Data in a Bootable Environment.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-more-streaming-savings-with-the-newly-enhanced-verizon-myhome-internet-offer/"><u>Discover More Streaming Savings with the Newly Enhanced Verizon MyHome Internet Offer</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-crafting-professional-icons-with-pre-made-graphic-elements/"><u>In 2024, Crafting Professional Icons with Pre-Made Graphic Elements</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783074-9781594776281-sacred-mushroom-of-visions-teonanacatl/"><u>Sacred Mushroom of Visions: Teonanácatl | Free Book</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshoot-and-fix-a-nonfunctional-hey-siri-feature-on-your-iphone/"><u>Troubleshoot and Fix a Nonfunctional 'Hey Siri' Feature on Your iPhone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlock-professional-growth-ai-enhanced-techniques-for-landing-your-dream-role-on-linkedin-with-chatgpt/"><u>Unlock Professional Growth: AI-Enhanced Techniques for Landing Your Dream Role on LinkedIn with ChatGPT</u></a></li>
+</ul></div>
 

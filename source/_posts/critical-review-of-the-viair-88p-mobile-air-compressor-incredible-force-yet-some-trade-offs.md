@@ -1,7 +1,7 @@
 ---
 title: Critical Review of the Viair 88P Mobile Air Compressor - Incredible Force, Yet Some Trade-Offs
-date: 2024-11-24T00:28:51.747Z
-updated: 2024-11-25T07:07:05.360Z
+date: 2024-12-02T19:24:25.298Z
+updated: 2024-12-05T06:27:42.515Z
 categories:
   - BestProducts
 description: This Article Describes Critical Review of the Viair 88P Mobile Air Compressor - Incredible Force, Yet Some Trade-Offs
@@ -18,13 +18,13 @@ thumbnail: https://www.lifewire.com/thmb/ZevQObLlQ-0zecghfgF1_QfuuRw=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -51,7 +51,7 @@ Lifewire / Todd Braylor
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
@@ -85,11 +85,19 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Easy installation**
 
  The S55 is straightforward and easy to install. Simply stick the windshield mount in place and plug the SmartCord lighter adapter into your car's DC cigarette lighter input. Plugging the modular jack into the S55 will automatically power on the radar detector and you can quickly customize settings for display brightness, detector sensitivity levels, and volume. Then you're ready to hit the road.
 
  Lifewire / Todd Braylor
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Range: Impressive detection**
 
@@ -98,7 +106,7 @@ Lifewire / Todd Braylor
  It reliably delivers on its promise of long-distance sensitivity.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
@@ -109,19 +117,11 @@ Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
@@ -164,17 +164,16 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/our-essential-guide-to-mobile-asmr-sounds-for-2024/"><u>[New] Your Essential Guide to Mobile ASMR Sounds for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-excellent-apps-for-streamlined-igtv-vertical-cuts-for-2024/"><u>[Updated] Excellent Apps for Streamlined IGTV Vertical Cuts for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-astonishing-critique-and-substitutes-guide/"><u>[Updated] In 2024, Astonishing Critique & Substitutes Guide</u></a></li>
-<li><a href="https://games-able.techidaily.com/custom-gameplay-audiovisual-experience-on-series-x/"><u>Custom Gameplay Audiovisual Experience on Series X</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/giggles-on-iphones-for-2024/"><u>Giggles on iPhones for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/iphoneandroid-stabilization-elite-photo-tripods/"><u>IPhone/Android Stabilization Elite Photo Tripods</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/new-2024-approved-easy-steps-to-translate-video-on-twitter/"><u>New 2024 Approved Easy Steps to Translate Video on Twitter</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-microsoft-sculpt-ergo-keyboard-guide-quality-meets-savings/"><u>The Ultimate Microsoft Sculpt Ergo Keyboard Guide: Quality Meets Savings</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-apples-m1-powered-ipad-pro-when-a-tablet-outperforms-a-desktop/"><u>The Ultimate Review of Apple's M1-Powered iPad Pro : When a Tablet Outperforms a Desktop</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-5-mice-you-need-to-try-with-your-ipad-for-seamless-navigation/"><u>Top 5 Mice You Need to Try with Your iPad for Seamless Navigation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-performance-revealed-in-depth-alienware-aurora-r11-gaming-pc-analysis-for-2n21/"><u>Top Performance Revealed: In-Depth Alienware Aurora R11 Gaming PC Analysis for 2N21</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-key-tracking-devices/"><u>Top-Rated Key Tracking Devices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-fbs-leading-charts-10-hot-music-videos/"><u>[Updated] FB's Leading Charts 10 Hot Music Videos</u></a></li>
+<li><a href="https://app-tips.techidaily.com/could-microsofts-new-offering-soothe-or-annoy-you-expert-analysis-by-zdnet-revealed/"><u>Could Microsoft's New Offering Soothe or Annoy You? Expert Analysis by ZDNet Revealed</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-x5-pro-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Poco X5 Pro Phone with Broken Screen</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-the-latest-apple-watch-model-merely-an-aesthetic-change/"><u>Is the Latest Apple Watch Model Merely an Aesthetic Change?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leveraging-buyselladscom-for-effective-advertising-on-your-blog/"><u>Leveraging BuySellAds.com for Effective Advertising on Your Blog</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-connectivity-with-linksys-ea8300-an-in-depth-review-of-its-multi-gadget-management-capabilities/"><u>Mastering Connectivity with Linksys EA8300: An In-Depth Review of Its Multi-Gadget Management Capabilities</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/optimal-storage-solutions-the-leading-10-gopro-housings-for-2024/"><u>Optimal Storage Solutions - The Leading 10 GoPro Housings for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/test-drive-the-blueear-bluetooth-beanie-hat-a-chic-sound-quality-savvy-headpiece-assessment/"><u>Test Drive the Blueear Bluetooth Beanie Hat - A Chic, Sound Quality Savvy Headpiece Assessment</u></a></li>
+<li><a href="https://fox-making.techidaily.com/transitioning-your-eflipbook-layout-guide-for-changing-text-flow-in-flipplrcom/"><u>Transitioning Your eFlipbook Layout: Guide for Changing Text Flow in flipplr.com</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-lamicall-ss-innovative-features-in-this-thoughtful-tablet-mount-review/"><u>Unboxing the Lamicall S's Innovative Features in This Thoughtful Tablet Mount Review</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-sturdiness-and-value-of-the-omoton-t1-tablet-support-accessory/"><u>Unveiling the Sturdiness and Value of the Omoton T1 Tablet Support Accessory</u></a></li>
 </ul></div>
 

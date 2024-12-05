@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of WebEx's Strengths and Weaknesses in Online Meetings
-date: 2024-11-17T20:11:51.309Z
-updated: 2024-11-25T06:06:59.432Z
+date: 2024-12-01T04:10:23.956Z
+updated: 2024-12-05T06:21:00.292Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of WebEx's Strengths and Weaknesses in Online Meetings
@@ -22,10 +22,6 @@ thumbnail: https://www.lifewire.com/thmb/6tPvayBfparNN80H3K-NMdT0Kfc=/400x300/fi
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LJwkWIKV_tIoZmxEqV9kr7ByA1Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_HeroSquare-d40232740fc34cdbb9b7197a7bda177d.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Jordan Oloman
 
  What We Like
@@ -45,16 +41,12 @@ Lifewire / Jordan Oloman
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Netgear Powerline PL1200
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/rYExgRawgStvNWLyEyCyiiEqyOI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_HeroSquare-d40232740fc34cdbb9b7197a7bda177d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jordan Oloman
@@ -83,6 +75,10 @@ Lifewire / Jordan Oloman
 
  Lifewire / Jordan Oloman
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Sharp edges and frustration**
 
  The Netgear Powerline 1200 kit doesn’t really care about your living room or bedroom aesthetic. It’s a monolithic, white glossy plastic box that juts out of the wall. If you’re looking for something inoffensive and reserved, the Netgear offering doesn’t deliver. The edges are sharp and the adapter is quite large in order to house all of the technology and the Ethernet sockets necessary to complete the network.
@@ -97,11 +93,11 @@ Lifewire / Jordan Oloman
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LMrQEcpONDZxLUfoMW6U8sX4dQw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_02-a8557f722ac84f29b6efb2a763d22a3c.jpg)
 
- Lifewire / Jordan Oloman
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Jordan Oloman
 
 ## **Setup Process: Delightfully quick and efficient**
 
@@ -119,10 +115,6 @@ Lifewire / Jordan Oloman
 
  Lifewire / Jordan Oloman
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: A solid improvement**
 
  Using the device across our living room and bedroom, in two different setups across the course of a month, we found that the Netgear Powerline kit gave us a reliable upgrade to internet efficiency. Our initial connection speed (as per[Speedtest](https://www.speedtest.net/) ) offered a 68.4Mbps download speed, with 3.60Mbps upload speed, and sub-10-millisecond ping. The Netgear kit with an Ethernet cable attached to our laptop afforded us an 88Mbps download speeds and 6Mbps upload speeds.
@@ -135,9 +127,17 @@ Lifewire / Jordan Oloman
 
  You can create a secure and powerful network that boasts a dramatic upgrade in efficacy, all for a low price point, with a setup process that is actually plug and play.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Affordable for what you get**
 
  Out of the adapters we tested, the Netgear Powerline 1200 was one of the cheaper ones on Amazon, ranging between $70-$85\. You can see why when you study the design and the many aesthetic flaws that come with this product. Besides the fact it is bulky and doesn’t play nice with other plugs, it’s a reliable means to improve your home network through the wonders of Powerline. It’s still quite a hard sell at this price compared to other products that hover around the same and offer more ports and socket functionality, but it’s still a worthwhile purchase if you just want to plug and play.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Netgear Powerline 1200 vs. TP-Link AV2000 Powerline Adapter**
 
@@ -177,14 +177,19 @@ Lifewire / Jordan Oloman
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-videocapture-with-vlc-appraisal/"><u>[New] 2024 Approved Videocapture with VLC Appraisal</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/fficient-keyword-utilization-discover-the-best-7-online-video-tag-extractors-reviewed/"><u>[New] Efficient Keyword Utilization Discover the Best 7 Online Video Tag Extractors Reviewed</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-unlocking-windows-11-your-ultimate-cheat-sheet/"><u>[Updated] In 2024, Unlocking Windows 11 Your Ultimate Cheat Sheet</u></a></li>
-<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-motorola-g54-5g-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Motorola G54 5G</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-your-intel-me-drivers-compatible-with-windows-10-81-and-7/"><u>Get Your Intel ME Drivers - Compatible with Windows 10, 8.1 & 7</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-unbeatable-8-mobile-games-dominating-playtime/"><u>The Unbeatable 8 Mobile Games Dominating Playtime</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-quality-learning-device-assessment-asus-chromebook-c2nasa-tailored-for-students-and-children/"><u>Top-Quality Learning Device Assessment: Asus Chromebook C2nASA Tailored for Students and Children</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/travel-in-style-canon-g9-x-mark-ii-reviewed-and-rated/"><u>Travel in Style – Canon G9 X Mark II Reviewed & Rated</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-durability-meets-exceptional-battery-in-the-moto-g-power-read-our-detailed-review/"><u>Ultimate Durability Meets Exceptional Battery in the Moto G Power - Read Our Detailed Review!</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-easy-to-follow-steps-for-adding-vimeo-clips-to-ppts/"><u>[New] 2024 Approved Easy-to-Follow Steps for Adding Vimeo Clips to PPTs</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-navigating-the-best-lipo-cells-for-quality-flight-time-for-2024/"><u>[New] Navigating the Best LiPo Cells for Quality Flight Time for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-screenflow-mastery-for-mac-users-a-critical-look/"><u>[Updated] In 2024, ScreenFlow Mastery for Mac Users – A Critical Look</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-a-compreran-guide-for-seamless-soundtrack-integration-in-video-editing/"><u>2024 Approved A Compreran Guide for Seamless Soundtrack Integration in Video Editing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/advancing-wellness-tracking-why-fitbit-sense-stands-out-from-the-apple-watch/"><u>Advancing Wellness Tracking - Why Fitbit Sense Stands Out From the Apple Watch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-average-excellence-of-marvels-avengers-movie/"><u>Evaluating the Average Excellence of Marvel's Avengers Movie</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exclusive-prime-day-deals-on-premium-benq-displays-and-projection-systems/"><u>Exclusive Prime Day Deals on Premium BenQ Displays and Projection Systems</u></a></li>
+<li><a href="https://common-error.techidaily.com/expert-tips-on-enabling-windows-update-service-to-keep-your-pc-secure/"><u>Expert Tips on Enabling Windows Update Service to Keep Your PC Secure</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Vivo Y100i Power 5G? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-vivo-y78plus-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Vivo Y78+? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-and-performance-check-the-aphaca-bt69-car-wireless-bluetooth-radio-transmitter-reviewed/"><u>In-Depth Analysis & Performance Check: The Aphaca BT69 Car Wireless Bluetooth Radio Transmitter Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/petcube-affordable-hd-pet-camera-your-budget-pet-monitor/"><u>Petcube Affordable HD Pet Camera - Your Budget Pet Monitor</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/precision-and-comfort-exploring-the-finest-selection-of-ipad-mice/"><u>Precision and Comfort: Exploring the Finest Selection of iPad Mice</u></a></li>
+<li><a href="https://fox-that.techidaily.com/swift-fixes-for-typical-apple-pay-difficulties-a-step-by-step-guide/"><u>Swift Fixes for Typical Apple Pay Difficulties – A Step-by-Step Guide</u></a></li>
 </ul></div>
 

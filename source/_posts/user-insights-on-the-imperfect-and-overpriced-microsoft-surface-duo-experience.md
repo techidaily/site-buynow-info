@@ -1,7 +1,7 @@
 ---
 title: User Insights on the Imperfect and Overpriced Microsoft Surface Duo Experience
-date: 2024-08-30T14:13:20.239Z
-updated: 2024-08-31T14:13:20.239Z
+date: 2024-12-01T16:14:20.467Z
+updated: 2024-12-05T08:21:27.858Z
 categories:
   - BestProducts
 description: This Article Describes User Insights on the Imperfect and Overpriced Microsoft Surface Duo Experience
@@ -70,9 +70,6 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: A modern marvel of engineering**
 
  The design of the Microsoft Surface Studio 2 remains entirely unchanged from its first-generation predecessor, and with good reason—it’s stunning. The screen is unbelievably thin, and the arms holding the hinge and springs almost disappear due to their mirrored finish and contoured shape. The entire Surface Studio is subtle, appearing like a thin piece of glass-and-metal from the side, with a svelte, boxy base.
@@ -95,11 +92,11 @@ Lifewire / Gannon Burgett
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/2YGEvu4_h4VAgUiecjNAvd56F9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-7-0e52038c30364530a5a9bd0ac7011cb7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
  Lifewire / Gannon Burgett
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Display: A treat for your eyes**
 
@@ -113,11 +110,16 @@ Lifewire / Gannon Burgett
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/WBpMM3f4iH20J7-9H_NzD1zeBl4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-8-22d53ea12b7c48988b4840af9fb744c4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Leaving much to be desired**
 
  The Microsoft Surface Studio 2 model we tested was the Intel Core i7 version with a discrete Nvidia Geforce GTX 1060 GPU, 16GB of RAM, and a 1TB SSD.
@@ -135,8 +137,9 @@ Lifewire / Gannon Burgett
  Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Network: Quick wireless connection with hardwired backup**
 
  The Microsoft Surface Studio 2 features both hardwired and wireless networking options. On the rear of the computer is a Gigabit Ethernet (RJ-45) port for the hardwired connection while an internal Wi-Fi antenna supports 802.11ac connectivity with a/b/g/n compatibility as well.
@@ -145,11 +148,19 @@ Lifewire / Gannon Burgett
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/rkvuGygIghO9k9Je4rikzH5HvaE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-4-1b719f36dcb3448c9da40160faa18954-a32c44e2f9ca4ed3b4d670458dc6d5f0.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Gannon Burgett
 
 ## **Camera: Decent and usable**
 
  The only camera on the Surface Studio 2 is a 5-megapixel front-facing camera. In addition to capturing stills and Windows Hello facial authentication, it also records 1080p video with dual microphones for audio. The camera proved impressive for an integrated camera and is more than good enough to use for conference calls and even streaming if you have a decent light source on hand.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Still not a touchscreen or Pen-driven experience**
 
@@ -165,21 +176,12 @@ Lifewire / Gannon Burgett
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/InfbJKGzeNqjfIRVMxjjUixt0sY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-3-8fd4fb8053044a528f896d4dc2872611.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## **Price: One word—ridiculous**
 
  At $3,499 MSRP, the Surface Studio 2 is incredibly expensive for the specs it offers. It’s twice as costly as the 21.5-inch 4K iMac ($1,299) and the base model of the 27-inch iMac ($1,799). The Surface Studio 2 is clearly trying to compete with the $4,999 iMac Pro, but with its older hardware and sometimes clunky software, it’s simply not as good of an experience for professionals and creatives, most of whom can get by with the more affordable iMac models anyway.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## **Competition: More affordable rivals, but lacking effective touchscreens**
 
  The Surface Studio 2 Lenovo IdeaCentre AIO 730S features a 24-inch screen compared to the 28-inch screen on the Surface Studio Pro 2\. On the processor side of things, it uses an 8th generation Intel Core i7-8559U CPU, with an integrated Intel UHD Graphics 620 GPU.
@@ -199,6 +201,10 @@ Lifewire / Gannon Burgett
 **A beautiful, expensive machine lacking a market.**
 
  The Microsoft Surface Studio 2 has some stand-out features. The massive 28-inch PixelSense touchscreen is the best in the business, the Surface Pen is incredibly responsive, and, as a whole, the machine is beautiful—one of our favorite Microsoft all-in-one’s to date. However, it’s incredibly underpowered for the price Microsoft is charging and while it’s neat, many of its features feel as though they’re designed for a very niche crowd of content creators who are using more affordable iMac’s.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -224,8 +230,6 @@ Lifewire / Gannon Burgett
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -233,4 +237,23 @@ Lifewire / Gannon Burgett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-gimbal-mastery-7-drone-pros-recommended/"><u>[New] Gimbal Mastery 7 Drone Pros Recommended</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-find-videos-on-facebook-in-2024/"><u>[New] How to Find Videos on Facebook, In 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-master-the-craft-refining-title-and-description-in-igtv-videos/"><u>[Updated] Master the Craft Refining Title & Description in IGTV Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-vivobook-11-comprehensive-analysis-perfect-blend-of-portability-and-price-sensitivity/"><u>Asus Vivobook 11 Comprehensive Analysis: Perfect Blend of Portability and Price Sensitivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-echo-pop-and-echo-dot-key-features-and-differences/"><u>Comparing Echo Pop and Echo Dot: Key Features & Differences</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/discovering-performance-with-toms-pc-reviews/"><u>Discovering Performance with Tom's PC Reviews</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-user-friendly-mods-revolutionary-sidecar-ebike-design/"><u>Experience the User-Friendly Mod's Revolutionary Sidecar eBike Design</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-tecno-spark-10c-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Tecno Spark 10C to Outlook | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-overcome-game-stutters-for-buttery-smooth-graphics-and-high-fps-gaming-experience/"><u>How To: Overcome Game Stutters for Buttery Smooth Graphics & High FPS Gaming Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-how-hitman-3-proves-itself-as-the-quintessential-endgame-for-stealth-enthusiasts/"><u>In-Depth Review: How Hitman 3 Proves Itself as the Quintessential Endgame for Stealth Enthusiasts</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/maximize-your-savings-before-prime-day-hits-in-2amo-see-what-products-are-getting-the-biggest-discounts-according-to-zdnets-expert-analysis/"><u>Maximize Your Savings Before Prime Day Hits in 2Amo! See What Products Are Getting the Biggest Discounts According to ZDNet's Expert Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionizing-road-safety-a-complete-guide-to-bouncie-driving-connected-reviews/"><u>Revolutionizing Road Safety: A Complete Guide to Bouncie Driving Connected Reviews</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rotibox-bluetooth-beanie-review-excelling-in-comfort-and-sound-quality/"><u>Rotibox Bluetooth Beanie Review: Excelling in Comfort & Sound Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/to-replace-or-not-weighing-phone-and-pod-battery-lifespans/"><u>To Replace or Not: Weighing Phone & Pod Battery Lifespans</u></a></li>
+<li><a href="https://fox-access.techidaily.com/1718403553070-vlc-player-tips-10-hidden-features-for-2024/"><u>VLC Player Tips 10 Hidden Features for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/vonage-reviewed-is-it-still-at-the-forefront-of-voip-solutions/"><u>Vonage Reviewed – Is It Still at the Forefront of VoIP Solutions?</u></a></li>
+</ul></div>
 

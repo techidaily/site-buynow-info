@@ -1,7 +1,7 @@
 ---
 title: Elbphilharmonie Concert Hall Extension, Hamburg, Germany
-date: 2024-08-30T14:12:14.837Z
-updated: 2024-08-31T14:12:14.837Z
+date: 2024-11-30T01:25:15.337Z
+updated: 2024-12-05T06:18:01.489Z
 categories:
   - BestProducts
 description: This Article Describes Elbphilharmonie Concert Hall Extension, Hamburg, Germany
@@ -39,6 +39,10 @@ Lifewire / Andrew Hayward
 
 3.7
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Halo Bolt Portable Charger/Jump Starter
 
 ![Halo Bolt Portable Charger/Jump Starter](https://www.lifewire.com/thmb/wNeN4Rq5GyM9MuDOzyg5QlRT-U4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-HeroSquare-889ebc2fc6b54573a26c09cabb34bd5c.jpg)
@@ -61,9 +65,6 @@ Lifewire / Andrew Hayward
 
  Granted, it doesn’t pack as much power as some dedicated laptop chargers, which may be a better option for that need. Still, the added versatility gives the Halo Bolt a unique edge in the market. I tested the Halo Bolt for a week with multiple devices, including laptops and smartphones.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: The shiny brick**
 
  While certainly portable, the Halo Bolt isn’t designed to be pocket-friendly. This big brick of a battery pack comes in at 7.2 x 1.6 x 3.8 inches (HWD) with a weight of more than 1.5 pounds. Smaller, cheaper battery packs are available for smartphones, but this beast is made for heavier-duty needs and is designed accordingly.
@@ -78,6 +79,10 @@ Lifewire / Andrew Hayward
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/nYYltjJN71EGK1Dwv2_XABixuhs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-04-85b590a9939a4f44b0c7a510a456b80f.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 ## **Setup Process: Load it up**
@@ -88,14 +93,8 @@ Lifewire / Andrew Hayward
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/mUdXUjWxeupVqNR_y43_eFTC0ic=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-02-69b93dc934684ef5b71a40215f6162f2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Charging Speed and Battery: Not so long-lasting**
 
  The Halo Bolt has 58,830mWh of battery power within, and the official description suggests that it can provide up to several hours of additional usage for a MacBook Pro or[iPad Air](https://www.lifewire.com/apple-ipad-air-2019-review-4688969) . In my testing, the results didn’t quite match those targets.
@@ -113,20 +112,19 @@ Lifewire / Andrew Hayward
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/MNFqifirQ0sn61GPO1e-bLQ1t8s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-06-8bc3449bd35243aaaf67272c1d3774a6-bc803e0a114b4116adf3078af6a2de00.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: It’s priced right**
 
  For a jack-of-all-trades power brick that can jump-start your car and charge its battery, serve as a bright flashlight for roadside emergencies, and charge a wide array of portable devices, the $100 price seen on Amazon looks pretty reasonable. However, given that it couldn’t charge my laptop to total capacity and lacks a USB-C port, handier, higher-capacity charging bricks are available specifically for laptop and smartphone charging needs.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ## **Halo Bolt ACDC 58830 vs. ZMI PowerPack 20000**
 
  Here’s a prime example. The[ZMI PowerPack 20000](https://www.lifewire.com/zmi-powerpack-20000-review-5071991) (see on[Amazon](https://www.amazon.com/dp/B072BD98CM?linkCode=ogi&th=1&psc=1&tag=lifewire-onsite-prod-20&ascsubtag=5071993%7Cn35698be70c304b229c7a194255ab2d3620%7C) ) doesn’t have an AC port. However, it’s pocket-friendly, packs a lot of capacity (20,000mAh), and can quickly recharge laptops with its included USB-C port. It also has two USB-A ports and sufficient juice to recharge the same MacBook Pro from empty. Best of all, it only costs $70.
@@ -139,6 +137,10 @@ Lifewire / Andrew Hayward
 
  The Halo Bolt isn’t the best option for charging laptops, but it is a solid all-around device for providing backup power to a broader array of gadgets, not to mention jump-starting a car. This versatile device is smart to have around if you drive a car and are frequently mobile with your portable gadgets. I wouldn’t bring it with me on vacation, but it could prove useful before long as a backup device to keep handy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Bolt ACDC 58830 mWh Portable Charger/Jump Starter
@@ -150,14 +152,11 @@ Lifewire / Andrew Hayward
 * Ports  2x USB-A. 1x AC, 1x Jump Start
 * Waterproof  N/A
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -166,4 +165,26 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-content-layout-on-social-networks-facebooks-perspective/"><u>[New] 2024 Approved Content Layout on Social Networks Facebook’s Perspective</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-masterful-audio-mesh-for-voice-broadcasters/"><u>[New] Masterful Audio Mesh for Voice Broadcasters</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-the-benefits-of-the-fujitsu-scansnap-ix1-279803-a-professional-scanner-tailored-for-smbs-and-home-workspaces/"><u>Assessing the Benefits of the Fujitsu ScanSnap iX1 279803, A Professional Scanner Tailored for SMBs & Home Workspaces</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/blades-blh4100-rtf-high-performance-outdoor-rc-helicopter-in-depth-review/"><u>Blades BLH4100 RTF High-Performance Outdoor RC Helicopter - In Depth Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-garmin-gpsmap-64st-assessment-excelling-in-versatile-handheld-navigation/"><u>Comprehensive Garmin GPSMAP 64St Assessment: Excelling in Versatile Handheld Navigation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-maisto-rc-rock-crawler-evaluation-perfect-toy-for-the-whole-family/"><u>Comprehensive Maisto RC Rock Crawler Evaluation - Perfect Toy for the Whole Family!</u></a></li>
+<li><a href="https://some-tips.techidaily.com/conversion-facil-y-gratuita-al-aire-libre-haga-el-cambio-de-m4a-a-vob-utilizando-movavi/"><u>Conversión Fácil Y Gratuita Al Aire Libre: Haga El Cambio De M4A a VOB Utilizando Movavi</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-wonders-a-review-of-the-expansive-and-elegant-huion-kamvas-gt-191-drawing-tablet/"><u>Discovering the Wonders: A Review of the Expansive and Elegant Huion Kamvas GT-191 Drawing Tablet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhance-your-workouts-on-the-move-with-garmin-vivoactive-s-music-feature/"><u>Enhance Your Workouts on the Move with Garmin Vivoactive 'S Music Feature</u></a></li>
+<li><a href="https://techtrends.techidaily.com/explore-these-8-fantastic-no-cost-html-editors-available-for-windows/"><u>Explore These 8 Fantastic No-Cost HTML Editors Available for Windows</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-play-8t-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Honor Play 8T PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-learning-leaders-most-influential-edu-tutorials-yt/"><u>In 2024, Learning Leaders Most Influential Edu Tutorials YT</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/mastering-windows-animation-top-9-apps-for-high-quality-gif-capture-for-2024/"><u>Mastering Windows Animation Top 9 Apps for High-Quality GIF Capture for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/secure-your-smartphone-with-these-6-exceptional-antivirus-applications-for-iphones/"><u>Secure Your Smartphone with These 6 Exceptional Antivirus Applications for iPhones</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-acid-pro-effect-exploring-similar-tools/"><u>The ACID Pro Effect Exploring Similar Tools</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-dreame-bot-l10-pro-next-gen-mopping-and-vacuuming-innovation-featuring-robust-lidar-capabilities/"><u>The Ultimate Guide to the Dreame Bot L10 Pro: Next-Gen Mopping and Vacuuming Innovation Featuring Robust LiDAR Capabilities</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/the-ultimate-photo-video-maker-tips-and-tricks-for-2024/"><u>The Ultimate Photo Video Maker Tips and Tricks for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-freestyle2-blue-the-premier-customization-toolkit-for-your-mac-device/"><u>Unveiling Freestyle2 Blue: The Premier Customization Toolkit for Your Mac Device</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-whats-better-than-subtitle-edit-for-mac-explore-these-options-for-2024/"><u>Updated Whats Better Than Subtitle Edit for Mac? Explore These Options for 2024</u></a></li>
+</ul></div>
 

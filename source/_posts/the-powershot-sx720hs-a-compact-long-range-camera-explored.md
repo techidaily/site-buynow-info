@@ -1,7 +1,7 @@
 ---
 title: "The PowerShot SX720HS: A Compact, Long-Range Camera Explored"
-date: 2024-08-30T14:13:31.210Z
-updated: 2024-08-31T14:13:31.210Z
+date: 2024-12-03T06:15:43.957Z
+updated: 2024-12-04T17:53:45.002Z
 categories:
   - BestProducts
 description: "This Article Describes The PowerShot SX720HS: A Compact, Long-Range Camera Explored"
@@ -47,6 +47,10 @@ PHOTO: Amazon
 
 [$449 at Amazon](https://www.amazon.com/dp/B0CL5KNB9M?tag=lifewire-onsite-prod-20&ascsubtag=4154610%7Cnbb55c893b84e43b6a51559b2a372e81214%7CB0CL5KNB9M) [$485 at Walmart](https://www.walmart.com/ip/Sony-PlayStation-5-PS5-Disc-Console-Slim/5113183756?slpfid=3) [$500 at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fsony-interactive-entertainment-playstation-5-slim-console-white%2F6566039.p%3FskuId%3D6566039)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Original
 
 [Sony PlayStation 5](https://www.amazon.com/dp/B0CL61F39H?tag=lifewire-onsite-prod-20&ascsubtag=4154610%7Cnbb55c893b84e43b6a51559b2a372e81214%7CB0CL61F39H)
@@ -69,9 +73,6 @@ PHOTO: Target
 
 **TL;DR** : Sony's latest console sports some great exclusive games and extensive media capabilities and is pretty speedy, too. It's also slimmed down from the original.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ### Why We Recommend These
 
  The Sony PlayStation 5 is everything you could want from a games console. It’s simple to boot up and play games on with a straightforward menu system that won’t confuse you.
@@ -82,9 +83,6 @@ PHOTO: Target
 
 ![PS5 console.](https://www.lifewire.com/thmb/80aScf9GOpsaDFgCtwyW1NIE-P4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/PS5console-dfe325ecc3c84b12bdd852ff79734330.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jennifer Allen
 
  The games are varied, with something for everyone here. There are some great exclusives, with my particular highlights including God of War: Ragnarok and The Last of Us series.
@@ -98,8 +96,9 @@ Lifewire / Jennifer Allen
 ![PS5 controller.](https://www.lifewire.com/thmb/AG7JE7IhgP9OyHKJb7-gYZsSc9w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/PS5controller-a37dda31e1f34f1e9867c9d21b3a239d.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Jennifer Allen
 
  It has haptic feedback and adaptive triggers, which means squeezing a trigger feels far more satisfying than with more conventional controllers without feeling a strain on your hands and joints.
@@ -114,9 +113,6 @@ Lifewire / Jennifer Allen
 
 [PS5 Slim vs. PS5](https://www.lifewire.com/ps5-slim-vs-ps5-8643357)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Easiest on the Budget
 
 [Nintendo Switch Lite](https://www.walmart.com/ip/Nintendo-Switch-Lite-Console-Turquoise/306029956)
@@ -140,6 +136,10 @@ PHOTO: Walmart
 
 **TL;DR** : Cute, colorful, and with plenty of games, the Nintendo Switch Lite is a great budget-friendly console.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Why We Recommend This
 
  The Nintendo Switch Lite is an incredibly cute-looking handheld console.
@@ -157,8 +157,9 @@ PHOTO: Walmart
 ![Nintendo Switch Lite gaming console.](https://www.lifewire.com/thmb/TmYyOgzBYexzwHM_D35w2XJF68c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NintendoSwitchLite1-33b6996f36534d1da9974a460e6c5139.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire / Jennifer Allen
 
  That’s not to say that concessions aren’t made here. The Nintendo Switch Lite can’t be docked like its bigger sibling, missing out on one of the reasons why it’s called a Switch.
@@ -242,8 +243,9 @@ Lifewire / Jennifer Allen
  For more advice,[read our gaming console buying guide](https://www.lifewire.com/before-you-buy-gaming-console-8654423) .
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Other Consoles We Considered
 
 * The[Nintendo Switch OLED](https://www.amazon.com/Nintendo-Switch-OLED-Model-Mario-Red/dp/B09NCMZNJK?tag=lifewire-onsite-prod-20&ascsubtag=4154610%7Cnbb55c893b84e43b6a51559b2a372e81214%7C) is the ultimate Nintendo Switch. It can be docked to your TV for big-screen entertainment with the family and played portably with a high-end OLED screen.
@@ -281,8 +283,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -290,4 +290,22 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-top-nine-game-streaming-haven-explored/"><u>[New] 2024 Approved Top Nine Game Streaming Haven Explored</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-elite-mp4-media-sender/"><u>[Updated] 2024 Approved Elite MP4 Media Sender</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-capture-the-airwaves-a-beginners-internet-radio-guide/"><u>2024 Approved Capture the Airwaves A Beginner's Internet Radio Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/androids-very-own-podcasters-for-2024/"><u>Android's Very Own Podcasters for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-google-voice-a-telecommunication-review/"><u>Comprehensive Analysis: Google Voice - A Telecommunication Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/g7x-ii-smaller-in-size-bigger-in-ambition/"><u>G7X II: Smaller in Size, Bigger in Ambition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/immersive-audio-excellence-for-your-home-entertainment-system/"><u>Immersive Audio Excellence for Your Home Entertainment System</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-srs-adjustment-guide-boosting-performance-on-both-platforms/"><u>In 2024, SRS Adjustment Guide Boosting Performance on Both Platforms</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-using-inshot-for-laptoppc-and-other-video-editing-alternatives/"><u>In 2024, Using Inshot for Laptop/PC and Other Video Editing Alternatives</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolved-fixing-the-lego-star-wars-the-skywalker-saga-crash-issue-on-windows/"><u>Resolved: Fixing the 'Lego Star Wars: The Skywalker Saga' Crash Issue on Windows</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-fixing-the-lame-mp3-encoder-dll-problems-in-audacity/"><u>Step-by-Step Guide: Fixing the Lame MP3 Encoder DLL Problems in Audacity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-list-worlds-best-computer-brands-for-a-revolutionary-2024/"><u>The Ultimate List: World's Best Computer Brands for a Revolutionary 2024</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/top-11-solutions-for-fixing-non-detectable-m-2-ssds-on-windows-11-systems/"><u>Top 11 Solutions for Fixing Non-Detectable M. 2 SSDs on Windows 11 Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-pick-for-apple-devotees-a-comprehensive-review-of-freestyle2-blue-on-mac-systems/"><u>Top Pick for Apple Devotees: A Comprehensive Review of Freestyle2 Blue on Mac Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-comparison-can-alexa-outperform-google-assistant-in-your-home/"><u>Ultimate Comparison: Can Alexa Outperform Google Assistant in Your Home?</u></a></li>
+</ul></div>
 

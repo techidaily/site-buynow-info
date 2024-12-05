@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Evaluation of the Portable Lenovo Ideapad ^320 - Featuring Lenovo’s Signature Keyboard Experience
-date: 2024-11-18T05:04:37.800Z
-updated: 2024-11-25T06:32:07.518Z
+date: 2024-12-02T20:10:31.469Z
+updated: 2024-12-04T20:51:51.490Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Evaluation of the Portable Lenovo Ideapad ^320 - Featuring Lenovo’s Signature Keyboard Experience
@@ -18,9 +18,17 @@ thumbnail: https://www.lifewire.com/thmb/G1oG26gp57YAB7fy1gGV5fHuw8Q=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -43,7 +51,7 @@ Lifewire / Todd Braylor
 3.8
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Escort Passport S55
@@ -71,10 +79,6 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -97,10 +101,6 @@ Lifewire / Todd Braylor
 
  It reliably delivers on its promise of long-distance sensitivity.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: Not exactly enhanced**
 
  The S55 has different modes designed to adjust to specific frequency bands and sensitivity levels for city or highway driving. You can quickly customize the settings by using the included quick reference guide. You can also turn off specific frequency bands if they tend to give a lot of false alerts.
@@ -109,15 +109,15 @@ Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
@@ -132,7 +132,7 @@ Lifewire / Todd Braylor
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -164,22 +164,16 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-dynamic-imagery-illustrator-motion-blur-techniques-for-2024/"><u>[New] Dynamic Imagery Illustrator Motion Blur Techniques for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-from-capture-to-share-proven-methods-for-live-360-video-on-youtube/"><u>[New] From Capture to Share Proven Methods for Live 360° Video on Youtube</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-insiders-guide-to-instagram-photo-integrity-for-2024/"><u>[New] The Insider’s Guide to Instagram Photo Integrity for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-top-7-budget-pc-screenshot-and-recording-apps/"><u>[New] Top 7 Budget PC Screenshot & Recording Apps</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/common-in-prostate-cancer-osteoblastic-lesions-can-lead-to-osteosclerosis-and-structurally-unsound-bones/"><u>Common in Prostate Cancer, Osteoblastic Lesions Can Lead to Osteosclerosis and Structurally Unsound Bones</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/decoding-cyberpunk-eon-2077-an-exploration-of-its-shortcomings-and-brilliance/"><u>Decoding Cyberpunk Eon 2077: An Exploration of Its Shortcomings and Brilliance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-ultimate-picks-6-prime-websites-for-buying-tvs/"><u>Discover The Ultimate Picks: 6 Prime Websites for Buying TVs</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210877284-9781612834092-dreaming-on-both-sides-of-the-brain/"><u>Dreaming on Both Sides of the Brain | Free Book</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/hp-stream-14-in-depth-review-navigating-the-trade-offs-of-an-affordable-windows-pc/"><u>HP Stream 14 In-Depth Review: Navigating the Trade-Offs of an Affordable Windows PC</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-your-vivo-y55s-5g-2023-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Vivo Y55s 5G (2023) Lock Screen Password</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Tecno Spark 20? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-vivo-s18-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Vivo S18 Phone Password Without Factory Reset Full Guide Here</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/marvels-spider-man-miles-morales-critique-a-compact-story-with-a-profound-effect/"><u>Marvel's Spider-Man: Miles Morales Critique - A Compact Story with a Profound Effect</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-logitech-c920-hd-webcam-unveiled-a-comprehensive-review-for-video-conferencing-excellence/"><u>The Logitech C920 HD Webcam Unveiled: A Comprehensive Review for Video Conferencing Excellence</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-mighty-giant-in-a-tiny-frame-an-expert-review-of-apples-iphone-12-mini/"><u>The Mighty Giant in a Tiny Frame: An Expert Review of Apple's iPhone 12 Mini</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-noco-genius-boost-pro-gadgets-a-detailed-look-into-the-cost-and-value-of-this-tech-marvel-281-characters/"><u>Unboxing NoCo Genius Boost Pro Gadgets - A Detailed Look Into the Cost and Value of This Tech Marvel 🎧(281 Characters)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-best-in-beanie-hats-a-comprehensive-test-drive-of-rotibox-bluetooth-audio-headwear/"><u>Unveiling the Best in Beanie Hats: A Comprehensive Test Drive of Rotibox Bluetooth Audio Headwear</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-breaking-down-the-secrets-of-impactful-asmr-video-creation/"><u>[Updated] Breaking Down the Secrets of Impactful ASMR Video Creation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-elite-audio-curated-lists-for-video-editors/"><u>[Updated] Elite Audio Curated Lists for Video Editors</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-quick-start-guide-to-setup-and-use-obs-on-apple-systems/"><u>2024 Approved Quick Start Guide to Setup and Use OBS on Apple Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-newly-improved-and-budget-friendly-apple-ipad-102-the-latest-eighth-generation-model/"><u>Comprehensive Review of the Newly Improved and Budget-Friendly Apple iPad 10.2 - The Latest Eighth Generation Model</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-motorola-razr-40-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Motorola Razr 40 Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/quick-and-simple-way-to-obtain-the-newest-amd-smbus-driver-updates/"><u>Quick & Simple Way to Obtain the Newest AMD SMBus Driver Updates</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/seamless-connection-with-up-to-date-netgear-a6210-driver-software-for-windows-platforms-87/"><u>Seamless Connection with Up-to-Date Netgear A6210 Driver Software for Windows Platforms 8/7</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-companion-for-on-the-go-productivity-the-msi-pro-mp161-e2-monitor/"><u>Ultimate Companion for On-The-Go Productivity: The MSI PRO MP161 E2 Monitor</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-game-streaming-experience-with-the-razer-portal-a-comprehensive-review/"><u>Ultimate Game Streaming Experience with the Razer Portal: A Comprehensive Review</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-video-editing-on-a-shoestring-16-free-and-intuitive-movie-makers/"><u>Updated 2024 Approved Video Editing on a Shoestring 16 Free and Intuitive Movie Makers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/xbox-series-s-evaluation-compact-design-powerful-performance/"><u>Xbox Series S Evaluation: Compact Design, Powerful Performance</u></a></li>
 </ul></div>
 

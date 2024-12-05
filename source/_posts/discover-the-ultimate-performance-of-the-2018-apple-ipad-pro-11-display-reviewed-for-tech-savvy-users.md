@@ -1,7 +1,7 @@
 ---
 title: Discover the Ultimate Performance of the 2018 Apple iPad Pro - 11 Display Reviewed for Tech Savvy Users
-date: 2024-11-23T09:31:02.927Z
-updated: 2024-11-24T22:00:19.459Z
+date: 2024-12-02T00:20:26.150Z
+updated: 2024-12-04T18:56:44.638Z
 categories:
   - BestProducts
 description: This Article Describes Discover the Ultimate Performance of the 2018 Apple iPad Pro - 11 Display Reviewed for Tech Savvy Users
@@ -21,6 +21,10 @@ thumbnail: https://www.lifewire.com/thmb/2IMonTcMNLQqwyEI0OoxFXzAaZA=/400x300/fi
 ## Apple iPad Pro 11-Inch (2018)
 
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/XAxnGc_g0AZSliRVCCVfXsB5Wug=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_HeroSquare-b5f2405776244188aa59f67503531baf.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jordan Provost
 
@@ -91,7 +95,7 @@ Lifewire / Jordan Provost
  Lifewire / Jordan Provost
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Accessories: Useful for productivity**
@@ -107,7 +111,7 @@ Lifewire / Jordan Provost
  Top 3 Tablets On the Market
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Fast and easy**
@@ -120,15 +124,15 @@ Lifewire / Jordan Provost
 
  Lifewire / Jordan Provost
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Display: Rich colors and smooth motion**
 
  Apple is well known for its gorgeous screens, and the iPad Pro absolutely delivers. The display is what Apple is calling ‘Liquid Retina’, an upgraded version of the technology that drives the screen on the iPhone XR. Wonderfully rich color reproduction, crisp text can be found across all of Apple’s proprietary apps and third-party optimized software. Reading articles and watching video content on streaming services is wonderful, and it even fares well amidst glare from sunlight. It’s still an LCD screen though, so OLED tablets will still have better-looking blacks and richer, more saturated colors. Fortunately for Apple, there aren’t many of those in the market.
 
  There’s also some nifty usability features that come packed with the iPad Pro. True Tone is a feature that helps match the display to the color temperature of your surroundings, which makes the screen easier on your eyes. The 120Hz Pro Motion technology alters the refresh rate of the screen depending on your usage, which results in extremely fluid motion, from scrolling, to playing games, or watching video. It’s difficult to find a poor viewing angle, though you still can’t watch 4K video on YouTube, which is a crying shame given the power of the screen, but more of a problem between Apple and Google rather than a knock to the device itself.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Powerhouse processor**
 
@@ -144,11 +148,11 @@ Lifewire / Jordan Provost
 
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/KXfYew06x6vujxu5asiFMPptK_k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_1-a6ce9e62649048d7a20596066576c2c5.jpg)
 
- Lifewire / Jordan Provost
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Jordan Provost
 
 ## **Productivity: Not a laptop replacement just yet**
 
@@ -161,6 +165,10 @@ Lifewire / Jordan Provost
  It cannot replace your laptop just yet, but it may well make it redundant based on your use case.
 
  Outside of that, you can’t connect some external drives, Thunderbolt devices or use a mouse. Split View is also certainly a compromise to professionals used to using more than three programs at once.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Audio: Thunderous sound**
 
@@ -177,7 +185,7 @@ Lifewire / Jordan Provost
  Lifewire / Jordan Provost
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Camera: A decent backup**
@@ -190,15 +198,15 @@ Lifewire / Jordan Provost
 
  Take a peek at some of the[best camera apps](https://www.lifewire.com/best-iphone-camera-apps-4176231) you can download.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery: All-day usage**
 
  This is an all-day device, and should last you roughly around 10 hours of regular use, as per our testing. We spent almost a full working day pushing it using Split View to draft articles, with some Procreate drawing and Netflix streaming in between, and the iPad Pro clocked out at around 9 hours. However, we found some apps like Google Docs drain the battery more than most, so it varies depending on your workflow. Much like the Apple Watch, if you’re not a power user this tablet could last you a number of days before needing a fresh charge.
 
 ![IPad Pro 11 Inch](https://www.lifewire.com/thmb/Q4zUu4bRCg_V0xhMi5Yh7Ns7znc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_4-bef539783bbd48ae98e1becea11ce4dc.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
@@ -210,19 +218,11 @@ Lifewire / Jordan Provost
 
  iOS 12 is by far and away the best version of the operating system yet, but there are still some blatant compromises that eat away at the possibility of the iPad Pro being a laptop replacement.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Well worth the money if you can justify it**
 
  As far as tablets go, one of the main reasons many people are put off by the iPad Pro is the existence of far cheaper options. Our review model (11-inch, 64GB) retails for $799, and you may well be inclined to upgrade both the size and the capacity to suit your needs. This doesn’t factor in some of the more essential accessories with jaw-dropping prices like the Apple Pencil, Smart Keyboard, and the Bluetooth headphones necessary to navigate the lack of a headphone jack. That can lead to a very expensive purchase, and with Apple products, it can be hard to tell whether they are worth it case by case.
 
  Luckily, the 11-inch iPad Pro is such a revolutionary upgrade on most tablets that you do truly get what you pay for here. The A12X Bionic puts it leagues ahead of the competition, making it the most powerful productivity machine for professional creatives on the market. There is nothing really competing at this price range beyond.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Hard to beat**
 
@@ -237,7 +237,7 @@ Lifewire / Jordan Provost
  With utterly seamless navigation and playback, fantastic speakers and world-class accessories and performance, this is a beautifully designed piece of hardware. Unfortunately, whilst the power is there, it is held back by its own operating system, forcing you into busywork or compromising missteps. It cannot replace your laptop just yet, but it may well make it redundant based on your use case.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -274,17 +274,18 @@ Lifewire / Jordan Provost
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-best-10-virtual-reality-headgear-for-smartphones/"><u>[New] Best 10 Virtual Reality Headgear for Smartphones</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-crafting-your-ultimate-style-haul-video-for-2024/"><u>[New] Crafting Your Ultimate Style Haul Video for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordability-meets-quality-in-rexings-v1-dashcam-a-comprehensive-review/"><u>Affordability Meets Quality in Rexing's V1 DashCam - A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/analyzing-real-time-clarity-what-to-expect-from-the-logitech-c920-pro-hd-webcam-experience/"><u>Analyzing Real-Time Clarity: What to Expect From the Logitech C920 Pro HD Webcam Experience</u></a></li>
-<li><a href="https://win-bytes.techidaily.com/comment-effectuer-un-recuperation-parfaite-de-fichiers-chk-trois-techniques-innovantes/"><u>Comment Effectuer Un Récupération Parfaite De Fichiers CHK: Trois Techniques Innovantes</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/tial-editing-techniques-for-yt-channel-summaries/"><u>Essential Editing Techniques for YT Channel Summaries</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/future-ready-wi-fi-enhancement-an-in-depth-look-at-the-netgear-nighthawk-ax8-mesh-extender/"><u>Future-Ready Wi-Fi Enhancement: An In-Depth Look at the Netgear Nighthawk AX8 Mesh Extender</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Infinix Smart 8 HD | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-oppo-find-n3-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Oppo Find N3 to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/nvidia-gtx-1650-optimized-windows-7-driver/"><u>NVIDIA GTX 1650: Optimized Windows 7 Driver</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/ryzen-7-powered-framework-laptop-16-why-choose-ubuntu-over-windows-experience-for-peak-efficiency/"><u>Ryzen 7 Powered Framework Laptop 16: Why Choose Ubuntu Over Windows eXperience for Peak Efficiency</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-perfect-companion-for-late-night-readers-a-thorough-review-of-the-nook-glowlight-3-by-barnes-and-nobel/"><u>The Perfect Companion for Late-Night Readers: A Thorough Review of the Nook Glowlight 3 by Barnes & Nobel</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-pioneering-techniques-in-hand-based-tracking/"><u>[Updated] In 2024, Pioneering Techniques in Hand-Based Tracking</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-oppo-a78-5g-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/duo-cameras-unlock-childhood-adventures/"><u>Duo Cameras: Unlock Childhood Adventures</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/enhance-your-vtuber-experience-with-top-voice-modification-tools-for-2024/"><u>Enhance Your VTuber Experience with Top Voice Modification Tools for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/enjoy-24-discount-on-airpods-pro-2-the-new-earbuds-that-double-as-hearing-devices-today-only-exclusive-offer/"><u>Enjoy 24% Discount on AirPods Pro 2 - The New Earbuds that Double as Hearing Devices, Today Only! Exclusive Offer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-nook-glowlight-4-e-reader-review/"><u>Expert Analysis: Nook GlowLight 4 E-Reader Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/illuminate-your-creativity-unveiling-spk10-037-kit-features/"><u>Illuminate Your Creativity: Unveiling SPK10-037 Kit Features</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-vivo-v29e-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Vivo V29e Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/merging-yt-chorus-with-visual-storytelling/"><u>Merging YT Chorus with Visual Storytelling</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-video-tag-management-made-easy-top-editors-for-windows-and-mac/"><u>New In 2024, Video Tag Management Made Easy Top Editors for Windows and Mac</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sony-playstation-5-analysis-unleashing-enhanced-gaming-potential/"><u>Sony PlayStation 5 Analysis: Unleashing Enhanced Gaming Potential</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-analysis-how-the-2020-apple-mac-mini-with-m1-chip-dominates-its-rival-computers/"><u>Ultimate Analysis: How the 2020 Apple Mac Mini with M1 Chip Dominates Its Rival Computers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/value-champion-inside-look-at-the-performance-and-features-of-zte-blade-a3y/"><u>Value Champion: Inside Look at the Performance and Features of ZTE Blade A3Y</u></a></li>
 </ul></div>
 

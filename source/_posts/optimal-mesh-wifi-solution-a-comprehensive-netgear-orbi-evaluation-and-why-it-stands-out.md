@@ -1,7 +1,7 @@
 ---
 title: Optimal Mesh WiFi Solution - A Comprehensive Netgear Orbi Evaluation and Why It Stands Out
-date: 2024-08-30T14:10:50.966Z
-updated: 2024-08-31T14:10:50.966Z
+date: 2024-12-03T07:26:26.408Z
+updated: 2024-12-04T17:08:26.728Z
 categories:
   - BestProducts
 description: This Article Describes Optimal Mesh WiFi Solution - A Comprehensive Netgear Orbi Evaluation and Why It Stands Out
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/3xIrIFD4zMXO8jYRgawFcSf2Eqw=/400x300/fi
 ## AmazonBasics 7 Port USB 3.0
 
 ![AmazonBasics 7 Port USB 3.0](https://www.lifewire.com/thmb/61zrtwf2XnDfg9oA0igeVIB2E3M=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_HeroSquare-b4652c2651b5474f84409577b3760479.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -67,9 +71,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: A clean look, with some awkward ports**
 
  Measuring 5.7 x 2.6 x 1.1 inches (HWD), the AmazonBasics 7 Port USB 3.0 Hub is not a particularly petite or compact device, but it does do itself some favors in the design department. The slanted body contains two connections on its left, one for the power and one for the USB-B port. On the back, you’ll find five standard USB 3.0 Type-A ports. The right side contains two fast-charge ports capable of supplying more than the standard power, so long as you’ve connected the hub to an outlet using the power cable. Finally, the top contains a simple blue LED, which lit up as soon as we connected the USB cable to the computer.
@@ -85,8 +86,9 @@ Lifewire / Jonno Hill
 ![AmazonBasics 7 Port USB 3.0 Hub](https://www.lifewire.com/thmb/-6zArDEXr2_gqDvtkeqZAbTQKiQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics_UsbHubs_3LW4142295_05-c3e5d946a7e84b6cb1b395cff1103e42.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 ## **Setup Process: No trouble at all**
@@ -95,9 +97,6 @@ Lifewire / Jonno Hill
 
  The AmazonBasics 7 Port USB 3.0 Hub is an otherwise capable device that is unfortunately marred by quality control issues and cheap construction.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Connectivity: A sufficient number of options**
 
  The AmazonBasics 7 Port USB 3.0 Hub comes with a three-foot USB (A-to\_B) cable to connect to your computer. This should be sufficient for most users, and worked well in our setup. An AC power adapter is included as well, and it comes with a fairly substantial power brick.
@@ -109,8 +108,9 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Just what you’d expect**
 
  The AmazonBasics 7 Port USB 3.0 Hub performed as expected in our tests, providing USB 3.0 Gen 1 speeds. The five ports in the back supply the standard 0.9A of power, whereas the ports on the side, designed for fast charging, can supply up to 1.5A. If you neglect to connect the hub to a power source, the entire device will have to share the 0.9A of power supplied by your computer’s[USB 3.0 port](https://www.lifewire.com/what-is-usb-3-0-2626038) .
@@ -118,8 +118,9 @@ Lifewire / Jonno Hill
  The five ports in the back supply the standard 0.9A of power, whereas the ports on the side, designed for fast charging, can supply up to 1.5A.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: You get what you pay for**
 
  At a list price of $33.44, the AmazonBasics 7 Port USB 3.0 Hub isn’t a terrible deal, but given the materials used and the quality control issues, it’s definitely not an amazing deal. Buyers looking for a bit more might consider AUKEY’s 10-port powered hub or Amazon’s own AmazonBasics 10 Ports USB 3.0 Charging Hub Docking Station. Both these hubs offer more connections and dedicated power.
@@ -128,9 +129,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **AmazonBasics 7 Port USB 3.0 Hub vs. Aukey USB Hub 3.0**
 
  Those looking for a more compact device, or perhaps those more concerned with appearance and build quality, might consider Aukey’s 4-port USB 3.0 hub. This hub lacks the dedicated power that Amazon’s offering has, but comes at around half the price. Additionally, AUKEY’s hub has significantly better materials and build quality than Amazon’s plasticky device. Ultimately, the features that you need in your device will guide your purchase, but these are the considerations we think buyers should think about.
@@ -142,6 +140,10 @@ Lifewire / Jonno Hill
 **A capable hub with some quality control issues.**
 
  The AmazonBasics 7 Port USB 3.0 Hub is an otherwise capable device that is unfortunately marred by quality control issues and cheap construction. That said, if you don’t care as much about design and construction quality, it might still be a good affordable option.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -157,14 +159,11 @@ Lifewire / Jonno Hill
 * Compatibility  Windows 2000/Win XP/Vista/Windows 7 & Mac 10.1 up
 * Warranty  30 days
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,4 +172,23 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-best-browser-capture-tools-top-picks/"><u>[New] 2024 Approved Best Browser Capture Tools Top Picks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-and-efficient-topmate-c302-laptop-cooler-analysis/"><u>Affordable & Efficient TopMate C302 Laptop Cooler Analysis</u></a></li>
+<li><a href="https://blog-min.techidaily.com/gratis-online-omzijmen-van-mp3-naar-wav-professionele-movavi-tools-voor-audioprocessing/"><u>Gratis Online Omzijmen Van MP3 Naar WAV: Professionele Movavi-Tools Voor Audioprocessing</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-convenient-youtube-viewing-activate-picture-in-picture-on-iphone/"><u>In 2024, Convenient YouTube Viewing Activate Picture-in-Picture on iPhone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For HTC U23 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-lgs-visual-masterpiece-comprehensive-monitor-analysis/"><u>In 2024, LG’s Visual Masterpiece Comprehensive Monitor Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-pioneer-bdr-xs06-portable-blu-ray-player-a-comprehensive-performance-review/"><u>In-Depth Analysis of the Pioneer BDR-XS06 Portable Blu-Ray Player – A Comprehensive Performance Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/interactive-guide-install-and-setup-your-blink-outdoor-4-camera/"><u>Interactive Guide: Install & Setup Your Blink Outdoor 4 Camera</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/potential-pitfalls-of-purchasing-a-dvr-consider-these/"><u>Potential Pitfalls of Purchasing a DVR? Consider These</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/speedy-download-and-install-of-samsung-m2070fw-printing-software/"><u>Speedy Download & Install of Samsung M2070FW Printing Software</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stay-current-with-every-new-iphone-release/"><u>Stay Current with Every New iPhone Release</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/step-by-step-tutorial-for-modifying-soundtracks-on-various-windows-versions-including-11-10-81-etc/"><u>Step-by-Step Tutorial for Modifying Soundtracks on Various Windows Versions Including 11, 10, 8.1, Etc.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/swagboard-t1-by-swagtron-a-review-on-its-quick-movements-and-premium-pricing/"><u>Swagboard T1 by Swagtron: A Review on Its Quick Movements and Premium Pricing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-netgear-nighthawk-x4-mesh-wi-fi-extender-enhancing-your-internet-experience-like-never-before/"><u>Top Rated Netgear Nighthawk X4 Mesh Wi-Fi Extender: Enhancing Your Internet Experience Like Never Before</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/transform-your-content-creation-with-the-top-12-vlogger-cams-for-2024/"><u>Transform Your Content Creation with the Top 12 Vlogger Cams for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-asus-rog-gt-c5300-review-ultimate-wireless-perfection-for-hardcore-gamers-and-gadget-geeks/"><u>Unveiling The Asus ROG GT-C5300 Review: Ultimate Wireless Perfection for Hardcore Gamers & Gadget Geeks</u></a></li>
+</ul></div>
 

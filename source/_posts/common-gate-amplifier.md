@@ -1,7 +1,7 @@
 ---
 title: Common Gate Amplifier
-date: 2024-08-30T14:12:07.436Z
-updated: 2024-08-31T14:12:07.436Z
+date: 2024-12-04T07:02:21.277Z
+updated: 2024-12-05T00:38:34.322Z
 categories:
   - BestProducts
 description: This Article Describes Common Gate Amplifier
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/O39PZJSOEqLK7wFkw75WGuvW23M=/400x300/fi
 ## The Outer Worlds
 
 ![The Outer Worlds](https://www.lifewire.com/thmb/ilSMK7MdhAHIYF1KI5F6dWzNOnI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-HeroSquare-5886d4533ee146b18daef3a40898b264.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -60,9 +64,6 @@ Lifewire / Kelsey Simon
 
  The Outer Worlds is a single-player[action-adventure game](https://www.lifewire.com/game-play-and-streaming-4781449) full of guns, colonists, spaceships, and monsters. You’ll venture out into a sci-fi world and try to save your ship which has had a serious malfunction. The shooting in Outer Worlds is fun, but the game’s best feature is its choice-driven story. We played the game on PC for roughly 20 hours, thoroughly enjoying its dark humor and fun gameplay.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Story: Engaging dialogue and dark humor**
 
  The Outer Worlds is a science fiction game with a focus on dry, dark humor. You’ll start the game by waking up on a malfunctioning spaceship. A man has woken you from stasis and says he needs you to save the ship and all the people living in stasis upon it. His name is Phineas Welles, and he’ll give you a very brief rundown that you’re to meet a smuggler who will take you to someone who can save your ship and people. As you go through this short cutscene sequence, you’ll be prompted to make your character, select your aptitude, skills, and attributes, before Phineas will drop you in a pod down to a planet where you’re to meet the smuggler, Hawthorne.
@@ -84,8 +85,9 @@ Lifewire / Kelsey Simon
 ![The Outer Worlds](https://www.lifewire.com/thmb/6e7gsLSJwKWV8-Gpw6vMnU6_ohk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-02-03e4afcdc62d4528a5e0b6e4e19ae03b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 ## **Gameplay: Shooting enemies for story progression**
@@ -103,35 +105,26 @@ Lifewire / Kelsey Simon
 ![The Outer Worlds](https://www.lifewire.com/thmb/ax345l2R5dAgwtloXADYi2mrtKE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-03-933e9037c06d4754b04cca743675f3e5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Graphics: Average, but solid**
 
  The Outer Worlds doesn’t attempt to do anything amazing with its graphics, which is totally fine. There’s no artistic flair like with Borderlands, nor is there an attempt at extremely realistic textures like with Monster Hunter: World, but the Outer Worlds does enough. The graphics are on par with other big name titles, and the landscapes of the various planets you’ll visit are interesting and different enough. This helps make exploration fun, but really, there isn’t anything amazing about the graphics. They are what they need to be. The only other thing also worth mentioning is the slightly humorous, constant propaganda that you’ll come across in various areas. In Emerald Vale, the starting area, you’ll start to see this theme and it will be carried through the rest of the game.
 
 ![The Outer Worlds](https://www.lifewire.com/thmb/sJTEo9nCHPyxpxLeue9TFUvPEaI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4050050-The-Outer-Worlds-04-2e28a12a6aac4163a86a580d2dac979f.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Not bad if you enjoy story-driven games**
 
  The Outer Worlds costs $60 new, although you might be able to catch it on sale if you watch closely. Even at full cost, it’s a game worth buying if you enjoy science fiction inspired first-person shooters―or more specifically, single-player shooter games with a focus on storytelling. As someone who often doesn’t like spending loads of money on a new game, I will say that Outer Worlds was one I didn’t mind buying. The game is fun and well written. It’s an adventure to be had, and while it’s not the best game that’s ever been made, it’s a solid, well-made game that most will enjoy.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Sci-fi games with strong series**
 
@@ -143,6 +136,10 @@ Lifewire / Kelsey Simon
 
  The Outer Worlds is a story-drive first-person shooter that has a great sense of humor. Each decision you make will impact how the game unfolds. The shooting, while basic, is fun and provides the perfect vehicle to propel you forward on your adventure. Overall, The Outer Worlds is a solid game if you’re looking for a fun, humorous single-player experience.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  The Outer Worlds
@@ -151,14 +148,11 @@ Lifewire / Kelsey Simon
 * ESRB Descriptors  Blood and gore, Intense violence, Strong language
 * Genre  Role Playing
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -167,4 +161,24 @@ Lifewire / Kelsey Simon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-crafting-engaging-youtube-beginnings-two-methods/"><u>[Updated] In 2024, Crafting Engaging YouTube Beginnings Two Methods</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-delving-into-the-world-of-mukbang-videos/"><u>[Updated] In 2024, Delving Into the World of Mukbang Videos</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-prime-nintendo-switch-fighting-game-guide-max-156-for-2024/"><u>[Updated] Prime Nintendo Switch Fighting Game Guide (Max 156) for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/arlos-hybrid-solution-for-home-safety-in-depth-review-of-the-video-doorbell-that-also-sounds-an-alert/"><u>Arlo's Hybrid Solution for Home Safety: In-Depth Review of The Video Doorbell That Also Sounds an Alert</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/battle-of-the-buzzes-in-depth-analysis-of-ring-and-nest-doorbells/"><u>Battle of the Buzzes: In-Depth Analysis of Ring and Nest Doorbells</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-netgear-c3700-a-dual-purpose-modem-and-router/"><u>Comprehensive Evaluation of the Netgear C3700 - A Dual-Purpose Modem and Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-on-the-new-microsoft-surface-pro-7-consistent-quality-in-an-updated-package/"><u>Expert Analysis on the New Microsoft Surface Pro 7 - Consistent Quality in an Updated Package</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-easily-register-and-connect-with-the-nintendo-network-on-your-nintendo-3ds-device/"><u>How to Easily Register and Connect with the Nintendo Network on Your Nintendo 3DS Device</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-samsung-galaxy-f04-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Samsung Galaxy F04 to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-xiaomi-mix-fold-3-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Xiaomi Mix Fold 3 in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-nokia-g22-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Nokia G22 FRP</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-iphone-15-by-drfone-ios/"><u>New Multiple Ways How To Remove iCloud Activation Lock On your iPhone 15</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rayman-legends-examination-an-expertly-crafted-side-scroller/"><u>Rayman Legends Examination: An Expertly Crafted Side-Scroller</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revitalized-graphics-and-unmatched-performance-with-apples-m1-chip-in-imac/"><u>Revitalized Graphics & Unmatched Performance with Apple's M1 Chip in iMac</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-fix-for-coredll-absent-mistake-on-your-computer/"><u>Step-by-Step Fix for Core.DLL Absent Mistake on Your Computer</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-frame-fixer-query-solutions-for-2024/"><u>The Frame Fixer Query Solutions for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-15-low-cost-ssl-certificates-reviewed/"><u>Top 15 Low-Cost SSL Certificates Reviewed</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Introducing the Amazon Halo – A Revolutionary Step in Personal Fitness Tracking Technology
-date: 2024-08-30T14:13:53.762Z
-updated: 2024-08-31T14:13:53.762Z
+date: 2024-11-29T16:41:18.201Z
+updated: 2024-12-04T20:35:31.754Z
 categories:
   - BestProducts
 description: This Article Describes Introducing the Amazon Halo – A Revolutionary Step in Personal Fitness Tracking Technology
@@ -61,10 +61,6 @@ thumbnail: https://www.lifewire.com/thmb/XIwk9ifEQ8fjoY1Z9BS4rgkBmwU=/400x300/fi
 
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -73,11 +69,16 @@ thumbnail: https://www.lifewire.com/thmb/XIwk9ifEQ8fjoY1Z9BS4rgkBmwU=/400x300/fi
 
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Humans have never been so annoying**
 
  The game begins with a multi-hour long tutorial program, which I highly recommend you undertake before playing the game. There are so many various aspects to the game—basic needs, threats to your colony, resources to import and export—that it would be disastrous not to get caught up to speed. It took me a total of five hours to complete these tutorials, but I had to restart a couple after a couple operator error moments when I accidentally destroyed my only water vaporizer and had no idea how to rebuild it. So, it will probably take you less.
@@ -93,8 +94,9 @@ thumbnail: https://www.lifewire.com/thmb/XIwk9ifEQ8fjoY1Z9BS4rgkBmwU=/400x300/fi
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
  The colonists also come with their own unique personality traits, from veganism to survivalist to alcoholic, so they all have their own service needs. You’ll have to factor this into your game as you build up your population. If someone doesn’t get their needs met, it can land them in the hospital, or worse, on a rocket back home. And don’t get me started on the chaos that erupts when humans start freezing during a cold spell or complain when they don’t have enough oxygen. The nerve of some colonists!
@@ -113,9 +115,6 @@ thumbnail: https://www.lifewire.com/thmb/XIwk9ifEQ8fjoY1Z9BS4rgkBmwU=/400x300/fi
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
@@ -123,9 +122,14 @@ thumbnail: https://www.lifewire.com/thmb/XIwk9ifEQ8fjoY1Z9BS4rgkBmwU=/400x300/fi
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Other city-building games**
 
@@ -139,9 +143,6 @@ thumbnail: https://www.lifewire.com/thmb/XIwk9ifEQ8fjoY1Z9BS4rgkBmwU=/400x300/fi
 
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Surviving Mars
@@ -154,14 +155,11 @@ thumbnail: https://www.lifewire.com/thmb/XIwk9ifEQ8fjoY1Z9BS4rgkBmwU=/400x300/fi
 * Graphics  HD 4600/Geforce 620/Radeon 6450 or equivalent GPUs with 1 GB of video RAM
 * Game Updates  Green Planet, Project Laika, Space Race, Colony Design Set, Marsvision Song Contest
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -170,4 +168,23 @@ thumbnail: https://www.lifewire.com/thmb/XIwk9ifEQ8fjoY1Z9BS4rgkBmwU=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-perfect-the-art-of-posting-on-snapchat-15-tips/"><u>[Updated] 2024 Approved Perfect the Art of Posting on Snapchat (15 Tips)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-unlocking-full-potential-of-macs-preview-tool-for-2024/"><u>[Updated] Unlocking Full Potential of Mac's Preview Tool for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/audio-aces-challenge-apples-airpods-pro-against-galaxy-buds-pro-rivalry/"><u>Audio Aces Challenge: Apple's Airpods Pro Against Galaxy Buds Pro Rivalry</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-civi-3-disney-100th-anniversary-edition-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Civi 3 Disney 100th Anniversary Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/compact-hp-stream-11-laptop-essential-tech-on-the-go/"><u>Compact HP Stream 11 Laptop: Essential Tech on the Go</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-acer-aspire-c27-the-ultimate-compact-and-versatile-desktop-computer/"><u>Exploring the Acer Aspire C27: The Ultimate Compact and Versatile Desktop Computer</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-vivo-s17t-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from Vivo S17t</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-petite-plot-puzzle-piece/"><u>In 2024, Petite Plot Puzzle Piece</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-oppo-k11-5g-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Oppo K11 5G</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-the-ultimate-guide-to-saving-your-iphone-7-display/"><u>In 2024, The Ultimate Guide to Saving Your iPhone 7 Display</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/peering-into-popularity-twitters-top-videos-for-2024/"><u>Peering Into Popularity Twitter’s Top Videos for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/perfect-harmony-between-macs-and-software-an-expert-take-on-the-benefits-of-freestyle2-blue/"><u>Perfect Harmony Between Macs and Software: An Expert Take on the Benefits of Freestyle2 Blue</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-cat-s42-toughphone-unmatched-durability-with-moderate-performance/"><u>Reviewing the CAT S42 Toughphone: Unmatched Durability with Moderate Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-acer-aspire-e-15-analysis-the-ultimate-guide-to-affordable-high-performance-laptops/"><u>Top Rated Acer Aspire E 15 Analysis - The Ultimate Guide to Affordable, High-Performance Laptops</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-reading-pleasure-with-kindles/"><u>Unlocking Reading Pleasure with Kindles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unraveling-the-sophistication-of-the-skagen-falster-3-a-harmonious-mix-of-vintage-appeal-and-contemporary-smartwatch-innovations/"><u>Unraveling the Sophistication of the Skagen Falster 3: A Harmonious Mix of Vintage Appeal and Contemporary Smartwatch Innovations</u></a></li>
+</ul></div>
 

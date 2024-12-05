@@ -1,7 +1,7 @@
 ---
 title: "Barnes & Noble's Biggest E-Reader Yet: A Comprehensive Look at the Nook GlowLight Plus"
-date: 2024-11-23T01:01:24.105Z
-updated: 2024-11-24T23:08:49.450Z
+date: 2024-12-04T05:16:34.061Z
+updated: 2024-12-04T16:42:54.361Z
 categories:
   - BestProducts
 description: "This Article Describes Barnes & Noble's Biggest E-Reader Yet: A Comprehensive Look at the Nook GlowLight Plus"
@@ -18,13 +18,13 @@ thumbnail: https://thmb.techidaily.com/52f669a15e335bb29d06275250544e9470586ee07
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Razer Book 13
 
 ![Razer Book 13](https://www.lifewire.com/thmb/VaOshLbjt_41gksIyYfg24DF6KM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_HeroSquare-80401fcfbef94a1b8444cd0832388aac.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -51,6 +51,10 @@ Lifewire / Andy Zahn
 ## Razer Book 13
 
 ![Razer Book 13](https://www.lifewire.com/thmb/0i6VvZqT39MNfVUbDSY7z3l8-Tw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_HeroSquare-80401fcfbef94a1b8444cd0832388aac.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -104,7 +108,15 @@ Lifewire / Andy Zahn
 
 ![Razer Book 13](https://www.lifewire.com/thmb/C308jEtLYxnwMp68uF5Sd-2hjyA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_02-4da7b450ac1c4b879f1b0bebfa9815b5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Performance: Lean and mean
 
@@ -124,10 +136,6 @@ Lifewire / Andy Zahn
 
 ![Razer Book 13](https://www.lifewire.com/thmb/hKfA1c1e0-bRVVhMU22PtI2GewM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_03-23b08f335541443ebe1e7d7763140eca.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Andy Zahn
 
 ## Connectivity: The latest and greatest
@@ -140,11 +148,11 @@ Lifewire / Andy Zahn
 
 ![Razer Book 13](https://www.lifewire.com/thmb/6yYQ1e8vR0Ldvs2GP61CrvFy3zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_05-1c8a8e1bdd78413fb72cc6307a07ea40.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Audio: Big sound for a small laptop
 
@@ -157,16 +165,12 @@ Lifewire / Andy Zahn
  It’s particularly good in the mids and highs, but as you’d expect, loses something in the bass range. However, it’s more than adequate for listening to music, gaming, or watching movies.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Camera: Competent webcam
 
  The webcam on the Book 13 is about average for a laptop. It captures 720p video and is perfectly acceptable, though not exceptional in any way. Video quality looks decent, even in relatively challenging situations.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Price: The cost of quality
 
@@ -177,7 +181,7 @@ Lifewire / Andy Zahn
  This is a premium, ultra-portable device designed more for professional work, and its ability to game is basically a nice bonus. Considering the competition from Dell and Apple, it’s not unreasonably priced.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Razer Book 13 vs. Dell XPS 13 7390 2-in-1
@@ -197,10 +201,6 @@ Lifewire / Andy Zahn
 * [Microsoft Surface Laptop Go](https://www.lifewire.com/microsoft-surface-laptop-go-review-5088869)
 * [Asus Zephyrus G14](https://www.lifewire.com/asus-zephyrus-g14-review-a-no-compromises-gaming-laptop-5084841)
 * [Razer Blade 15](https://www.lifewire.com/razer-blade-15-review-4845229)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -234,24 +234,24 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-direct-sharing-twitch-live-links-for-facebook-friends/"><u>[New] Direct Sharing Twitch Live Links for Facebook Friends</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-sparkle-in-the-spotlight-personalized-logos-made-easy-and-free-for-2024/"><u>[Updated] Sparkle in the Spotlight Personalized Logos Made Easy & Free for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-amplify-your-videos-impact-increasing-view-count-on-youtube-shorts/"><u>2024 Approved Amplify Your Video's Impact Increasing View Count on YouTube Shorts</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-excelling-without-vimeo-best-editing-software-rankings/"><u>2024 Approved Excelling Without Vimeo Best Editing Software Rankings</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-comprehensive-review-of-google-stadia-with-recommendations-for-progress/"><u>A Comprehensive Review of Google Stadia with Recommendations for Progress</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-deep-dive-into-the-world-of-w15a-photo-frames-features-and-faults/"><u>A Deep-Dive Into the World of W15A Photo Frames - Features & Faults</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ving-professional-level-youtube-streams-using-wirecast-for-2024/"><u>Achieving Professional-Level Youtube Streams Using WireCast for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722584679050-can-tp-links-archer-ax6000-outperform-netgears-nighthawk-ax12-in-speed-and-reliability-expert-insights-inside/"><u>Can TP-Link's Archer AX6000 Outperform Netgear's Nighthawk AX12 in Speed & Reliability? Expert Insights Inside</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722690488971-comparing-echo-dot-and-homepod-mini-unveiling-key-distinctions/"><u>Comparing Echo Dot and HomePod Mini: Unveiling Key Distinctions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722756217050-comprehensive-samsung-galaxy-a51-5g-assessment-exceptional-value-in-the-5g-market/"><u>Comprehensive Samsung Galaxy A51 5G Assessment: Exceptional Value in the 5G Market</u></a></li>
-<li><a href="https://apple-account.techidaily.com/icloud-separation-how-to-disconnect-apple-iphone-14-pro-and-ipad-by-drfone-ios/"><u>iCloud Separation How To Disconnect Apple iPhone 14 Pro and iPad</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-country-on-app-store-for-iphone-8-with-7-methods-drfone-by-drfone-ios/"><u>In 2024, How To Change Country on App Store for iPhone 8 With 7 Methods | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722803065153-leading-handheld-gamers-choice-discover-the-finest-portable-devices-for-playtime/"><u>Leading Handheld Gamers' Choice: Discover the Finest Portable Devices for Playtime !</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722801246595-masterclass-on-tcls-gem-the-2019-50s425-the-perfect-mix-of-50-inch-brilliance-and-splendid-value-with-smart-roku-features/"><u>Masterclass on TCL's Gem: The 2019 50S425, the Perfect Mix of 50-Inch Brilliance & Splendid Value with Smart Roku Features!</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-guide-updatinginstalling-graphics-drivers-in-windows-systems/"><u>Step-by-Step Guide: Updating/Installing Graphics Drivers in Windows Systems</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-infographic-yearbook-of-2017s-youtube-insights-and-trends-for-2024/"><u>The Infographic Yearbook of 2017'S Youtube Insights & Trends for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722493294272-top-rated-cable-modem-and-router-bundles/"><u>Top Rated Cable Modem and Router Bundles</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ate-guide-top-free-youtube-video-openers-for-2024/"><u>Ultimate Guide Top Free YouTube Video Openers for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722701037883-unbeatable-prime-day-discounts-sweet-apple-savings-await/"><u>Unbeatable Prime Day Discounts: Sweet Apple Savings Await!</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-soaring-with-mi-drone-an-in-depth-4k-study/"><u>[New] 2024 Approved Soaring with MI Drone - An In-Depth 4K Study</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-ultimate-way-to-update-old-photos-and-videos-with-ig-filters/"><u>[New] The Ultimate Way to Update Old Photos and Videos with IG Filters</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-echo-dot-vs-apple-homepod-mini-which-one-wins/"><u>Amazon Echo Dot vs Apple HomePod Mini: Which One Wins?</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/decoding-the-top-rival-to-sharex/"><u>Decoding the Top Rival to ShareX</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-opinion-on-tp-link-re505x-range-extender-effectiveness/"><u>Expert Opinion on TP-Link RE505X Range Extender Effectiveness</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-pros-and-cons-of-hp-stream-14-an-economical-windows-laptop-reviewed/"><u>Exploring the Pros & Cons of HP Stream 14 - An Economical Windows Laptop Reviewed</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-realme-12-pro-5g-by-drfone-android/"><u>How to Bypass FRP on Realme 12 Pro 5G?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oneplus-open-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from OnePlus Open to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-hp-omen-obelisk-superior-performance-meets-affordability/"><u>In-Depth Analysis of the HP OMEN Obelisk: Superior Performance Meets Affordability</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/inside-out-how-to-react-on-twitter-vids/"><u>Inside Out How to React on Twitter Vids</u></a></li>
+<li><a href="https://program-issues.techidaily.com/national-pesticide-information-center-2016-glyphosate-retrieved-from-httpsnpicorsteduhazardspestfactsgpshtml/"><u>National Pesticide Information Center (2016). Glyphosate. Retrieved From https://npic.orst.edu/hazards/pestfacts/gps.html</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/negotiation-tactics/"><u>Negotiation Tactics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/patek-fly-12s-tripod-review-a-shape-shifter-revealed/"><u>Patek Fly 12'S Tripod Review - A Shape-Shifter Revealed</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/pc-gaming-silence-broken-fix-the-soundless-mystery-in-borderlands-3/"><u>PC Gaming Silence Broken: Fix the Soundless Mystery in Borderlands 3</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-mohu-blade-tv-antenna-reviewing-its-innovative-appearance-and-strong-indoor-signal-capture/"><u>The Mohu Blade TV Antenna: Reviewing Its Innovative Appearance & Strong Indoor Signal Capture</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-insights-from-experts-on-the-fitbit-charge-6-a-thorough-review/"><u>Top Insights From Experts on the Fitbit Charge 6: A Thorough Review</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/shing-creativity-how-to-make-dynamic-gifs-with-youtube-tracks-pcmobile/"><u>Unleashing Creativity How to Make Dynamic GIFs with YouTube Tracks (PC/Mobile)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-a-modern-twist-in-the-echo-dot-gen-4-product-review-and-analysis/"><u>Unveiling a Modern Twist in the Echo Dot (Gen 4): Product Review and Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-improvements-an-expert-review-of-apples-most-economical-tablet-yet/"><u>Unveiling the Improvements: An Expert Review of Apple's Most Economical Tablet Yet</u></a></li>
 </ul></div>
 

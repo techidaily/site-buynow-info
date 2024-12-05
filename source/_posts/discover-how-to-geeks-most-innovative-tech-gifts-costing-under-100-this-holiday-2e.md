@@ -1,7 +1,7 @@
 ---
 title: Discover How-To Geek's Most Innovative Tech Gifts Costing Under $100 This Holiday 2E
-date: 2024-08-30T14:02:50.400Z
-updated: 2024-08-31T14:02:50.400Z
+date: 2024-12-02T07:57:34.888Z
+updated: 2024-12-05T03:39:57.384Z
 tags:
   - buying-guides
 categories:
@@ -10,6 +10,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021
 ---
 
 ## Discover How-To Geek's Most Innovative Tech Gifts Costing Under $100 This Holiday 2E
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Quick Links
 
@@ -27,11 +31,19 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021
 
  \[commerce\_authority\_block\]
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  The Best Tech Gifts Under $100
 
  When buying a gift, it's the thought that counts. With a little research, you can find a lot of thoughtful tech gifts that your recipient has probably never even heard of! This guide lists our favorite fun (or just plain useful) tech gifts under $100.
 
  We've cast a wide net here to find a little something for everyone, so you'll be able to pick the perfect gift no matter who you're buying for. Whether you're looking for toys, fitness gadgets, coffee mugs, or just cool smart home additions, we've got you covered.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Tamagotchi Pix: A Pet With No Mess
 
@@ -53,12 +65,13 @@ A cute digital pet that can take pictures, play games, and just generally be ado
 
 [$60 at Amazon](https://www.amazon.com/dp/B08XWNLV1S) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ##  Mario Kart Live: Augmented Reality Kart Racing
 
 ![Mario Kart Live kart on ground](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/mario-kart-live-circuit.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Nintendo
 
@@ -69,6 +82,10 @@ Nintendo
  The AR game can even be played in multiplayer, although each player will need their own copy of the game and Switch. If that sounds a little too expensive, you can also go with buying them a copy of [Mario Kart 8 Deluxe](https://www.amazon.com/Mario-Kart-8-Deluxe-Nintendo-Switch/dp/B01N1037CV?tag=hotoge-20&ascsubtag=UUhtgUeUpU208331&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F761188%2Fbest-gifts-under-100%2F&asc%5Fcampaign=Short-Term) for a more accessible multiplayer.
 
 ![51RoBgR-BnL._SL500_-4](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/51robgr-bnl-_sl500_-4.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #####  Mario Kart Live: Home Circuit
 
@@ -81,8 +98,9 @@ Bring the magic of Mario Kart to life, with the help of a Nintendo Switch.
 ![Playstation Classic on light grey background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/playstation-classic.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Sony
 
  This one's a gift for the older gamer. It's for those who miss the days when game graphics were sharp and pointy. It can also be an excellent gift for younger gamers if they're interested in the retro scene.
@@ -92,6 +110,10 @@ Sony
  Sony's replica console is notably smaller than the original console, which is adorable and a space saver.
 
 ![31a2JDQXLdL._SL500_-4](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/31a2jdqxldl-_sl500_-4.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #####  PlayStation Classic
 
@@ -103,9 +125,6 @@ Gaming for the discerning older gamer, or the retro-obsessed.
 
 ![Fitbit Inspire 2s on grey background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/fitbit-inspire-2.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Fitbit
 
  People who are into fitness come in two flavors. There are those who've been doing it for ages and those who are just starting and looking for some guidance. Whichever group your giftee falls under, the [Fitbit Inspire 2](https://www.fitbit.com/global/us/products/trackers/inspire2?sku=418BKBK) is a great choice.
@@ -117,17 +136,15 @@ Fitbit
 ![fitbit-2-logo-2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/fitbit-2-logo-2.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 #####  Fitbit Inspire 2
 
 A fitness tracker for the heartrate, activity levels, and footsteps of fitness fanatics of any level. 
 
 [Shop Now](https://www.fitbit.com/global/us/products/trackers/inspire2?sku=418BKBK) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ##  Fujifilm Instant Film Camera: Pictures on the Move
 
 ![instax mini instant camera on pink background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/instax-mini-11.jpg) 
@@ -144,25 +161,20 @@ Instax
 
 ![fujifilm-logo-2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/fujifilm-logo-2.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #####  Fujifilm - instax mini 11 Instant Film Camera
 
 A quirky little camera for the budding photographer. 
 
 [Shop Now](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Ffujifilm-instax-mini-11-instant-film-camera-sky-blue%2F6400595.p%3FskuId%3D6400595) 
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Ember Smart Mug: Keep that Coffee Hot
 
 ![person controlling ember mug temperature](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/ember-mug.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Ember
 
  Many people love a good cup of coffee, but they also get distracted after making it, and the coffee gets cold. There's not a lot of people out there that enjoy cold coffee.
@@ -185,9 +197,6 @@ A smart mug that keeps hot drinks right at the perfect temperature.
 
 ![An Amazon Echo Show on a table.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/echo-show-5.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Amazon
 
  If the person you're buying for is keen on starting a smart home but hasn't yet made the leap, you can help them out with some Amazon Echo products.
@@ -210,25 +219,16 @@ A smart assistant and smart speaker in one stylish package.
 
 ![41W5ZYJXFUS._SL500_-5](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/41w5zyjxfus-_sl500_-5.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #####  Amazon Echo Show 5
 
 A smart screen for the best tv shows, films, and even the chance to chat to family. 
 
 [See at Amazon](https://www.amazon.com/All-new-Echo-Show-5-2nd-Gen-2021-release/dp/B08KJN3333/) [Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Famazon__echo_show_5_%2F6461323.p%3FskuId%3D6461323) [Target](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fdisneyplus.bn5x.net%2Fc%2F156932%2F564546%2F9358%3FsubId1%3DUUhtgUeUpU208331%26subId2%3Dehtg%26u%3Dhttps%253A%252F%252Fwww.target.com%252Fp%252Famazon%255Fecho%255Fshow%255F5%255F2%252F-%252FA-83346975) 
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Nest Devices: Google's Smart Devices
 
 ![Google Nest Hub on nightstand](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/10/google-nest-hub.jpg) 
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 Google
 
  There are different smart home ecosystems available, and which items and apps are compatible depends on the hub someone has. If your giftee enjoys Google devices, then you'll want to buy them Nest smart home products.
@@ -261,8 +261,6 @@ See the latest shows, films, and even talk to loved ones with the Nest Hub. It c
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -270,4 +268,17 @@ See the latest shows, films, and even talk to loved ones with the Nest Hub. It c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-enhancing-visibility-key-steps-in-social-media-video-marketing/"><u>[New] Enhancing Visibility Key Steps in Social Media Video Marketing</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-quick-guide-mastering-screenshot-and-screen-record-on-mac/"><u>[Updated] 2024 Approved Quick Guide Mastering Screenshot & Screen Record on Mac</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-prime-emulation-tools-sonys-ps1-classics-at-the-fingertips/"><u>[Updated] In 2024, Prime Emulation Tools Sony's PS1 Classics at the Fingertips</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/ssdhddwindows-11/"><u>小型SSDにHDDをクローンしやすい方法【最新Windows 11プラス】</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/google-pixel-3-assessment-redefining-the-ideal-android-smartphone-journey/"><u>Google Pixel 3 Assessment: Redefining the Ideal Android Smartphone Journey</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-windows-10s-premier-choice-of-video-grabber-software/"><u>In 2024, Windows 10'S Premier Choice of Video Grabber Software</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/novice-friendly-roadmap-to-understanding-and-setting-up-your-home-stereo-system/"><u>Novice-Friendly Roadmap to Understanding and Setting Up Your Home Stereo System</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unbeatable-prime-day-offers-exclusive-apple-bargains/"><u>Unbeatable Prime Day Offers: Exclusive Apple Bargains!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-future-in-depth-look-at-the-best-new-5g-phone-samsung-galaxy-s2e-fe/"><u>Unboxing the Future: In-Depth Look at the Best New 5G Phone - Samsung Galaxy S2e FE!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/viking-saga-unleashed-in-assassins-creed-valhalla-a-comprehensive-game-analysis/"><u>Viking Saga Unleashed in 'Assassin's Creed: Valhalla': A Comprehensive Game Analysis</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Blade BLH4100 120 S RC Helicopter Review
-date: 2024-11-20T06:32:55.998Z
-updated: 2024-11-25T04:50:35.213Z
+date: 2024-11-28T05:19:23.088Z
+updated: 2024-12-05T01:54:42.949Z
 categories:
   - BestProducts
 description: This Article Describes Blade BLH4100 120 S RC Helicopter Review
@@ -49,10 +49,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/_EV0MTLRfFPHdqFJ2gKyMJff5YY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-HERO-SQ-e459d44e1a2c432f80fec058b858ccfe.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Jeremy Laukkonen
 
 [View On Amazon $299](https://www.amazon.com/dp/B01NBJX99D?tag=lifewire-onsite-prod-20&ascsubtag=4843549%7Cn5152ded2d52b4aacaed13fadd747a0da04%7CB01NBJX99D) [View On B&H Photo Video $236](https://www.bhphotovideo.com/c/product/1478529-REG/omnicharge%5Fop2ha004%5Fomni%5F20%5Fpowerbank%5Fportable.html/)
@@ -82,6 +78,10 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Slick all-black appearance that’s dulled a bit by soft-touch rubber**
 
  The Omni 20+ is a great looking device, with an all-black case and gem-cut edges that fit in nicely when used alongside my[HP Spectre x360](https://www.lifewire.com/hp-spectre-x360-15t-touch-laptop-review-4773540) . The top and bottom are completely bereft of any markings, hiding the presence of a Qi wireless charger hidden in the top, and the labels that it does have for inputs and outputs are understated.
@@ -93,10 +93,6 @@ Lifewire / Jeremy Laukkonen
  The USB-C port is capable of fast charging some devices and providing up to 60W of power.
 
  For a premium device with a premium price like the Omni 20+, I’d like to see a different material used for the case.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Initial Setup: Frustrating due to a lack of documentation**
 
@@ -114,21 +110,17 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/QOfV3Sc5THi3Z0gKZq0e-ciPUEE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-5-000854ae3c4347b7adc13130dcb9d1b9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Display: Crisp and easy to read, but confusing**
 
  The display is small, but it’s quite bright and easy to read. The only issue is that it isn’t particularly easy to figure out what the individual icons mean, or how to use the display to change input and output settings, without referring to an instruction manual that isn’t included in the box.
 
  I’ve already covered the issue with the manual in the previous section, so suffice it to say I recommend avoiding frustration and just downloading the manual from the Omnicharge website rather than trying to figure out the display and controls on your own.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Sockets and Ports: Excellent array, including wireless**
 
@@ -146,6 +138,10 @@ Lifewire / Jeremy Laukkonen
 
  On the front of the power bank, next to the display, you’ll find two USB-A ports. These ports are capable of charging all your standard USB devices. One is a Qualcomm 3.0 compatible quick charge port, and the other is a standard USB port that’s capable of putting out up to 3A.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery: Decent battery capacity for the size**
 
  The Omni 20+ includes a 20,000 mAh battery, which is a decent capacity for the size of this power bank. I’d like to see a larger capacity based on the price of this unit, but it’s clear that you’re paying for extra features like fast USB-Charging and[wireless charging](https://www.lifewire.com/qi-wireless-charging-4151894) instead of a big battery.
@@ -161,10 +157,14 @@ Lifewire / Jeremy Laukkonen
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/aZDfINCcUg9uIHRuhVr2k3wmX94=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-1-815fe3c777eb4f46a77cb00127bd88c2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Charging Speed: True fast charging available for some USB-C devices**
 
@@ -179,10 +179,6 @@ Lifewire / Jeremy Laukkonen
  By plugging the Omni 20+ into power when available, I found it to be a fantastic replacement for an otherwise bulky assortment of power adapters for my laptop, phone, and other devices.
 
  The built-in Qi charger is capable of putting out 10 watts, and I found it to work just as well as other 10 watt Qi chargers I’ve used. It is a bit touchy in terms of positioning, but I was able to get the hang of it pretty fast.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: High end**
 
@@ -203,6 +199,10 @@ Lifewire / Jeremy Laukkonen
  **Fantastic functionality, decent battery capacity, and frustrating setup experience.**
 
  The Omnicharge Omni 20+ is one of the best power banks out there, and it had better be for the price they’re asking. This is the power bank you need if you count a high wattage USB-C port, barrel connector input and output, wireless charging, and a standard power outlet among your needs. You can find cheaper power banks that provide more juice, but you won’t find one with this same feature set.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -230,19 +230,24 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-unlocking-the-potential-of-mobile-video-conferencing/"><u>[New] Unlocking the Potential of Mobile Video Conferencing</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/a-creative-leap-with-chatgpt-for-podcasts-insights-from-an-unconventional-approach/"><u>A Creative Leap with ChatGPT for Podcasts - Insights From an Unconventional Approach</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/anymp4-screen-recorder-download-and-review/"><u>AnyMP4 Screen Recorder Download and Review</u></a></li>
-<li><a href="https://discover-best.techidaily.com/die-rolle-von-content-intelligenz-fur-den-fortschritt-der-intelligenten-automatisierung-bei-unternehmen-ergebnisse-einer-abbyy-studie/"><u>Die Rolle Von Content-Intelligenz Für Den Fortschritt Der Intelligenten Automatisierung Bei Unternehmen - Ergebnisse Einer ABBYY-Studie</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/essential-cops-communication-tools-for-24/"><u>Essential Cops' Communication Tools for '24</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-efficiency-with-the-hp-stream-11-small-size-big-performance/"><u>Experience Efficiency with the HP Stream 11 – Small Size, Big Performance</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-honor-magic-v2-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Honor Magic V2</u></a></li>
-<li><a href="https://app-tips.techidaily.com/how-to-log-out-from-your-icloud-account-safely-top-3-methods-for-iphone-ipad-and-mac-users/"><u>How To Log Out From Your iCloud Account Safely: Top 3 Methods for iPhone, iPad & Mac Users</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/in-2024-what-is-ai-api/"><u>In 2024, What Is AI API?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-ring-video-doorbell-pro-a-comprehensive-review/"><u>In-Depth Analysis of the Ring Video Doorbell Pro: A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/insightful-selection-tips-for-power-gamers/"><u>Insightful Selection Tips for Power Gamers</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/streamlining-call-logs-the-4-step-guide-for-fb-calls-for-2024/"><u>Streamlining Call Logs The 4-Step Guide for FB Calls for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-pros-and-cons-of-the-gaomon-pd-1560-pen-display-your-ultimate-guide-to-a-reliable-art-tablet/"><u>Unveiling the Pros and Cons of the Gaomon PD 1560 Pen Display: Your Ultimate Guide to a Reliable Art Tablet</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/why-the-steam-deck-deserves-a-place-in-your-collection/"><u>Why the Steam Deck Deserves a Place in Your Collection</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-revised-question-series-to-connect-with-podcast-audience/"><u>[New] Revised Question Series to Connect with Podcast Audience</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/2-will-a-full-ios-factory-restore-erase-all-content-and-settings-from-my-iphone-once-and-for-all/"><u>2. Will a Full iOS Factory Restore Erase All Content and Settings From My iPhone Once and for All?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/boost-iphone-visual-quality-selective-photo-and-video-tools/"><u>Boost iPhone Visual Quality Selective Photo and Video Tools</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-ideal-choice-for-budget-shoppers-with-our-in-depth-z3plus-dash-cam-evaluation/"><u>Discover the Ideal Choice for Budget Shoppers with Our In-Depth Z3+ Dash Cam Evaluation</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/elevate-personal-care-using-chatgpt-discover-the-9-key-practices/"><u>Elevate Personal Care Using ChatGPT: Discover the 9 Key Practices</u></a></li>
+<li><a href="https://common-error.techidaily.com/improve-your-organization-skills-advanced-techniques-for-using-file-explorer-on-windows-11/"><u>Improve Your Organization Skills: Advanced Techniques for Using File Explorer on Windows 11</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-delete-icloud-account-with-or-without-password-from-your-iphone-14windowsmac-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account with or without Password from your iPhone 14/Windows/Mac</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Samsung Galaxy M14 5G? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-chatgpt-integration-with-excel-conquer-your-data-analysis-anxieties/"><u>Mastering ChatGPT Integration with Excel: Conquer Your Data Analysis Anxieties</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-smart-home-security-an-insightful-review-on-rings-innovative-doorbell-pro/"><u>Mastering Smart Home Security: An Insightful Review on Ring's Innovative Doorbell Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mohu-leaf-30-tv-antenna-evaluation-a-superior-combination-of-affordability-and-effectiveness/"><u>Mohu Leaf 30 TV Antenna Evaluation: A Superior Combination of Affordability and Effectiveness</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/resolving-software-conflicts-in-printing-hardware/"><u>Resolving Software Conflicts in Printing Hardware</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/should-i-leap-to-the-newest-monterey-version/"><u>Should I Leap to the Newest Monterey Version?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-asus-chromebook-flip-c302ca-exceptional-value-convertible-design-and-impressive-features/"><u>Top Rated ASUS Chromebook Flip C302CA - Exceptional Value, Convertible Design, and Impressive Features</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-not-found-errors-at-bootup-fixes-for-windows-systems/"><u>Troubleshooting 'Not Found' Errors at Bootup – Fixes for Windows Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-analysis-of-anthropics-smart-photo-editing-tool-user-guide/"><u>Ultimate Analysis of Anthropics' Smart Photo Editing Tool – User Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-ps4-pro-evaluation-unleashing-the-power-of-4k-gaming/"><u>Ultimate PS4 Pro Evaluation: Unleashing the Power of 4K Gaming</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-review-of-the-cost-effective-fitbit-versa-lite-a-smart-choice-for-health-enthusiasts/"><u>Ultimate Review of the Cost-Effective Fitbit Versa Lite - A Smart Choice for Health Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-features-of-criacr-bluetooth-fm-transmitter-cp24-a-mini-device-that-still-needs-work/"><u>Unpacking the Features of Criacr Bluetooth FM Transmitter CP24: A Mini Device That Still Needs Work</u></a></li>
 </ul></div>
 

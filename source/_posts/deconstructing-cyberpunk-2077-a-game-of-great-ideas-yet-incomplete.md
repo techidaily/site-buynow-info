@@ -1,7 +1,7 @@
 ---
 title: "Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
-date: 2024-11-19T21:09:24.254Z
-updated: 2024-11-25T04:44:10.069Z
+date: 2024-12-03T07:37:44.743Z
+updated: 2024-12-05T06:53:33.509Z
 categories:
   - BestProducts
 description: "This Article Describes Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Paradox Interactive Surviving Mars
 
@@ -48,7 +44,7 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Paradox Interactive Surviving Mars
@@ -56,7 +52,7 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -85,6 +81,10 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  As for a real plotline, there isn’t really one—the only kind of plot in the game is the objective to colonize Mars. There are challenges which you can do if you’re feeling particularly adventurous, which is nice, but they’re not a real plotline, and only serve to give you a different angle to colonizing the planet.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -120,21 +120,17 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Other city-building games**
 
@@ -147,6 +143,10 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  **A interesting new take on city-builders, if you can stomach the micromanagement.**
 
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -175,20 +175,24 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-best-no-cost-screen-players/"><u>[New] Best No-Cost Screen Players</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-vimeo-vs-youtube-vs-dailymotion-which-platform-is-the-one/"><u>[New] Vimeo vs YouTube vs Dailymotion Which Platform Is the One?</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-essential-tools-to-upgrade-your-tiktok-creations-top-10-free/"><u>[Updated] Essential Tools to Upgrade Your TikTok Creations (Top 10 Free)</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-from-setup-to-sharing-comprehensive-guide-for-instagram-and-obs-integration-for-2024/"><u>[Updated] From Setup to Sharing Comprehensive Guide for Instagram & OBS Integration for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-premium-android-listening-helpers/"><u>[Updated] Premium Android Listening Helpers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/assessing-the-google-pixelbook-go-stellar-execution-in-a-premiumly-priced-chromebook/"><u>Assessing the Google Pixelbook Go: Stellar Execution in a Premiumly Priced Chromebook</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/could-chatgpt-be-exploited-by-cybercriminals-in-the-process-of-developing-new-malware-strains/"><u>Could ChatGPT Be Exploited by Cybercriminals in the Process of Developing New Malware Strains?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-ultimate-6-spots-for-purchasing-high-quality-laptops/"><u>Discover the Ultimate 6 Spots for Purchasing High-Quality Laptops</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/marvels-new-hero-a-detailed-look-at-spider-man-miles-morales/"><u>Marvel's New Hero - A Detailed Look at Spider-Man: Miles Morales</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-macbook-pro-speed-adding-ssd-upgrades/"><u>Maximizing MacBook Pro Speed: Adding SSD Upgrades</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/style-meets-function-on-your-wrist-an-insightful-review-of-the-amazfit-gts-smartwatch/"><u>Style-Meets-Function on Your Wrist? An Insightful Review of the Amazfit GTS Smartwatch</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-nokia-72-review-surpassing-its-peers-with-style-and-functionality/"><u>Unveiling the Nokia 7.2 Review: Surpassing Its Peers with Style and Functionality</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/why-cant-i-find-libxmllibxml2httpsenwikipediaorgwikilibxml-dll-solutions-inside/"><u>Why Can't I Find Libxml^[libxml2](https://en.wikipedia.org/wiki/LibXML) DLL? Solutions Inside</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/wii-u-triumph-explained-what-made-this-gaming-system-a-hit-among-gamers/"><u>Wii U Triumph Explained: What Made This Gaming System a Hit Among Gamers?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-top-8-hubs-for-3d-graffiti-typefaces/"><u>[New] Top 8 Hubs for 3D Graffiti Typefaces</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-dominate-youtube-with-these-strategic-freefire-video-hashtags/"><u>[Updated] In 2024, Dominate YouTube with These Strategic FreeFire Video Hashtags</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-the-ultimate-checklist-for-twitch-broadcasting/"><u>[Updated] The Ultimate Checklist for Twitch Broadcasting</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-motorola-moto-g04-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Motorola Moto G04 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/annual-workout-tunes-winners-list/"><u>Annual Workout Tunes Winners List</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-d-link-powerline-2000-seamless-installation-and-rapid-networking/"><u>Comprehensive Analysis of D-Link Powerline 2000: Seamless Installation & Rapid Networking</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-netgear-c3000-outdated-or-still-competent/"><u>Comprehensive Evaluation of Netgear C3000: Outdated or Still Competent?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-powerhouse-portability-with-the-lenovo-thinkpad-x1-titanium-yoga-a-must-read-for-fans-and-newcomers/"><u>Discovering Powerhouse Portability with the Lenovo ThinkPad X1 Titanium Yoga - A Must-Read for Fans and Newcomers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elite-choices-top-key-discovery-gadgets/"><u>Elite Choices: Top Key Discovery Gadgets</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Detect and Remove Spyware on Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/innovative-techniques-to-charge-your-phone-without-a-wall-adapter/"><u>Innovative Techniques to Charge Your Phone without a Wall Adapter</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/performance-analysis-of-the-tp-link-av1300-wireless-range-enhancer-beyond-expectations/"><u>Performance Analysis of the TP-Link AV1300 Wireless Range Enhancer: Beyond Expectations?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/power-up-your-gaming-experience-with-our-comprehensive-apc-ups-unit-evaluation/"><u>Power Up Your Gaming Experience with Our Comprehensive APC UPS Unit Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/smart-choices-in-tablet-buying-discover-8-important-criteria-you-cant-ignore/"><u>Smart Choices in Tablet Buying? Discover 8 Important Criteria You Can't Ignore</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/solucion-integral-para-restaurar-la-informacion-de-un-iphone-fallecido-sin-copia-de-seguridad/"><u>Solución Integral Para Restaurar La Información De Un iPhone Fallecido Sin Copia De Seguridad</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/syncing-emails-with-gmail-from-your-iphone-a-how-to-for-the-apple-watch/"><u>Syncing Emails with Gmail From Your iPhone - A How-To for the Apple Watch</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-15-apps-to-hack-wifi-password-on-vivo-x-flip-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Vivo X Flip</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-android-video-editor-showdown-top-10-free-and-paid-picks/"><u>Updated Android Video Editor Showdown Top 10 Free and Paid Picks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ws-2902a-ambient-weather-station-budget-friendly-and-packed-with-functionality/"><u>WS-2902A Ambient Weather Station - Budget Friendly and Packed with Functionality!</u></a></li>
 </ul></div>
 

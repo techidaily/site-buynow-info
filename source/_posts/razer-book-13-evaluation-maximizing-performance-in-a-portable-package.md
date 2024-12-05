@@ -1,7 +1,7 @@
 ---
 title: "Razer Book 13 Evaluation: Maximizing Performance in a Portable Package"
-date: 2024-11-21T20:27:13.310Z
-updated: 2024-11-25T02:29:04.979Z
+date: 2024-11-28T22:35:59.741Z
+updated: 2024-12-04T17:18:22.841Z
 categories:
   - BestProducts
 description: "This Article Describes Razer Book 13 Evaluation: Maximizing Performance in a Portable Package"
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/8398659134dc24374c71d0ed649ae9e802ceefac0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Halo Bolt Portable Charger/Jump Starter
@@ -48,6 +48,10 @@ Lifewire / Andrew Hayward
 
 3.7
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Halo Bolt Portable Charger/Jump Starter
 
 ![Halo Bolt Portable Charger/Jump Starter](https://www.lifewire.com/thmb/wNeN4Rq5GyM9MuDOzyg5QlRT-U4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-HeroSquare-889ebc2fc6b54573a26c09cabb34bd5c.jpg)
@@ -70,6 +74,10 @@ Lifewire / Andrew Hayward
 
  Granted, it doesn’t pack as much power as some dedicated laptop chargers, which may be a better option for that need. Still, the added versatility gives the Halo Bolt a unique edge in the market. I tested the Halo Bolt for a week with multiple devices, including laptops and smartphones.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: The shiny brick**
 
  While certainly portable, the Halo Bolt isn’t designed to be pocket-friendly. This big brick of a battery pack comes in at 7.2 x 1.6 x 3.8 inches (HWD) with a weight of more than 1.5 pounds. Smaller, cheaper battery packs are available for smartphones, but this beast is made for heavier-duty needs and is designed accordingly.
@@ -84,10 +92,6 @@ Lifewire / Andrew Hayward
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/nYYltjJN71EGK1Dwv2_XABixuhs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-04-85b590a9939a4f44b0c7a510a456b80f.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 ## **Setup Process: Load it up**
@@ -99,14 +103,10 @@ Lifewire / Andrew Hayward
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/mUdXUjWxeupVqNR_y43_eFTC0ic=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-02-69b93dc934684ef5b71a40215f6162f2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Charging Speed and Battery: Not so long-lasting**
 
@@ -130,6 +130,10 @@ Lifewire / Andrew Hayward
 
  For a jack-of-all-trades power brick that can jump-start your car and charge its battery, serve as a bright flashlight for roadside emergencies, and charge a wide array of portable devices, the $100 price seen on Amazon looks pretty reasonable. However, given that it couldn’t charge my laptop to total capacity and lacks a USB-C port, handier, higher-capacity charging bricks are available specifically for laptop and smartphone charging needs.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Halo Bolt ACDC 58830 vs. ZMI PowerPack 20000**
 
  Here’s a prime example. The[ZMI PowerPack 20000](https://www.lifewire.com/zmi-powerpack-20000-review-5071991) (see on[Amazon](https://www.amazon.com/dp/B072BD98CM?linkCode=ogi&th=1&psc=1&tag=lifewire-onsite-prod-20&ascsubtag=5071993%7Cn35698be70c304b229c7a194255ab2d3620%7C) ) doesn’t have an AC port. However, it’s pocket-friendly, packs a lot of capacity (20,000mAh), and can quickly recharge laptops with its included USB-C port. It also has two USB-A ports and sufficient juice to recharge the same MacBook Pro from empty. Best of all, it only costs $70.
@@ -141,10 +145,6 @@ Lifewire / Andrew Hayward
  **Final Verdict: A convenient backup battery and jump starter.**
 
  The Halo Bolt isn’t the best option for charging laptops, but it is a solid all-around device for providing backup power to a broader array of gadgets, not to mention jump-starting a car. This versatile device is smart to have around if you drive a car and are frequently mobile with your portable gadgets. I wouldn’t bring it with me on vacation, but it could prove useful before long as a backup device to keep handy.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -172,20 +172,21 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-easiest-path-to-personalizing-your-pubg-characters-speech/"><u>[New] 2024 Approved The Easiest Path to Personalizing Your PUBG Character’s Speech</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-vidextracter-facebook-streams/"><u>2024 Approved VidExtracter Facebook Streams</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-poco-c51-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Poco C51 System Crash Issue | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/browse-bargains-without-spending-a-penny-on-oodles-classified-listings/"><u>Browse Bargains Without Spending a Penny on Oodle's Classified Listings</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/crafting-videos-top-10-text-styling-hacks/"><u>Crafting Videos Top 10 Text Styling Hacks</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/effektivste-software-fur-die-verkleinerung-von-videodateien-ein-leitfaden/"><u>Effektivste Software Für Die Verkleinerung Von Videodateien - Ein Leitfaden</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-potential-of-asus-rog-gt-ac5300-an-elite-picks-for-gamers-and-tech-aficionados/"><u>Exploring the Potential of Asus ROG GT-AC5300: An Elite Picks for Gamers and Tech Aficionados</u></a></li>
-<li><a href="https://win-net.techidaily.com/flash-presentation-maker-transform-your-powerpoint-slides-into-interactive-flash-with-ease/"><u>Flash Presentation Maker - Transform Your PowerPoint Slides Into Interactive Flash with Ease</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On ZTE Blade A73 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/investigation-unveiling-the-financial-sense-in-owning-an-ipad/"><u>Investigation: Unveiling the Financial Sense in Owning an iPad</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/michael-kors-gen-5e-mkgo-revealed-a-perfect-blend-of-opulence-and-intelligence-in-design/"><u>Michael Kors Gen 5E MKGO Revealed: A Perfect Blend of Opulence and Intelligence in Design</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/middle-of-the-road-meets-modesty-a-critical-look-at-the-dell-inspiron-3671-desktop/"><u>Middle-of-the-Road Meets Modesty: A Critical Look at the Dell Inspiron 3671 Desktop</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/pro-screen-reader-best-video-grabbing-picks/"><u>Pro Screen Reader Best Video Grabbing Picks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-leading-8-mobile-video-games-you-cant-miss/"><u>The Leading 8 Mobile Video Games You Can't Miss</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/which-language-is-widely-used-by-israelis/"><u>Which Language Is Widely Used by Israelis?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-master-snapchat-essential-strategies-for-snappy-snaps/"><u>[New] In 2024, Master Snapchat Essential Strategies for Snappy Snaps</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-premium-vector-graphics-the-ultimate-10-site-list/"><u>[New] Premium Vector Graphics The Ultimate 10 Site List</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-exploring-apeaksofts-innovations-in-screen-recording/"><u>[Updated] Exploring Apeaksoft’s Innovations in Screen Recording</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-topmate-c302-laptop-cooler-best-value-comprehensive-review/"><u>Affordable TopMate C302 Laptop Cooler - Best Value Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-basics-7-port-superspeed-usb-30-hub-comprehensive-review/"><u>Amazon Basics 7-Port SuperSpeed USB 3.0 Hub Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-fire-tablet-vs-ipad-which-tablet-fits-your-lifestyle-best/"><u>Amazon Fire Tablet Vs. IPad: Which Tablet Fits Your Lifestyle Best?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-rankings-leading-tv-streaming-apps-of-the-year-2024/"><u>Expert Rankings: Leading TV Streaming Apps of the Year 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-errors-were-detected-while-saving-pdf-by-stellar-guide/"><u>How to Fix Errors were detected while saving PDF?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Honor 70 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-samsung-galaxy-f34-5g-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Samsung Galaxy F34 5G to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-razer-blade-pro-17-your-perfect-travel-companion/"><u>In-Depth Look at the Razer Blade Pro 17: Your Perfect Travel Companion</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/keyboard-troubles-heres-how-you-can-perform-a-full-reset/"><u>Keyboard Troubles? Here's How You Can Perform a Full Reset!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-compact-discs-devices/"><u>Leading Compact Discs Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-perfect-choice-for-the-great-outdoors-sealocs-silver-line-55-inch-4k-tv-expert-analysis/"><u>The Perfect Choice for the Great Outdoors: Sealoc's Silver Line 55-Inch 4K TV Expert Analysis</u></a></li>
+<li><a href="https://os-tips.techidaily.com/top-lockscreen-widget-applications-for-enhanced-iphone-and-ipad-experience/"><u>Top Lockscreen Widget Applications for Enhanced iPhone & iPad Experience</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-samsung-galaxy-f54-5g-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Samsung Galaxy F54 5G to Gmail | Dr.fone</u></a></li>
 </ul></div>
 

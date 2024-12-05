@@ -1,7 +1,7 @@
 ---
 title: Mirari OK To Wake! Kid's Alarm Clock Evaluation – A Parent’s Must-Have Item!
-date: 2024-11-19T23:19:51.392Z
-updated: 2024-11-25T12:19:13.396Z
+date: 2024-11-29T05:45:55.987Z
+updated: 2024-12-04T20:31:18.204Z
 categories:
   - BestProducts
 description: This Article Describes Mirari OK To Wake! Kid's Alarm Clock Evaluation – A Parent’s Must-Have Item!
@@ -23,7 +23,7 @@ thumbnail: https://www.lifewire.com/thmb/QjJGvlIwjSg9Xi4WBoKpTlPb0lA=/400x300/fi
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/87Y0vp91-Opdxctf3M6BGQ6r1d8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
@@ -53,7 +53,7 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
@@ -87,7 +87,7 @@ Lifewire / Emily Ramirez
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Hardware: Some odd decisions**
@@ -95,10 +95,6 @@ Lifewire / Emily Ramirez
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -113,7 +109,7 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -136,13 +132,13 @@ Lifewire / Emily Ramirez
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
 
@@ -168,6 +164,10 @@ Lifewire / Emily Ramirez
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -207,17 +207,24 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/outube-live-pro-tips-outfitting-with-excellent-webcams-for-2024/"><u>[New] YouTube Live Pro Tips Outfitting with Excellent Webcams for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-exploring-screen-capture-with-apowersoft-no-cost-involved-for-2024/"><u>[Updated] Exploring Screen Capture with Apowersoft, No Cost Involved for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/easy-guide-start-audio-capture-on-windows-10/"><u>Easy Guide Start Audio Capture on Windows 10</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-cost-effective-options-with-apples-revamped-ipad-air-4-review/"><u>Exploring Cost-Effective Options with Apple's Revamped iPad Air 4 Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/g7x-mark-ii-fewer-pixels-more-power/"><u>G7X Mark II: Fewer Pixels, More Power?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Sony Xperia 10 V | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-nokia-c22-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Nokia C22 to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reviews-economical-and-reliable-194ghz-dual-band-tp-link-re200-wifi-range-extender/"><u>Reviews: Economical and Reliable 1,9/4GHz Dual Band TP-Link RE200 WiFi Range Extender</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/seamlessly-nourish-your-furry-friend-with-the-arf-automatic-pet-feeder/"><u>Seamlessly Nourish Your Furry Friend with the Arf Automatic Pet Feeder</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970349-9780645886542-the-gemini-story/"><u>The Gemini Story | Free Book</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-lenovo-tab-m10-fhd-plus-2020-premium-screen-quality-for-budget-buyers/"><u>Ultimate Guide to Lenovo Tab M10 FHD Plus (2020) - Premium Screen Quality for Budget Buyers</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unveiling-the-future-how-artificial-intelligence-transforms-the-camera-revolution-in-smartphones/"><u>Unveiling the Future: How Artificial Intelligence Transforms the Camera Revolution in Smartphones</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-mr-beasts-financial-portrait/"><u>[New] In 2024, Mr. Beast’s Financial Portrait</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-strategizing-your-approach-highlight-and-story-downloads/"><u>[New] Strategizing Your Approach Highlight & Story Downloads</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-metaverses-versus-omniverse-unveiled/"><u>[Updated] Metaverses Versus Omniverse Unveiled</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-webcam-safety-the-best-cam-cover-picks/"><u>2024 Approved Webcam Safety The Best Cam Cover Picks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dissecting-the-sony-xperia-5-an-impressive-albeit-expensive-handset/"><u>Dissecting the Sony Xperia 5: An Impressive, Albeit Expensive Handset</u></a></li>
+<li><a href="https://common-error.techidaily.com/enhance-your-pubg-adventure-with-these-solutions-for-building-loading-problems/"><u>Enhance Your PUBG Adventure with These Solutions for Building Loading Problems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-best-features-of-amazons-fire-hd-10-a-versatile-tablet-for-all-family-members/"><u>Exploring the Best Features of Amazon's Fire HD 10 - A Versatile Tablet for All Family Members</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/google-nest-audio-rivals/"><u>Google Nest Audio Rivals</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-oppo-f25-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-oppo-a78-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Oppo A78 Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-nokia-c110-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Nokia C110 online without jailbreak</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insider-look-at-twelve-souths-bookbook-v2-a-resourceful-case-design-for-macbook-owners/"><u>Insider Look at Twelve South's BookBook V2 - A Resourceful Case Design for MacBook Owners</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/logitech-g-pro-x-review/"><u>Logitech G Pro X Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximize-your-play-top-iphones-ranked-for-gaming-enthusiasts/"><u>Maximize Your Play: Top iPhones Ranked for Gaming Enthusiasts</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/netflixs-best-selection-of-movies-for-the-modern-teenager/"><u>Netflix's Best Selection of Movies for the Modern Teenager</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-5-reasons-why-amazon-prime-deserves-your-attention/"><u>Top 5 Reasons Why Amazon Prime Deserves Your Attention</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/universal-mobile-typing-solution-the-foldable-moko-bluetooth-keyboard/"><u>Universal Mobile Typing Solution: The Foldable MoKo Bluetooth Keyboard</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-tcls-smart-led-tv-s325-a-balanced-blend-of-brain-and-beauty/"><u>Unveiling the Power of TCL's Smart LED TV (S325): A Balanced Blend of Brain and Beauty</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-zte-blade-a73-5g-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When ZTE Blade A73 5G Has Black Screen of Death? | Dr.fone</u></a></li>
 </ul></div>
 

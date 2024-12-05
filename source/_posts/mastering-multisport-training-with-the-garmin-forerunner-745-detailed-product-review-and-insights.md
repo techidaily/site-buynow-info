@@ -1,7 +1,7 @@
 ---
 title: Mastering Multisport Training with the Garmin Forerunner 745 - Detailed Product Review and Insights
-date: 2024-08-30T14:14:51.568Z
-updated: 2024-08-31T14:14:51.568Z
+date: 2024-12-02T08:14:14.650Z
+updated: 2024-12-05T07:33:37.731Z
 categories:
   - BestProducts
 description: This Article Describes Mastering Multisport Training with the Garmin Forerunner 745 - Detailed Product Review and Insights
@@ -41,6 +41,10 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/YWkGikwP23JK119N4M7J22dAPJY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Kelsey Simon
 
 [View On Amazon](https://www.amazon.com/dp/B00D2ZK1IG/?tag=lifewire-onsite-prod-20&ascsubtag=4778324%7Cn8b17d62e028148938085d16c4455799211%7CB00D2ZK1IG) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/dying-light/10111372.html)
@@ -66,9 +70,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ## **Setup Process: Straight into the action**
 
  The first time you launch the game you'll be treated to an artistic video over the background of a news report. It explains the situation in Harran, the city where the game takes place. The game proper starts with a cut scene that shows you on a plane, about to parachute out. There’s no character creation here, although once you get a little further into the game, you’ll be able to pick your clothes.
@@ -76,8 +77,9 @@ Lifewire / Kelsey Simon
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
 ## **Plot: A character torn between obligation and friendship**
@@ -95,8 +97,9 @@ Harran is a whole different city at night.
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Gameplay: Parkour and zombies galore**
 
  You won’t have to wait long in the game before you’re introduced to its main unique mechanic: parkour. Other zombie games focus on having slow zombies you can run away from, or dumb zombies you sneak past, but Dying Light takes a completely different approach. Instead, the basic zombies are fast and almost always know where you are―but they can’t climb or jump. This means you can stay safe by leaping between rooftops, running up ramps, balancing across bars, etc. The parkour feature is the biggest thing that makes Dying Light unique in an oversaturated genre, and also part of what makes the game so much fun. It’s entertaining to cross the city running as fast as you can without pausing, challenging yourself to get from point A to point B without ever touching the ground.
@@ -111,7 +114,15 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/YctEePpYKsIXQ5kU-hQ8w7o9CDo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-4-1edeaf05c6ba435e9b81e68a13831ac6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Graphics: Attention to detail**
 
@@ -123,16 +134,14 @@ Harran is a whole different city at night.
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## **Price: Worth the cost, especially with a friend**
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Competition: Other zombie and parkour games**
 
  There are a lot of other zombie survival games out there, but that doesn’t necessarily mean we’d recommend them if you liked Dying Light. You might consider Days Gone, another PlayStation 4 zombie apocalypse game set in an open world, but if the parkour was the main attraction, you might look into the game Mirror’s Edge Catalyst. The game follows a girl in a sci-fi world and features first-person parkour running and fighting. Instead of the rough and gritty world of Dying Light, Catalyst takes place in a sleek futuristic dystopia that's all glossy chrome and burnished glass.
@@ -145,23 +154,17 @@ Harran is a whole different city at night.
 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Dying Light
 * Price  $14.00
 * Available Platforms  PC (Steam) Playstation 4 Xbox One OS X Linux
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -170,4 +173,24 @@ Harran is a whole different city at night.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-effortless-music-extraction-choose-the-right-apps-for-youtube-and-mp3-for-2024/"><u>[New] Effortless Music Extraction Choose the Right Apps for YouTube & MP3 for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-shatter-the-illusion-true-viewers-of-your-insta-posts-revealed/"><u>[Updated] In 2024, Shatter the Illusion True Viewers of Your Insta Posts Revealed</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-streamlining-and-organizing-your-itunes-video-files/"><u>[Updated] In 2024, Streamlining and Organizing Your iTunes Video Files</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-watch-face-off-deciding-on-gps-alone-or-adding-cellular-functionality/"><u>Apple Watch Face-Off: Deciding on GPS Alone or Adding Cellular Functionality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-google-voice-calling-features-and-performance/"><u>Comprehensive Analysis: Google Voice Calling Features and Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-gimp-free-image-editing-software-evaluation-across-various-platforms/"><u>Comprehensive GIMP Free Image Editing Software Evaluation Across Various Platforms</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/different-fb-video-proportions/"><u>Different FB Video Proportions</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-lenovo-x230-drivers-fast-complete-guide/"><u>Download Lenovo X230 Drivers Fast - Complete Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exclusive-prime-sale-deals-on-outstanding-tribit-speakers-and-innovative-earbuds-collection/"><u>Exclusive Prime Sale Deals on Outstanding Tribit Speakers and Innovative Earbuds Collection</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-the-cod-vanguard-bug-resolving-error-5573/"><u>Fixing the COD Vanguard Bug: Resolving Error 5573</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/key-factors-in-choosing-a-home-broadband-device/"><u>Key Factors in Choosing a Home Broadband Device</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/procedura-gratuita-per-generare-limage-di-unita-ssd-un-tutorial-dettagliato/"><u>Procedura Gratuita per Generare L'image Di Unità SSD: Un Tutorial Dettagliato</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/savvy-saving-with-20-best-free-storage-services-up-to-1tb-for-2024/"><u>Savvy Saving with 20 Best Free Storage Services, Up To 1TB for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-a-mirari-alarm-for-your-little-ones-reviews-included/"><u>The Ultimate Guide to Choosing a Mirari Alarm for Your Little Ones – Reviews Included</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/top-rated-laptop-workstations-ultimate-choices-for-2-024/"><u>Top-Rated Laptop Workstations: Ultimate Choices for 2 024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/uncovering-value-detailed-review-of-the-alcatel-joy-tab-2s-budget-appeal-and-lte-capabilities/"><u>Uncovering Value: Detailed Review of the Alcatel Joy Tab 2'S Budget Appeal & LTE Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/vyncs-tracking-tool-overview-dependable-monitoring-with-puzzling-membership-options/"><u>Vyncs Tracking Tool Overview: Dependable Monitoring with Puzzling Membership Options</u></a></li>
+</ul></div>
 

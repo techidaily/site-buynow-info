@@ -1,7 +1,7 @@
 ---
 title: "Top-Ranking Portable Hard Drives : A Comprehensive Guide"
-date: 2024-08-30T14:03:14.637Z
-updated: 2024-08-31T14:03:14.637Z
+date: 2024-11-29T21:25:32.051Z
+updated: 2024-12-04T23:33:14.429Z
 tags:
   - buying-guides
 categories:
@@ -65,9 +65,17 @@ Best External SSD for Mac
 
  How-To Geek's product recommendations come from the same team of experts that have helped people fix their gadgets over one billion times. We only recommend the best products based on our research and expertise. We never accept payment to endorse or review a product. [Read More »](https://win-howtos.techidaily.com/resolving-unresponsive-mousepad-problems-on-windows-systems-windows-7810/) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Best External SSD Overall: [ADATA SE920](https://us-shop.adata.com/adata-se920-usb4-40gbps-type-c-1tb-external-ssd/) 
 
 ![Adata SE920 against a blue background.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/adata-se920.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Adata_
 
@@ -91,6 +99,10 @@ _Adata_
 
 ![Adata SE920 01](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/adata-se920-01.png) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 Best External SSD Overall
@@ -101,9 +113,17 @@ The ADATA SE920 is one of the fastest external SSDs around, but the catch is tha
 
 [ADATA SE920 1TB at ADATA](https://us-shop.adata.com/adata-se920-usb4-40gbps-type-c-1tb-external-ssd/) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Best Budget External SSD: [Crucial X9](https://www.amazon.com/Crucial-1TB-Portable-SSD-CT1000X9SSD902/dp/B0CGW1FQV4?th=1&tag=hotoge-20&ascsubtag=UUhtgUeUpU2003518&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-external-ssds%2F&asc%5Fcampaign=Commerce) 
 
 ![Crucial X9 connected to a laptop.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/crucial-x9.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Crucial_
 
@@ -125,10 +145,6 @@ _Crucial_
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 Best Budget External SSD
 
 #####  Crucial X9 Portable SSD
@@ -137,14 +153,8 @@ If you're shopping for a budget portable SSD, you needn't look further than the 
 
 [$93 at Amazon](https://www.amazon.com/Crucial-1TB-Portable-SSD-CT1000X9SSD902/dp/B0CGW1FQV4?th=1&tag=hotoge-20&ascsubtag=UUhtgUeUpU2003518&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-external-ssds%2F&asc%5Fcampaign=Commerce) 
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ##  Best Rugged External SSD: [LaCie Rugged SSD Pro](http://www.amazon.com/LaCie-Rugged-Solid-State-Drive/dp/B07X1ZMFKG?th=1&tag=hotoge-20&ascsubtag=UUhtgUeUpU2003518&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-external-ssds%2F&asc%5Fcampaign=Commerce) 
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ![A person holding an LaCie Rugged SSD Pro.](https://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/lacie-rugged-ssd-pro.jpg) 
 
 | Pros                               | Cons             |
@@ -168,13 +178,11 @@ If you're shopping for a budget portable SSD, you needn't look further than the 
 ![LaCie Rugged SSD Pro 01](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/lacie-rugged-ssd-pro-01.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Best Rugged External SSD
 
 #####  LaCie Rugged SSD Pro
@@ -184,8 +192,9 @@ The LaCie Rugged SSD Pro can keep your data safe and do it at blistering speeds 
 [$204 at Amazon](https://www.amazon.com/LaCie-Rugged-Solid-State-Drive/dp/B07X1ZMFKG?th=1&tag=hotoge-20&ascsubtag=UUhtgUeUpU2003518&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-external-ssds%2F&asc%5Fcampaign=Commerce) 
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Best Small External SSD: [SK Hynix Beetle X31](https://www.amazon.com/SK-hynix-Windows-Based-Android-Based-Smartphones/dp/B0C4KNB2YK?th=1&tag=hotoge-20&ascsubtag=UUhtgUeUpU2003518&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-external-ssds%2F&asc%5Fcampaign=Commerce) 
 
 ![SK Hynix Beetle X31 tucked on top of a palm of a hand.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/sk-hynix-beetle-x31-featured.jpg) 
@@ -211,9 +220,6 @@ _SK Hynix_
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Best Small External SSD
 
 #####  SK hynix Beetle X31
@@ -224,10 +230,6 @@ Adorable-looking, with more than decent performance, and incredibly compact, the
 
 [$89 at Amazon](https://www.amazon.com/SK-hynix-Windows-Based-Android-Based-Smartphones/dp/B0C4KNB2YK?th=1&tag=hotoge-20&ascsubtag=UUhtgUeUpU2003518&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-external-ssds%2F&asc%5Fcampaign=Commerce) 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ##  Best External SSD for Gaming: [Western Digital P40](https://www.amazon.com/WD%5FBLACK-1TB-Game-Drive-WDBAWY0010BBK-WESN/dp/B09ZRD38D8?th=1&tag=hotoge-20&ascsubtag=UUhtgUeUpU2003518&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-external-ssds%2F&asc%5Fcampaign=Commerce) 
 
 ![Western Digital P40 with RGB turned on.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/western-digital-p40.jpg) 
@@ -265,11 +267,16 @@ For gamers in need of a speedy portable SSD to store all your games, check out t
 [$130 at Amazon](https://www.amazon.com/WD%5FBLACK-1TB-Game-Drive-WDBAWY0010BBK-WESN/dp/B09ZRD38D8?th=1&tag=hotoge-20&ascsubtag=UUhtgUeUpU2003518&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-external-ssds%2F&asc%5Fcampaign=Commerce) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Best External SSD for Mac: [Samsung T7](https://www.amazon.com/SAMSUNG-Portable-SSD-1TB-MU-PC1T0T/dp/B0874XN4D8?th=1&tag=hotoge-20&ascsubtag=UUhtgUeUpU2003518&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-external-ssds%2F&asc%5Fcampaign=Commerce) 
 
 ![Samsung T7 connected to a laptop.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/samsung-t7.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Samsung_ 
 
@@ -290,9 +297,6 @@ _Samsung_
 
 ![SAMSUNG T7 01](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/samsung-t7-01.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-best-of-2024-1.png) 
 
 Best External SSD for Mac
@@ -305,10 +309,6 @@ The Samsung T7 is a legendary external SSD that combines an attractive price, re
 
 [$100 at Amazon](https://www.amazon.com/SAMSUNG-Portable-SSD-1TB-MU-PC1T0T/dp/B0874XN4D8?th=1&tag=hotoge-20&ascsubtag=UUhtgUeUpU2003518&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fbest-external-ssds%2F&asc%5Fcampaign=Commerce) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## FAQ
 
 ### What does SSD stand for?
@@ -319,19 +319,17 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Solid state drives use flash memory and do not contain moving parts, unlike hard drives that use spinning magnetic disks (also known as platters) to store data and include moving parts. Performance-wise, even the slowest solid state drive is faster than the fastest hard drive. 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ### How long do SSDs last?
 
  In general, SSDs are quite durable. You should expect at least five years of service from an average SSD, with many models being able to provide more than a decade of service. 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ### Are SSDs more reliable than HDDs?
 
  Generally, modern SSDs are more reliable than HDDs since they do not contain moving parts and utilize flash memory that's pretty durable nowadays. 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Are internal or external SSDs faster?
 
@@ -343,8 +341,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -352,4 +348,16 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-top-5-youtube-like-gbv-snippets-on-fb/"><u>[Updated] In 2024, Top 5 YouTube-Like GBV Snippets on FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-tips-and-tricks-adjusting-aspect-ratios-for-effective-fb-sharing-for-2024/"><u>[Updated] Tips & Tricks Adjusting Aspect Ratios for Effective FB Sharing for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-fitness-tracking-with-fitbit-versa-lite-an-in-depth-product-evaluation/"><u>Affordable Fitness Tracking with Fitbit Versa Lite: An In-Depth Product Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/anker-powercore-plus-26800-portable-charger-evaluation-a-comprehensive-review/"><u>Anker PowerCore + 26800 Portable Charger Evaluation - A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-thermopro-tp67-temperature-probe-a-detailed-analysis/"><u>Budget-Friendly ThermoPro TP67 Temperature Probe - A Detailed Analysis</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-xiaomi-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Xiaomi .</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-srt-to-sub-how-to-convert-srt-to-sub-with-3-actionable-ways/"><u>In 2024, SRT to SUB How to Convert SRT to SUB with 3 Actionable Ways</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-5-essential-factors-to-assess-when-shopping-for-your-ideal-fitness-band/"><u>Top 5 Essential Factors to Assess When Shopping for Your Ideal Fitness Band</u></a></li>
+</ul></div>
 

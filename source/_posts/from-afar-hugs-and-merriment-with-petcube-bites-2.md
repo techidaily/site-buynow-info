@@ -1,7 +1,7 @@
 ---
 title: From Afar, Hugs and Merriment with Petcube Bites 2
-date: 2024-11-20T10:48:12.527Z
-updated: 2024-11-25T10:05:31.980Z
+date: 2024-11-28T23:45:51.017Z
+updated: 2024-12-04T17:53:05.768Z
 categories:
   - BestProducts
 description: This Article Describes From Afar, Hugs and Merriment with Petcube Bites 2
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/AveEElAwsJ-yfNPFL8X7KyXcAdA=/400x300/fi
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/NltNTWtb6Y6gHFCHDQXlLsrWKTI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -49,12 +45,16 @@ Lifewire / Andy Zahn
 4.3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -110,6 +110,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Display and Viewfinder: Saturated and clear**
 
  The three-inch, 920,000-dot screen on the SX70 HS looks amazing—perhaps_too_ amazing, as your photos will look better on it than on your phone or computer. The screen is fully articulating and solidly built. Our one complaint would be how easily it picks up smudges, and how difficult those smudges are to remove. An advantage of the articulating screen is that it can be turned face-in to avoid dirt and damage and to save on battery life.
@@ -127,7 +131,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
@@ -147,7 +151,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Modes: Plenty to choose from (and only some are useful)**
@@ -164,10 +168,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Video Quality: A mixed bag**
 
  The SX70 HS fumbles a bit when it comes to video. It’s no slouch by any means, but the footage is nothing to brag about. You can record up to 4K resolution, but unfortunately, the camera has to crop in to record at this resolution. Also, we found that footage is never especially sharp compared to other cameras.
@@ -181,10 +181,6 @@ Lifewire / Andy Zahn
  Time-lapse mode is where the SX70 HS really shines in terms of video. You can easily access this mode via the menu system, and there is a wide range of customizable options available. For those not experienced with time-lapse video, you can simply select from one of three subject-based settings. Time-lapses can be recorded at up to 4K resolution and truly excellent quality.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Software: Lots of options**
 
@@ -201,6 +197,10 @@ Lifewire / Andy Zahn
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
 
@@ -258,17 +258,19 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/iscally-flourishing-through-film-reviewing-retail-relics/"><u>[New] Fiscally Flourishing Through Film Reviewing Retail Relics</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-top-free-software-selection-8-advanced-low-cost-3d-vids-plugins/"><u>[Updated] In 2024, Top Free Software Selection 8 Advanced, Low-Cost 3D Vids Plugins</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/an-iconic-series-reborn-the-new-era-of-ratchet-and-clank/"><u>An Iconic Series Reborn – The New Era of Ratchet & Clank</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/comprehensive-tutorial-for-installing-llama-2-on-a-pc-or-laptop/"><u>Comprehensive Tutorial for Installing LLAMA 2 on a PC or Laptop</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/enjoy-endless-hours-of-music-on-the-go-with-the-amazing-ion-audio-tailgater-plus-sound-system/"><u>Enjoy Endless Hours of Music On-the-Go with The Amazing Ion Audio Tailgater Plus Sound System.</u></a></li>
-<li><a href="https://win-forum.techidaily.com/expert-advice-deleting-user-settings-in-windows-11-effectively-via-revouninstaller/"><u>Expert Advice: Deleting User Settings in Windows 11 Effectively via RevoUninstaller</u></a></li>
-<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-itel-a60s-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Itel A60s | Dr.fone</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/perfect-virtual-scenes-enhancing-zoomgoogle-experience-for-2024/"><u>Perfect Virtual Scenes Enhancing Zoom/Google Experience for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/resolving-the-ksuserdll-file-not-detected-a-step-by-step-guide/"><u>Resolving the ksuser.dll File Not Detected: A Step-by-Step Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-the-criacry-bluetooth-fm-transmitter-model-cp24-tiny-design-with-some-limitations/"><u>Review of the CriaCry Bluetooth FM Transmitter Model CP24: Tiny Design with Some Limitations</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/roku-vs-chromecast-showdown-determining-the-top-streaming-stick/"><u>Roku vs Chromecast Showdown: Determining the Top Streaming Stick</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/smart-buying-guide-key-aspects-to-verify-in-a-pre-owned-ipad/"><u>Smart Buying Guide: Key Aspects to Verify in a Pre-Owned iPad</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-a-deep-dive-into-youtube-mastery-using-sony-vegas-software/"><u>[Updated] 2024 Approved A Deep Dive Into YouTube Mastery Using Sony Vegas Software</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-flawless-approach-securing-gotomeeting-recordings/"><u>[Updated] Flawless Approach Securing GoToMeeting Recordings</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-be-bold-on-igtv-the-10-cutting-edge-video-concepts-for-your-brand/"><u>2024 Approved Be Bold on IGTV The 10 Cutting-Edge Video Concepts for Your Brand</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-why-the-samsung-galaxy-tab-s4-is-a-game-changer-in-android-tablets/"><u>Comprehensive Review: Why the Samsung Galaxy Tab S4 Is a Game-Changer in Android Tablets</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-why-the-stanley-j5c09-is-a-go-to-choice-for-professional-woodworkers/"><u>Discover Why the Stanley J5C09 Is a Go-To Choice for Professional Woodworkers</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/exploring-and-exploiting-law-filters-in-window-environments/"><u>Exploring and Exploiting LAW Filters in Window Environments</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-fix-a-microphone-thats-not-capturing-your-sound/"><u>How to Fix a Microphone That's Not Capturing Your Sound</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-best-practices-for-online-vhs-image-retouching-and-editing/"><u>In 2024, Best Practices for Online VHS Image Retouching and Editing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-bloodbornes-haunting-universe/"><u>In-Depth Analysis of Bloodborne's Haunting Universe</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insta360-one-x2-a-camera-that-dives-into-vr-and-water-alike/"><u>Insta360 One X2 - A Camera That Dives Into VR & Water Alike</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/motorolas-mighty-contender-a-thorough-review-of-moto-g-powers-long-lasting-efficiency-and-robust-functionality/"><u>Motorola's Mighty Contender: A Thorough Review of Moto G Power’s Long-Lasting Efficiency & Robust Functionality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionize-your-image-editing-game-with-darktable-the-best-free-raw-photo-processor-for-mac-linux-and-more/"><u>Revolutionize Your Image Editing Game with Darktable - The Best Free RAW Photo Processor for Mac, Linux, and More</u></a></li>
+<li><a href="https://win-blog.techidaily.com/smoothen-your-experience-fix-bluestacks-stability-problems-swiftly/"><u>Smoothen Your Experience: Fix BlueStacks Stability Problems Swiftly</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/superior-tech-for-live-stream-correction/"><u>Superior Tech for Live Stream Correction</u></a></li>
 </ul></div>
 

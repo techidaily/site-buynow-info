@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate List: Most Comfortable and Ergonomic Keyboards"
-date: 2024-11-18T09:30:28.965Z
-updated: 2024-11-25T01:38:49.118Z
+date: 2024-11-29T03:28:23.518Z
+updated: 2024-12-04T16:16:07.530Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate List: Most Comfortable and Ergonomic Keyboards"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/267319de45b47bfed89a5beeea4e8662c6ef68d4f
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/F035WaL3U8Q-n4fK2WBE6844lMo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -51,16 +47,12 @@ Lifewire / Emily Isaacs
 4.4
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -96,6 +88,10 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
@@ -106,6 +102,10 @@ Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
  Backlighting—we love it, but the Sculpt doesn’t have it. This is, in large part, thanks to its battery-powered design. It wouldn’t make a great deal of sense for the Sculpt to have backlighting since the two AAA[alkaline batteries](https://www.lifewire.com/best-aa-and-aaa-rechargeable-batteries-4134295) would drain significantly faster, but we sure did miss it. It’s important to note that our love of backlighting is also a matter of personal preference. If it’s important to you, you might want to consider a different model. If you can live without it, the Sculpt still has a lot to offer.
@@ -114,17 +114,21 @@ Lifewire / Emily Isaacs
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
@@ -149,10 +153,6 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -184,21 +184,24 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-instant-viral-potential-learn-kinemaster-memes/"><u>[New] 2024 Approved Instant Viral Potential Learn KineMaster Memes</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ush-youtube-boundaries-with-creative-studio-expertise-and-tactics/"><u>[New] Push Youtube Boundaries with Creative Studio Expertise and Tactics</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-professional-tips-for-perfecting-your-srt-files/"><u>[Updated] Professional Tips for Perfecting Your SRT Files</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-tailoring-pixel-sounds-to-your-style/"><u>2024 Approved Tailoring Pixel Sounds to Your Style</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/2024s-high-performance-cell-signal-improvers-find-the-best-one-to-upgrade-your-connection/"><u>2024'S High-Performance Cell Signal Improvers: Find the Best One to Upgrade Your Connection</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/2024s-ultimate-selection-of-high-performance-gaming-mousepads/"><u>2024'S Ultimate Selection of High-Performance Gaming Mousepads</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722560130464-discover-the-must-have-game-in-yakuza-like-a-dragon/"><u>Discover the Must-Have Game in Yakuza: Like a Dragon!</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/easy-and-rapid-download-of-your-ft23nr-serial-communication-device-drivers/"><u>Easy and Rapid Download of Your FT23nR Serial Communication Device Drivers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722622757885-elevate-workouts-with-tailored-tracks-on-your-garmin-vivoactive-3-stay-tuned-in/"><u>Elevate Workouts with Tailored Tracks on Your Garmin Vivoactive 3 - Stay Tuned In</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Apple iPhone 12 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-password-on-your-apple-iphone-14-pro-max-drfone-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID Password On your Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722429925301-maximize-your-indoor-viewing-with-the-amplified-hd-antenna-from-1byone-digital-top-budget-pick-reviewed/"><u>Maximize Your Indoor Viewing with the Amplified HD Antenna From 1byOne Digital - Top Budget Pick Reviewed!</u></a></li>
-<li><a href="https://win11.techidaily.com/resolving-undetected-hard-drive-issue/"><u>Resolving Undetected Hard Drive Issue</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722683417521-top-ranking-evaluation-of-microsoft-surface-laptop-4-exceptional-quality/"><u>Top Ranking Evaluation of Microsoft Surface Laptop 4 - Exceptional Quality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722797342426-unleash-your-potential-with-fitbit-versa-3-comprehensive-wellness-applications-and-built-in-gps-for-maximum-motivation/"><u>Unleash Your Potential with Fitbit Versa 3: Comprehensive Wellness Applications and Built-In GPS for Maximum Motivation!</u></a></li>
-<li><a href="https://article-helps.techidaily.com/utilizing-zoom-services-directly-from-your-inbox-gmail-edition-for-2024/"><u>Utilizing Zoom Services Directly From Your Inbox - Gmail Edition for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-visualeditormaster-reviews-complete-analysis/"><u>[New] 2024 Approved VisualEditorMaster Reviews – Complete Analysis</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enhance-engagement-mastering-template-based-video-description-writing-for-2024/"><u>[New] Enhance Engagement Mastering Template-Based Video Description Writing for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-dominate-the-digital-arena-audience-expansion-on-youtube/"><u>[Updated] In 2024, Dominate the Digital Arena Audience Expansion on Youtube</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apex-sleep-gadgets-your-key-to-effortless-relaxation-at-night/"><u>Apex Sleep Gadgets: Your Key to Effortless Relaxation at Night</u></a></li>
+<li><a href="https://driver-install.techidaily.com/conexant-hd-audio-optimized-driver-for-win11/"><u>Conexant HD Audio - Optimized Driver for Win11</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/creative-ways-to-decorate-flipbook-pages-while-preserving-text-visibility-insights-from-flipbuildercom/"><u>Creative Ways to Decorate Flipbook Pages While Preserving Text Visibility: Insights From FlipBuilder.com</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/disc-revolution-the-top-rated-cd-players-changers-of-24/"><u>Disc Revolution: The Top-Rated CD Players, Changers of '24</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-ultimate-pc-sound-solutions-elite-card-picks-for-2eby2024/"><u>Discover the Ultimate PC Sound Solutions: Elite Card Picks for 2Eby2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-features-and-performance-of-garmins-gpsmap-64st-device/"><u>Exploring the Features and Performance of Garmin's GPSMAP 64St Device</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-samsung-galaxy-f15-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-10-simple-strategies-for-picture-perfection-ps/"><u>In 2024, 10 Simple Strategies for Picture Perfection PS</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mastering-ios-screen-capture-a-detailed-walkthrough-for-iphone-users/"><u>Mastering iOS Screen Capture: A Detailed Walkthrough for iPhone Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigate-simply-and-economically-with-bouncie-trakka-an-in-depth-product-analysis/"><u>Navigate Simply and Economically with Bouncie Trakka: An In-Depth Product Analysis</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/overcoming-connectivity-issues-solving-the-network-performance-problem-in-windows-11/"><u>Overcoming Connectivity Issues: Solving the 'Network Performance' Problem in Windows 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-x-chair-x4-enhancing-your-office-with-elegance-and-support/"><u>The Ultimate Guide to the X-Chair X4: Enhancing Your Office with Elegance & Support</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-most-unbeatable-best-buy-offers-in-june-2024-insider-tips-from-zdnet/"><u>Top Most Unbeatable Best Buy Offers in June 2024 - Insider Tips From ZDNet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-latest-compact-laptop-charger-brands/"><u>Ultimate Guide to the Latest Compact Laptop Charger Brands</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-leading-smart-spectacles-of-2024/"><u>Ultimate Guide to the Leading Smart Spectacles of 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-benefits-of-the-sumind-bt70b-bluetooth-adapter-a-perfect-match-for-car-connectivity-needs/"><u>Unveiling The Benefits Of The Sumind BT70B Bluetooth Adapter - A Perfect Match for Car Connectivity Needs</u></a></li>
 </ul></div>
 

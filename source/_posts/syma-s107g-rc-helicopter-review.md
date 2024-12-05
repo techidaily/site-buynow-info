@@ -1,7 +1,7 @@
 ---
 title: Syma S107G RC Helicopter Review
-date: 2024-11-21T20:21:00.015Z
-updated: 2024-11-24T22:57:00.005Z
+date: 2024-11-30T20:04:03.621Z
+updated: 2024-12-04T19:46:36.711Z
 categories:
   - BestProducts
 description: This Article Describes Syma S107G RC Helicopter Review
@@ -80,10 +80,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -97,7 +93,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process** :**Get charged up and you’re ready to go**
@@ -127,7 +123,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
@@ -161,7 +157,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
@@ -189,7 +185,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Big brand, big price tag**
@@ -197,6 +193,10 @@ Lifewire / Andy Zahn
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
 
@@ -214,15 +214,15 @@ Lifewire / Andy Zahn
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Panasonic Lumix DC-FZ80](https://www.lifewire.com/panasonic-lumix-dc-fz80-review-4691071)
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -258,22 +258,21 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/utting-edge-capture-tips-for-professional-sound-recording/"><u>[New] Cutting Edge Capture Tips for Professional Sound Recording</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-inalterable-action-plan-to-expunge-youtube-shorts/"><u>[Updated] Inalterable Action Plan to Expunge YouTube Shorts</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-top-5-free-pinterest-video-downloader-online/"><u>2024 Approved Top 5 Free Pinterest Video Downloader Online</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-m-mock-1000a-car-battery-booster-evaluation-the-prime-18k-mah-solution/"><u>Comprehensive M MOCK 1000A Car Battery Booster Evaluation: The Prime 18K mAh Solution</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-oneplus-nine-pro-focus-on-style-swiftness-and-camera-excellence/"><u>Comprehensive Review of OnePlus Nine Pro: Focus on Style, Swiftness and Camera Excellence</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-remarkable-enhancements-of-apple-watch-series-4/"><u>Expert Insights on The Remarkable Enhancements of Apple Watch Series 4</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-features-and-performance-of-the-2019-apple-ipad-air-a-comprehensive-analysis/"><u>Exploring the Features and Performance of the 2019 Apple iPad Air - A Comprehensive Analysis</u></a></li>
-<li><a href="https://change-location.techidaily.com/home-button-not-working-on-nokia-c32-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Nokia C32? Here Are Real Fixes | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-quiet-down-a-loud-playstation-4-fan-diagnosis-and-repair-tips/"><u>How to Quiet Down a Loud PlayStation 4 Fan – Diagnosis and Repair Tips</u></a></li>
-<li><a href="https://techtrends.techidaily.com/immediate-purchase-top-screen-capture-tools/"><u>Immediate Purchase - Top Screen Capture Tools</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-facebook-video-wonders-your-must-see-list/"><u>In 2024, Facebook Video Wonders - Your Must-See List</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-pioneering-strategies-for-success-in-the-spotify-ad-arena/"><u>In 2024, Pioneering Strategies for Success in the Spotify Ad Arena</u></a></li>
-<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-apple-iphone-6-plus-look-no-further-drfone-by-drfone-virtual-ios/"><u>Looking For A Location Changer On Apple iPhone 6 Plus? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/nixplay-nix-advance-x15d-digital-frame-review-beautiful-hd-photos/"><u>Nixplay NIX Advance X15D Digital Frame Review: Beautiful HD Photos</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/nixplay-seed-review/"><u>Nixplay Seed Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-drawing-tablets-of-2024/"><u>The Best Drawing Tablets of 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-reviews-of-cheapest-car-battery-packs-explore-the-ultimate-low-price-high-performance-options-with-best-priced-power-drives-by-anker/"><u>Top Reviews of Cheapest Car Battery Packs - Explore the Ultimate Low Price, High Performance Options with Best Priced Power Drives by Anker</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-innovative-entryways-for-panzoid-life/"><u>[New] Innovative Entryways for Panzoid Life</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-sky-to-framing-a-compreenasive-review-of-the-drone-dji-spark/"><u>2024 Approved From Sky to Framing A Compreenasive Review of the Drone DJI Spark</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-unattached-audio-puzzle-resolution-guide/"><u>2024 Approved Unattached Audio Puzzle Resolution Guide</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unleash-creativity-with-ease-mastering-the-art-of-photo-text-editing/"><u>2024 Approved Unleash Creativity with Ease Mastering the Art of Photo Text Editing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-the-budget-friendly-asus-vivobook-11-notebook/"><u>Comprehensive Guide to the Budget-Friendly Asus Vivobook 11 Notebook</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/echo-dot-versus-homepod-mini-which-smart-speaker-wins-for-you/"><u>Echo Dot Versus HomePod Mini - Which Smart Speaker Wins for You?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/guia-simple-para-transformar-archivos-de-codificacion-hevc-en-mp4-sin-degradacion-visual/"><u>Guía Simple Para Transformar Archivos De Codificación HEVC en MP4 Sin Degradación Visual</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-from-oppo-a59-5g-by-drfone-android/"><u>How to Bypass FRP from Oppo A59 5G?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/illuminating-innovation-the-taotronics-tt-dl16-review-a-blend-of-functionality-and-fashionable-design/"><u>Illuminating Innovation: The TaoTronics TT-DL16 Review - A Blend of Functionality and Fashionable Design</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-rainmeter-fixes-common-bugs-and-workarounds/"><u>Mastering Rainmeter Fixes: Common Bugs and Workarounds</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/mastering-the-art-of-taking-screenshots-a-comprehensive-guide-for-samsung-galaxy-users/"><u>Mastering the Art of Taking Screenshots: A Comprehensive Guide for Samsung Galaxy Users</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/speeding-up-tiktoks-simple-techniques-for-faster-videos/"><u>Speeding Up TikToks Simple Techniques for Faster Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/syma-x5c-rc-quadcopter-evaluation-exceptional-entry-level-performance-at-a-reasonable-price-point/"><u>SYMA X5C R/C Quadcopter Evaluation - Exceptional Entry-Level Performance at a Reasonable Price Point</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-in-depth-analysis-of-the-newly-improved-apple-ipad-102-a-sleek-choice-for-budget-conscious-tech-enthusiasts/"><u>Ultimate Guide: In-Depth Analysis of the Newly Improved Apple iPad 10.2 - A Sleek Choice for Budget-Conscious Tech Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-competition-how-the-s10plus-stands-against-the-new-samsung-s20/"><u>Unboxing the Competition: How the S10+ Stands Against the New Samsung S20</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unraveling-the-secrets-of-pruveeos-cost-effective-full-hd-1080p-dash-cam-a-thorough-review/"><u>Unraveling the Secrets of Pruveeo’s Cost-Effective Full HD 1080P Dash Cam - A Thorough Review</u></a></li>
 </ul></div>
 

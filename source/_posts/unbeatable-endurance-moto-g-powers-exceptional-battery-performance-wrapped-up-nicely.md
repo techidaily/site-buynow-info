@@ -1,7 +1,7 @@
 ---
 title: "Unbeatable Endurance: Moto G Power's Exceptional Battery Performance Wrapped Up Nicely"
-date: 2024-08-30T14:11:21.033Z
-updated: 2024-08-31T14:11:21.033Z
+date: 2024-12-02T03:52:14.460Z
+updated: 2024-12-04T17:26:00.269Z
 categories:
   - BestProducts
 description: "This Article Describes Unbeatable Endurance: Moto G Power's Exceptional Battery Performance Wrapped Up Nicely"
@@ -37,6 +37,10 @@ Lifewire / Jonno Hill
 
 4.3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ClearStream 2V Indoor/Outdoor HDTV Antenna
 
 ![ClearStream 2V HDTV Antenna](https://www.lifewire.com/thmb/q2B57F3c717qLOPlnokMF7al1pA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_HeroSquare-b07d5067648049ecb987e39b62796406.jpg)
@@ -69,8 +73,9 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Glimpsing an ugly future**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna looks something like what I would imagine a space prison to look like. It’s far larger than any of the other antennas that I tested, and during every step of the assembly I kept thinking to myself “well that part can’t possibly be necessary.” From the comically long antennas and giant metal grate, to the bulbous hollowed out spheres, there is a lot going on here.
@@ -87,9 +92,6 @@ Lifewire / Jonno Hill
 
  Once the entire device is assembled, the real work begins in my opinion. Now you have to figure out how and where to mount this beast of an antenna. Antenna’s Direct has you covered here, including a hefty bracket and swiveling mast that will help you mount the antenna to just about anywhere with a flat surface that you don’t mind screwing some bolts into.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Performance: Top tier**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna might be an unsightly space jail, but it sure gets good reception. I tested the antenna indoors along with the rest of the suite of indoor antennas, and in the same orientation. Perhaps it would have benefited from being placed outside, but in the interest of fairness I used the same method for all.
@@ -98,27 +100,26 @@ Lifewire / Jonno Hill
 
  In my channel acquisition test, the ClearStream managed 76 channels consistently, far and away the best result from any of the devices I tested. The worst antenna I tested picked up just 47 channels, and the second best, 69\. Needless to say, all the wires, cages, and bulbous plastic spheres are clearly doing something here, because this was the best result I saw.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Range: Extensive**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna is rated for up to 60 miles. These ratings are generally based on relatively unobstructed paths between the signal and your device. There is a lot less than 60 miles between me and my local TV broadcast source, but if the other results are any indication, the ClearStream has a fighting chance at living up to these claims.
 
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/NoQoQy3-EFUpi1z9oMTpD2JGWHQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_04-70f5a48ac9a347d286c71240b85cbc1c.jpg)
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Performance doesn’t come cheap**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna has a list price of $120 and a 90-day rolling average price on Amazon of $83\. This is significantly more than any of the other antennas I tested, some of which could be had for around $25\. If you live far enough that you need a better performing antenna, however, it could easily be worth every penny. I would only caution buyers to make sure they really do need this performance before pulling the trigger on this very large antenna.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **ClearStream 2V Indoor/Outdoor HDTV Antenna vs 1byone Digital Amplified Indoor HD TV Antenna**
 
  I figured it might be interesting to compare the cheapest antenna to the most expensive antenna. If you are living inside of a city, fairly close to a signal source, you can probably get away with a cheaper antenna like the $25 amplified antenna by manufacturer 1byone. This flat, simple antenna takes up far less space and still managed to get 59 channels. It also maintained a clear picture on all of the major network stations just fine.
@@ -131,8 +132,9 @@ Lifewire / Jonno Hill
  The ClearStream 2V Indoor/Outdoor HDTV Antenna isn’t the cheapest or best-looking antenna on the market, but it gets the job done better than any of the other antennas we tested. Buyers who know they need an antenna with better range and performance will find this to be a noticeable bump from cheaper indoor antennas.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  2V Indoor/Outdoor HDTV Antenna
@@ -144,14 +146,11 @@ Lifewire / Jonno Hill
 * Range  60 miles
 * Warranty  Lifetime parts
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -160,4 +159,22 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-files.techidaily.com/new-2024-approved-unveiling-chrome-based-techniques-for-tiktok-content/"><u>[New] 2024 Approved Unveiling Chrome-Based Techniques for TikTok Content</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-breaking-tiktok-trends-twitters-1-list-unveiled-for-2024/"><u>[New] Breaking TikTok Trends Twitter's #1 List Unveiled for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-crafting-engaging-youtube-beginnings-two-methods/"><u>[New] In 2024, Crafting Engaging YouTube Beginnings Two Methods</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-secrets-to-the-ultimate-5-free-pinterest-video-loader/"><u>[New] Secrets to the Ultimate 5-Free Pinterest Video Loader</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-excellence-in-augmented-reality-gaming-the-arcshell-ar-5-evaluation/"><u>Affordable Excellence in Augmented Reality Gaming: The Arcshell AR-5 Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-owc-mercury-pro-exceptional-storage-speed-and-capacity/"><u>Comprehensive Evaluation of the OWC Mercury Pro: Exceptional Storage Speed & Capacity</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/easy-steps-to-disable-trackpad-and-mouse-scroll-functions-on-mac-os/"><u>Easy Steps to Disable Trackpad & Mouse Scroll Functions on Mac OS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elite-lineup-of-drawing-tablets-for-artists/"><u>Elite Lineup of Drawing Tablets for Artists</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-optimizing-your-music-library-transitioning-from-spotify-to-youtube-music/"><u>In 2024, Optimizing Your Music Library Transitioning From Spotify To YouTube Music</u></a></li>
+<li><a href="https://win-forum.techidaily.com/nvidias-new-approach-organizing-a-chaotic-array-of-pc-software-solutions/"><u>NVIDIA's New Approach: Organizing a Chaotic Array of PC Software Solutions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/price-vs-perception-in-depth-analysis-of-the-microsoft-surface-gos-struggle-to-define-its-identity/"><u>Price Vs. Perception: In-Depth Analysis of the Microsoft Surface Go's Struggle to Define Its Identity</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-your-surface-pen-issues-a-step-by-step-solution/"><u>Resolving Your Surface Pen Issues – A Step-by-Step Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionize-your-network-with-netgears-powerful-nighthawk-x10-ad7200-a-detailed-performance-review/"><u>Revolutionize Your Network With Netgear's Powerful Nighthawk X10 (AD7200) - A Detailed Performance Review!</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-unites-facebook-and-rust-in-programming-synergy/"><u>Tech Unites: Facebook and Rust in Programming Synergy</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-singing-machine-sml385btbk-unbeatable-ease-and-brightness-in-plug-and-play-karaoke-machines/"><u>The Ultimate Review of Singing Machine SML385BTBK: Unbeatable Ease and Brightness in Plug-and-Play Karaoke Machines</u></a></li>
+</ul></div>
 

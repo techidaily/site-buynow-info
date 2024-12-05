@@ -1,7 +1,7 @@
 ---
 title: "Mastering Raw Photography on macOS & Linux: A Look at Darktable's Groundbreaking Image Editor (Free)"
-date: 2024-11-20T12:20:19.922Z
-updated: 2024-11-24T19:53:56.503Z
+date: 2024-11-30T22:28:38.726Z
+updated: 2024-12-04T16:20:51.974Z
 categories:
   - BestProducts
 description: "This Article Describes Mastering Raw Photography on macOS & Linux: A Look at Darktable's Groundbreaking Image Editor (Free)"
@@ -19,12 +19,16 @@ thumbnail: https://thmb.techidaily.com/d6abae0f7e3d8fb5f7c3d204845ee10283f20e49e
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## SunBriteTV Weatherproof Outdoor 55-Inch Veranda (2nd Gen)
 
 ![SunBriteTV 55-Inch Veranda 4K TV](https://www.lifewire.com/thmb/SbA6fOgyA9EEgVGvd2P96Gc5Jqw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SunBrite_55inch_OutdoorTV_2LW4154865_HERO_Square-c68f638988064b98b6d844f1c9b06c47.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -44,13 +48,13 @@ Lifewire / Gannon Burgett
 
 3.5
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## SunBriteTV Weatherproof Outdoor 55-Inch Veranda (2nd Gen)
 
 ![SunBriteTV 55-Inch Veranda 4K TV](https://www.lifewire.com/thmb/srDs47vmZPXcVAqFGXrMcO_CJi8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SunBrite_55inch_OutdoorTV_2LW4154865_HERO_Square-c68f638988064b98b6d844f1c9b06c47.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -74,7 +78,7 @@ Lifewire / Gannon Burgett
  For this review, I put SunBrite’s 55-inch Veranda 4K TV to the test to see how well it would hold up to in the chilliest of environments. Over the course of 30 hours of on-and-off use throughout the month of January, I took notes of the TV’s strengths and weaknesses and have summarized my thoughts below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Bulky, but durable**
@@ -90,10 +94,6 @@ Lifewire / Gannon Burgett
 ![SunBriteTV 55-Inch Veranda 4K TV](https://www.lifewire.com/thmb/rdbdKiGTwmhltgpXlFZprX8UxRo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SunBrite_55inch_OutdoorTV_2LW4154865_06_Horiz-077a34626106476491659d025e498885.jpg)
 
  Lifewire / Gannon Burgett
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Durability: Come hell or high water**
 
@@ -112,6 +112,10 @@ Lifewire / Gannon Burgett
  The good news is there are some smaller devices now that you could easily plug into the TV and house right inside the water-resistant compartment, such as a[Google Chromecast](https://www.lifewire.com/set-up-google-chromecast-5323335) or[Amazon Fire TV Stick](https://www.lifewire.com/amazon-fire-tv-4152887) . It’s worth noting that the all-metal frame the TV is housed in, definitely impacts the wireless range of such devices.
 
 ![SunBriteTV 55-Inch Veranda 4K TV](https://www.lifewire.com/thmb/OXDu2alZGi-BU3sWsISvhfwGSDo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SunBrite_55inch_OutdoorTV_2LW4154865_11_Horiz-b20abbf925284d3fb1936ceb762e3fe1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -132,10 +136,6 @@ Lifewire / Gannon Burgett
  Much like the video, the audio from the Veranda is designed specifically to account for the more open, outdoor environments this TV is meant to be used in. The 20W speaker on board is more than loud enough for all but the loudest of venues, but detail is sacrificed for the sake of decibels. This proved more than fine for any sports cast or TV show, but the more nuanced sound design of movies certainly takes a hit.
 
 ![SunBriteTV 55-Inch Veranda 4K TV](https://www.lifewire.com/thmb/gWc18UfkuRaLKxubOAFv0zceMlU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SunBrite_55inch_OutdoorTV_2LW4154865_17_Horiz-e1118b39b8ae43f5a135c249d3d6f741.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -190,16 +190,24 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-shadow-broadcasters-master-the-art-of-anonymous-livestreaming-on-instagram/"><u>[New] In 2024, Shadow Broadcasters Master the Art of Anonymous Livestreaming on Instagram</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-ensuring-security-in-converting-youtube-tracks-to-mp3-format/"><u>[Updated] 2024 Approved Ensuring Security in Converting YouTube Tracks to MP3 Format</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-elite-hd-recorder-series-with-top-performances/"><u>[Updated] In 2024, Elite HD Recorder Series with Top Performances</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/b550-xt-unveiled-speech-recognition-and-sound-isolation/"><u>B550-XT Unveiled: Speech Recognition & Sound Isolation</u></a></li>
-<li><a href="https://howto.techidaily.com/calls-on-samsung-galaxy-m14-5g-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Samsung Galaxy M14 5G Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-the-hp-zbook-firefly-15-g8-revolutionizing-mobile-computing-mastery/"><u>Expert Review: The HP ZBook Firefly 15 G8 - Revolutionizing Mobile Computing Mastery</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-honor-x50i-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Honor X50i FRP Locks</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-navigating-kinemaster-wisely-skills-and-top-ranked-digital-counterparts/"><u>In 2024, Navigating KineMaster Wisely Skills and Top-Ranked Digital Counterparts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/next-level-gaming-experience-with-the-samsung-q60r-series-qled-4k-smart-tv-a-comprehensive-review/"><u>Next-Level Gaming Experience with the Samsung Q60R Series QLED 4K Smart TV - A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/optimizing-your-connectivity-inside-look-at-asus-ax6600-mesh-wi-fis-capabilities-and-efficiency/"><u>Optimizing Your Connectivity: Inside Look at Asus AX6600 Mesh Wi-Fi's Capabilities & Efficiency</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/wonder-workshops-dash-a-connected-interactive-toy-ready-to-roll-into-action/"><u>Wonder Workshop's Dash - A Connected, Interactive Toy Ready to Roll Into Action!</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-step-up-your-podcast-game-with-expert-guidance-on-zooming-into-quality/"><u>[New] 2024 Approved Step Up Your Podcast Game with Expert Guidance on Zooming Into Quality</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-immediate-ios-screen-playback-guide/"><u>[Updated] 2024 Approved Immediate iOS Screen Playback Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-how-to-record-screen-and-video-on-android/"><u>[Updated] In 2024, How to Record Screen and Video on Android?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-quantum-realms-unraveling-new-worlds-with-10-sci-fi-titles/"><u>2024 Approved Quantum Realms Unraveling New Worlds with 10 Sci-Fi Titles</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-unveiling-the-secrets-to-impactful-patient-storytelling-in-video/"><u>2024 Approved Unveiling the Secrets to Impactful Patient Storytelling in Video</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-cooking-measurement-the-pros-and-cons-of-thermopro-tp67s-trustworthiness/"><u>Affordable Cooking Measurement: The Pros and Cons of ThermoPro TP67's Trustworthiness</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boost-your-health-journey-experience-a-new-level-of-motivation-and-tracking-with-the-fitbit-versa-s-3-featuring-inbuilt-gps-technology-and-fitness-applicati87/"><u>Boost Your Health Journey: Experience a New Level of Motivation and Tracking with the Fitbit Versa S 3, Featuring Inbuilt GPS Technology and Fitness Applications.</u></a></li>
+<li><a href="https://win11.techidaily.com/effortless-way-to-suppress-windows-mobility-hub/"><u>Effortless Way to Suppress Windows Mobility Hub</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exceptional-quality-unveiled-in-microsoft-surface-laptop-4-breakdown/"><u>Exceptional Quality Unveiled in Microsoft Surface Laptop 4 Breakdown</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-ankers-durable-outdoor-flashlight-the-best-tactical-lighting-solution/"><u>Expert Analysis of Anker's Durable Outdoor Flashlight - The Best Tactical Lighting Solution</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-on-your-apple-iphone-14-pro-max-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code On your Apple iPhone 14 Pro Max</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/lilliputscreenmugger-review-analysis-for-2024/"><u>LilliputScreenMugger Review Analysis for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/most-advanced-cable-modems-on-the-market-2024-edition/"><u>Most Advanced Cable Modems on the Market - 2024 Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/outdoor-tv-revolution-in-depth-review-of-sealoc-coastal-silver-slim-silver-and-superb-for-sunny-days/"><u>Outdoor TV Revolution: In-Depth Review of Sealoc Coastal Silver – Slim, Silver & Superb for Sunny Days</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-battle-of-tech-titans-ipad-pro-vs-macbook-pro-unveiled/"><u>The Battle of Tech Titans: IPad Pro Vs. MacBook Pro Unveiled</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-elder-scrolls-v-skyrim-on-the-nintendo-switch-an-unparalleled-rpg-journey/"><u>The Elder Scrolls V: Skyrim on the Nintendo Switch – An Unparalleled RPG Journey</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-timeless-appeal-of-lg-watch-style-an-in-depth-review-of-the-established-wear-os-20-smartwatch-range/"><u>The Timeless Appeal of LG Watch Style: An In-Depth Review of the Established Wear OS 2.0 Smartwatch Range</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-premium-wired-headphones/"><u>Ultimate Guide to Premium Wired Headphones</u></a></li>
 </ul></div>
 
