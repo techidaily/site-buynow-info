@@ -1,7 +1,7 @@
 ---
 title: Logitech C615 Webcam Review
-date: 2024-11-28T23:25:52.340Z
-updated: 2024-12-04T17:08:13.802Z
+date: 2024-12-08T20:57:45.534Z
+updated: 2024-12-10T20:37:54.199Z
 categories:
   - BestProducts
 description: This Article Describes Logitech C615 Webcam Review
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/JYB77B4O-8sjMk3jYEtqv6y6tMI=/400x300/fi
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/6eJwPC0xPwMxCh4aQhG73X9dkzU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -47,7 +43,7 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Antop AT-127
@@ -75,10 +71,6 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -89,6 +81,10 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Setup: Easier than most**
@@ -98,10 +94,6 @@ Lifewire / Erika Rawes
  Once you connect the antenna’s cable to your TV, you’ll need to find the best placement. This is perhaps the most difficult part of the setup process. My test home is in a wooded area, and I found the best placement was near or directly on the window. However,[to improve your antenna’s reception](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) , it’s usually a good idea to place the antenna high up in a room close to the home’s exterior (and nearest to the transmitter towers) and to avoid obstacles like walls and tree cover.
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Almost two dozen channels**
 
@@ -114,7 +106,7 @@ Lifewire / Erika Rawes
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Range: Could be better**
@@ -125,11 +117,19 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -174,20 +174,14 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-essential-guide-to-selecting-top-displays-for-your-xbox-series-x-games-for-2024/"><u>[New] Essential Guide to Selecting Top Displays for Your Xbox Series X Games for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-leveraging-innovation-a-comprehensive-guide-to-redefining-your-tiktok-avatar-for-2024/"><u>[New] Leveraging Innovation A Comprehensive Guide to Redefining Your TikTok Avatar for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/treamline-your-projects-with-these-9-budget-friendly-editors-for-2024/"><u>[New] Streamline Your Projects with These 9 Budget-Friendly Editors for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-top-techniques-for-professional-voice-capture/"><u>[Updated] Top Techniques for Professional Voice Capture</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-essential-tools-for-perfect-linux-screenshots/"><u>2024 Approved Essential Tools for Perfect Linux Screenshots</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-dynamics-behind-tseries-youtube-earning-patterns/"><u>2024 Approved The Dynamics Behind TSeries' YouTube Earning Patterns</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-newly-released-budget-friendly-apple-ipad-102/"><u>Comprehensive Review of the Newly Released, Budget-Friendly Apple iPad 10.2</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/critical-considerations-for-your-upcoming-virtual-reality-investment/"><u>Critical Considerations for Your Upcoming Virtual Reality Investment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cutting-through-the-clutter-the-ultimate-review-of-the-amazonbasics-12-sheets-high-security-shredder/"><u>Cutting Through the Clutter: The Ultimate Review of the AmazonBasics 12-Sheets High-Security Shredder</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/google-nest-audio-and-nest-mini-showdown-features-compared/"><u>Google Nest Audio and Nest Mini Showdown: Features Compared</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/head-to-head-review-google-nest-audio-versus-apple-homepod-sound-quality/"><u>Head-to-Head Review: Google Nest Audio Versus Apple HomePod Sound Quality</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-iphones-simple-methods-for-effective-screening/"><u>In 2024, IPhone's Simple Methods for Effective Screening</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ion-tailgater-plus-revealed-unleash-continuous-high-quality-bass-playback-in-minutes/"><u>ION Tailgater Plus Revealed: Unleash Continuous High-Quality Bass Playback in Minutes</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-of-mobvoi-ticwatch-pro-4g-your-go-to-connectivity-companion/"><u>Unveiling the Features of Mobvoi Ticwatch Pro 4G: Your Go-To Connectivity Companion</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/workplace-transformation-by-ai-innovations/"><u>Workplace Transformation by AI Innovations</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-dissecting-the-capabilities-of-magixs-photo-manager/"><u>[New] In 2024, Dissecting the Capabilities of MAGIX's Photo Manager</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-highlighted-visions-is-intensified-lighting-the-future-of-hd-in-hdr/"><u>2024 Approved Highlighted Visions Is Intensified Lighting the Future of HD in HDR?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-ipad-pro-and-macbook-pro-key-features-and-benefits/"><u>Comparing iPad Pro and MacBook Pro: Key Features & Benefits</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-asus-rog-gt-cdn5300-the-ideal-choice-for-gaming-and-tech-enthusiasts/"><u>Comprehensive Guide to Asus ROG GT-CDN5300: The Ideal Choice for Gaming and Tech Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevating-your-senses-with-huawei-mediapad-m5-an-unmatched-audio-visual-delight/"><u>Elevating Your Senses with Huawei MediaPad M5 – An Unmatched Audio-Visual Delight</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-apples-latest-innovation-the-series-6-an-enhancement-that-maintains-leadership/"><u>Evaluating Apple's Latest Innovation: The Series 6 - An Enhancement That Maintains Leadership</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-obtain-pristine-photo-sets-for-free-use/"><u>In 2024, Obtain Pristine Photo Sets for Free Use</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-quick-video-value-calculation-tools/"><u>In 2024, Quick Video Value Calculation Tools</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/unparalleled-photo-restoration-app/"><u>Unparalleled Photo Restoration App</u></a></li>
 </ul></div>
 

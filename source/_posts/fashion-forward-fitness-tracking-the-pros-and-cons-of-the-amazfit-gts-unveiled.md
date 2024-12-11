@@ -1,7 +1,7 @@
 ---
 title: "Fashion-Forward Fitness Tracking: The Pros and Cons of the Amazfit GTS Unveiled"
-date: 2024-11-27T18:46:13.229Z
-updated: 2024-12-04T23:43:41.991Z
+date: 2024-12-06T19:32:51.739Z
+updated: 2024-12-11T06:48:57.801Z
 categories:
   - BestProducts
 description: "This Article Describes Fashion-Forward Fitness Tracking: The Pros and Cons of the Amazfit GTS Unveiled"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/bc6e0c08f36b012f885710643ac64bca838b2cd03
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Samsung UN65NU8000FXZA
 
@@ -49,7 +45,7 @@ Lifewire / Andy Zahn
 2.9
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Samsung UN65NU8000FXZA
@@ -57,7 +53,7 @@ Lifewire / Andy Zahn
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/J81HLCswW9vG3SGkOY0nkv2_soM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-1-97ff5fdad950453785f7a3f5491bf8fd.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
@@ -84,10 +80,6 @@ Lifewire / Andy Zahn
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/_yzFIL-bClIpQ2-BreG8tli1L2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-4-a802a799a7c34067905c9ff965feea8e.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
 
 ## **Design: Big and tough**
@@ -105,10 +97,6 @@ Lifewire / Andy Zahn
  The included remote is attractive and ergonomic, though simple in terms of its button layout. It's designed in such a way as to be able to control multiple compatible devices connected to the TV, and to navigate the interfaces of the various apps available for the NU8000\. This is an exceptionally solid device that's satisfying to hold. Buttons are tactile and easy to identify by feel with a little practice. We particularly liked the volume and channel buttons, which are not so much buttons as they are broad, horizontal toggles that are pushed forward and backward to activate.
 
  We did encounter one troublesome bug where the remote partially de-synced from the display so that only the power button functioned properly. This is obviously a known issue, as on-screen instructions immediately appeared to reset the remote and re-establish the connection, and we found these instructions repeated inside the battery compartment of the remote. We also missed having dedicated buttons for popular streaming services such as Netflix and Hulu.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Some assembly required**
 
@@ -138,7 +126,15 @@ Lifewire / Andy Zahn
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/0imcVI8dzYw11TAOKkt8EnXJE5k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-2-0c325c2d3f1e448d9d0b10f24152a097.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Audio Quality: Surprisingly good**
 
@@ -149,7 +145,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: A little slow**
@@ -163,6 +159,10 @@ Lifewire / Andy Zahn
 ## **Price: Expensive at MSRP**
 
  With an MSRP of $999 the NU8000 is certainly no bargain, especially considering that superior displays are available for the same cost. However, as this is an older TV it may be possible to find steep discounts that make up for its deficiencies.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: NU8000 vs RU8000**
 
@@ -206,18 +206,22 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-mastering-the-art-of-soundtrack-posts-a-copyright-primer-for-insta/"><u>[Updated] 2024 Approved Mastering the Art of Soundtrack Posts A Copyright Primer for Insta</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-mastering-youtube-live-imagery-a-comprehensive-overview/"><u>[Updated] Mastering YouTube Live Imagery A Comprehensive Overview</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-features-of-barnes-and-nobles-nook-glowlight-3-a-bright-choice-for-night-readers/"><u>Exploring the Features of Barnes & Noble's Nook GlowLight 3 - A Bright Choice for Night Readers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-from-dorm-room-to-mainstream-trending-short-hashtags/"><u>In 2024, From Dorm Room to Mainstream Trending Short Hashtags</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Xiaomi Redmi Note 12T Pro? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-review-acer-chromebook-r-11-perfect-blend-of-style-and-portability/"><u>In-Depth Review: Acer Chromebook R 11 – Perfect Blend of Style & Portability</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-pros-and-cons-comprehensive-review-of-hp-stream-14s-value-proposition-in-budget-computing/"><u>Navigating Pros and Cons: Comprehensive Review of HP Stream 14'S Value Proposition in Budget Computing</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solution-found-playing-sounds-again-on-your-firefox-webpage-visits/"><u>Solution Found: Playing Sounds Again on Your Firefox Webpage Visits</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-affordable-hd-pet-monitoring-by-petcube/"><u>The Ultimate Guide to Affordable HD Pet Monitoring by Petcube</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultra-reliable-canon-speedlite-430ex-iii-rt-flash-test/"><u>Ultra Reliable Canon Speedlite 430EX III-RT Flash Test</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-purpose-of-facebook-suggested-posts/"><u>Unveiling the Purpose of Facebook Suggested Posts</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unveiling-the-truth-about-your-apple-watchs-battery-degradation-find-out-now/"><u>Unveiling the Truth About Your Apple Watch's Battery Degradation - Find Out Now!</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/update-to-the-latest-audio-drivers-from-msi-seamless-integration-for-windows-enthusiasts/"><u>Update to the Latest Audio Drivers From MSI – Seamless Integration for Windows Enthusiasts</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-mac-users-guide-to-snapchat-integration/"><u>[Updated] In 2024, Mac Users' Guide to Snapchat Integration</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-tools-and-gear-for-crafting-vlogs/"><u>[Updated] In 2024, Tools & Gear for Crafting Vlogs</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-cinematic-writing-of-the-decade/"><u>2024 Approved Cinematic Writing of the Decade</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/chucklechief-meme-masterclass-online/"><u>ChuckleChief Meme Masterclass Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-visionary-dialogue-writer/"><u>In 2024, Visionary Dialogue Writer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-features-and-performance-of-the-linksys-ea9500-advanced-router/"><u>In-Depth Look at the Features and Performance of the Linksys EA9500 Advanced Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insightful-evaluation-smart-features-in-the-ring-video-doorbell-pro-unveiled/"><u>Insightful Evaluation: Smart Features in the Ring Video Doorbell Pro Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-kobo-nia-the-answer-to-your-ebook-needs-a-look-at-its-competitiveness-against-kindle/"><u>Is Kobo Nia the Answer to Your Ebook Needs? A Look at Its Competitiveness Against Kindle</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/macbook-showdown-the-air-vs-pro-unveiling-their-unique-features/"><u>MacBook Showdown: The Air Vs. Pro - Unveiling Their Unique Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/madden-nfl-19-evaluation-stellar-gameplay-features-with-signs-of-repetition/"><u>Madden NFL '19 Evaluation: Stellar Gameplay Features with Signs of Repetition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/master-your-virtual-adventures-with-the-oculus-quest-2-elite-battery-extension-and-durable-case-tested-and-reviewed/"><u>Master Your Virtual Adventures with the Oculus Quest 2 Elite - Battery Extension and Durable Case Tested & Reviewed!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nintendo-switch-showdown-comparing-the-standard-model-with-the-new-oled/"><u>Nintendo Switch Showdown: Comparing the Standard Model with the New OLED</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/optimal-plug-ins-for-unmatched-gpt-and-vs-code-performance/"><u>Optimal Plug-Ins for Unmatched GPT & VS Code Performance</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/overcoming-dvd-ripping-obstacles-with-vlc-effective-solutions-for-pc-and-mac-devices/"><u>Overcoming DVD Ripping Obstacles with VLC: Effective Solutions for PC and Mac Devices</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210860131-9781623178482-red-tarot/"><u>Red Tarot | Free Book</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-michael-kors-access-gen-5e-mkgo-where-elegance-meets-practicality/"><u>Review of Michael Kors ACCESS Gen 5E MKGO: Where Elegance Meets Practicality</u></a></li>
+<li><a href="https://extra-information.techidaily.com/step-by-step-guide-for-proficient-use-of-movie-maker-in-win11/"><u>Step-by-Step Guide for Proficient Use of Movie Maker in Win11</u></a></li>
 </ul></div>
 

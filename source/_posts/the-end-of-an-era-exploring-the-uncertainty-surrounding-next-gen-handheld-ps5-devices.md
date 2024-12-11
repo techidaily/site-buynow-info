@@ -1,7 +1,7 @@
 ---
 title: The End of an Era? Exploring the Uncertainty Surrounding Next-Gen Handheld PS5 Devices
-date: 2024-08-30T14:07:37.299Z
-updated: 2024-08-31T14:07:37.299Z
+date: 2024-12-05T02:48:21.850Z
+updated: 2024-12-11T08:21:56.203Z
 tags:
   - games
   - tv
@@ -13,6 +13,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ## The End of an Era? Exploring the Uncertainty Surrounding Next-Gen Handheld PS5 Devices
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * The success of the PlayStation Portal illustrates the potential of remote play functionality in place of dedicated handheld gaming hardware.
@@ -20,6 +24,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 * The quality and convenience of smartphone gaming makes it even less likely that Sony will spend the time and money on a PS Vita follow-up.
 
  Sony's latest attempt at handheld gaming, the PlayStation Portal, falls short of being a "proper" portable console because it cannot run games natively. Considering the success of this device and the growing popularity of remote-play devices, I'm doubtful that we'll see another "proper" handheld PlayStation again.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  The PlayStation Portal Has Widespread Appeal
 
@@ -36,8 +44,9 @@ Bill Loguidice / How-To Geek
  This could also mean that the PS5 might see future games that are well-suited to mobile gaming but with a level of quality and production closer to a console game, to please the growing remote-play audience. The PS5 is already home to several mobile-friendly games, like _Honkai: Star Rail_ and _Diablo IV_, that are conducive to playing in short bursts while on the go with a device like the Portal.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  There Is a Growing "Handheld at Home" Crowd
 
  Using the PlayStation Portal requires a stable Wi-Fi connection and a [capable Wi-Fi router](https://facebook-video-share.techidaily.com/updated-discovering-the-ultimate-10-free-youtube-artist-collaborators-for-2024/) so you can stream the gameplay of your PS5 system to the device in your hands. This limits the places you can actually use the Portal.
@@ -47,8 +56,9 @@ Bill Loguidice / How-To Geek
  Other devices like the Nintendo Switch and Steam Deck are contributing to the growth of this "handheld at home" trend in which gamers are actively [choosing to use portable devices to enjoy console-quality gaming](https://visual-screen-recording.techidaily.com/new-2024-approved-utilizing-internal-screen-recording-on-huaweis-mate-1020-and-p-models-p20-p10/) even when they aren't leaving the house. There is little demand for dedicated handheld gaming hardware akin to the old PlayStation Vita when remote-play users can just pick up a device like the Portal to continue their PS5 gaming when they step into another room or hop on the treadmill.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Modern Phones Do the Job Just as Well
 
  In a time when most people have the option to pursue high-quality [smartphone gaming](https://win-solutions.techidaily.com/the-ultimate-strategy-to-correct-mw3-dev-error-6068-as-you-head-into-2024/) with their current devices, console manufacturers recognize that releasing a gaming handle that only plays games is redundant.
@@ -58,8 +68,9 @@ Bill Loguidice / How-To Geek
 ![A person holding an iPhone 15 Pro, playing video games.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/10/iphone15gaming1.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Apple
 
  Whether you [use a remote play phone app](https://audio-editing.techidaily.com/in-2024-import-songs-into-adobe-premiere-cc-for-soundtracking/) or a dedicated remote play device like the Portal, you are likely to get a higher quality gaming experience compared to what a traditional handheld console limited by its own hardware could deliver.
@@ -76,8 +87,6 @@ Apple
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -85,4 +94,20 @@ Apple
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-chromebook-audio-revamp-guide-selecting-the-leading-speech-converters-online/"><u>[New] Chromebook Audio Revamp Guide Selecting the Leading Speech Converters Online</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-leading-educational-websites-for-flexible-online-studies/"><u>[Updated] Leading Educational Websites for Flexible Online Studies</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-brand-youre-proud-of-facebook-edition/"><u>Building a Brand You're Proud Of: Facebook Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-fitbit-charge-6-analysis-features-and-performance/"><u>Comprehensive Fitbit Charge 6 Analysis: Features and Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-leading-cordless-phone-models-for-202n4/"><u>Discover the Leading Cordless Phone Models for 202N4</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-luxury-in-everyday-use-the-michael-kors-access-gen-5e-mkgo-wallet-revealed/"><u>Exploring Luxury in Everyday Use: The Michael Kors Access Gen 5E (MKGO) Wallet Revealed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-capabilities-of-midlands-lxt500vp3-feature-packed-but-leaves-room-for-improvement/"><u>Exploring the Capabilities of Midland's LXT500VP3 - Feature-Packed, But Leaves Room for Improvement</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-spotify-collaborate-on-innovative-boombox-venture/"><u>Facebook & Spotify Collaborate on Innovative Boombox Venture</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-vivo-y27-4g-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Vivo Y27 4G Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-image-editing-excellence-with-top-apps-list/"><u>In 2024, Image Editing Excellence with Top Apps List</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/master-your-home-wireless-a-thorough-evaluation-of-google-nest-wi-fi-performance/"><u>Master Your Home Wireless: A Thorough Evaluation of Google Nest Wi-Fi Performance</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/by-step-to-creating-an-unbeatable-biz-youtube-channel/"><u>Step-by-Step to Creating an Unbeatable Biz YouTube Channel</u></a></li>
+<li><a href="https://win-forum.techidaily.com/top-four-platforms-navigating-the-world-of-facebook-twitter-instagram-and-youtube/"><u>Top Four Platforms: Navigating the World of Facebook, Twitter, Instagram & YouTube</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: PS5 Pro Release on Horizon; However, Many Gamers Are Happy with Their Current PS4 Systems
-date: 2024-08-30T14:07:27.270Z
-updated: 2024-08-31T14:07:27.270Z
+date: 2024-12-07T07:16:07.661Z
+updated: 2024-12-10T16:27:24.790Z
 tags:
   - games
   - tv
@@ -13,6 +13,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ## PS5 Pro Release on Horizon; However, Many Gamers Are Happy with Their Current PS4 Systems
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Why spend hundreds on a new console when I can enjoy previous-gen games at bargain-bin prices?
@@ -20,6 +24,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 * The PS5 Pro's enhancements, which are still just rumors, aren't very exciting.
 
  We're closing in on the PS5's fourth anniversary. Rumor has it that a "Pro" version of the console will arrive in time for the holiday season, but I couldn't care less. My PS4 Pro still fulfills all of my gaming needs.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  I'm Still Working Through All the Great PS4 Games
 
@@ -38,8 +46,9 @@ Hannah Stryker / How-To Geek
  But do I care about a minor graphical upgrade? No, and if I did, I'd already own a standard PS5\. As for games like _Cyberpunk 2077_—well, I'll upgrade to a new game console at some point. It's no rush.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  The PS5 Pro Rumors Are Boring
 
  Every successful game console experiences a mid-life or end-of-life hardware refresh. This tradition goes back to the late 1970s and has touched every home video console generation.
@@ -51,13 +60,9 @@ Hannah Stryker / How-To Geek
 ![The PS5 logo on a PlayStation 5's chassis.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/53398531200_04eab5f89c_o.jpg) 
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Kris Henges / How-To Geek
 
  In retrospect, the PS4 Pro upgrade wasn't a necessity. Only about 3% of U.S. households owned a 4K TV in 2016, and 4K adoption crawled through the remainder of the 2010s (that 3% figure finally reached 50% _last year_). Yeah, you could set the PS4 Pro in "performance mode" for a more consistent frame rate, and it offered some minor graphical improvements in 1080p, but most people would have been just as happy with a PS4 Slim. I couldn't even enjoy the full benefits of my PS4 Pro until a year or two ago (and I was disappointed by the half-baked 4K upscaling in most games).
@@ -66,16 +71,14 @@ Kris Henges / How-To Geek
 
  Very few people can take advantage of 8K video. An 8K TV currently costs about $2,500, and 8K TVs account for less than 1% of TV sales. So, for most people, the PS5 Pro upgrade is just a frame rate enhancement and a boost in ray tracing quality (though, again, it's up to developers to implement this stuff). I'm sure that the PS5 Pro will encourage 8K TV adoption, but 8K TVs won't be ubiquitous until several years from now. By that time, we may be celebrating the PS6 Pro launch.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  When the Time Comes, I'll Get a Used PS5
 
 ![A PlayStation 5 console on a white table.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/52625290774_4a81dec792_o.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Hannah Stryker / How-To Geek
 
  I was very excited about the eighth console generation and got an Xbox One shortly after its launch. Not only did I hate the console, but I forced myself to spend $60 on crappy launch titles. It left a sour taste in my mouth.
@@ -92,8 +95,6 @@ Hannah Stryker / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -101,4 +102,22 @@ Hannah Stryker / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/updated-scaling-video-size-without-quality-loss-on-youtube/"><u>[Updated] Scaling Video Size Without Quality Loss on YouTube</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unleashing-your-device-writers-step-by-step-tutorial-for-custom-ringtones-and-sounds-on-android/"><u>[Updated] Unleashing Your Device' Writers Step-by-Step Tutorial for Custom Ringtones and Sounds on Android</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-premium-viewing-with-the-caixun-4k-android-tv-an-in-depth-look-at-the-75-inch-model/"><u>Affordable Premium Viewing with the Caixun 4K Android TV: An In-Depth Look at the 75-Inch Model</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ai-assisted-creativity-the-best-name-makers-for-pods/"><u>AI-Assisted Creativity The Best Name Makers for Pods</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exclusive-look-at-the-raspberry-pi-ebox-uniting-laptop-and-keyboard-features/"><u>Exclusive Look at the Raspberry Pi Ebox: Uniting Laptop and Keyboard Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-the-leading-wi-fi-extenders-dominating-2024/"><u>Expert Picks: The Leading Wi-Fi Extenders Dominating 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/fall-update-exciting-new-capabilities-announced-for-select-apple-airpod-models-detailed-review-by-techradar/"><u>Fall Update: Exciting New Capabilities Announced for Select Apple AirPod Models - Detailed Review by TechRadar</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/find-your-perfect-tablet-understanding-the-8-crucial-criteria-to-review-beforehand/"><u>Find Your Perfect Tablet: Understanding The 8 Crucial Criteria To Review Beforehand</u></a></li>
+<li><a href="https://driver-error.techidaily.com/fixed-incompatibility-n-adapter-now-works-in-windows/"><u>Fixed Incompatibility: N Adapter Now Works in Windows</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-recover-vanished-desktop-symbols-in-windows-11-fixed/"><u>How to Recover Vanished Desktop Symbols in Windows 11 [FIXED]</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mobvoi-ticwatch-pro-3/"><u>Mobvoi TicWatch Pro 3</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-the-pros-and-cons-of-using-vn-video-editor-pro-for-your-videos-for-2024/"><u>New The Pros and Cons of Using VN Video Editor Pro for Your Videos for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/stellar-repair-for-photo-8-windows-version-a-step-by-step-ordering-process/"><u>Stellar Repair for Photo 8 Windows Version: A Step-by-Step Ordering Process</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-new-frontier-in-small-computing-a-deep-dive-into-the-raspberry-pi-400-review/"><u>The New Frontier in Small Computing: A Deep Dive Into the Raspberry Pi 400 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-fastest-routers-spotlight-on-netgears-nighthawk-rax120/"><u>Ultimate Guide to The Fastest Routers: Spotlight on Netgear's Nighthawk RAX120</u></a></li>
+</ul></div>
 

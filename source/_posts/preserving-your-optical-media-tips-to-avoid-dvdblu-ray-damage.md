@@ -1,7 +1,7 @@
 ---
 title: "Preserving Your Optical Media: Tips to Avoid DVD/Blu-Ray Damage"
-date: 2024-09-04T01:37:47.901Z
-updated: 2024-09-05T01:37:47.901Z
+date: 2024-12-04T23:50:24.529Z
+updated: 2024-12-11T02:29:08.140Z
 tags:
   - games
   - tv
@@ -33,60 +33,44 @@ thumbnail: https://thmb.techidaily.com/482b0b9f60bdf46ea3aa9192b63978daf29cfbcce
  So, if you've been convinced that it makes sense to [collect and preserve](https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-nokia-105-classic-devices-by-drfone-android/) content on disc, let's talk about how you can make those discs last as long as possible.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Always Handle Discs by the Edge
 
 ![Blu-ray disc with Blu-ray player](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/3994a5fd.jpg) 
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Corbin Davenport / How-To Geek
 
  Optical discs work by shining a laser on the data side of the disc, which is covered in microscopic "pits" and "lands", which represent binary code as zeroes and ones. The disc has multiple layers, with the actual data layer sandwiched between other materials, including a clear layer the laser must pass through to read the information.Fingerprints and dirt from your fingertips can distort the laser, making the data hard to read. Which is why you should always handle discs by their edges. I always hold the disc between my thumb and middle finger, putting my index finger through the hold for stability.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  It’s in the Player or in the Case
 
 ![An ASUS BW-16D1X-U external Blu-ray disc reader with a disk inside](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/692ecf3d.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Jordan Gloor / How-To Geek
 
  While you can simply clean off fingerprints and dirt from a disc using a suitable cloth (I use ones for glasses), the same can't be said for scratches. If something sharp or hard scratches the disc there's a good chance you'll face playback issues. The simplest way to avoid ever scratching your disc is to follow a simple rule where a disc is either safely in its case, or it's in the player. Not shiny-side-up on top of your player, and not stacked on a bunch of other discs. Loose discs are a recipe for scratched and trashed media!
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Keep Away From Heat and the Sun
 
  One of the things you want to avoid is having our discs warp, in which case it doesn't matter how scratch-free it is. Direct heat is the main enemy here. Plenty of people have thoughtlessly left their CDs on a car seat only to return and find that the disc will no longer go into the player, because it's now banana-shaped. So be mindful of where you put those discs and store them somewhere room-temperature and out of direct light.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Minimize the Odds of Disc Rot
 
@@ -96,12 +80,6 @@ Jordan Gloor / How-To Geek
 
  If your disc does show signs of disc rot, such as clouding, or "bronzing", then it might be eligible for replacement if the issue was widespread. For example, certain [Criterion Collection](https://criterioncast.com/defective) discs were eligible for free replacement.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Can Discs Be Repaired?
 
  There's no shortage of advice you'll get online on how to reverse the damage done to a scratched disc, but the truth is that most of it simply doesn't work. I've tested trying to polish a disc with toothpaste or metal polish such as Brasso, and in most cases it either did nothing or damaged the disc even more. Any scratch down to the metal layer where the data is stored is irreversible, but it is possible to reduce or remove superficial scratches using a disc resurfacing tool. Of course, you can only resurface a disc so many times before you actually damage it, but if you have no other recourse, there's no harm in trying.
@@ -116,8 +94,6 @@ Jordan Gloor / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -125,4 +101,22 @@ Jordan Gloor / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-best-caller-id-changers-and-their-enchanting-alternatives/"><u>2024 Approved Best Caller ID Changers & Their Enchanting Alternatives</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-motion-analysis-report-2023/"><u>2024 Approved Motion Analysis Report 2023</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/2024-gyors-diszdiavat-tesztitheto-legjobb-igazgatoi-programok-a-25-es-fajt/"><u>2024 Gyors Díszdiavát Tesztíthető Legjobb Igazgatói Programok - A 25-Es Fajt</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comfort-meets-clarity-in-our-rotibox-bluetooth-hat-assessment-an-in-depth-audio-experience-review/"><u>Comfort Meets Clarity in Our Rotibox Bluetooth Hat Assessment - An In-Depth Audio Experience Review</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/free-recording-tool-for-every-android-enthusiast/"><u>Free Recording Tool for Every Android Enthusiast</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/google-tv-on-chromecast-unveiled-an-in-depth-review-and-comparison/"><u>Google TV on Chromecast Unveiled: An In-Depth Review and Comparison</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hp-stream-11-basic-computing-in-a-compact-package/"><u>HP Stream 11: Basic Computing in a Compact Package</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ignite-creativity-unique-ai-art-with-the-power-of-microsofts-copilot/"><u>Ignite Creativity: Unique AI Art with the Power of Microsoft's Copilot</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-from-apple-iphone-15-pro-max-without-password-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account From Apple iPhone 15 Pro Max without Password?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/pros-cons-and-insights-an-in-depth-review-of-the-nook-glowlight/"><u>Pros, Cons, and Insights: An In-Depth Review of the Nook GlowLight</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/teac-pd-301-where-style-meets-exceptional-sound-quality/"><u>Teac PD-301: Where Style Meets Exceptional Sound Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-guide-to-the-xbox-series-x-breaking-down-its-power-in-4k-clarity/"><u>The Definitive Guide to the Xbox Series X - Breaking Down Its Power in 4K Clarity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-windows-11-homes-into-pros-comprehensive-guide/"><u>Transform Windows 11 Homes Into Pros: Comprehensive Guide</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-generate-faces-for-free-best-online-tools-for-2024/"><u>Updated Generate Faces for Free Best Online Tools for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/upgrading-your-spotify-library-to-youtube-music-access/"><u>Upgrading Your Spotify Library to YouTube Music Access</u></a></li>
+</ul></div>
 

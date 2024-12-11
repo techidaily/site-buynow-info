@@ -1,7 +1,7 @@
 ---
 title: "Review of the Tiny Titans: How the Rugged Unihertz Atom XL Packs a Punch"
-date: 2024-11-29T23:14:09.132Z
-updated: 2024-12-05T05:21:22.089Z
+date: 2024-12-05T07:06:56.206Z
+updated: 2024-12-11T05:16:19.951Z
 categories:
   - BestProducts
 description: "This Article Describes Review of the Tiny Titans: How the Rugged Unihertz Atom XL Packs a Punch"
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 ![Withings Move](https://www.lifewire.com/thmb/lRf4MewZgHR7jJoirox43xON-Ds=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4161013-1-a308b649704344f6b5fd15dc900e5742.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
@@ -48,17 +48,9 @@ Lifewire / Yoona Wagener
 
 3.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Withings Withings Move Hybrid Smartwatch
 
 ![Withings Move](https://www.lifewire.com/thmb/0q_63hnHYzqQ5_H2Q2RzjXF5Nls=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4161013-1-a308b649704344f6b5fd15dc900e5742.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -87,7 +79,15 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/SRCqvDOet8fouJ8uY8ze0LlCiog=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-2-1fdc9f06eb6a45f2baa2b840822fba5d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Slim and clean**
 
@@ -105,11 +105,11 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/Qz1dlsE8jl99mXc7-kQ5LCVoiK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-3-b1e97631284d40829bd5714c59dc5f2a.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process** :**As easy as 1-2-3**
 
@@ -120,6 +120,10 @@ Lifewire / Yoona Wagener
  The first thing we had to do was sign up for an account in order to move forward with the installation. After we did that, most of the steps took just a few seconds or up to a minute at the longest.
 
  First, we paired the Withings Move with our phone via Bluetooth, which was instantaneous. Next, we provided profile information for better activity metrics, downloaded an update, made sure the watch dials were working and the time was set correctly, and we were good to go.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Comfort: Light as a feather, even while sleeping**
 
@@ -150,7 +154,7 @@ Lifewire / Yoona Wagener
 ![Withings Move](https://www.lifewire.com/thmb/vaUmI1isQP98tmL8uIZSghmAWGs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-6-259d8034cfb64485be60f9c5754fec79.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
@@ -160,10 +164,6 @@ Lifewire / Yoona Wagener
  The Withings Move is reported to have a battery life of up to 18 months, and we really enjoyed that aspect over the week we tested it. Unlike typical smartwatches, we didn’t have to worry about draining the battery and recharging. The internal battery is a typical replaceable watch battery, and the user guide offers directions for removal and replacement when the time comes.
 
 ![Withings Move](https://www.lifewire.com/thmb/02bkMrpkzqBOue1ffhHNfQqaIuk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-4-df866fafd70a44c592e0e06e0ea53ae7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
 
@@ -226,21 +226,21 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://hardware-help.techidaily.com/latest-and-fast-new-version-of-vga-drivers-free-download-for-optimal-performance/"><u>[Latest & Fast] New Version of VGA Drivers - Free Download for Optimal Performance</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-scriptwriting-secrets-for-a-captivating-and-authentic-storyline/"><u>[New] In 2024, Scriptwriting Secrets for a Captivating and Authentic Storyline</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-revive-freezing-mobile-videos-in-chrome-and-firefox/"><u>[New] Revive Freezing Mobile Videos in Chrome and Firefox</u></a></li>
-<li><a href="https://extra-information.techidaily.com/best-pricing-in-the-cloud-unveil-your-options-here-for-2024/"><u>Best Pricing in the Cloud? Unveil Your Options Here for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/breaking-down-the-exceptional-capabilities-of-hero7-black/"><u>Breaking Down the Exceptional Capabilities of HERO7 Black.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-eero-pro-mesh-networking-system-assessment-the-ultimate-solution-for-whole-home-internet/"><u>Comprehensive Eero Pro Mesh Networking System Assessment: The Ultimate Solution for Whole-Home Internet</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/cutting-edge-techniques-for-clear-zoom-captures/"><u>Cutting Edge Techniques for Clear Zoom Captures</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/explore-the-elite-collection-of-network-servers-and-enclosures/"><u>Explore the Elite Collection of Network Servers and Enclosures</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-amazon-echo-show-10-third-gen-a-dynamic-and-interactive-smart-device-for-your-space/"><u>Exploring the Amazon Echo Show 10, Third Gen: A Dynamic and Interactive Smart Device for Your Space</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/improve-your-battlefield-v-gameplay-the-ultimate-fixes-for-lag-issues/"><u>Improve Your Battlefield V Gameplay: The Ultimate Fixes for Lag Issues</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Oppo Find N3 | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/protecting-your-privacy-how-to-easily-modify-your-facebook-passkey/"><u>Protecting Your Privacy: How To Easily Modify Your Facebook Passkey</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/step-by-step-mastery-utilizing-the-secret-features-of-preview-on-macos-devices/"><u>Step-by-Step Mastery: Utilizing the Secret Features of Preview on macOS Devices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-6-iphone-security-software-protect-your-smartphone-with-these-great-antivirus-apps/"><u>Top 6 iPhone Security Software: Protect Your Smartphone with These Great Antivirus Apps</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-smartwatches-a-comprehensive-guide/"><u>Top-Rated Smartwatches : A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-seal-of-credibility-writing-journalisms-finale/"><u>[New] 2024 Approved Seal of Credibility Writing Journalism's Finale</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-elevate-your-youtube-presence-with-studio-insights/"><u>[New] In 2024, Elevate Your YouTube Presence with Studio Insights</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-designing-for-success-how-space-arrangement-boosts-work-performance/"><u>[Updated] Designing for Success How Space Arrangement Boosts Work Performance</u></a></li>
+<li><a href="https://video-capture.techidaily.com/advanced-5-cloud-view-recorder-for-2024/"><u>Advanced 5 Cloud View Recorder for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/bridge-the-gap-between-viewers-and-wide-angles-posting-on-facebook-for-2024/"><u>Bridge the Gap Between Viewers and Wide Angles Posting on Facebook for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-steps-updating-your-nvidia-geforce-gtx-1660-graphics-card-drivers-in-minutes/"><u>Easy Steps: Updating Your NVIDIA GeForce GTX 1660 Graphics Card Drivers in Minutes</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-wipe-iphone-xs-max-data-permanently-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Wipe iPhone XS Max Data Permanently? | Stellar</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/master-your-home-internet-with-the-linksys-ea8300-review-seamless-device-connectivity/"><u>Master Your Home Internet with the Linksys EA8300 Review – Seamless Device Connectivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-dji-robomaster-s1-a-thrilling-drone-experience-for-young-builders-and-gamers/"><u>Review: DJI RoboMaster S1 – A Thrilling Drone Experience for Young Builders and Gamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-how-apples-imac-revolutionizes-visual-quality-and-computational-speed-with-its-latest-m1-chip/"><u>Review: How Apple's iMac Revolutionizes Visual Quality and Computational Speed with Its Latest M1 Chip</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionizing-productivity-2021-ipad-pro-review-where-tablets-meet-desktop-power/"><u>Revolutionizing Productivity: 2021 iPad Pro Review - Where Tablets Meet Desktop Power</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rokus-symphony-of-technology-audio-plus-streaming-mastery/"><u>Roku's Symphony of Technology: Audio + Streaming Mastery</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-showdown-s10plus-vs-s20-performance-analysis/"><u>Samsung Galaxy Showdown: S10+ Vs. S20 Performance Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/screening-instant-memories-the-ultimate-photo-frame-review/"><u>Screening Instant Memories: The Ultimate Photo Frame Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/smart-security-made-accessible-top-pick-for-under-1n0-video-doorbells-the-remobell-review/"><u>Smart Security Made Accessible: Top Pick for Under-$1n0 Video Doorbells - The RemoBell Review</u></a></li>
+<li><a href="https://techtrends.techidaily.com/utilizing-cookiebot-technology-for-superior-user-experience-management-on-websites/"><u>Utilizing Cookiebot Technology for Superior User Experience Management on Websites</u></a></li>
 </ul></div>
 

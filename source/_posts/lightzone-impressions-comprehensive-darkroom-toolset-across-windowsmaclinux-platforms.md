@@ -1,7 +1,7 @@
 ---
 title: "LightZone Impressions: Comprehensive Darkroom Toolset Across Windows/Mac/Linux Platforms"
-date: 2024-11-28T18:41:45.076Z
-updated: 2024-12-05T00:28:26.185Z
+date: 2024-12-10T00:38:05.687Z
+updated: 2024-12-10T20:04:18.354Z
 categories:
   - BestProducts
 description: "This Article Describes LightZone Impressions: Comprehensive Darkroom Toolset Across Windows/Mac/Linux Platforms"
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/4c2c83dc76ea031999e2259b4bcb5ed3cf0b94afc
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Microsoft Xbox Series S
@@ -50,10 +50,6 @@ Lifewire / Jeremy Laukkonen
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Microsoft Xbox Series S
 
 ![Xbox Series S](https://www.lifewire.com/thmb/wlG_GrSmQPVex-VRt3ap4hsTP-s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
@@ -83,6 +79,10 @@ Lifewire / Jeremy Laukkonen
 
  This console is remarkably compact and has a surprisingly low price point. Gamers looking for a[4K UHD in HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) experience will need to pay a premium for the Series X, but the Xbox Series S offers an enticing alternative if you’re looking to save some money or haven’t yet made the jump to 4K.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Sleek and compact**
 
  The Xbox Series S is small, and it's almost impossible to oversell that point. I had seen pictures and videos of the console and the spec sheet, but I was still surprised at how compact this thing was when I unboxed it. It's smaller than the Xbox One S, and Microsoft bills it as "our smallest Xbox ever." That's especially noteworthy since Microsoft and Sony went exceptionally big with their flagship consoles, the Series X and PlayStation 5.
@@ -106,7 +106,7 @@ Lifewire / Jeremy Laukkonen
  I ended up wiping the console back to factory settings a few times while I put it through its paces, so I also tried the traditional setup method after circling back. It’s similar to setting up an Xbox One; not that difficult or time-consuming, but the app option is better.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Rock solid 1440p gaming**
@@ -167,10 +167,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Xbox Series S](https://www.lifewire.com/thmb/_GSxQvNgtJMhoyNl62qlg671Qvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2-25991056c5c2486695923f7c1b61c7b5.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
  When downloading over Wi-Fi, I rarely saw over 150Mbps (compared to the 350Mbps I measured on my HP Spectre x360 laptop in the same room and at the same time). Curiously, the Series S download speed tanked, down to the lower double digits, while I was running speed tests on my laptop. Similarly, download speeds dive into the low teens whenever a game runs, even in the background.
@@ -179,19 +175,11 @@ Lifewire / Jeremy Laukkonen
 
  The bottom line is that the Series S provided fairly unimpressive download speeds over Wi-Fi but tore it up when connected via Ethernet. You’ll want to connect this all-digital console via Ethernet to a fast internet connection.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Software and User Interface: Familiar and cozy**
 
  Microsoft isn’t looking to rock the boat with the Xbox Series X|S in terms of the user interface. If you’ve used an Xbox One, you’ll find the Xbox Series X|S user interface strangely familiar. The dashboard looks almost the same, and the guide functions as expected. There are a few upgrades and changes here and there, but this is nothing like the massive change between the Xbox 360 dashboard and the Xbox One dashboard.
 
  An overhaul of the dashboard is currently in the works, and we expect it to arrive in 2023.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Controller: Iteration more than innovation**
 
@@ -209,11 +197,11 @@ Lifewire / Jeremy Laukkonen
 
 ![Xbox Series S](https://www.lifewire.com/thmb/MZdEnnFWPzhGzv_P5GO8byAY5qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3-dd9458b294e74205acad2ff6fee33913.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Jaw-droppingly low**
 
@@ -224,6 +212,10 @@ Lifewire / Jeremy Laukkonen
  One nice thing about the Xbox Series X|S is that when you buy a new console, you typically have a bunch of add-ons to worry about that drive the price up. For example, you might have to purchase several controllers to support multiplayer, which adds up to $60 or more per controller. Since the Series S supports most Xbox One peripherals, owners don’t have to worry about the added expense of buying extra controllers.
 
  One expense you may need to budget is a high-speed USB 3.1 drive. The console is perfectly usable without an external drive, but expect to uninstall games regularly to make more space if you limit yourself to the onboard storage.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Xbox Series S vs. PS5 Digital**
 
@@ -239,6 +231,10 @@ Lifewire / Jeremy Laukkonen
 
  The Xbox Series S might be a bit of a step back from the Xbox One X in performance, but the fact is that it’s a next-gen console that plays next-gen games with some impressive hardware and an unreal price tag. Gamers in search of the best graphics possible will want to look at the Xbox Series X instead, but gamers who haven’t yet made the 4K plunge, parents in need of an affordable console for their kids, or anyone looking to save money will all find something to like here.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 [Xbox Series X Review](https://www.lifewire.com/microsoft-xbox-series-x-review-one-power-packed-4k-console-5088039)
@@ -248,6 +244,10 @@ Lifewire / Jeremy Laukkonen
 [Nintendo Switch Review](https://www.lifewire.com/nintendo-switch-review-4707563)
 
 [Nintendo Switch Lite Review](https://www.lifewire.com/nintendo-switch-lite-review-4788015)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -281,21 +281,24 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-conquer-social-media-optimal-video-converters-for-twitters/"><u>[New] Conquer Social Media Optimal Video Converters for Twitters</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-reviewcast-analysis/"><u>[New] In 2024, ReviewCast Analysis</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-unpacking-twitter-video-sharing-the-whatsapp-connection/"><u>[New] Unpacking Twitter Video Sharing The WhatsApp Connection</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-through-telegram-web-easily-and-quickly/"><u>2024 Approved Navigating Through Telegram Web Easily and Quickly</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/a-deep-dive-into-ai-conversational-design-and-its-long-term-job-security/"><u>A Deep Dive Into AI Conversational Design and Its Long-Term Job Security</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-and-efficient-tp-link-re200-ac750-wireless-range-expansion-assessment/"><u>Affordable & Efficient TP-Link RE200 AC750 Wireless Range Expansion Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cutting-edge-computing-a-comparative-review-of-the-arm-powered-apple-mac-mini-against-competitors/"><u>Cutting-Edge Computing: A Comparative Review of the ARM-Powered Apple Mac Mini Against Competitors</u></a></li>
-<li><a href="https://common-error.techidaily.com/failed-attempt-at-installing-the-latest-windows-10-feature-update-version-1-solutions-inside/"><u>Failed Attempt at Installing the Latest Windows 10 Feature Update (Version 1) - Solutions Inside</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-the-wii-u-became-a-thriving-force-in-modern-gaming/"><u>How the Wii U Became a Thriving Force in Modern Gaming</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-vivo-s17e-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Vivo S17e? Try These Fixes</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-ultimate-routine-personalize-your-youtube-shorts-image-credits/"><u>In 2024, Ultimate Routine Personalize Your YouTube Shorts Image Credits</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-escort-max-360-the-ultimate-multi-functional-radar-detection-system-with-navigation-capabilities/"><u>In-Depth Analysis: Escort Max 360 - The Ultimate Multi-Functional Radar Detection System with Navigation Capabilities</u></a></li>
-<li><a href="https://win11.techidaily.com/integrating-indicators-of-nature-a-procedure-to-incorflutter-a-windows-11-system-tray-icon/"><u>Integrating Indicators of Nature: A Procedure to Incorflutter a Windows 11 System Tray Icon</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-fitness-with-garmins-latest-an-in-depth-look-at-the-forerunner-945/"><u>Mastering Fitness with Garmin's Latest: An In-Depth Look at the Forerunner 945</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/portable-powerhouse-the-hp-stream-11-for-simplified-daily-use/"><u>Portable Powerhouse: The HP Stream 11 for Simplified Daily Use</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-lenovo-ideapad-portable-pc-impressive-structure-with-fundamental-capabilities/"><u>Unveiling the Lenovo Ideapad Portable PC: Impressive Structure with Fundamental Capabilities</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-assessing-dji-phantom-3-professionals-performance/"><u>[New] In 2024, Assessing DJI Phantom 3 Professional's Performance</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-zoomview-partition-inspection/"><u>[New] ZoomView Partition Inspection</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-essential-leaderboard-scratcher-youtube-trending-analysis/"><u>[Updated] 2024 Approved Essential Leaderboard Scratcher YouTube Trending Analysis</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-timelapse-excellence-iphones-quick-guide/"><u>[Updated] Timelapse Excellence IPhone's Quick Guide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Realme C55? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-lava-yuva-2-pro-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Lava Yuva 2 Pro with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-the-price-worth-it-a-thorough-examination-of-the-alienware-aurora-r7s-capabilities/"><u>Is the Price Worth It? A Thorough Examination of the Alienware Aurora R7's Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-17-inch-gaming-and-work-laptops-for-tech-savvy-consumers/"><u>Leading 17-Inch Gaming & Work Laptops for Tech Savvy Consumers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovo-ideapad-flex-5-spin-detailed-unboxing-and-performance-insights/"><u>Lenovo IdeaPad Flex 5 Spin - Detailed Unboxing and Performance Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/record-spinning-made-easy-exploring-the-lp60xbt/"><u>Record Spinning Made Easy: Exploring the LP60XBT</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/simplify-your-song-selection-quick-access-to-karaoke-songs-via-qr-enabled-ksr/"><u>Simplify Your Song Selection - Quick Access to Karaoke Songs via QR-Enabled KSR!</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/streamline-webcam-use-on-modern-devices-for-2024/"><u>Streamline Webcam Use on Modern Devices for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-aesthetic-appeal-and-lightweight-advantage-of-the-acer-chromebook-r-11-unveiled/"><u>The Aesthetic Appeal & Lightweight Advantage of the Acer Chromebook R 11 Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-samsung-galaxy-watch3-through-a-critical-lens-classic-elegance-pairing-with-latest-innovations/"><u>The Samsung Galaxy Watch3 Through a Critical Lens: Classic Elegance Pairing With Latest Innovations</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-wi-fi-companion-for-travelers-tp-links-tl-wr9eusure-ac-pocket-router/"><u>The Ultimate Wi-Fi Companion for Travelers: TP-Link's TL-WR9eusure AC Pocket Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-apple-offers-during-prime-day-sale/"><u>Top Apple Offers During Prime Day Sale</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlock-the-secrets-amazfit-helio-rings-official-launch-and-pricing-info/"><u>Unlock the Secrets: Amazfit Helio Ring’s Official Launch & Pricing Info</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlocking-mobile-potential-a-comprehensive-tutorial-for-android-apps-compatibility-with-windows-10/"><u>Unlocking Mobile Potential: A Comprehensive Tutorial for Android Apps Compatibility with Windows 10</u></a></li>
 </ul></div>
 

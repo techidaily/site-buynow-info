@@ -1,7 +1,7 @@
 ---
 title: "Experience Unparalleled Support with the X4 Chair by X-Chair: A Comprehensive Assessment"
-date: 2024-11-21T09:07:36.022Z
-updated: 2024-11-25T11:51:54.213Z
+date: 2024-12-05T20:28:33.536Z
+updated: 2024-12-11T02:32:23.569Z
 categories:
   - BestProducts
 description: "This Article Describes Experience Unparalleled Support with the X4 Chair by X-Chair: A Comprehensive Assessment"
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/d558a627b87b79877888fadd197a60bce9f9f1882
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Szj7RCNucny4rfZ6uBlIf8pdeiE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_HP-OMEN-Obelisk-Gaming-Desktop-Computer-1-56ba747009334162a328f46d8b4743af.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
@@ -46,13 +46,13 @@ Lifewire / Jonno Hill
 
 4
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## HP Omen Obelisk
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/ltgwwtDrSkLcZMSVU6VX1rKcbaA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_HP-OMEN-Obelisk-Gaming-Desktop-Computer-1-56ba747009334162a328f46d8b4743af.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -130,17 +130,21 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
- Lifewire / Jonno Hill
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Jonno Hill
 
 ## **Network** :**Great speeds, but software that doesn’t do much**
 
  The HP Omen Obelisk has gigabit LAN and a Wi-Fi 5 (2x2) networking, the latter supporting a maximum speed of 866 Mbps. Everything functioned smoothly from a networking standpoint during my tests.
 
  I made a point to try out the Network Booster software found in the OMEN Command Center and didn’t see anything tremendously useful, unfortunately. I tried setting the priority of Steam to “Low” and downloading a game, but the game still downloaded at my maximum internet speed. I took it one step further and toggled the “Block” option for Steam, and tried to resume the download, but Steam kept on downloading at the maximum speed. The software was successful in blocking Chrome when that option was switched on, however.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Just enough options**
 
@@ -160,14 +164,10 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/J3cZUfrEy-ALtFpRbDRhw7FZI8M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-4-f78d504d7bd348eca19b7e65b4d10289.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **HP OMEN Obelisk vs Corsair One Pro**
@@ -183,7 +183,7 @@ Lifewire / Jonno Hill
  The HP OMEN Obelisk delivers fantastic value for gamers shopping for a high-performance, pre-built PC. HP has come a long way, and now offers a much more compelling solution that will appeal to a much broader set of buyers. That said, there is work to be done still, as the case suffers from poor airflow, poor thermals, and not a lot of meaningful ways to improve them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -220,18 +220,22 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-best-of-both-worlds-2023s-device-agnostic-editors/"><u>[New] 2024 Approved The Best of Both Worlds 2023’S Device-Agnostic Editors</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-fb-video-grabber-win-mac-and-mobile-for-2024/"><u>[Updated] FB Video Grabber - Win, Mac & Mobile for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-mastering-igtv-thumbnail-creation-and-editing/"><u>2024 Approved Mastering IGTV Thumbnail Creation & Editing</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-vivo-x90s-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Vivo X90S</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/a6400-absent-actors-where-are-the-videos-for-2024/"><u>A6400 Absent Actors Where Are the Videos for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/auditory-revolution-at-your-feet-with-klipschs-flexus-200/"><u>Auditory Revolution at Your Feet with Klipsch’s Flexus 200</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/finding-quality-without-breaking-the-bank-a-deep-dive-into-the-apple-ipad-air-4-against-its-pro-sibling/"><u>Finding Quality Without Breaking the Bank: A Deep Dive Into the Apple iPad Air 4 Against Its Pro Sibling</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/getting-to-know-the-trailblazer-in-depth-review-of-the-new-ampace-andes-1500-solar-generator/"><u>Getting to Know The Trailblazer: In-Depth Review of the New Ampace Andes 1500 Solar Generator</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-for-aspiring-filmmakers-the-best-cameras-from-35mm-to-pands/"><u>In 2024, For Aspiring Filmmakers, The Best Cameras From 35Mm to P&S</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-mastering-pip-macos-sierras-guide-to-multimedia-magic/"><u>In 2024, Mastering PIP MacOS Sierra's Guide to Multimedia Magic</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-photograph-entire-screen-area/"><u>In 2024, Photograph Entire Screen Area</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-game-changer-reviewing-the-impressive-specs-and-portability-of-xbox-series-s/"><u>The Game Changer: Reviewing the Impressive Specs and Portability of Xbox Series S</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-top-10-steam-deck-games-you-cant-miss-this-year/"><u>The Ultimate Guide: Top 10 Steam Deck Games You Can’t Miss This Year</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-direct-obs-video-feed-for-instagram/"><u>[New] Direct OBS Video Feed for Instagram</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-from-silence-to-spotlight-the-solo-podcast-artists-journey/"><u>[New] From Silence to Spotlight The Solo Podcast Artist's Journey</u></a></li>
+<li><a href="https://driver-error.techidaily.com/comprehensive-guide-to-fixing-your-non-functional-hp-wireless-keyboard/"><u>Comprehensive Guide to Fixing Your Non-Functional HP Wireless Keyboard</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-the-multifunctional-samsung-gear-s3-frontier-your-ultimate-wrist-companion/"><u>Comprehensive Review: The Multifunctional Samsung Gear S3 Frontier – Your Ultimate Wrist Companion</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-x-plane-11-review-a-top-tier-modern-flight-simulation-with-stunning-graphics/"><u>Comprehensive X-Plane 11 Review: A Top-Tier Modern Flight Simulation with Stunning Graphics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exceptional-performance-and-versatility-an-in-depth-look-at-the-samsung-galaxy-tab-s4/"><u>Exceptional Performance and Versatility: An In-Depth Look at the Samsung Galaxy Tab S4</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-vibrant-colors-with-sunbrites-indestructible-55-outdoor-4k-hdr-smart-television/"><u>Experience Vibrant Colors with SunBrite's Indestructible 55 Outdoor 4K HDR Smart Television</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-anker-super-bright-tactical-flashlight-for-unmatched-adventure-illumination/"><u>Expert Analysis of the Anker Super Bright Tactical Flashlight for Unmatched Adventure Illumination</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-garmin-vivosmart-4-advanced-metrics-for-monitoring-body-battery-and-stress-levels/"><u>Expert Review: Garmin Vivosmart 4 - Advanced Metrics for Monitoring Body Battery and Stress Levels</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/fixing-missing-cygwin1dll-files-tips-and-techniques-that-work/"><u>Fixing Missing cygwin1.dll Files: Tips and Techniques That Work</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-your-hands-on-amazing-savings-premier-roku-prices-this-prime-day/"><u>Get Your Hands-On Amazing Savings: Premier Roku Prices This Prime Day</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-does-the-zte-blade-a3y-stand-out-in-the-budget-smartphone-arena/"><u>How Does the ZTE Blade A3Y Stand Out in the Budget Smartphone Arena?</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-audio-enhancement-in-your-windows-environment-maximizing-sound-on-budget-for-2024/"><u>New Audio Enhancement in Your Windows Environment - Maximizing Sound on Budget for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/rediscover-androids-intended-experience-through-google-pixel-3-insights/"><u>Rediscover Android's Intended Experience Through Google Pixel 3 Insights</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/0-gaming-youtubers-you-may-want-to-subscribe-for-2024/"><u>Top 10 Gaming YouTubers You May Want to Subscribe for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
 </ul></div>
 

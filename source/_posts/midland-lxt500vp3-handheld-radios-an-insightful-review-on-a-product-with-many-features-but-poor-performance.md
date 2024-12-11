@@ -1,7 +1,7 @@
 ---
 title: "Midland LXT500VP3 Handheld Radios: An Insightful Review on a Product with Many Features but Poor Performance"
-date: 2024-12-03T01:48:56.905Z
-updated: 2024-12-04T18:46:24.655Z
+date: 2024-12-04T06:40:10.524Z
+updated: 2024-12-11T09:51:23.208Z
 categories:
   - BestProducts
 description: "This Article Describes Midland LXT500VP3 Handheld Radios: An Insightful Review on a Product with Many Features but Poor Performance"
@@ -18,13 +18,13 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/OIHJ0F8VMR0yFUpC8veJBJ39E6A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
@@ -98,7 +98,7 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Plenty of power for all your needs**
@@ -110,7 +110,7 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Key Features: The flashlight is nice but is basically a spotlight**
@@ -128,7 +128,7 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  At that price point, it packs a ton of value into its diminutive size.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
@@ -178,24 +178,18 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-taming-the-obs-timeline-glitches/"><u>[New] Taming the OBS Timeline Glitches</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-a-compreayers-guide-to-monetizing-videos-critical-view-figures-for-2024/"><u>[Updated] A Compreayer's Guide to Monetizing Videos Critical View Figures for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-a-visual-journey-mastering-the-art-of-incorporating-text-into-images-on-pcmacos/"><u>[Updated] A Visual Journey Mastering the Art of Incorporating Text Into Images on PC/MacOS</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-elevate-your-content-top-10-must-use-hashtags-on-ig/"><u>2024 Approved Elevate Your Content Top 10 Must-Use Hashtags on IG</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-pro-vision-best-4k-dslr-mounting-systems-reviewed/"><u>2024 Approved Pro Vision Best 4K DSLR Mounting Systems Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazfits-newest-gadget-the-helio-ring-what-to-know-about-price-launch-and-tech-features/"><u>Amazfit's Newest Gadget - The Helio Ring: What to Know About Price, Launch, and Tech Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/breakthrough-in-high-end-gaming-evaluating-the-design-and-capabilities-of-dells-alienware-aurora-r9/"><u>Breakthrough in High-End Gaming: Evaluating the Design & Capabilities of Dell's Alienware Aurora R9</u></a></li>
-<li><a href="https://win-awesome.techidaily.com/conversion-libre-de-wav-a-wmv-sur-internet-avec-movavi-guide-detaille-et-facile-dutilisation/"><u>Conversion Libre De WAV À WMV Sur Internet Avec Movavi – Guide Détaillé Et Facile D'utilisation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/decoding-performance-the-ultimate-review-of-the-12mp-docooler-usb-camera-prototype/"><u>Decoding Performance: The Ultimate Review of the 12MP Docooler USB Camera Prototype</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exemplars-elevation-all-inclusive-stabilizer-review/"><u>Exemplar's Elevation: All-Inclusive Stabilizer Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/explore-the-capabilities-of-the-apc-be600m1-reliable-battery-surge-protection-and-usb-charger-included/"><u>Explore the Capabilities of the APC BE600M1: Reliable Battery Surge Protection and USB Charger Included</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-samsung-galaxy-z-flip-5-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Samsung Galaxy Z Flip 5</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-vanguard-ventures-newcomers-to-the-panzoid-world/"><u>In 2024, Vanguard Ventures Newcomers to the Panzoid World</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-upgraded-samsung-galaxy-watch-active-2-extra-connections-and-intelligence/"><u>In-Depth Look at The Upgraded Samsung Galaxy Watch Active 2 - Extra Connections and Intelligence</u></a></li>
-<li><a href="https://common-error.techidaily.com/mastering-display-connectivity-the-solution-to-unsupported-user-entries-on-your-monitor/"><u>Mastering Display Connectivity: The Solution to Unsupported User Entries on Your Monitor</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/preparing-your-mac-for-a-flawless-catalina-upgrade/"><u>Preparing Your Mac for a Flawless Catalina Upgrade</u></a></li>
-<li><a href="https://win11.techidaily.com/removing-false-device-errors-tips-and-tricks-windows/"><u>Removing False Device Errors: Tips and Tricks, WIndows</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-amazon-basics-tablet-support-accessory-evaluation-portable-and-handy/"><u>Top-Rated Amazon Basics Tablet Support Accessory Evaluation – Portable and Handy!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/wireless-sound-showdown-airpods-pro-to-galaxy-buds-pro/"><u>Wireless Sound Showdown: AirPods Pro to Galaxy Buds Pro</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-enabling-the-virtual-screen-layout-in-google-meet/"><u>[New] 2024 Approved Enabling the Virtual Screen Layout in Google Meet</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-the-innovators-playbook-for-premiere-pro-fullscreen-edits-for-2024/"><u>[Updated] The Innovator's Playbook for Premiere Pro Fullscreen Edits for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/capturing-excitement-the-pros-and-cons-of-gopro-hero7-black/"><u>Capturing Excitement - The Pros and Cons of GoPro HERO7 Black.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-why-the-ring-video-doorbell-pro-is-a-clever-choice-for-your-home/"><u>Comprehensive Review: Why the Ring Video Doorbell Pro Is a Clever Choice for Your Home</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/detailed-assessment-of-ankers-high-capacity-powercoreplus-26800-bundle/"><u>Detailed Assessment of Anker's High-Capacity PowerCore+ 26800 Bundle</u></a></li>
+<li><a href="https://blog-min.techidaily.com/discover-the-top-3-leading-non-itunes-apps-for-effortless-ipod-music-management/"><u>Discover the Top 3 Leading Non-iTunes Apps for Effortless iPod Music Management</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-jackerys-powerbar-battery-pack-with-convenient-ac-outlet-option/"><u>Evaluating Jackery's PowerBar Battery Pack With Convenient AC Outlet Option</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-next-level-in-smart-casting-a-look-at-chromecast-and-google-tv-together/"><u>Experience the Next Level in Smart Casting – A Look at Chromecast and Google TV Together</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-best-7-platforms-to-experience-cinematic-trailer-releases/"><u>Explore The Best 7 Platforms to Experience Cinematic Trailer Releases</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-zte-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of ZTE Phone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-huawei-nova-y91-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Huawei Nova Y91 Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/transform-your-home-office-vibe-alexas-innovative-approach-to-busy-lights-unveiled-by-zdnet/"><u>Transform Your Home Office Vibe: Alexa's Innovative Approach to Busy Lights Unveiled by ZDNet</u></a></li>
 </ul></div>
 

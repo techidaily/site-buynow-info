@@ -1,7 +1,7 @@
 ---
 title: "Review: TP-Link RE305, the AC1200 WiFi Signal Enhancer – Effortless Setup and Impressive Results"
-date: 2024-12-03T23:38:06.538Z
-updated: 2024-12-05T06:03:53.538Z
+date: 2024-12-03T18:18:53.522Z
+updated: 2024-12-11T04:12:08.217Z
 categories:
   - BestProducts
 description: "This Article Describes Review: TP-Link RE305, the AC1200 WiFi Signal Enhancer – Effortless Setup and Impressive Results"
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/ed43cb68b7509790195a4106080566d9794dc5d45
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Ubiquiti Amplifi HD Mesh Wi-Fi System
@@ -53,7 +53,7 @@ Lifewire / Erika Rawes
 ![Amplifi HD](https://www.lifewire.com/thmb/Njd1HQu0FsmaveVCH4FDT0Spa6c=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_HeroSquare-fdb67079a06b415b98467919ec8e34a6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -96,6 +96,10 @@ Lifewire / Erika Rawes
 
  By default, the app creates a dual (2.4 and 5Ghz) network, which directs traffic based on the most efficient pathways. You can create separate 2.4 and 5Ghz networks, or make other adjustments as you see fit though. You can change the band on the mesh points (from 2.4 to 5Ghz), create additional SSIDs, and more. For the purpose of testing, I used the default combined network and allowed the system to direct network traffic between bands.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Connectivity: Lags when you add too many devices**
 
  The Amplifi HD system is not Wi-Fi 6 capable.[It has 802.11ac](https://www.lifewire.com/wireless-standards-802-11a-802-11b-g-n-and-802-11ac-816553) , and it's backwards compatible. On the back of the router sit four gigabit LAN ports in addition to the WAN connection. There’s no multigig port, but the four ports were a welcome addition.
@@ -120,23 +124,15 @@ Lifewire / Erika Rawes
 
 ![Amplifi HD](https://www.lifewire.com/thmb/2X1DxWPlS1VXqnwsUCG5qviJXwc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_03-56584e48b76942519745c71443c2e8d5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: A little steep**
 
  The Amplifi HD system isn’t cheap. The package I tested, which came with the router and two mesh points, retails for $340\. You can find mesh systems for much less, and of course, some mesh systems are much more expensive. But, the Amplifi system’s design, easy setup, and feature set help justify the price.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Amplifi HD vs. Nest Wi-Fi**
 
@@ -147,6 +143,10 @@ Lifewire / Erika Rawes
 **Looks better than it performs.**
 
  The Amplifi HD mesh system is attractive and does provide coverage for a huge area, but it doesn’t deliver lightning-fast speeds in a home with dozens of connected devices.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -181,18 +181,22 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/updated-sifting-through-the-advantages-and-disadvantages-of-vr-for-2024/"><u>[Updated] Sifting Through the Advantages and Disadvantages of VR for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-spin-cycle-in-the-ice-arena-of-22/"><u>2024 Approved Spin Cycle in the Ice Arena of '22</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-tangos-free-calls-text-speak-and-film-your-conversations/"><u>Exploring Tango's Free Calls – Text, Speak and Film Your Conversations.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-versatile-capabilities-an-in-depth-look-at-the-samsung-gear-s3-frontier-smartwatch-review/"><u>Exploring the Versatile Capabilities - An In-Depth Look at the Samsung Gear S3 Frontier Smartwatch Review</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/get-fluent-in-swedish-script-and-sounds-speedily/"><u>Get Fluent in Swedish Script & Sounds Speedily</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Honor X9b | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-heartfelt-gratitude-paidfree-creative-templates/"><u>In 2024, Heartfelt Gratitude Paid/Free Creative Templates</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/insightful-evaluation-of-apple-books-the-ultimate-guide-and-critique/"><u>Insightful Evaluation of Apple Books - The Ultimate Guide and Critique</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/setting-up-automatic-photo-timers-with-your-iphones-camera-app/"><u>Setting Up Automatic Photo Timers with Your iPhone's Camera App</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/top-8-suggestions-for-high-quality-iphone-videography-projects/"><u>Top 8 Suggestions for High-Quality iPhone Videography Projects</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-voip-platforms-evaluated-does-vonage-maintain-its-position-as-the-best-choice/"><u>Top VoIP Platforms Evaluated: Does Vonage Maintain Its Position as the Best Choice?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-razer-portal-guide-the-best-wi-fi-router-for-gaming-enthusiasts/"><u>Ultimate Razer Portal Guide: The Best Wi-Fi Router for Gaming Enthusiasts</u></a></li>
-<li><a href="https://common-error.techidaily.com/winning-against-error-code-0x800f0922-in-windows-10-top-fixes-you-need-to-know/"><u>Winning Against Error Code 0X800F0922 in Windows 10 - Top Fixes You Need to Know!</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-discover-other-pc-video-editing-programs/"><u>[New] 2024 Approved Discover Other PC Video Editing Programs</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-cutting-edge-techniques-for-youtube-thumbnails-made-for-macos/"><u>[Updated] 2024 Approved Cutting-Edge Techniques for YouTube Thumbnails, Made for macOS</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-a-teachers-guide-to-enhancing-learning-through-youtube-videos/"><u>2024 Approved A Teacher's Guide to Enhancing Learning Through YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-elevate-engagement-on-youtube-fending-off-automated-audiences/"><u>2024 Approved Elevate Engagement on YouTube Fending Off Automated Audiences</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dont-miss-out-amazing-samsung-deals-for-prime-day-shoppers/"><u>Don't Miss Out: Amazing Samsung Deals for Prime Day Shoppers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-your-listening-pleasure-the-h8i-odyssey/"><u>Elevate Your Listening Pleasure: The H8i Odyssey</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elite-transcription-applications-the-best-picks-for-2eighteen/"><u>Elite Transcription Applications: The Best Picks for 2Eighteen</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/enhance-your-systems-visual-experience-by-reviving-graphics-win7/"><u>Enhance Your System's Visual Experience by Reviving Graphics (Win7)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-asus-ax6000-rt-ax88u-your-ultimate-guide-to-a-cutting-edge-wi-fi-6-router/"><u>Expert Analysis of the Asus AX6000 RT-AX88U - Your Ultimate Guide to a Cutting-Edge Wi-Fi 6 Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expertly-curated-phone-purchase-destinations-revealed/"><u>Expertly Curated Phone Purchase Destinations Revealed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-ultimate-earbuds-of-2024/"><u>Exploring the Ultimate Earbuds of 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exploring-video-file-limits-in-64128gb-for-2024/"><u>Exploring Video File Limits in 64/128GB for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-the-best-value-petcubes-low-cost-high-definition-cam/"><u>Get the Best Value: Petcube’s Low-Cost High Definition Cam</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/imperator-rome-a-riveting-journey-of-empire-building-and-survival/"><u>Imperator: Rome - A Riveting Journey of Empire Building & Survival</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/quick-guide-installing-and-exploring-ifunnys-meme-app-for-2024/"><u>Quick Guide Installing & Exploring iFunny's Meme App for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/resolving-large-screen-size-on-win11/"><u>Resolving Large Screen Size on Win11</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-pc-problems-during-spellbreak-gameplay/"><u>Troubleshooting PC Problems During Spellbreak Gameplay</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Treasury Stock (500,000 Shares Purchased at an Average Cost of $20 per Share): $(10)"
-date: 2024-08-26T06:43:47.314Z
-updated: 2024-08-27T06:43:47.314Z
+date: 2024-12-09T18:51:36.325Z
+updated: 2024-12-10T18:50:50.821Z
 categories:
   - BestProducts
 description: "This Article Describes Treasury Stock (500,000 Shares Purchased at an Average Cost of $20 per Share): $(10)"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/1c82bb77bafb99b9b6611b5302d1fb010d446c70d
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
 ![Max Oak](https://www.lifewire.com/thmb/CeiJTW7zTopZdtR_zhtXz9_P-Mw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -64,8 +68,9 @@ Lifewire / Gannon Burgett
  While there's no shortage of options on the market, there aren’t many that can keep you going for days. That’s not the case with the MaxOak 50000mAh, an absolutely massive and robust charger that attempts to be the jack of all when it comes to charging gadgets on the go. It’s power comes at the cost of massive size and the charging ports aren’t too fast, but if you need tons of power, this is the battery pack to get.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Bulky for travelers**
 
  First and foremost, this thing is a tank. At 2.77 pounds, it weighs many times more than most smartphones and nearly as much as most compact laptops. It also measures in at 8.1 x 5.3 x 1.3 inches (HWD), making it quite the behemoth to lug around. A small detail regarding the weight of the MaxOak is that it isn't balanced. The side without the ports holds a fair bit more weight than the side with the various ports. It's not a significant detail, but one you might notice with time.
@@ -73,8 +78,9 @@ Lifewire / Gannon Burgett
 ![Max Oak](https://www.lifewire.com/thmb/SHsB9QkFaBbOrU6sw55TzNOqC7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_4Web-5c8ff4adc9e77c0001ff0b36.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
  As for the materials, the metal enclosure and place ends give it a fairly solid feel, but the metal doesn't sit perfectly flush with the plastic ends, at least not in our model. It could be a one-off quality control issue or it might simply be the way in which the charger is constructed, but it's definitely noticeable.
@@ -91,9 +97,6 @@ Lifewire / Gannon Burgett
 
  The point of a charger is to have extra battery power on hand when needed so you don't have to carry around unnecessary cables when traveling. Unfortunately, the MaxOak battery pack doesn't use any kind of USB or standardized port. Rather than charging it with a[USB Type-C](https://www.lifewire.com/usb-c-4149490) or even a micro-USB port, the MaxOak battery pack relies on its own proprietary power supply that's nearly as large as most laptop chargers. Sure, the 50000mAh onboard is likely enough that you could leave both the battery pack charger and your laptop charger behind for most events, but eventually you'll run out of juice and rather than reaching for a cable you would probably already have in your bag, you're stuck bringing along a proprietary charger.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Charging Speed and Battery: Slow and steady wins this race**
 
  The MaxOak 50000mAh manages to charge at a decent rate considering its capacity, but we would’ve liked to see more high-powered ports for speedier charging. We charged and fully drained the MaxOak power bank five times and charging took roughly six to eight hours per recharge with an average of seven hours and fifteen minutes.
@@ -101,8 +104,9 @@ Lifewire / Gannon Burgett
 ![Max Oak](https://www.lifewire.com/thmb/FlP4JZUVLoJ3DjKoSRUIFuf1peY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_6Web-5c8ff3e6c9e77c0001a926ff.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
  One nice bonus is the power bank can be charged while also giving a charge to a laptop or mobile device, adding an extra element of convenience.
@@ -118,6 +122,10 @@ Lifewire / Gannon Burgett
 ## **Price: Right down the middle**
 
  The MaxOak 50000mAh power bank comes in at $135.99 at the time of this review. This is a reasonable price when taking into consideration how much battery capacity you're getting with it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: One in the same**
 
@@ -135,18 +143,12 @@ Lifewire / Gannon Burgett
 
  Overall, the MaxOak 50000mAh is a decent power bank with massive capacity. However, it isn't designed with newer computers and devices in mind. If you have an older laptop on hand that isn't a MacBook (the MaxOak doesn't support any MagSafe connectors) or doesn't use USB Type-C for charging, it'll get the job done. But if your smartphone or laptop is newer and relies on more recent and powerful connections, you're going to want to look elsewhere.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Jackery PowerBar Battery Pack](https://www.lifewire.com/jackery-powerbar-battery-pack-review-4589480)
 * [ChargeTech 27000mAh Battery Pack](https://www.lifewire.com/chargetech-27000mah-battery-pack-review-4589409)
 * [Anker PowerCore+ 26800 Battery Pack Bundle](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  185Wh/50000mAh External Battery Power Bank
@@ -162,14 +164,11 @@ Lifewire / Gannon Burgett
 * Warranty  One year
 * Compatibility  Android, iOS
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -178,4 +177,26 @@ Lifewire / Gannon Burgett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-should-you-monitor-off-facebook-a-guide-for-users/"><u>[New] 2024 Approved Should You Monitor Off-Facebook? A Guide for Users</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-aperture-aces-top-picks-the-most-impressive-6-4k-dslrs/"><u>[New] Aperture Aces' Top Picks The Most Impressive 6 4K DSLRs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722508713203-a-journey-back-in-time-with-nintendos-game-and-watch-the-enduring-appeal-of-super-mario-bros/"><u>A Journey Back in Time with Nintendo's Game & Watch: The Enduring Appeal of Super Mario Bros</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-digicams-2024s-best-finds/"><u>Affordable Digicams: 2024'S Best Finds</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/analyzing-the-design-and-functionality-of-the-sleek-asus-bw-16d1x-u-blu-ray-drive-the-good-the-bad-and-the-quirky/"><u>Analyzing the Design & Functionality of the Sleek Asus BW-16D1X-U Blu-Ray Drive - The Good, the Bad, and the Quirky</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/canons-elph-190-reliable-reasonably-priced/"><u>Canon's ELPH 190: Reliable, Reasonably Priced</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-escort-max-360-radar-detector-and-gps-device-in-depth-review/"><u>Comprehensive Escort Max 360 Radar Detector & GPS Device - In-Depth Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cyberpunk-2077-review-flawed-and-unfinished-masterpiece/"><u>Cyberpunk 2077 Review: Flawed and Unfinished Masterpiece</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-how-the-netgear-nighthawk-rax1n-transforms-your-online-experience-with-record-speeds/"><u>Discover How the Netgear Nighthawk RAX1n Transforms Your Online Experience with Record Speeds</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-best-an-authoritative-review-of-the-samsung-galaxy-s21-ultra/"><u>Discovering the Best - An Authoritative Review of the Samsung Galaxy S21 Ultra</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-capturing-ppt-slides-via-webcam-2023-techniques/"><u>In 2024, Capturing PPT Slides via Webcam 2023 Techniques</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-nokia-c12-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Nokia C12 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Asus ROG Phone 8? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-oneplus-open-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on OnePlus Open FRP Bypass</u></a></li>
+<li><a href="https://win-web3.techidaily.com/reversing-file-loss-with-yl-computing-is-your-data-salvageable-through-recovery-tools-a-guide-by-yl-software-experts/"><u>Reversing File Loss with YL Computing: Is Your Data Salvageable Through Recovery Tools? – A Guide by YL Software Experts</u></a></li>
+<li><a href="https://fox-that.techidaily.com/reviving-sound-on-your-apple-device-tips-to-overcome-audio-problems/"><u>Reviving Sound on Your Apple Device: Tips to Overcome Audio Problems</u></a></li>
+<li><a href="https://games-able.techidaily.com/step-into-the-past-with-classic-pokemon-games/"><u>Step Into The Past with Classic Pokémon Games</u></a></li>
+<li><a href="https://article-posts.techidaily.com/strategies-to-improve-film-quality-post-conversion/"><u>Strategies to Improve Film Quality Post-Conversion</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/vonage-reviewed-still-a-front-runner-in-todays-voip-market/"><u>Vonage Reviewed - Still a Front Runner in Today's VoIP Market?</u></a></li>
+</ul></div>
 

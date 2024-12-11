@@ -1,7 +1,7 @@
 ---
 title: "PS5 Media Management Tutorial: How to Export Screenshots & Videos Successfully"
-date: 2024-08-30T14:06:39.558Z
-updated: 2024-08-31T14:06:39.558Z
+date: 2024-12-09T04:01:09.967Z
+updated: 2024-12-11T06:30:08.267Z
 tags:
   - games
   - tv
@@ -13,6 +13,10 @@ thumbnail: https://thmb.techidaily.com/f69988e77f104bb45c90c9e2b34f1257506e2bba3
 
 ## PS5 Media Management Tutorial: How to Export Screenshots & Videos Successfully
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Share your gaming memories easily using the PS5 Share button & transfer screenshots and videos to your phone or USB drive for sharing or backup.
@@ -20,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/f69988e77f104bb45c90c9e2b34f1257506e2bba3
 * Alternatively, plug a USB drive into your PS5 console and copy screenshots and large videos to it for use on a PC or Mac.
 
  The PS5's Create button makes it easy to capture screenshots of videos while you're playing, but this media doesn't have to live on your console. Here's how to transfer your gaming memories for sharing, backup, or simply to free up space.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Upload PS5 Screenshots and Videos Using the PlayStation App
 
@@ -35,14 +43,12 @@ thumbnail: https://thmb.techidaily.com/f69988e77f104bb45c90c9e2b34f1257506e2bba3
 
  To upload multiple captures at once, select the checkmark icon on the left side of the Media Gallery that says "Select Multiple" and you can pick a series of captures to upload simultaneously. This option works for all methods described in this article, though for private messages, you need to select "Share" rather than the three dots at the bottom.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ![The](https://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/20240215101715.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Copy PS5 Screenshots and Videos to a USB Drive
 
  For easy transfer to a PC or if you'd prefer not to clutter your mobile device with game captures, you can also use an external USB drive. The process to do this is almost the same as uploading them to the PlayStation App, but it first requires an external USB drive, [typically a flash drive](https://fox-glue.techidaily.com/2024-approved-the-roadmap-how-to-make-your-covers-shine/).
@@ -56,22 +62,21 @@ thumbnail: https://thmb.techidaily.com/f69988e77f104bb45c90c9e2b34f1257506e2bba3
 ![The pop-up screen that appears after selecting the three dots in the Media Gallery, with the option to copy to a USB drive highlighted.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/dragon-s-dogma_-dark-arisen_20240215163412.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  With the transfer complete you can insert the drive into your PC or Mac to access your media. To do this, open File Explorer (Windows) or Finder (Mac) and navigate to the USB device's storage.
 
 ![The section titled "This PC" in the File Explorer that shows all connected storage devices and drives.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/screenshot-2024-02-15-160607.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  You should see a folder called "PS5." Open it and then open "CREATE" > "Screenshots" and then find the folder named after the game from which you took your desired captures. This is where you will find your saved screenshots or videos and can then copy or save them to your PC directly or share them as you wish.
 
 ![The inside of the "Create" folder where the folder containing all your captures resides.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/screenshot-2024-02-15-161047.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ---
 
  Gone are the days of taking blurry photos of your television with your phone and awkwardly sharing screenshots of your games on social media. Now, with just a few button presses on your PS5, you can share your gameplay experiences with the rest of the world. Most importantly, though, take as many as you can. [Games are bigger than ever](https://extra-guidance.techidaily.com/new-shade-savvy-mastering-the-art-of-color-adjustment-with-ease/) and many are downright gorgeous with the level the graphical fidelity on display.
@@ -84,8 +89,6 @@ thumbnail: https://thmb.techidaily.com/f69988e77f104bb45c90c9e2b34f1257506e2bba3
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -93,4 +96,26 @@ thumbnail: https://thmb.techidaily.com/f69988e77f104bb45c90c9e2b34f1257506e2bba3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-video-download-signed-talent-contracts/"><u>[New] 2024 Approved Video Download - Signed Talent Contracts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/oes-immediate-subscribing-affect-content-recommendations-for-2024/"><u>[New] Does Immediate Subscribing Affect Content Recommendations for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-investment-alert-avoid-the-trap-of-artificial-youtube-engagement/"><u>[New] In 2024, Investment Alert Avoid the Trap of Artificial YouTube Engagement</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-instantaneously-showcasing-archived-video-sessions-via-facebook-live-for-2024/"><u>[New] Instantaneously Showcasing Archived Video Sessions via Facebook Live for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-streaming-quality-comparison-obs-or-fraps/"><u>[Updated] Streaming Quality Comparison OBS or Fraps?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-global-leaderboard-top-subscribers-by-youtube-star/"><u>2024 Approved Global Leaderboard Top Subscribers by YouTube Star</u></a></li>
+<li><a href="https://article-tips.techidaily.com/advanced-mac-skills-perfecting-srt-file-management-for-2024/"><u>Advanced Mac Skills Perfecting SRT File Management for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-handheld-input-devices-for-enhanced-ipad-navigation/"><u>Best Handheld Input Devices for Enhanced iPad Navigation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/critical-analysis-of-the-google-pixel-3-experiencing-true-android-potential/"><u>Critical Analysis of the Google Pixel 3: Experiencing True Android Potential</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/essential-tips-for-choosing-the-ideal-dash-video-recorder/"><u>Essential Tips for Choosing the Ideal Dash Video Recorder</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/flash-off-top-100-instant-cams-cheap-and-quick/"><u>Flash Off - Top $100 Instant Cams, Cheap and Quick</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-zte-blade-a73-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on ZTE Blade A73 5G Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-mastering-instagram-reels-a-ninjas-guide/"><u>In 2024, Mastering Instagram Reels A Ninja's Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/jumpstart-your-pc-windows-7-to-10-upgrade-tips/"><u>Jumpstart Your PC: Windows 7 to 10 Upgrade Tips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/next-level-gaming-with-4k-clarity-a-review-of-samsungs-qled-q60r-tv/"><u>Next-Level Gaming with 4K Clarity: A Review of Samsung's QLED Q60R TV</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/revitalize-your-lenovo-computer-seamless-power-drivers-reinstallation-tutorial/"><u>Revitalize Your Lenovo Computer: Seamless Power Drivers Reinstallation Tutorial</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/serving-up-strategies-and-fun-our-critique-on-overcooked-2-madness/"><u>Serving Up Strategies and Fun - Our Critique on Overcooked! 2 Madness</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-gaming-iphones-which-one-should-you-choose/"><u>Top Gaming iPhones: Which One Should You Choose?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-choosing-the-perfect-cable-modem/"><u>Ultimate Guide: Choosing the Perfect Cable Modem</u></a></li>
+</ul></div>
 

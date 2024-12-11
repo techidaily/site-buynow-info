@@ -1,7 +1,7 @@
 ---
 title: Discreetly Excluding Game Library From Shared Access on Steam for Families
-date: 2024-09-04T01:39:25.055Z
-updated: 2024-09-05T01:39:25.055Z
+date: 2024-12-03T18:55:37.745Z
+updated: 2024-12-10T18:31:20.713Z
 tags:
   - games
   - tv
@@ -12,6 +12,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 ---
 
 ## Discreetly Excluding Game Library From Shared Access on Steam for Families
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -37,20 +41,22 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Steam's 'Manage Family' menu](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/screenshot-2024-04-29-at-12-35-51.png) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Invite members from here, you can simply find them on your friends list.
 
 ![Steam Family member invitation button.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/screenshot-2024-04-29-at-12-37-18.png) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  That is, after I show you how to hide your games first.
 
  You can choose to add a member as an ADULT or CHILD member. If you add a child member, then they are subject to Steam parental controls. Under "Manage your Steam Family" you can expand a child member's account and access parental controls. The method I'm showing here hides games from all members, not just child members.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  How to Hide Games From Your Family Sharing Library
 
  To test that this actually works, I set up a dummy Steam account and added it as an adult family member to my primary account. This allowed me to check that games were actually hidden from the family member's account. Interestingly, changes reflect immediately. If I hid a game in my main account, it would disappear from the member's list a second or two later.
@@ -60,27 +66,13 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 ![Steam 'Mark as private' option](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/steam-mark-as-private-option.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Once you've gone through your whole library and made all the games that need it private, your family members won't be able to see them or play them. When you buy games in the future, you're given the option to buy the game publicly, or to immediately mark it as private. In your cart, before checkout, open the dropdown menu labeled "For my account" and change that item to "For my account: private."
 
 ![Steam's option to check out game as private.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/steam-checkout-game-as-private.png) 
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Finding Games to Hide
 
  If you have a large library and need some help finding games to hide, you can use the advanced filtering function in your library. Click the button with three horizontal lines to the right of the search bar in your library.
@@ -88,29 +80,15 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 ![Steam advanced filtering button.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/steam-advanced-filtering-button.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Next, enter words into the "Store Tags" section such as "Violent" or "NSFW" to find the types of games that you may want to hide. Then apply the filter.
 
 ![Steam store tag filter](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/steam-store-tag-filter.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Now you can pick which games that have these tags should be hidden.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Remember to Test Your Settings Before Sharing!
 
  It might be a good idea to set up a dummy Steam account using a second email address and ensure that all the games you've hidden really aren't showing up for family members. You can always kick the dummy account from the family group once you're happy.
@@ -125,8 +103,6 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -134,4 +110,22 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-step-by-step-screen-shot-on-android-devices/"><u>[New] In 2024, Step-by-Step Screen Shot on Android Devices</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-effortless-shuffle-of-your-youtube-playlists/"><u>[Updated] Effortless Shuffle of Your YouTube Playlists</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-7-no-cost-student-apps-ideal-for-new-term-preparation/"><u>Discover 7 No-Cost Student Apps Ideal for New Term Preparation</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-can-we-unlock-our-infinix-note-30-vip-racing-edition-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Infinix Note 30 VIP Racing Edition Phone Screen?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-soundscapes-free-from-restrictions/"><u>In 2024, Soundscapes Free From Restrictions</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/in-2024-visibility-restored-for-youtube-shorts-post-update/"><u>In 2024, Visibility Restored for YouTube Shorts Post-Update</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-spyro-reignited-trilogy-a-tiny-heros-grand-adventure/"><u>In-Depth Analysis of Spyro Reignited Trilogy: A Tiny Hero's Grand Adventure</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/insights-on-the-new-xbox-vr-setup-anticipated-launch-details-and-tech-specifications/"><u>Insights on the New Xbox VR Setup - Anticipated Launch Details & Tech Specifications</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/iseebell-on-a-budget-find-out-why-this-under-50-video-doorbell-rocks/"><u>ISeeBell on a Budget: Find Out Why This Under $50 Video Doorbell Rocks!</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211375855-9798330220953-los-placeres-del-alma/"><u>Los Placeres del Alma | Free Book</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/playstation-showdown-duel-of-titans-ps5-slim-against-full-model/"><u>PlayStation Showdown: Duel of Titans - PS5 Slim Against Full Model</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-michael-kors-access-gen-5e-mkgo-the-intersection-of-sophistication-and-technical-excellence/"><u>Review of Michael Kors' Access Gen 5E MKGO: The Intersection of Sophistication and Technical Excellence</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-perfect-blend-of-cost-and-features-unveiling-the-secrets-of-the-fitbit-versa-lite-tracking-smartwatch/"><u>The Perfect Blend of Cost and Features - Unveiling the Secrets of the Fitbit Versa Lite Tracking Smartwatch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/uncommon-insights-with-the-amazon-halo-a-deep-look-at-a-new-age-health-tracker/"><u>Uncommon Insights with the Amazon Halo – A Deep Look at a New Age Health Tracker</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/z7-camera-analysis-a-nearly-complete-masterpiece-by-nikon/"><u>Z7 Camera Analysis: A Nearly Complete Masterpiece by Nikon</u></a></li>
+</ul></div>
 

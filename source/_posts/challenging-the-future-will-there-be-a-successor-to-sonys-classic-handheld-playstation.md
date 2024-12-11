@@ -1,7 +1,7 @@
 ---
 title: "Challenging the Future: Will There Be a Successor to Sony's Classic Handheld PlayStation?"
-date: 2024-09-04T01:39:20.823Z
-updated: 2024-09-05T01:39:20.823Z
+date: 2024-12-09T02:59:50.983Z
+updated: 2024-12-10T17:02:29.698Z
 tags:
   - games
   - tv
@@ -13,6 +13,10 @@ thumbnail: https://thmb.techidaily.com/ec5c93589cbbf4437a85d01509aad074c0824b7a4
 
 ## Challenging the Future: Will There Be a Successor to Sony's Classic Handheld PlayStation?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * The success of the PlayStation Portal illustrates the potential of remote play functionality in place of dedicated handheld gaming hardware.
@@ -20,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/ec5c93589cbbf4437a85d01509aad074c0824b7a4
 * The quality and convenience of smartphone gaming makes it even less likely that Sony will spend the time and money on a PS Vita follow-up.
 
  Sony's latest attempt at handheld gaming, the PlayStation Portal, falls short of being a "proper" portable console because it cannot run games natively. Considering the success of this device and the growing popularity of remote-play devices, I'm doubtful that we'll see another "proper" handheld PlayStation again.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  The PlayStation Portal Has Widespread Appeal
 
@@ -29,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/ec5c93589cbbf4437a85d01509aad074c0824b7a4
 
 ![Sony PlayStation Portal, Pulse Explore Wireless Earbuds, and Charging Case on a tabletop](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/06/2024-06-29-11-33-26.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Bill Loguidice / How-To Geek
 
  The recent success of the PlayStation Portal now shows that there is a widespread demand for remote-play devices, which console manufacturers can capitalize on again in the future instead of a traditional or [retro-style gaming handheld](https://facebook-clips.techidaily.com/quick-route-to-your-latest-fb-video-viewings-for-2024/).
@@ -36,17 +48,9 @@ Bill Loguidice / How-To Geek
  This could also mean that the PS5 might see future games that are well-suited to mobile gaming but with a level of quality and production closer to a console game, to please the growing remote-play audience. The PS5 is already home to several mobile-friendly games, like _Honkai: Star Rail_ and _Diablo IV_, that are conducive to playing in short bursts while on the go with a device like the Portal.
 
 <!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  There Is a Growing "Handheld at Home" Crowd
 
  Using the PlayStation Portal requires a stable Wi-Fi connection and a [capable Wi-Fi router](https://facebook-video-share.techidaily.com/updated-discovering-the-ultimate-10-free-youtube-artist-collaborators-for-2024/) so you can stream the gameplay of your PS5 system to the device in your hands. This limits the places you can actually use the Portal.
@@ -56,17 +60,9 @@ Bill Loguidice / How-To Geek
  Other devices like the Nintendo Switch and Steam Deck are contributing to the growth of this "handheld at home" trend in which gamers are actively [choosing to use portable devices to enjoy console-quality gaming](https://visual-screen-recording.techidaily.com/new-2024-approved-utilizing-internal-screen-recording-on-huaweis-mate-1020-and-p-models-p20-p10/) even when they aren't leaving the house. There is little demand for dedicated handheld gaming hardware akin to the old PlayStation Vita when remote-play users can just pick up a device like the Portal to continue their PS5 gaming when they step into another room or hop on the treadmill.
 
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Modern Phones Do the Job Just as Well
 
  In a time when most people have the option to pursue high-quality [smartphone gaming](https://win-solutions.techidaily.com/the-ultimate-strategy-to-correct-mw3-dev-error-6068-as-you-head-into-2024/) with their current devices, console manufacturers recognize that releasing a gaming handle that only plays games is redundant.
@@ -75,12 +71,6 @@ Bill Loguidice / How-To Geek
 
 ![A person holding an iPhone 15 Pro, playing video games.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/10/iphone15gaming1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Apple
 
  Whether you [use a remote play phone app](https://audio-editing.techidaily.com/in-2024-import-songs-into-adobe-premiere-cc-for-soundtracking/) or a dedicated remote play device like the Portal, you are likely to get a higher quality gaming experience compared to what a traditional handheld console limited by its own hardware could deliver.
@@ -97,8 +87,6 @@ Apple
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -106,4 +94,26 @@ Apple
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-step-by-step-for-turning-your-vids-into-beats-on-insta/"><u>[New] 2024 Approved The Step-by-Step for Turning Your Vids Into Beats on Insta</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-mastering-video-conferencing-combining-the-power-of-zoom-and-skype/"><u>[New] Mastering Video Conferencing Combining the Power of ZOOM & SKYPE</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-visual-delight-expertly-ranked-top-8k-televisions-reviewed/"><u>[Updated] In 2024, Visual Delight Expertly Ranked Top 8K Televisions Reviewed</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/employing-attention-mechanisms-detecting-fabricated-ai/"><u>Employing Attention Mechanisms: Detecting Fabricated AI</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ss-the-power-of-youtube-videos-to-create-stunning-gifs-online-for-2024/"><u>Harness the Power of Youtube Videos to Create Stunning Gifs Online for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-masterfully-operate-the-blink-outdoor-four-cam-system/"><u>How To Masterfully Operate The Blink Outdoor Four-Cam System</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/improve-phone-connectivity-with-these-high-performing-signal-boosters-2024-edition/"><u>Improve Phone Connectivity with These High-Performing Signal Boosters - 2024 Edition</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-elevate-your-content-game-with-these-5-proven-youtube-marketing-hacks/"><u>In 2024, Elevate Your Content Game with These 5 Proven YouTube Marketing Hacks</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-visuals-gpu-boosting-on-laptops/"><u>Maximizing Visuals: GPU Boosting on Laptops</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-google-nest-hello-cutting-edge-home-automation-with-biometric-access-control-and-theft-prevention/"><u>Review of Google Nest Hello: Cutting-Edge Home Automation with Biometric Access Control and Theft Prevention</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sony-xbr49x900f-49-inch-4k-ultra-hd-smart-led-tv-review-stunning/"><u>Sony XBR49X900F 49-Inch 4K Ultra HD Smart LED TV Review: Stunning</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/step-by-step-walkthrough-of-setting-up-your-arlo-security-network/"><u>Step-by-Step Walkthrough of Setting Up Your Arlo Security Network</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-rotibox-beanie-with-built-in-speakers-a-users-perspective-on-ease-and-sound-excellence/"><u>The Rotibox Beanie with Built-In Speakers - A User's Perspective on Ease and Sound Excellence</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-travelers-guide-to-innovative-device-choices/"><u>The Traveler's Guide to Innovative Device Choices</u></a></li>
+<li><a href="https://blog-min.techidaily.com/the-ultimate-guide-transforming-video-object-files-into-mp4-for-pc-and-mac-users/"><u>The Ultimate Guide: Transforming Video Object Files Into MP4 for PC and Mac Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-ergodrivens-anti-fatigue-topo-mat-for-a-healthier-workspace/"><u>The Ultimate Review of ErgoDriven's Anti-Fatigue Topo Mat for a Healthier Workspace</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-highlight-video-creation-top-picks-for-desktop-and-mobile-devices/"><u>Updated 2024 Approved Highlight Video Creation Top Picks for Desktop and Mobile Devices</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/44k544op44kk44oj44k344on44o85lit44gr6yyy6zplusz44gm44gn44gn44gq44ge44go44gn44gr5b2556ul44gk77yx44gk44gu44os44oz44oi/"><u>スライドショー中に録音ができないときに役立つ７つのヒント</u></a></li>
+</ul></div>
 

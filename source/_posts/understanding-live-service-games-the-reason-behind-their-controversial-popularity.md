@@ -1,7 +1,7 @@
 ---
 title: "Understanding Live Service Games: The Reason Behind Their Controversial Popularity"
-date: 2024-08-30T14:08:37.467Z
-updated: 2024-08-31T14:08:37.467Z
+date: 2024-12-07T00:14:46.877Z
+updated: 2024-12-10T18:57:45.150Z
 tags:
   - games
   - tv
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/cf88e87b734b5b9f59ddbd2f8f99680f9b1ec3ba8
 * [Are Live Service Games in Trouble?](https://some-approaches.techidaily.com/new-top-ranked-5-backdrop-change-apps-for-iphones-x-8-7/)
 * [Some of the Biggest Games in the World Are Live Service Games](https://desktop-recording.techidaily.com/new-2024-approved-behind-the-lens-on-your-macbook-webcam/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Games that are considered "live service" or "Games as a Service" mostly revolve around online multiplayer components and receive often free ongoing updates to add more content or refresh the game.
@@ -29,8 +33,9 @@ thumbnail: https://thmb.techidaily.com/cf88e87b734b5b9f59ddbd2f8f99680f9b1ec3ba8
  From _Fortnite_ to _Suicide Squad_, the number of “live service” games has exploded over the past decade, but what exactly is a “living” game and why do they draw the ire of so many gamers?
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  What Is a Live Service Game?
 
  Also known as “living” games or “Games as a Service,” there are a few ways to define a live service game. These games are typically based upon some form of online multiplayer, built around the idea of constant evolution over time through the release of additional content and updates. Titles are often (but not always) free-to-play.
@@ -47,9 +52,6 @@ thumbnail: https://thmb.techidaily.com/cf88e87b734b5b9f59ddbd2f8f99680f9b1ec3ba8
 
  Some games come close to the live service model without ever being considered “living” in nature. _No Man’s Sky_ is one example where the game has received a huge number of transformative updates, all of which have been free. It’s generally accepted that games like this aren’t “living” (and they’re more often not the exception, rather than the rule).
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  What's Wrong With Live Service Games?
 
  There has been no shortage of live service games over the past decade, and there is growing evidence to suggest that gamers aren’t as receptive as they once were to the model. In many ways, it feels like there are “right” ways and “wrong” ways to approach games as a service.
@@ -71,8 +73,9 @@ thumbnail: https://thmb.techidaily.com/cf88e87b734b5b9f59ddbd2f8f99680f9b1ec3ba8
 _The Crew_ is a dusty old racing game that you might not care for, but the idea that a game that isn’t yet a decade old can be delisted from sale, have its servers switched off, and be completely unplayable is troubling.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Are Live Service Games in Trouble?
 
  The term “live service game” has been known to ruffle feathers and raise eyebrows among the gaming press as more publishers jump on board. In early 2024 this came to something of a head with the release of _Suicide Squad: Kill The Justice League_, published by Warner Brothers and developed by Rocksteady Studios.
@@ -90,8 +93,9 @@ _The Crew_ is a dusty old racing game that you might not care for, but the idea 
  There are so many live service games right now, many of which are probably on your backlog. Established giants like _Fortnite_ and _APEX Legends_ always move forward, and are free to play to get players in the door. It takes something innovative like _[The Finals](https://www.reachthefinals.com)_ with its destructible arenas or _[Foamstars](https://foamstars.square-enix-games.com/en-us/)_ with all the backing of a company like Square Enix to even make a dent, or so it seems.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Some of the Biggest Games in the World Are Live Service Games
 
  Not all live service games are in trouble, and not all live service games have a negative reputation. _Fortnite_ is a good example of a behemoth that seems to go from strength to strength. Continued success in big titles like this seems to concentrate users, many of whom become invested after years of battle passes and unlocks.
@@ -103,8 +107,9 @@ _Fortnite_ is more like a live service platform than just a game. Epic can add e
 ![Helldivers 2 by Arrowhead Game Studios](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/helldivers2.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _Helldivers 2_  
 Arrowhead Game Studios
 
@@ -126,8 +131,6 @@ Arrowhead Game Studios
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -135,4 +138,22 @@ Arrowhead Game Studios
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-lava-blaze-2-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Lava Blaze 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-echo-dot-3rd-gen-review/"><u>Amazon Echo Dot (3Rd Gen) Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-revolution-of-role-playing-with-yakuza-like-a-dragon-your-essential-guide/"><u>Experience the Revolution of Role-Playing with Yakuza: Like A Dragon - Your Essential Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-tecno-spark-go-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-on-iphone-13-pro-max-without-password-by-drfone-ios/"><u>How to Delete iCloud Account On iPhone 13 Pro Max without Password?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-resolve-invalid-update-files-on-w11w10/"><u>How to Resolve Invalid Update Files on W11/W10</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-gionee-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Gionee</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-top-methods-for-android-video-capture/"><u>In 2024, Top Methods for Android Video Capture</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-parentally-managed-networking-devices-2er-rankings-of-2024/"><u>Leading Parentally Managed Networking Devices - 2Er Rankings of 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mobile-chic-audio-experience-by-sennheiser/"><u>Mobile Chic Audio Experience by Sennheiser</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/move-beyond-the-macbook-air-with-this-compact-feature-packed-windows-laptop-top-picks-by-tech-experts/"><u>Move Beyond the MacBook Air with This Compact, Feature-Packed Windows Laptop - Top Picks by Tech Experts</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/quick-save-techniques-for-snapchat-memories/"><u>Quick Save Techniques for Snapchat Memories</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-in-bluetooth-speeds-and-seamless-connectivity-with-the-google-nest-wi-fi-router-reviewed-here/"><u>The Best in Bluetooth Speeds and Seamless Connectivity with the Google Nest Wi-Fi Router Reviewed Here</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-path-to-precise-personas-harnessing-chatgpt-capabilities/"><u>The Path to Precise Personas: Harnessing ChatGPT Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-features-of-sonys-xperia/"><u>Unpacking the Features of Sony's Xperia</u></a></li>
+</ul></div>
 

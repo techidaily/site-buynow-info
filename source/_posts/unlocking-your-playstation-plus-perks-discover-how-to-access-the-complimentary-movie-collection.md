@@ -1,7 +1,7 @@
 ---
 title: "Unlocking Your PlayStation Plus Perks: Discover How to Access the Complimentary Movie Collection!"
-date: 2024-08-30T14:08:43.387Z
-updated: 2024-08-31T14:08:43.387Z
+date: 2024-12-06T22:08:45.923Z
+updated: 2024-12-11T03:47:34.485Z
 tags:
   - games
   - tv
@@ -29,9 +29,6 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
 
  The catch, of course, is that the service exclusively includes films produced or distributed by Sony in some form. This catalog is still sizable and features the likes of _Spider-Man_ and both _Venom_ films, so it's worth a look if you're wondering what to watch tonight.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  How to Find and Install Sony Pictures Core
 
  Accessing the Sony Pictures Core service is simply a matter of installing the service on your console. If you are on the PS5, you can press the R1 button on your controller while on the console's home screen to access the "Media" tab. This will show media apps like Netflix, Hulu and Amazon Prime.
@@ -39,15 +36,17 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
 ![The "Media" tab on the PS5's home screen, where all streaming apps are accessible.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/20240229130831.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  From there, find an icon called "TV & Video." Select this and then navigate to the various logos underneath the banner ads until you find "All Apps."
 
 ![The "TV and Video" section on the PS5's "Media" tab, showing off new movies and TV shows.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/20240229131024.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Scrolling down from here should eventually reveal the Sony Pictures Core App, which you can download for free.
 
 ![The icon for the Sony Pictures Core app on the "TV & Movies" tab on the PS5.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/20240229131158-1.jpg) 
@@ -57,8 +56,9 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
  On a PS4 you can launch the PlayStation Store app and search for "Sony Pictures Core" and then launch the app from the main interface.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  How to Find Free Movies on Sony Pictures Core
 
  In addition to exclusive weekly discounts, subscribers to the Premium tier of PlayStation Plus also have access to a select catalog of films available at no extra cost. In the Sony Pictures Core app, navigate to the sidebar by pressing left on your controller's directional pad until the menu appears. Then, select the tab called "Included With PlayStation Plus" indicated by a checkmark icon.
@@ -66,9 +66,14 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
 ![The PlayStation Plus section of Sony Pictures Core that offers free movies for Premium tier subscribers.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/20240229130349.jpg) 
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Here, you will find a select library of movies of various genres that are available to stream immediately with no purchase required. Titles range from animated video game tie-ins to classic sci-fi and drama films, with over 100 total movies available as of the time of this writing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Purchase or Rent Movies in Core Too
 
@@ -80,9 +85,6 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
 
 ![The main screen on Sony Pictures Core when users select a film, with the options to rent or purchase it.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/20240229124327.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Zachary Cimaglio/How-To Geek
 
 ---
@@ -97,8 +99,6 @@ Zachary Cimaglio/How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -106,4 +106,22 @@ Zachary Cimaglio/How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-hdr-horizon-highlights-selective-online-skies-compilation/"><u>[New] HDR Horizon Highlights Selective Online Skies Compilation</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-elevate-video-content-with-proven-strategies-for-youtube-shorts-growth/"><u>[Updated] Elevate Video Content with Proven Strategies for YouTube Shorts Growth</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/chromecast-or-roku-determining-the-superior-media-streaming-device-for-your-needs/"><u>Chromecast or Roku: Determining the Superior Media Streaming Device for Your Needs</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-can-we-unlock-our-samsung-galaxy-a25-5g-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Samsung Galaxy A25 5G Phone Screen?</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>How to Fix Pokemon Go Route Not Working On Apple iPhone 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-iphone-7-from-backup-when-itunes-backup-is-corrupt-or-not-compatible-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Restore iPhone 7 from Backup when iTunes Backup is Corrupt or not compatible | Stellar</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-apple-watch-series-6-slight-improvements-maintain-market-leadership/"><u>In-Depth Look at Apple Watch Series 6: Slight Improvements Maintain Market Leadership</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/macos-monterey-is-an-update-right-for-me/"><u>MacOS Monterey: Is an Update Right for Me?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/masterful-photo-experience-the-cloud-enabled-nixplay-iris/"><u>Masterful Photo Experience - The Cloud-Enabled Nixplay Iris</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-city-travel-get-acquainted-with-the-newly-launched-cycwagen-cargo-e-bike/"><u>Mastering City Travel: Get Acquainted With The Newly Launched CycWagen Cargo E-Bike</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolving-lost-connection-to-server-issues-a-guide-for-players-of-escape-from-tarkov/"><u>Resolving 'Lost Connection to Server' Issues – A Guide for Players of Escape From Tarkov</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionize-your-fitness-routine-with-cubefits-innovative-terramat-platform/"><u>Revolutionize Your Fitness Routine with CubeFit's Innovative TerraMat Platform.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-watch-active2-review-advanced-controls-and-improved-functionality-compared-to-its-predecessor/"><u>Samsung Galaxy Watch Active2 Review - Advanced Controls & Improved Functionality Compared to Its Predecessor</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/side-by-side-showdown-evaluating-the-differences-between-apple-watch-series-9-and-fitbit-charge-6/"><u>Side by Side Showdown: Evaluating the Differences Between Apple Watch Series 9 and Fitbit Charge 6</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/successful-direct3d-deployment/"><u>Successful Direct3D Deployment</u></a></li>
+</ul></div>
 

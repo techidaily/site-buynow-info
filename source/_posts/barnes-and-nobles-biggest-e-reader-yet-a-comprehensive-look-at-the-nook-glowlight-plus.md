@@ -1,7 +1,7 @@
 ---
 title: "Barnes & Noble's Biggest E-Reader Yet: A Comprehensive Look at the Nook GlowLight Plus"
-date: 2024-12-04T05:16:34.061Z
-updated: 2024-12-04T16:42:54.361Z
+date: 2024-12-04T02:21:15.398Z
+updated: 2024-12-11T08:19:07.285Z
 categories:
   - BestProducts
 description: "This Article Describes Barnes & Noble's Biggest E-Reader Yet: A Comprehensive Look at the Nook GlowLight Plus"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/52f669a15e335bb29d06275250544e9470586ee07
 ## Razer Book 13
 
 ![Razer Book 13](https://www.lifewire.com/thmb/VaOshLbjt_41gksIyYfg24DF6KM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_HeroSquare-80401fcfbef94a1b8444cd0832388aac.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -52,10 +48,6 @@ Lifewire / Andy Zahn
 
 ![Razer Book 13](https://www.lifewire.com/thmb/0i6VvZqT39MNfVUbDSY7z3l8-Tw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_HeroSquare-80401fcfbef94a1b8444cd0832388aac.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Andy Zahn
 
 [View On Amazon](https://www.amazon.com/dp/B08LP734G3/?tag=lifewire-onsite-prod-20&ascsubtag=5176895%7Cnf0e7737a413045878ab8a2384bc1f06617%7CB08LP734G3) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6442337.p) [View On Adorama.com](https://www.adorama.com/rz0903571em2.html)
@@ -81,6 +73,10 @@ Lifewire / Andy Zahn
  _Razer provided us with a review unit for one of our writers to test. Read on for their full take._
 
  An[ultrabook](https://www.lifewire.com/best-laptops-to-buy-4043650) is typically a thing of compromises, and if you want a laptop that’s thin and light, power is often sacrificed. However, the Razer Book 13 challenges that stereotype and offers a sleek and attractive alternative to other high-end[ultra-portables](https://www.lifewire.com/best-lightweight-laptops-to-buy-4065134) . I tested it for 40 hours to find if it can live up both to its stunning ultrabook looks and Razer’s prowess in building high-powered gaming laptops.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Design: Beauty in minimalism
 
@@ -109,14 +105,10 @@ Lifewire / Andy Zahn
 ![Razer Book 13](https://www.lifewire.com/thmb/C308jEtLYxnwMp68uF5Sd-2hjyA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_02-4da7b450ac1c4b879f1b0bebfa9815b5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Performance: Lean and mean
 
@@ -148,10 +140,14 @@ Lifewire / Andy Zahn
 
 ![Razer Book 13](https://www.lifewire.com/thmb/6yYQ1e8vR0Ldvs2GP61CrvFy3zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_05-1c8a8e1bdd78413fb72cc6307a07ea40.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Audio: Big sound for a small laptop
@@ -164,13 +160,13 @@ Lifewire / Andy Zahn
 
  It’s particularly good in the mids and highs, but as you’d expect, loses something in the bass range. However, it’s more than adequate for listening to music, gaming, or watching movies.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Camera: Competent webcam
 
  The webcam on the Book 13 is about average for a laptop. It captures 720p video and is perfectly acceptable, though not exceptional in any way. Video quality looks decent, even in relatively challenging situations.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Price: The cost of quality
 
@@ -181,7 +177,7 @@ Lifewire / Andy Zahn
  This is a premium, ultra-portable device designed more for professional work, and its ability to game is basically a nice bonus. Considering the competition from Dell and Apple, it’s not unreasonably priced.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Razer Book 13 vs. Dell XPS 13 7390 2-in-1
@@ -195,6 +191,10 @@ Lifewire / Andy Zahn
  **A laptop with great looks, compact design, and remarkable power.**
 
  There’s a lot to love about the Razer Book 13, and not a lot of negative things to say about it. It’s not a graphical powerhouse, but the fact that it’s able to game at all is remarkable. Between its solid design, attractive aesthetics, and nice little touches that tie the whole package together, this is one awesome little ultrabook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -234,24 +234,22 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-soaring-with-mi-drone-an-in-depth-4k-study/"><u>[New] 2024 Approved Soaring with MI Drone - An In-Depth 4K Study</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-ultimate-way-to-update-old-photos-and-videos-with-ig-filters/"><u>[New] The Ultimate Way to Update Old Photos and Videos with IG Filters</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazon-echo-dot-vs-apple-homepod-mini-which-one-wins/"><u>Amazon Echo Dot vs Apple HomePod Mini: Which One Wins?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/decoding-the-top-rival-to-sharex/"><u>Decoding the Top Rival to ShareX</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-opinion-on-tp-link-re505x-range-extender-effectiveness/"><u>Expert Opinion on TP-Link RE505X Range Extender Effectiveness</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-pros-and-cons-of-hp-stream-14-an-economical-windows-laptop-reviewed/"><u>Exploring the Pros & Cons of HP Stream 14 - An Economical Windows Laptop Reviewed</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-realme-12-pro-5g-by-drfone-android/"><u>How to Bypass FRP on Realme 12 Pro 5G?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oneplus-open-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from OnePlus Open to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-hp-omen-obelisk-superior-performance-meets-affordability/"><u>In-Depth Analysis of the HP OMEN Obelisk: Superior Performance Meets Affordability</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/inside-out-how-to-react-on-twitter-vids/"><u>Inside Out How to React on Twitter Vids</u></a></li>
-<li><a href="https://program-issues.techidaily.com/national-pesticide-information-center-2016-glyphosate-retrieved-from-httpsnpicorsteduhazardspestfactsgpshtml/"><u>National Pesticide Information Center (2016). Glyphosate. Retrieved From https://npic.orst.edu/hazards/pestfacts/gps.html</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/negotiation-tactics/"><u>Negotiation Tactics</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/patek-fly-12s-tripod-review-a-shape-shifter-revealed/"><u>Patek Fly 12'S Tripod Review - A Shape-Shifter Revealed</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/pc-gaming-silence-broken-fix-the-soundless-mystery-in-borderlands-3/"><u>PC Gaming Silence Broken: Fix the Soundless Mystery in Borderlands 3</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-mohu-blade-tv-antenna-reviewing-its-innovative-appearance-and-strong-indoor-signal-capture/"><u>The Mohu Blade TV Antenna: Reviewing Its Innovative Appearance & Strong Indoor Signal Capture</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-insights-from-experts-on-the-fitbit-charge-6-a-thorough-review/"><u>Top Insights From Experts on the Fitbit Charge 6: A Thorough Review</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/shing-creativity-how-to-make-dynamic-gifs-with-youtube-tracks-pcmobile/"><u>Unleashing Creativity How to Make Dynamic GIFs with YouTube Tracks (PC/Mobile)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-a-modern-twist-in-the-echo-dot-gen-4-product-review-and-analysis/"><u>Unveiling a Modern Twist in the Echo Dot (Gen 4): Product Review and Analysis</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-improvements-an-expert-review-of-apples-most-economical-tablet-yet/"><u>Unveiling the Improvements: An Expert Review of Apple's Most Economical Tablet Yet</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-capturing-every-detail-tactics-for-streamlined-meet-recordings/"><u>[New] In 2024, Capturing Every Detail Tactics for Streamlined Meet Recordings</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-proven-practice-for-preserving-playthroughs-tips-and-tricks-for-recording-roblox-gameplay-on-a-mac/"><u>[Updated] In 2024, Proven Practice for Preserving Playthroughs Tips & Tricks for Recording Roblox Gameplay on a Mac</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-realme-11-pro-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Realme 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/digital-masterpiece-brookstone-framing-reviewed/"><u>Digital Masterpiece: Brookstone Framing Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elite-ipad-faceoff-insightful-benchmarks-and-comparison-breakdown/"><u>Elite iPad Faceoff: Insightful Benchmarks and Comparison Breakdown</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exclusive-review-of-the-best-philips-somneo-alarm-clock-on-the-market/"><u>Exclusive Review of the Best Philips Somneo Alarm Clock on the Market!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-garmin-venu-smartwatch-tracking-health-and-fitness-around-the-clock/"><u>Expert Insights on the Garmin Venu Smartwatch: Tracking Health and Fitness Around the Clock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-linksys-velops-features-the-pinnacle-of-mesh-network-technology/"><u>Exploring Linksys Velop's Features: The Pinnacle of Mesh Network Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-monster-hunter-world-strategies-for-defeating-formidable-creatures/"><u>Exploring Monster Hunter: World - Strategies for Defeating Formidable Creatures</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/fixing-the-sound-how-to-overcome-latency-when-using-chromecast-audio/"><u>Fixing the Sound: How to Overcome Latency When Using Chromecast Audio</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-insight-into-amazfit-helio-ring-how-much-to-spend-release-timing-and-full-tech-specs-examined/"><u>Get Insight Into Amazfit Helio Ring – How Much to Spend? Release Timing & Full Tech Specs Examined</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-transforming-spoken-words-into-written-text-using-in-built-tools-of-office-suite-ms-word/"><u>In 2024, Transforming Spoken Words Into Written Text Using In-Built Tools of Office Suite - MS Word</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-corsair-one-pro-top-performer-in-the-creators-workstation-arena/"><u>In-Depth Analysis of the Corsair One Pro: Top Performer in the Creator's Workstation Arena</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nixplays-innovation-mastering-digital-frames-and-hd-photos/"><u>Nixplay's Innovation: Mastering Digital Frames and HD Photos</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/schnelle-und-einfache-methoden-update-dateien-aus-windows-11-entfernen/"><u>Schnelle Und Einfache Methoden: Update-Dateien Aus Windows 11 Entfernen</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-drm-removal-from-ebooks-starting-on-page-1/"><u>Step-by-Step Guide: DRM Removal From eBooks - Starting on Page 1</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/web-bmp-jpg-movavi/"><u>우아한 Web용 BMP 파일을 JPG로 영구적으로 자유성 전환 - Movavi</u></a></li>
 </ul></div>
 

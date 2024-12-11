@@ -1,7 +1,7 @@
 ---
 title: "Enjoy Retro Gaming on iOS: Free Ways to Play Classics Without Jailbreaking"
-date: 2024-09-04T01:38:30.435Z
-updated: 2024-09-05T01:38:30.435Z
+date: 2024-12-07T23:06:23.680Z
+updated: 2024-12-10T18:53:33.866Z
 tags:
   - games
   - tv
@@ -29,24 +29,12 @@ thumbnail: https://thmb.techidaily.com/d9a0fed70b3544c875727acbd189babb9991061b2
 
  The days of jailbreaking your iPhone to play emulated games are over. Here’s how easy it is to play retro games on iOS and iPadOS, for free.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030381/7443" target="_top" id="2030381">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030381" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030381/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Emulators Are Now (Officially) Available for iPhone
 
  In April 2024 Apple sent an email to developers informing them of several changes to what is and isn’t permissible on the App Store. This included allowing “retro game console emulator apps” for the first time. Before the change, installing emulators required a jailbreak or building and [sideloading the app](https://tech-haven.techidaily.com/navigating-nuance-the-human-advantage-over-bots/) yourself.
 
 ![Original Game Boy cartridges.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/games_i_own.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Tim Brookes / How-To Geek
 
  Though emulators are legal, the games they run are a point of contention. It is [illegal to download ROMs for games that you do not own](https://facebook-videos.techidaily.com/updated-video-revenue-generation-on-facebook-tactics-for-financial-growth-for-2024/). Downloading or ripping ROMs for titles that you do own is a grey area. You are responsible for following the laws in your part of the world.
@@ -68,11 +56,9 @@ Tim Brookes / How-To Geek
  You can [download Delta from the App Store](https://apps.apple.com/us/app/delta-game-emulator/id1048524688) for iPhone, though it also works on iPad and macOS. As per Apple’s guidelines, the emulator doesn’t come with anything in playable form. You’ll need to supply your own ROMs, which you can transfer using a variety of methods.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ###  Transfer Games via Cloud Storage
 
  You can transfer ROMs easily using a cloud storage platform of your choice. First, upload your ROMs in their native (unzipped) format, making a note of the location. Tap on the plus “+” icon in the top-right corner of the Delta app and select “Files” from the pop-up menu.
@@ -81,18 +67,16 @@ Tim Brookes / How-To Geek
 
  You can also open the relevant app on your iPhone (you’ll need to do this for Google Drive and cloud storage providers that don’t integrate with Files). You should be able to tap on a ROM file to automatically have it open in Delta. If you have more than one app that can handle that file type, you’ll be asked which app you want to use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ###  Transfer Games via AirDrop
 
  AirDrop works in much the same way. Simply find the native ROM file on the device you want to AirDrop from (like a Mac) and send it to your target device. The file will be saved in your device’s Downloads folder. Use Files to find Downloads, tap on the ROM and it will open in Delta (or prompt you to select an app, after which you can choose Delta).
 
  The game will now be added to Delta and you can delete the file from your Downloads folder.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ###  Transfer Games via USB
 
  Alternatively, you can plug your iPhone into your Mac or Windows PC and transfer games locally over a USB connection. On a Mac, you will use Finder, while Windows users will need to download and install iTunes.
@@ -102,11 +86,9 @@ Tim Brookes / How-To Geek
  Find the Delta app and drag and drop your ROM files over. They should be copied to the root folder. Now open Delta and tap on the plus “+” icon in the top-right corner of the screen. Select “iTunes” and then tap “Import” when prompted and Delta will ingest the ROMs into its database.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030373/7443" target="_top" id="2030373">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030373" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030373/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Play With Touch Controls or a Controller
 
  With your games transferred, you can start playing by tapping a title. Swipe left and right to change platforms and find other ROMs. Delta will default to touch controls, which places a virtual controller on the screen. This works about as well as you’d expect. It’s fine for some games, passable in others, and not so great when precise input is required.
@@ -114,6 +96,10 @@ Tim Brookes / How-To Geek
  For a better experience, we recommend connecting a controller. [iOS supports a huge number of Bluetooth game controllers](https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oppo-a79-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/), from Xbox One and Xbox Series (Core) controllers to the DualShock 4 (PS4) and DualSense (PS5). There are plenty of others to use from brands like 8bitdo to SteelSeries, just look for the “Made for iPhone” branding.
 
 ![8BitDo SN30 closeup](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/pxl_20240304_204309207-1.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Kris Henges / How-To Geek
 
@@ -123,12 +109,6 @@ Kris Henges / How-To Geek
 
  For best results, a controller clip will allow you to mount your iPhone on top of your controller for a comfortable portable experience. You can also purchase controllers like the [Backbone](https://playbackbone.com) or [Razer Kishi](https://razer.a9yw.net/c/156932/642901/10229?subId1=UUhtgUeUpU2002864&subId2=ehtg&u=https%3A%2F%2Fwww.razer.com%2Fmobile-controllers%2Frazer-kishi%2F) which turns your iPhone into something that resembles a Nintendo Switch, providing the most comfortable playing experience.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Make Use of Delta's Full Feature Set
 
  Delta is packed with extra features, many of which you don’t need to activate. For example, artwork for any games you add should be automatically downloaded. You can always tap and hold a game and then choose “Change Artwork” to nominate your own.
@@ -136,6 +116,10 @@ Kris Henges / How-To Geek
  While in a game, the “Menu” button provides access to some more advanced features, like save states. A save state is a common emulator feature that allows you to save and load the game anywhere, and resume at any point. This is especially useful on an iPhone where you may need to suddenly stop to take a call. Tap “Save State” then use the “plus” + button to add one.
 
 ![The Delta emulator pause menu with save, load, and other options.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/pause_menu.PNG) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The “Menu” button also hides a few other features, like a “Fast Forward” option for skipping ahead, a “Hold Buttons” option for automating certain operations, and the “Cheat Codes” section which allows you to use Game Genie or GameShark cheat codes in your games.
 
@@ -145,15 +129,13 @@ Kris Henges / How-To Geek
 
 ![Assining multiple controllers in Delta for iPhone.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/controller_assign.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  You can also set up a Delta Sync under “Settings” which not only syncs your game library but all of your game saves, save states, controller skins, cheats, and controller mappings. Toggle “Delta Sync” on then use the Dropbox or Google Drive buttons to link your cloud storage account.
 
  Lastly, you can customize your Delta home screen to either show what you’ve recently been playing or a selection of your favorite games. This can be particularly handy when your collection grows to an unwieldy size. Head to “Settings” and tap “Home Screen Shortcuts” to get started.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  More Emulators Are Coming
 
@@ -167,8 +149,6 @@ Kris Henges / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -176,4 +156,26 @@ Kris Henges / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-cutting-edge-recording-for-a-greener-planet/"><u>[New] Cutting Edge Recording for a Greener Planet</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-how-to-schedule-meetings-on-zoom-for-2024/"><u>[New] How to Schedule Meetings on Zoom for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-premium-ways-to-broadcast-and-record-athletic-competitions-live/"><u>[Updated] 2024 Approved Premium Ways to Broadcast & Record Athletic Competitions Live</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-leading-rogue-adventures-10-game-compilation/"><u>[Updated] Leading Rogue Adventures #10 Game Compilation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-sportscasting-your-pathway-to-highlight-videos/"><u>[Updated] Sportscasting Your Pathway to Highlight Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boost-your-outdoor-internet-with-netgear-orbi-rb50y-analysis/"><u>Boost Your Outdoor Internet with Netgear Orbi RB50Y Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-halo-bolt-portable-charger-and-jump-starter-unleashing-ultimate-convenience/"><u>Comprehensive Analysis of the Halo Bolt Portable Charger & Jump Starter: Unleashing Ultimate Convenience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-how-the-latest-iphone-12-outshines-its-predecessors/"><u>Comprehensive Evaluation: How the Latest iPhone 12 Outshines Its Predecessors</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/how-to-efficiently-command-your-iphone-through-windows-and-mac-computers/"><u>How to Efficiently Command Your iPhone Through Windows and Mac Computers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-ultimate-list-top-10-high-res-4k-cameras-in-smartphones/"><u>In 2024, Ultimate List Top 10 High-Res 4K Cameras in Smartphones</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/in-depth-analysis-how-to-garner-windows-11s-sid-data/"><u>In-Depth Analysis: How to Garner Windows 11'S SID Data</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/minecraft-campfire-tales-skin-pack-review/"><u>Minecraft: Campfire Tales Skin Pack Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/momentmaster-framexd-review-visuals-excellent-expensive-costs/"><u>MomentMaster FrameXD Review: Visuals Excellent, Expensive Costs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/premier-home-cinema-pc-selections-to-upgrade-your-viewing-experience-in-nstagram-2024/"><u>Premier Home Cinema PC Selections to Upgrade Your Viewing Experience in Nstagram 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/resolving-disappearing-windows-during-bootup/"><u>Resolving Disappearing Windows During Bootup</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-review-of-microsoft-surface-laptop-4-a-peak-performance-machine/"><u>The Definitive Review of Microsoft Surface Laptop 4: A Peak Performance Machine</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-prime-day-bargains-unbeatable-acer-offers/"><u>Top Prime Day Bargains: Unbeatable Acer Offers</u></a></li>
+<li><a href="https://win-premium.techidaily.com/troubleshooting-graphic-card-driver-errors-effectively-a-comprehensive-guide-by-yl-software/"><u>Troubleshooting Graphic Card Driver Errors Effectively: A Comprehensive Guide by YL Software</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-choices-navigating-the-top-consoles-dominating-2024/"><u>Ultimate Choices: Navigating the Top Consoles Dominating 2024</u></a></li>
+</ul></div>
 

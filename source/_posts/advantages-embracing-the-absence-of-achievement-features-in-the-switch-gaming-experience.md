@@ -1,7 +1,7 @@
 ---
 title: "Advantages: Embracing the Absence of Achievement Features in The Switch Gaming Experience"
-date: 2024-08-30T14:07:53.591Z
-updated: 2024-08-31T14:07:53.591Z
+date: 2024-12-07T22:07:56.353Z
+updated: 2024-12-10T20:53:09.165Z
 tags:
   - games
   - tv
@@ -13,6 +13,10 @@ thumbnail: https://thmb.techidaily.com/4e77949115cfac19c020244425b911f0553ff80a1
 
 ## Advantages: Embracing the Absence of Achievement Features in The Switch Gaming Experience
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Achievements are a "meta" aspect of gaming and can be disruptive.
@@ -21,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/4e77949115cfac19c020244425b911f0553ff80a1
 
  Nintendo is the only console maker of the big three without an integrated achievement system for its consoles. Achievements are immensely popular, and many people want them on the Switch, but I think a lack of achievements is an overlooked unique selling point for Nintendo.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  No Achievements Means Pure Gaming On Switch
 
  Achievements are a "meta" aspect of video games. They aren't actually part of the game itself, but more like commentary on what you did. Commentary that you can show your friends—if you're into that sort of thing. Some people love it when a little achievement pops up during a game to let them know they've completed the requirements for some or other task, but for me, they're an annoying distraction.
@@ -28,9 +36,9 @@ thumbnail: https://thmb.techidaily.com/4e77949115cfac19c020244425b911f0553ff80a1
  Now, the first thing everyone says to this is "you can just [disable the notifications](https://extra-skills.techidaily.com/2024-approved-mastering-high-dynamic-range-with-image-curving/)", but the way that Xbox and PlayStation achievements are designed means they are always in sight at some point. They clutter up the screen when you're browsing your games, litter your profile page, and try to get your eyes on them wherever possible. If Nintendo implemented a truly optional achievement system, I'd be less fussed about it, but their competition only offers half-measures, and that's not good enough for me. My Switch is currently the only place where I can play video games and only have to think about the game itself.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Achievements Can Make Gaming Worse
 
  Achievements may not directly be part of a game, but they can have a negative impact on the gaming experience in a number of ways. If you're the sort of person who's a little compulsive about completing lists, for example, then you may end up grinding away at achievements long after the game has stopped being fun.
@@ -38,23 +46,21 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
  Likewise, game developers who design their games with achievements in mind have a [perverse incentive](https://en.wikipedia.org/wiki/Perverse%5Fincentive) to use achievements to drive engagement, or stuff the game with filler to push up play time numbers, or even maximize the chances that players will use [microtransactions](https://facebook-video-share.techidaily.com/new-in-2024-essential-list-7-cost-free-video-tags-extractors-on-youtube/). Since achievements can be used to influence player behavior, it's possible to use them in ways that aren't great for players in terms of enjoyment.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Individual Switch Games Have Their Own Achievement Systems
 
 ![The box art for Fire Emblem Engage](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/01/b5827e3b.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _[Intelligent Systems](https://www.amazon.com/Fire-EmblemTM-Engage-Nintendo-Switch/dp/B0BF1W7K23/ref=sr%5F1%5F1%5Fsspa?crid=14DNO0YJ12XXC&keywords=fire+emblem+engage&qid=1674073683&sprefix=fire+emblem+engage%2Caps%2C522&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUFaM1cxNDBNMjBTSDcmZW5jcnlwdGVkSWQ9QTA2MzM3NjkxQjRIWFVaRUxNVU1LJmVuY3J5cHRlZEFkSWQ9QTA4MDc2NjYxWFU2Q0FCRkRHVDdLJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==)_
 
  In light of the lack of achievements on the Switch, some developers have simply opted to build their own achievements into their games. For example, in Fire Emblem Engage there's an achievement list within the game to keep track of your progress. Even better, you get in-game currency when you unlock an achievement, so they are more than just window dressing. This isn't rare either, as this [list of Switch games with in-game achievements](https://www.reddit.com/r/NintendoSwitch/comments/xl00ju/list%5Fof%5Fswitch%5Fgames%5Fwith%5Fingame%5Fachievements%5Fin/) from Reddit shows.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  The Switch 2 Simply Doesn’t Need Them to Succeed
 
  The Nintendo Switch is on its way to being either the best-selling or second best-selling console of all time. It's one of the greatest console hardware success stories in history, and it's sold an eye-watering amount of software. By September 2023, just over [1.1\. _billion_ gaming software units](https://www.statista.com/statistics/1391535/nintendo-switch-software-sales/) had been sold on the platform. The Switch didn't need achievements or the best graphics to stand at the top of the hill, and neither will the [Switch 2](https://video-screen-grab.techidaily.com/in-2024-leveraging-obs-establishing-an-efficient-countdown-clock/)—or whatever their next console is called.
@@ -69,8 +75,6 @@ _[Intelligent Systems](https://www.amazon.com/Fire-EmblemTM-Engage-Nintendo-Swit
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -78,4 +82,22 @@ _[Intelligent Systems](https://www.amazon.com/Fire-EmblemTM-Engage-Nintendo-Swit
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/he-ultimate-guide-to-cost-effective-video-cameras-for-2024/"><u>[New] The Ultimate Guide to Cost-Effective Video Cameras for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitter-archive-mastery-tips-and-tricks-for-2024/"><u>[New] Twitter Archive Mastery Tips & Tricks for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-comfort-and-support-with-the-x-chair-x4-executive-chair-breakdown/"><u>Decoding Comfort and Support with the X-Chair X4 Executive Chair Breakdown</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-how-to-bypass-nokia-c02-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Nokia C02 FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/echo-dot-4th-gen-review-a-totally-new-look/"><u>Echo Dot (4Th Gen) Review: A Totally New Look</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722974616499-effortless-installation-secure-your-ft232r-usb-uart-drivers-today/"><u>Effortless Installation: Secure Your FT232R USB UART Drivers Today!</u></a></li>
+<li><a href="https://windows11.techidaily.com/enhancing-visibility-notifications-for-win11-webcam-use/"><u>Enhancing Visibility: Notifications for Win11 WebCam Use</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-mobile-photos-with-best-iphone-cameras-x-7plus/"><u>In 2024, Mastering Mobile Photos with Best iPhone Cameras (X, 7+)</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-perfect-partnership-a-guide-to-linking-insta-with-tiktok/"><u>In 2024, Perfect Partnership A Guide to Linking Insta with TikTok</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ravpower-24w-usb-car-charger-review-high-power-output-low-quality-construction/"><u>RAVPower 24W USB Car Charger Review: High Power Output, Low-Quality Construction</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/sparkle-with-screenshots-vlogging-for-value-creation-for-2024/"><u>Sparkle with Screenshots Vlogging for Value Creation for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-breakdown-of-the-asus-rog-gt-ac5300-tailored-to-meet-gamers-and-tech-buffs-needs/"><u>The Ultimate Breakdown of the Asus ROG GT-AC5300: Tailored to Meet Gamers and Tech Buffs Needs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-samsung-cf591-gaming-display-reviews-and-insights/"><u>The Ultimate Guide to the Samsung CF591 Gaming Display – Reviews and Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-asus-rog-rapture-gt-ax11000-analysis-highlighting-superior-gameplay-speed-and-advanced-features/"><u>Top Asus ROG Rapture GT-AX11000 Analysis: Highlighting Superior Gameplay Speed & Advanced Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-xbox-one-elite-series-2-gaming-controller-evaluation-why-its-a-must-have/"><u>Top Xbox One Elite Series 2 Gaming Controller Evaluation - Why It's a Must-Have!</u></a></li>
+</ul></div>
 

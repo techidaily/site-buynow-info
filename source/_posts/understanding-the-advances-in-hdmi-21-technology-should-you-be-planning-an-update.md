@@ -1,7 +1,7 @@
 ---
 title: Understanding the Advances in HDMI 2.1 Technology - Should You Be Planning an Update?
-date: 2024-08-30T14:06:54.991Z
-updated: 2024-08-31T14:06:54.991Z
+date: 2024-12-03T19:22:38.220Z
+updated: 2024-12-11T09:03:06.442Z
 tags:
   - games
   - tv
@@ -41,9 +41,6 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![1080p vs. 4K vs. 8K infographic.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/1080vs4kvs8k.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 HDMI Licensing Administrator
 
  Some monitors and TVs that support HDMI 2.1 use ports that only reach around 40Gbps. This is enough to handle a 4K signal at 120 frames per second in 10-bit color with HDR support. It's enough to take full advantage of the 10-bit panels on consumer-grade TVs.
@@ -54,6 +51,10 @@ HDMI Licensing Administrator
 
 ![Sony PlayStation 5 DualSense controller on top of a console.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/ps5_valnet_reviews.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Kris Henges / How-To Geek
 
  If your TV doesn't support HDMI 2.1, you'll have to make do with a 4K signal running at only(!) 60 frames per second. The majority of titles for the last console generation ran at 30 frames per second. Many current-generation Xbox Series X and PlayStation 5 games offer [performance modes that target 60fps](https://facebook-video-content.techidaily.com/in-2024-evasion-of-ennui-comical-cells-and-chuckles-in-facebooks-boundaries/), but support for 120 frames remains rare.
@@ -62,6 +63,10 @@ Kris Henges / How-To Geek
 
  While HDMI 2.1 support is more common than ever, you should still check to make sure any TV you're buying supports the standard. Make sure that the panel refreshes at 120Hz and that there are enough HDMI 2.1 slots on the back to support the number of devices you're hoping to connect.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Support for Dynamic HDR
 
  With so much bandwidth available, there's more room in the pipes for raw data, too. HDR stands for High Dynamic Range, and it enables a broader range of colors in content like movies and games. [Older HDR standards, like HDR10](https://win-able.techidaily.com/defeating-pc-launch-obstacles-in-days-gone-a-step-by-step-troubleshooting-guide/), only support static metadata. However, the newer HDR10+ and [Dolby Vision](https://extra-hints.techidaily.com/best-drone-buddies-kids-most-enjoyed-toy-companions-for-2024/) formats allow for dynamic metadata on a per-scene or frame basis.
@@ -69,6 +74,10 @@ Kris Henges / How-To Geek
  Dynamic HDR provides a TV with more information about what to do with the signal it's receiving. Rather than reading a single set of instructions for an entire movie, dynamic metadata gives the TV constant updates about how to tweak the image on-screen so it looks its best.
 
 ![Visualization of the difference between SDR, static HDR, and dynamic HDR.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/dynamichdr.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 HDMI.org
 
@@ -80,9 +89,6 @@ HDMI.org
 
  The PlayStation 5 uses standard HDR10 for its HDR output, whereas the Xbox Series X can use either HDR10 or [Dolby Vision for Games](https://ai-voice-clone.techidaily.com/updated-in-2024-ai-script-online/). Both of these technologies work under HDMI 2.0b at 60 frames per second, but you'll need HDMI 2.1 support for 120Hz output.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Variable Refresh Rate (VRR)
 
  A TV's refresh rate is how many times the panel refreshes per second. This is measured in hertz, and it's closely tied to the frame rate. When the two are out of sync, you get an effect called "screen tearing." It's caused by the display trying to show more than one frame simultaneously when the console or PC isn't ready.
@@ -94,13 +100,11 @@ HDMI.org
 ![HDMI VRR Illustration](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2020/09/vrr_3_w500.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  For the best possible next-generation console experience, HDMI-VRR is a must. If you're a PC gamer, you can use PC technologies like [NVIDIA's G-Sync and AMD's FreeSync](https://hardware-reviews.techidaily.com/in-depth-analysis-of-computer-hardware-at-toms-review-sites/) to add VRR support. 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ##  Auto Low Latency Mode (ALLM)
 
  Another perk for next-gen console gamers is auto-low latency mode (ALLM). Most TVs now include all kinds of additional processing to smooth out motion, improve picture quality, and even boost audio clarity. While some of this is appreciated when watching TV and movies, for gamers, it introduces latency (lag).
@@ -117,9 +121,6 @@ HDMI.org
 
  If you want to take advantage of this feature, make sure any intermediary devices, like a surround sound receiver, are also compatible. This will ensure all of your devices work together to deliver a smooth, responsive experience. If you're routing your console via a receiver that's only rated for HDMI 2.0, you won't get the benefit of QFT, even if your TV and console support it.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Quick Media Switching (QMS)
 
  Have you ever noticed a screen going black shortly before you watch a video or trailer? This is because the display is adjusting its refresh rate to suit the content you're about to watch. As different content uses different frame rates, your display has to sync to it, hence, the short blackout.
@@ -128,14 +129,15 @@ HDMI.org
 
  This allows you to watch content with differing frame rates back-to-back, without a blackout. The feature uses HDMI VRR to smoothly transition from one refresh rate to another.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ##  Enhanced Audio Return Channel (eARC)
 
  ARC stands for Audio Return Channel. It allows you to send audio over HDMI to your soundbar or surround receiver without an additional optical audio cable. Whether you're watching Netflix, playing a game on a console, or watching a Blu-ray, ARC ensures the audio is delivered to the right output.
 
 ![A diagram of how eARC works in HDMI 2.1.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/earc_diagramavr_cropped_avr_soundbar_combo_w800.png) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 HDMI Licensing Administrator
 
@@ -143,15 +145,16 @@ HDMI Licensing Administrator
 
  If you want to carry a Dolby Atmos signal over HDMI, you'll need eARC. There are also a few other enhancements, like proper lip-sync correction as standard, better device discovery, and a dedicated eARC data channel.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Do HDMI 2.1 Devices Require Special Cables?
 
  Since HDMI 2.1 has a higher bandwidth throughput, you'll need HDMI 2.1-compliant cables to take advantage of the full feature set. The HDMI Licensing Administrator has approved a new "Ultra High Speed" label for these cables. You can check any cables you hope to buy have been certified to [avoid buying "fake" HDMI 2.1 cables](https://desktop-recording.techidaily.com/new-2024-approved-top-5-internet-based-movie-recording-systems/).
 
 ![How to identify an HDMI 2.1b cable (Ultra High Speed HDMI Cable).](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/uhs_cable_identification_sample.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 HDMI Licensing Administrator
 
  Any device that uses HDMI 2.1, like a game console or Blu-ray player, should include an HDMI 2.1 cable in the box. These cables won't necessarily have passed a certification process, but that doesn't mean there's anything wrong with them.
@@ -170,8 +173,6 @@ HDMI Licensing Administrator
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -179,4 +180,20 @@ HDMI Licensing Administrator
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/huckling-chords-and-clever-cuts-10-parody-classics-for-2024/"><u>[New] Chuckling Chords & Clever Cuts 10 Parody Classics for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-dive-into-the-ultimate-world-of-iphone-vr/"><u>[Updated] Dive Into the Ultimate World of iPhone VR</u></a></li>
+<li><a href="https://win-able.techidaily.com/beat-the-glitch-proven-strategies-to-resolve-overwatch-2-launch-failures/"><u>Beat the Glitch: Proven Strategies to Resolve Overwatch 2 Launch Failures</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boost-your-vr-journey-with-oculus-quest-2s-best-in-class-accessories-elite-strap-powerful-battery-and-reliable-carry-case-unveiled/"><u>Boost Your VR Journey with Oculus Quest 2'S Best-in-Class Accessories: Elite Strap, Powerful Battery & Reliable Carry Case Unveiled</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-a-brand-through-youtube-a-strategic-guide/"><u>Building a Brand Through YouTube A Strategic Guide</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-guide-to-windows-10s-best-new-applications-and-games/"><u>In 2024, The Ultimate Guide to Windows 10'S Best New Applications & Games</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovos-latest-gem-the-thinkpad-x1-titanium-yoga-in-depth-review-for-fans-of-the-legendary-laptop-series/"><u>Lenovo's Latest Gem: The ThinkPad X1 Titanium Yoga - In-Depth Review for Fans of the Legendary Laptop Series</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/leveraging-chatgpt-unpacking-the-top-6-employment-catalysts/"><u>Leveraging ChatGPT: Unpacking the Top 6 Employment Catalysts</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/paint-your-vision-top-8-best-drawing-apps-for-iphone-enthusiasts-for-2024/"><u>Paint Your Vision Top 8 Best Drawing Apps for iPhone Enthusiasts for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/soften-image-periphery-with-circular-light-blend-photoshop/"><u>Soften Image Periphery with Circular Light Blend Photoshop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sony-ps5-analysis-beyond-simply-enhanced-performance/"><u>Sony PS5 Analysis: Beyond Simply Enhanced Performance</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-guide-to-procuring-and-utilizing-free-visual-frame-content-for-2024/"><u>The Guide to Procuring and Utilizing Free Visual Frame Content for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unleash-unmatched-connectivity-and-power-a-review-of-the-anker-usb-30-superspeed-hub/"><u>Unleash Unmatched Connectivity & Power – A Review of the Anker USB 3.0 SuperSpeed Hub</u></a></li>
+</ul></div>
 

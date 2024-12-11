@@ -1,7 +1,7 @@
 ---
 title: "TP-Link Archer C50: High-Speed WiFi on a Shoestring Budget"
-date: 2024-08-26T06:44:20.915Z
-updated: 2024-08-27T06:44:20.915Z
+date: 2024-12-08T00:53:50.151Z
+updated: 2024-12-11T03:42:11.426Z
 categories:
   - BestProducts
 description: "This Article Describes TP-Link Archer C50: High-Speed WiFi on a Shoestring Budget"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/6c0a15a3d6083cf4363045e7514d3f4e9e6ab2b47
 ## Thrilling Gameplay on a Budget? Discover How the IbuyPower Custom Gaming Rig Delivers
 
 4.5
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## iBuypower Custom Gaming PC
 
@@ -39,6 +43,10 @@ Alice Newcome-Beill / Lifewire
 [View On Ibuypower.com](https://www.ibuypower.com/gaming-pcs/pc-builder)
 
 4.5
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## iBuypower Custom Gaming PC
 
@@ -83,10 +91,6 @@ Alice Newcome-Beill / Lifewire
 
  iBuypower, when compared with other ISBs has the most impressive selection of hardware I’ve seen, with a broad range of proprietary and name-brand hardware to choose from allowing you to mix and match to your heart’s content.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ## Support Experience: Patience is a virtue
 
  While it would be easy to review the individual components in our system, I’m instead going to be focusing on the performance and aesthetics of the system as a whole as well as the overall service I received from iBuypower.
@@ -94,6 +98,10 @@ Alice Newcome-Beill / Lifewire
  While I was pleasantly surprised at the promptness and professionalism of their customer service, I took things a step further by calling them with a request for technical support. The system I received, arrived in pristine condition and without any issues, but I gave them a call to see how they would respond to a fairly common error.
 
 ![iBUYPOWER Custom Gaming Computer](https://www.lifewire.com/thmb/a_jBkcPEBjyyGVwoIDCwmSWQgdI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Gygabyte_GEFORCE_RTX_03-efdbffee4fd8432e9bec6bbbb704b7b0.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Alice Newcome-Beill / Lifewire
 
@@ -103,19 +111,8 @@ Alice Newcome-Beill / Lifewire
 
 ![iBUYPOWER Custom Gaming Computer](https://www.lifewire.com/thmb/OjE0wWcluyf52Y5uf0S9JXM3qFM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Gygabyte_GEFORCE_RTX_04-c215a663f64e420293eec8c248103a70.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Alice Newcome-Beill / Lifewire
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Design: More bounce for the ounce
 
  The matte black metallic case from NZXT is about as simple as they come, but what it lacks in aesthetics, it more than makes up for in usability. It features cable routing channels throughout the back panel, complete with Velcro straps and loops for tying down bundles of cables. The system builder put those to good use as there was very little in the way of loose cables when I opened the back panel.
@@ -131,6 +128,10 @@ Alice Newcome-Beill / Lifewire
 ![iBUYPOWER Custom Gaming Computer](https://www.lifewire.com/thmb/-qQXXO0Uc5XYVpt1sO3ttNAdVJE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Gygabyte_GEFORCE_RTX_04-fd15f80f7470451ab0d982aa7cb271c6.jpg)
 
 Alice Newcome-Beill / Lifewire
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Performance: UFOs and Big Rigs
 
@@ -185,8 +186,9 @@ Alice Newcome-Beill / Lifewire
  Being able to quickly discern simple problems pay real dividends when purchasing these systems for anyone that doesn't necessarily have a technical aptitude for PCs.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Price: Great value despite the sticker price
 
  I used PC parts picker to assemble a list of all the components I used in the build and was pleasantly surprised to find very little was tacked on as a premium. If we had chosen to build this system ourselves, it would have cost us a grand total of $4,600 before tax, which is remarkably close to what I paid iBuypower to make the system for me ($4,562). Bear in mind that I also get access to tech support, a 1-year warranty as well as the actual assembly.
@@ -201,10 +203,11 @@ Alice Newcome-Beill / Lifewire
 
 ![iBUYPOWER Custom Gaming Computer](https://www.lifewire.com/thmb/XsZgaXVB9SDRHMcbxxsp6J7gXf4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Gygabyte_GEFORCE_RTX_06-9155c02250094bd1b2655f035149ab8e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 Alice Newcome-Beill / Lifewire
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## iBuypower vs. Dell Alienware Aurora R11
 
@@ -220,9 +223,6 @@ Alice Newcome-Beill / Lifewire
 
  While many configurations from iBuypower are going to cost slightly more than other pre-fab PCs, they still offer an excellent value especially once you factor in labor and warranty. If you're buying a one-off PC that you're planning to upgrade down the line, iBuypower is easily one of your best options unless you're really looking to pinch pennies, or you need several off the shelf PCs delivered quickly, in which case you may be better served by a pre-fab option from Alienware or CLX.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Custom Gaming PC
@@ -243,14 +243,11 @@ Alice Newcome-Beill / Lifewire
 * Video Card Memory  24GB
 * WiFi  Yes
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -259,4 +256,26 @@ Alice Newcome-Beill / Lifewire
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-the-essential-guide-to-simple-iphone-screen-recording/"><u>[New] In 2024, The Essential Guide to Simple Iphone Screen Recording</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-fb-melody-cache-legally/"><u>[Updated] FB Melody Cache (Legally)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-19-critical-examples-of-the-metaverse-unveiled/"><u>[Updated] In 2024, 19 Critical Examples of the Metaverse Unveiled</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-masterful-transitioning-8-leading-convertors-for-sub-and-srt-for-2024/"><u>[Updated] Masterful Transitioning 8 Leading Convertors for Sub and SRT for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-pick-the-best-top-8-srt-tools-without-payment/"><u>[Updated] Pick the Best Top 8 SRT Tools Without Payment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-tp-link-re2n-wifi-booster-an-in-depth-analysis-of-the-re200ac750-model/"><u>Affordable TP-Link RE2n WiFi Booster: An In-Depth Analysis of the RE200AC750 Model</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/applecareplus-explained-is-it-truly-beneficial-and-cost-effective/"><u>AppleCare+ Explained: Is It Truly Beneficial and Cost-Effective?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cyberpunk-2077-analysis-a-work-of-art-with-imperfections/"><u>Cyberpunk 2077 Analysis: A Work of Art with Imperfections</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-bypass-apple-iphone-xs-max-passcode-easily-video-inside-drfone-by-drfone-ios/"><u>In 2024, How to Bypass Apple iPhone XS Max Passcode Easily Video Inside | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-photoshop-alternatives-on-android/"><u>In 2024, Photoshop Alternatives on Android</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-best-ipad-video-editing-apps-top-picks-for/"><u>New 2024 Approved Best iPad Video Editing Apps Top Picks For</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/superior-scriptwriting-for-soundtracks-for-2024/"><u>Superior Scriptwriting for Soundtracks for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-buyers-guide-to-anti-blue-light-glasses-a-thorough-assessment-of-reading-spectacles-with-uv-protection-features/"><u>The Ultimate Buyer's Guide to Anti-Blue Light Glasses: A Thorough Assessment of Reading Spectacles with UV Protection Features</u></a></li>
+<li><a href="https://win-help.techidaily.com/top-spotify-visualizer-plugins-essential-picks/"><u>Top Spotify Visualizer Plugins: Essential Picks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-lg-gram-17-assessment-light-as-a-feather-yet-power-packed/"><u>Ultimate LG Gram 17 Assessment: Light as a Feather Yet Power-Packed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-and-evaluating-the-campfire-narratives-skins-add-on-for-minecraft/"><u>Unboxing and Evaluating the Campfire Narratives Skins Add-On for Minecraft</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-the-motorola-mg7700-is-speed-its-strong-suit/"><u>Unboxing and Testing the Motorola MG7700: Is Speed Its Strong Suit?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-moto-g-plays-strengths-exceptional-power-reserve-and-adequate-efficiency/"><u>Unveiling the Moto G Play's Strengths: Exceptional Power Reserve and Adequate Efficiency</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/viairs-portable-88p-compressor-a-study-in-sheer-power-with-minor-compromises/"><u>Viair's Portable 88P Compressor: A Study in Sheer Power with Minor Compromises</u></a></li>
+</ul></div>
 

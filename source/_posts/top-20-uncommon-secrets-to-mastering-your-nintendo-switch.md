@@ -1,7 +1,7 @@
 ---
 title: Top 20 Uncommon Secrets to Mastering Your Nintendo Switch
-date: 2024-09-04T01:38:48.276Z
-updated: 2024-09-05T01:38:48.276Z
+date: 2024-12-06T00:07:04.229Z
+updated: 2024-12-10T22:11:47.950Z
 tags:
   - games
   - tv
@@ -42,41 +42,31 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Nintendo Switch Region Menu](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/region-lock.png) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Robert Griffey / How-To Geek
 
  Anyone who has hunted down a Japan-only shooter knows the pain of region-locked games. That sinking feeling that arises as you realize that the freshly eBayed copy of _Raiden DX_ is just expensive shelf decor.
 
  But thanks to a small loophole courtesy of Nintendo, you can now access a broader selection of games by going to "System Settings" and simply changing the region under the "System" tab. Launch the eShop and grab whatever you like.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2  Check Your Battery Life Anytime 
 
  Have you looked up from your "just one quick _Hades_ run" only to realize that darkness has fallen? Double-checking the battery life of your Switch mid-game to avoid lost progress is easier than you'd expect. When you press and hold down the Home button, a quick menu will pop up and display the current battery life alongside other options.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3  Make Additional Profiles 
 
  You can circumvent the one-save-per-game crisis by creating extra user profiles. Go to System Settings > Users, and then select "Add User." Each profile maintains its own game progress and preferences, allowing you to experience different simultaneous playthroughs of your favorite games. We're looking at you, _Tears of the Kingdom_.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4  Find Hidden Sounds on Unlock Screen 
 
  If you ever wanted to unlock your Switch to the sound of a honking clown horn or a series of other amusing sounds, then you are in luck. You can discover a series of similarly silly sound effects on the unlock screen by pressing ZL, ZR, or the control sticks.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5  Ease Eye Strain with Dark Mode 
 
@@ -87,11 +77,9 @@ Robert Griffey / How-To Geek
  The bright white background can start to strain even the strongest of eyes after a few hours. For a more comfortable viewing experience, especially at night, enable Dark Mode. Go to System Settings > Themes, and choose "Basic Black" to darken the home screen and menus.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6  Move Game Save Data to MicroSD Card 
 
  As games get larger, hard drive space becomes more precious. You can [free up internal storage](https://facebook-video-footage.techidaily.com/updated-the-definitive-guide-to-film-gear-buying-tips/) by transferring game save data to a microSD card. Once you insert a card of your choice, just head to System Settings > Data Management, and select "Move Data Between System/microSD Card."
@@ -100,72 +88,56 @@ Robert Griffey / How-To Geek
 
  You can enjoy a wireless audio experience on the go by [pairing Bluetooth headphones with your Switch](https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/). Head to System Settings > Bluetooth Audio, and follow the pairing instructions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 8  Pair Joy-Cons with Other Devices 
 
  Did you know Nintendo’s Joy-Cons can also be paired with your trusty smartphone, Mac, or PC? Hold down the sync button on the Joy-Con until the lights start flashing—indicating it's in pairing mode—and connect it through the Bluetooth menu on your device.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 9  Use a USB Keyboard 
 
 ![Top view of the Alienware Pro Wireless Keyboard with the caps and switches removed](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/alienware-pro-wireless-keyboard-top.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Jerome Thomas / How-To Geek
 
  Even with the comfortable size of the Switch's keyboard, touchscreen typing can feel a bit sterile. Thankfully, the Switch allows you to simply plug the keyboard of your choice into one of the USB ports on the dock. The console should be able to read it as a peripheral, and you are set for a more satisfying typing experience.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 10  Find a Lost Joy-Con 
 
  Have you ever woken up after a wild night of caffeinated beverages and _Mario Kart 8 Deluxe_ to find that one of your Joy-Cons has disappeared? Head over to "Controllers" on the home screen and select "Find Controllers." Use the vibration function to help locate the missing controller.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 11  Perform a Hard Reset 
 
  It's a rare occasion that a Switch will freeze to a degree that necessitates any action. If the situation arises, a hard reset should resolve most issues. Hold the power button down for about 12 seconds until the console powers off, wait a few moments, and then press the power button again to restart your system.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 12  Adjust Brightness Quickly 
 
  You don't need to break your concentration if you're on-the-go and the screen becomes harder to see because the ambient light keeps changing. You can adjust the screen brightness quickly by holding down the Home button during gameplay. A quick menu will appear, allowing you to adjust the brightness without exiting your game.
 
  You can also enable auto-brightness here, which will adjust the brightness automatically as the light conditions change.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 13  Remap the Buttons on Your Joy-Cons 
 
 ![A Nintendo Switch face-down on a white tabletop with joy-cons surrounding it.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/08/shutterstock_1154615047.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [saksorn kumjit/Shutterstock.com](https://www.shutterstock.com/image-photo/bangkok-thailand-august-12-2018-nintendo-1154615047)
 
  For all of us who are sent into a fit of rage by an A-mapped jump button, you can [customize your Joy-Con button layout](https://techno-recovery.techidaily.com/the-ultimate-list-5-best-video-editing-software-picks/) by going to System Settings > Controllers and Sensors, and then selecting "Change Button Mapping." From there, you can change the controls to suit your play style.
@@ -182,39 +154,19 @@ Jerome Thomas / How-To Geek
 
  Sharing and saving in-game screenshots is made super simple with a QR code. Open the "Album" on the Home screen, select the screenshot, and choose Sharing and Editing > Send to Smartphone to generate a code to send to others or keep to yourself.
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 17  Transfer Data to a New Switch 
 
 ![ROG Ally Next to OELD Switch](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/3.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Sydney Butler / How-To Geek
 
 The ROG Ally next to an OLED Nintendo Switch. Both devices offer impressive screens in their own right.
 
  Upgrading to an OLED Switch? Transfer user and save data to a new Switch by going to System Settings > Users, and then "Transfer Your User and Save Data." Follow the prompts to move data wirelessly between consoles.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 18  Turn on Your TV 
 
@@ -238,8 +190,6 @@ The ROG Ally next to an OLED Nintendo Switch. Both devices offer impressive scre
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -247,4 +197,23 @@ The ROG Ally next to an OLED Nintendo Switch. Both devices offer impressive scre
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-unveiling-the-top-10-timing-apps-for-weddings-on-smartphones/"><u>[New] Unveiling the Top 10 Timing Apps for Weddings on Smartphones</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-proven-tactics-for-engaging-viewers-with-success-narratives-on-screen/"><u>[Updated] 2024 Approved Proven Tactics for Engaging Viewers with Success Narratives on Screen</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-behind-the-mascara-youtubes-top-makeup-artists-unveiled/"><u>2024 Approved Behind the Mascara YouTube's Top Makeup Artists Unveiled</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/5-easy-ways-to-transfer-contacts-from-apple-iphone-7-to-android-drfone-by-drfone-transfer-from-ios/"><u>5 Easy Ways to Transfer Contacts from Apple iPhone 7 to Android | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/androidios-users-guide-to-facebook-live-broadcasting-for-2024/"><u>Android/iOS Users' Guide to Facebook Live Broadcasting for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apples-newest-innovation-unveiled-m4-chip-details-and-launch-timeline/"><u>Apple's Newest Innovation Unveiled: M4 Chip Details & Launch Timeline</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/essential-finds-critical-6-fb-lite-downloads/"><u>Essential Finds Critical 6 FB Lite Downloads</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-next-gen-mobile-internet-with-the-motorola-one-5g-ace-fast-reliable-5g-and-powerful-battery-life/"><u>Experience Next-Gen Mobile Internet with the Motorola One 5G Ace: Fast, Reliable 5G and Powerful Battery Life</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-delightful-adventures-the-joy-of-playing-pokemon-shining-pearl/"><u>Exploring Delightful Adventures: The Joy of Playing Pokémon Shining Pearl</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-skies-with-blades-blh4100-120-s-a-comprehensive-ready-to-fly-helicopter-assessment/"><u>Exploring the Skies with Blade's BLH4100 120 S: A Comprehensive Ready To Fly Helicopter Assessment</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-quick-clip-cinema-scenario/"><u>In 2024, Quick Clip Cinema Scenario</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-ergonomic-marvel-that-is-microsofts-sculpt-keyboard-great-bargain/"><u>In-Depth Analysis of the Ergonomic Marvel that Is Microsoft's Sculpt Keyboard - Great Bargain</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/professional-insight-why-the-huion-inspiroy-g10t-leads-in-tablet-performance-and-durability/"><u>Professional Insight: Why the Huion Inspiroy G10T Leads in Tablet Performance & Durability</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-essential-guide-to-the-latest-kindle-paperwhite-7th-gen-a-book-lovers-review/"><u>The Essential Guide to the Latest Kindle Paperwhite 7Th Gen: A Book Lover's Review</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-samsung-galaxy-a05s-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Samsung Galaxy A05s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/zdnet-unveils-top-enterprees-leading-the-charge-towards-the-next-digital-frontier-the-metaverse-evolution/"><u>ZDNet Unveils Top Enterprees Leading the Charge Towards the Next Digital Frontier - The Metaverse Evolution</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Efficiently Manage Xbox Series X|S Storage - Top Tips for Optimal Gaming Experience
-date: 2024-08-30T14:08:55.371Z
-updated: 2024-08-31T14:08:55.371Z
+date: 2024-12-07T19:23:21.969Z
+updated: 2024-12-11T09:10:45.103Z
 tags:
   - games
   - tv
@@ -43,14 +43,14 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Choose the "Uninstall content" option to remove items from Xbox storage.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/storage_devices_uninstall_content.PNG) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You can “Sort by size” at the top of the list then use the checkbox next to a title to select it. You can choose as many as you like, then hit the “Remove selected” button on the right to trash everything.
 
 ![Deleting multiple games at once from Xbox storage.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/delete_multiple.PNG) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ##  Check for Add-Ons and Shrinkable Games
 
  Deleting games isn’t necessarily as thorough as you might think. Sometimes things get left behind, and sometimes you can elect to shrink a game by removing optional content. Microsoft has made this easy.
@@ -60,15 +60,24 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ![The "Leftover add-ons" option on Xbox.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/leftover_add_ons.PNG) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  You’ll now see two options in the sidebar that you can choose between: “Leftover add-ons” and “Shrinkable games.” Flip between the two to see what your options are. “Leftover add-ons” refers to content for a game that you no longer have installed, whereas “Shrinkable games” are games for which you can remove optional content.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Clear Out Your Xbox Captures
 
  Screenshots and videos are stored on your console’s internal storage by default, but they don’t appear alongside your games. Videos in particular can take up a lot of space, so it’s worth clearing out your captures if you’re especially tight on space.
 
 ![Screenshot from Bethesda RPG Starfield on Xbox.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/starfield.jpeg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Starfield_  
 Tim Brookes / How-To Geek
@@ -77,9 +86,6 @@ Tim Brookes / How-To Geek
 
  From here it’s simply a case of selecting a capture and choosing “Delete” to remove it. If you have an external drive connected you can copy it over to external storage, then delete it. You can also choose “Upload to the Xbox network” to access (and save) the clip using the Xbox app for iPhone or Android.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  Move Data to an External Drive
 
  If you’re on a slow or unreliable internet connection, you might not appreciate having to reinstall games from the internet the next time you want to play them. Sometimes, the servers on which the games are hosted are slow (so it doesn’t matter how fast your internet connection is).
@@ -95,8 +101,9 @@ Tim Brookes / How-To Geek
 ![Selecting games you want to move on Xbox.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/move_games_external.PNG) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  When you’re ready, choose “Move selected” followed by “Move” to confirm. Once the item has been moved, you’ll be able to use the space for something else.
 
  Xbox Series X and S games cannot be played from external storage (but older Xbox One games can, though we recommend against it for performance reasons).
@@ -111,21 +118,18 @@ Tim Brookes / How-To Geek
 
  Deleting an app should delete additional offline data too.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Some Games May Use Additional Space
 
  Sometimes, in addition to the space a game requires to install, you can designate storage space as a cache. This isn’t common, and I can only think of one game that does it and that’s _Microsoft Flight Simulator_. But since I haven’t played every single Xbox title, there’s a chance other games do it too.
 
 ![Disabling the "Rolling Cache" option in Microsoft Flight Sim.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/flight_sim_cache.PNG) 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
  In _Flight Sim_, this option can be found under Options > General Options > Data > Rolling Cache. You can turn the feature off or reduce the amount of space available.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  Don’t Forget About Developer Mode
 
  If you’ve used Developer Mode to install unsigned UWP apps (including emulators like RetroArch), you have to specify how much space you want to dedicate to this environment when first setting it up.
@@ -144,8 +148,6 @@ Tim Brookes / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -153,4 +155,20 @@ Tim Brookes / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-simplified-guide-efficient-screen-recording-for-dell-users/"><u>[New] 2024 Approved Simplified Guide Efficient Screen Recording for Dell Users</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-mastering-pip-chromes-full-screen-multi-tasking-guide-for-2024/"><u>[Updated] Mastering PIP Chrome's Full-Screen Multi-Tasking Guide for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-catchy-captions-the-ultimate-guide-to-animated-text-on-ig/"><u>2024 Approved Catchy Captions The Ultimate Guide to Animated Text on IG</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/all-in-one-escort-max-360-review-revolutionary-gps-and-radar-detection-combined/"><u>All-in-One Escort Max 360 Review: Revolutionary GPS and Radar Detection Combined</u></a></li>
+<li><a href="https://fox-place.techidaily.com/devuelve-a-tu-computadora-los-juegos-perdidos-4-metodos-claves-para-recuperar-archivos-borrados/"><u>Devuelve a Tu Computadora Los Juegos Perdidos: 4 Métodos Claves Para Recuperar Archivos Borrados</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-your-ride-with-propellas-exceptional-7s-40-lightweight-design-meets-cost-effective-power/"><u>Elevate Your Ride with Propella's Exceptional 7S 4.0: Lightweight Design Meets Cost-Effective Power!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/embracing-the-future-switch-to-ios-15/"><u>Embracing the Future: Switch to iOS 15</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-expert-advice-on-valheim-seed-selection/"><u>In 2024, Expert Advice on Valheim Seed Selection</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-motorola-defy-2-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Motorola Defy 2 FRP</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/the-invisible-touch-methods-to-apply-fading-effects-on-sound-in-imovie/"><u>The Invisible Touch Methods to Apply Fading Effects on Sound in iMovie</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-top-elements-for-assessment-before-selecting-a-new-printer-model/"><u>The Top Elements for Assessment Before Selecting a New Printer Model</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-ultimate-fix-for-missing-d3dx9-30dll-steps-to-success/"><u>The Ultimate Fix for Missing D3dx9_ 30.dll: Steps to Success</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ultimate-fix-guide-for-helldivers-2-crashing-issues-on-your-computer/"><u>Ultimate Fix Guide for Helldivers 2 Crashing Issues on Your Computer</u></a></li>
+</ul></div>
 

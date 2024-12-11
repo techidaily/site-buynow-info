@@ -1,7 +1,7 @@
 ---
 title: "Budget-Friendly Gear for Your MacBook Pro 13: Reviewing the Reliability of a No Frills Case"
-date: 2024-11-27T20:08:44.483Z
-updated: 2024-12-05T07:02:29.329Z
+date: 2024-12-07T19:24:12.886Z
+updated: 2024-12-10T20:43:41.641Z
 categories:
   - BestProducts
 description: "This Article Describes Budget-Friendly Gear for Your MacBook Pro 13: Reviewing the Reliability of a No Frills Case"
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/29a05cd0ac7c666a10c5dac5d641535795c3a88c9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Microsoft Surface Laptop Go
@@ -95,7 +95,7 @@ Lifewire / Andy Zahn
  Port selection is rather limited, with a[USB-C](https://www.lifewire.com/usb-c-4149490) port, a USB-A port, a 3.5mm audio jack, and a Surface Connect port which is used for power but can also be used to connect to a Surface Dock. This is really the bare minimum for I/O, and was one of the most frustrating issues for me when using the device.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Display: Ideal for productivity**
@@ -104,11 +104,11 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/kz6EW4svzivooWEtdVJ5TAnOYOs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_06-07315e6a9862481bba3820f745d49887.jpg)
 
- Lifewire / Andy Zahn
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Andy Zahn
 
 ## **Speakers: Loud and proud**
 
@@ -130,13 +130,13 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/dzb-7fUK5xGots6oe-9ZhkMnnTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_07-3d9500befc3a4b50baf014cc571210a5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
  Another limiting factor is the storage capacity of the Surface Laptop Go. The configuration I tested only had 128GB of space on its solid-state drive, and the maximum configuration only comes with 256GB. You’re not going to be storing a lot of data locally on this machine forcing you to resort to cloud storage most of the time.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Connectivity: Modern hardware**
 
@@ -148,15 +148,7 @@ Lifewire / Andy Zahn
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/R8WVIj9pTzxwTOIwiZpDPRc6Bws=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_03-d503f456e6df4db4a3ad76a6a9a49e72.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Software: A decision to make**
 
@@ -166,15 +158,15 @@ Lifewire / Andy Zahn
 
  In terms of bloatware, the laptop came with a few pre-installed apps: a Microsoft Office trial, Adobe Photoshop Express, and a few other odds and ends. However, it’s all easily removed if you so choose, and doesn’t really get in the way.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Reasonable Value**
 
  With an MSRP of $549, the Surface Laptop Go offers high-end build quality at a mid-range price point. It’s hard to find a laptop in this price range that looks this good and is so eminently usable. Of course, that price might be higher depending upon the configuration you go with.
 
 ![Microsoft Surface Laptop Go](https://www.lifewire.com/thmb/_QEntMJEPlaXArgv2l576Qnr7MU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_Surface_Laptop_Go_04-21f4f7c4d0f54436bb1449bf36a42460.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -192,10 +184,18 @@ Lifewire / Andy Zahn
 
  The Microsoft Surface Laptop Go looks and feels like a much more expensive device. It’s thin and light, with a great keyboard and trackpad paired with fast and responsive components. This is an ideal option for anyone who needs an affordable ultra-portable laptop for work, school, or travel.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
 * [Google Pixelbook Go](https://www.lifewire.com/google-pixelbook-go-review-4797012)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -227,22 +227,14 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-the-6-best-digital-canvases-ideal-nft-services-for-artists/"><u>[New] 2024 Approved The 6 Best Digital Canvases Ideal NFT Services For Artists</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-smooth-operations-leading-windows-phones-videos/"><u>[New] Smooth Operations Leading Windows Phones Videos</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-dividing-devices-top-cam-rating-review/"><u>[Updated] In 2024, Dividing Devices Top Cam Rating Review</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-ultimate-recording-suite-azs-top-app-reviews-and-backups/"><u>2024 Approved Ultimate Recording Suite - AZ's Top App Reviews & Backups</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-excellence-a-comprehensive-review-of-nokia-71-featuring-top-notch-display-and-photography/"><u>Affordable Excellence: A Comprehensive Review of Nokia 7.1 Featuring Top-Notch Display & Photography</u></a></li>
-<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-tecno-spark-10-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Tecno Spark 10 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comfortable-cumuluspro-standing-desk-pad-evaluation-your-ideal-support-while-working/"><u>Comfortable CumulusPRO Standing Desk Pad Evaluation: Your Ideal Support While Working</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-linksys-ea9500-router-exceptional-performance-and-smart-tech/"><u>Comprehensive Analysis of the Linksys EA9500 Router: Exceptional Performance and Smart Tech</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-on-the-efficacy-of-kootek-laptop-cooler/"><u>Comprehensive Review on the Efficacy of Kootek Laptop Cooler</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-extollos-lansocket-1500-featuring-swift-communication-and-low-delay/"><u>Comprehensive Review: Extollo's LANSocket 1500 Featuring Swift Communication and Low Delay</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-install-asus-mousepad-support-on-a-windows-machine/"><u>How to Install ASUS Mousepad Support on a Windows Machine</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-prevent-and-solve-black-desert-online-from-crashing-windows-1011/"><u>How to Prevent and Solve Black Desert Online From Crashing Windows 10/11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-the-microsoft-surface-studio-2-worth-the-investment-a-detailed-look-at-this-high-end-device/"><u>Is the Microsoft Surface Studio 2 Worth the Investment? A Detailed Look at This High-End Device</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/phone-wars-determining-if-the-iphone-outshines-samsung-in-your-pocket/"><u>Phone Wars: Determining if the iPhone Outshines Samsung in Your Pocket</u></a></li>
-<li><a href="https://change-location.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Vivo V29 Pro? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/secure-your-network-with-the-powerhouse-tp-link-archer-a9-an-in-depth-guide-for-less-than-100-routers/"><u>Secure Your Network with the Powerhouse TP-Link Archer A9: An In-Depth Guide for Less than $100 Routers</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/step-by-step-guide-how-to-execute-a-exe-file-on-your-computer-tips-from-yl-computing/"><u>Step-by-Step Guide: How to Execute a .EXE File on Your Computer - Tips From YL Computing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-olympic-freeze-frame-figure-skating-best-of-2022-for-2024/"><u>[Updated] Olympic Freeze-Frame Figure Skating Best of 2022 for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-comprehensive-guide-to-using-googles-battery-nest-doorbells/"><u>A Comprehensive Guide to Using Google’s Battery Nest Doorbells</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-ws-2902a-osprey-ambient-weather-station-excellent-features-and-value-for-money-analysis/"><u>Affordable WS-2902A Osprey Ambient Weather Station - Excellent Features and Value for Money Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-watch-se-breakdown-the-wallet-friendly-smartwatch-option/"><u>Apple Watch SE Breakdown: The Wallet-Friendly Smartwatch Option</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/b500s-wi-fi-capability-a-missed-marking/"><u>B500's Wi-Fi Capability, a Missed Marking</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/digiarty-software-launches-mac-compatible-dvd-extractor-and-video-transcoder-tool/"><u>Digiarty Software Launches Mac-Compatible DVD Extractor & Video Transcoder Tool</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-vivo-s17-pro-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Vivo S17 Pro Phone that is Locked?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-xiaomi-14-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Xiaomi 14 to New Phone | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-when-microsoft-defender-smartscreen-is-unreachable/"><u>Troubleshooting Guide: When Microsoft Defender SmartScreen Is Unreachable</u></a></li>
 </ul></div>
 

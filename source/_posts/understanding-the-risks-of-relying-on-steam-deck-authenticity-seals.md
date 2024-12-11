@@ -1,7 +1,7 @@
 ---
 title: Understanding the Risks of Relying on Steam Deck Authenticity Seals
-date: 2024-09-04T01:38:50.805Z
-updated: 2024-09-05T01:38:50.805Z
+date: 2024-12-08T02:17:35.129Z
+updated: 2024-12-11T06:25:50.649Z
 tags:
   - games
   - tv
@@ -12,6 +12,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 ---
 
 ## Understanding the Risks of Relying on Steam Deck Authenticity Seals
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Highlights
 
@@ -27,6 +31,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Four categories of Steam Deck compatibility](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/steam-deck-verified-01.png) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _Valve_
 
  The Verified category states that “The game works great on Steam Deck, right out of the box,” the catch is that Valve doesn’t actually review game performance on the Deck. As you can see below, none of the four categories a game has to fulfill to receive the Deck Verified badge includes overall performance.
@@ -34,6 +42,10 @@ _Valve_
  The only performance-related statement is “good default settings,” which doesn’t say much about actual in-game performance.
 
 ![Steam Deck Verified requirements.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/steam-deck-verified-02.png) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Valve_
 
@@ -58,11 +70,9 @@ _Baldur’s Gate 3_ is another example of a Deck Verified game that doesn’t wo
  Don’t get me wrong, many Verified games do perform rather well on the Deck. But I just want to draw your attention to the fact that a game featuring the Deck Verified badge doesn’t mean it runs great and without issues. You shouldn't base your purchasing decision solely on whether a game is Deck Verified or not.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Steam Deck Unsupported Games Can Run Great on Deck
 
  On the other hand, a game being labeled Unsupported or sporting the Unknown badge doesn’t mean it won’t work on your Deck.
@@ -76,11 +86,9 @@ _Baldur’s Gate 3_ is another example of a Deck Verified game that doesn’t wo
  If a game’s labeled as Unsupported or Unknown, there’s a good chance it will work great on your Deck without issues out of the box or after a few tweaks. This is more proof that you shouldn’t blindly trust Steam Deck Verified labels.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  What Can You Do About This?
 
  My advice is to use [ProtonDB](https://www.protondb.com/) instead of Deck Verified. ProtonDB is a website that provides crowdsourced Linux and Steam Deck game compatibility reports, and, from my experience, it’s much more reliable than the Steam Deck Verified program.
@@ -113,8 +121,6 @@ _Baldur’s Gate 3_ is another example of a Deck Verified game that doesn’t wo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -122,4 +128,22 @@ _Baldur’s Gate 3_ is another example of a Deck Verified game that doesn’t wo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-circular-innovator-box/"><u>[New] Circular Innovator Box</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/alienware-aurora-r9-powerhouse-an-in-depth-review-of-the-latest-fusion-in-futuristic-gaming-pcs/"><u>Alienware Aurora R9 Powerhouse: An In-Depth Review of the Latest Fusion in Futuristic Gaming PCs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-lenovo-9-inch-nook-an-in-depth-user-guide/"><u>Discovering the Lenovo 9-Inch Nook - An In-Depth User Guide</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/edit-your-tracks-instantly-discover-the-magic-of-movavi-audio-trimmer/"><u>Edit Your Tracks Instantly - Discover the Magic of Movavi Audio Trimmer!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-enhanced-health-monitoring-with-fitbit-sense-the-ideal-choice-over-apple-watch-for-total-well-being/"><u>Explore Enhanced Health Monitoring with Fitbit Sense - The Ideal Choice Over Apple Watch for Total Well-Being</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-you-play-hevc-h-265-files-on-samsung-galaxy-a24-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>How do you play HEVC/H.265 files on Samsung Galaxy A24?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Samsung Galaxy XCover 6 Pro Tactical Edition? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/igtv-video-placement-to-facebook-networks-5-ways-for-2024/"><u>IGTV Video Placement to Facebook Networks (5 Ways) for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Apple iPhone 6 Plus? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovo-tab-4-analysis-navigating-its-cost-effective-features-amidst-constraints/"><u>Lenovo Tab 4 Analysis: Navigating Its Cost-Effective Features Amidst Constraints</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-blurred-out-the-top-10-free-face-blurring-apps-for-photo-and-video-editing-beginners/"><u>New Blurred Out The Top 10 Free Face Blurring Apps for Photo and Video Editing Beginners</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/strategic-screen-positioning-with-a-90-degree-rotation/"><u>Strategic Screen Positioning with a 90-Degree Rotation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-your-perfect-apple-watch-series-9-evaluation/"><u>The Ultimate Guide to Choosing Your Perfect Apple Watch - Series 9 Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-pet-monitoring-experience-petcube-insiders-guide/"><u>Ultimate Pet Monitoring Experience: Petcube Insider's Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unbox-and-test-the-revolutionary-jackery-powerbar-review-with-integrated-electrical-outlet/"><u>Unbox and Test: The Revolutionary Jackery PowerBar Review with Integrated Electrical Outlet</u></a></li>
+</ul></div>
 

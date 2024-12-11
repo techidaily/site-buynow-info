@@ -1,7 +1,7 @@
 ---
 title: Ultimate Performance Evaluation of the Beatit BT-D11 Portable Power Booster
-date: 2024-11-29T06:32:17.396Z
-updated: 2024-12-04T18:56:30.995Z
+date: 2024-12-06T04:44:36.657Z
+updated: 2024-12-11T09:04:46.819Z
 categories:
   - BestProducts
 description: This Article Describes Ultimate Performance Evaluation of the Beatit BT-D11 Portable Power Booster
@@ -17,10 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/WaQccuDgEDQrf-_lRLuP4CumW3g=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## M MOOCK Car Jump Starter
 
@@ -52,6 +48,10 @@ thumbnail: https://www.lifewire.com/thmb/WaQccuDgEDQrf-_lRLuP4CumW3g=/400x300/fi
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/9HsjvcJhUjJuGMXLaAGh2B_0bAw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Tony Mitera
 
 [View On Amazon](https://www.amazon.com/dp/B01J5G8PF6?tag=lifewire-onsite-prod-20&ascsubtag=4784187%7Cn5b3e21016e6a46bd90a6c5a5191206c707%7C)
@@ -77,6 +77,10 @@ thumbnail: https://www.lifewire.com/thmb/WaQccuDgEDQrf-_lRLuP4CumW3g=/400x300/fi
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: A rugged unit, a generous accessory kit, and a sturdy case to keep it all in**
 
  As mentioned, the M MOOCK's case packs a lot of style, but it's not just flash—it also provides a convenient place to keep everything together. The jump starter unit itself is thin but long, so the case ends up being a relatively large square. You can stash it under a seat without any issue, but it won't fit in most glove boxes.
@@ -87,6 +91,10 @@ thumbnail: https://www.lifewire.com/thmb/WaQccuDgEDQrf-_lRLuP4CumW3g=/400x300/fi
 
  The accessory kit that comes with the unit is full-bodied. The main piece is the jump starter module which has the two jumper clamps coming off a plastic module that plugs into the unit. To charge the unit you can choose to use either a wall charger for home use or a power port charger for use within a running vehicle. Finally, a set of laptop port adapters and a short DC cable to use with them can be used to[charge your laptop](https://www.lifewire.com/overcharging-laptop-battery-causes-life-span-to-decrease-2378126) or similar device.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: It takes time to find a spot just right to set up for a jump**
 
  Positioning the MOOCK to jump start a car is a little more difficult than it needs to be. Plugging the jumper cable module into the unit and turning it on is the easy part. Due to the short length of the cables, however, it's difficult to get them connected while also keeping the unit secure in the engine bay. Thankfully once you find that Goldilocks spot, the terminal clamps are on the small side and easy to attach, even if the area around the clamping location is cramped.
@@ -96,7 +104,7 @@ thumbnail: https://www.lifewire.com/thmb/WaQccuDgEDQrf-_lRLuP4CumW3g=/400x300/fi
  To charge other devices there’s a lot less fuss involved. You simply need to plug the device into the USB or DC power port and turn the unit on. A Micro USB cable is provided, so if you have a device that uses a more modern charging port, you'll want to put an extra cable for it in the MOOCK case as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: A nice jolt of power to start even the most drained of vehicles**
@@ -113,19 +121,11 @@ Lifewire / Tony Mitera
 
  The built-in flashlight in the M MOOCK Jump Starter puts out a lot of light but only in a relatively narrow band. Luckily, the full unit's basically handheld and therefore it's easy to point the flashlight at what you need. Once you start connecting cables it becomes much harder to aim the light properly. The flashlight can also be set to rapidly blink to draw attention to your situation, or to blink in the standard pattern for “SOS” to really drive home the fact that you need assistance.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Some of the best value to be found in jump starters**
 
  You can pick up this model for about $70, which makes the M MOOCK Jump Starter an inexpensive option considering what it can do. The case doesn’t feel like it can take too much of a beating, but protects the starter well, and the included accessory kit is generously provisioned.
 
  Lifewire / Tony Mitera
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: A good showing against close competition**
 
@@ -146,7 +146,7 @@ A good choice with just a few nagging flaws.
  The M Moock 1000A Peak 18000mAh Car Jump Starter is a surprisingly solid choice in jump starters. It has few glaring flaws, and the ones that it does have (like the short cables) just make it marginally more difficult to use, as opposed to being true deal breakers. That said, there are other units available on the market that share some or all the same features but have fewer drawbacks. Overall, the unit's successful but flawed, yet very reliable when you need it most.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -179,21 +179,17 @@ A good choice with just a few nagging flaws.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-cutting-edge-techniques-elevating-your-youtube-edits-using-imovie/"><u>[Updated] 2024 Approved Cutting-Edge Techniques Elevating Your YouTube Edits Using iMovie</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-oculus-spectacular-expert-reviews-and-choices/"><u>[Updated] Oculus Spectacular Expert Reviews and Choices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-and-compact-a-comprehensive-review-of-the-samsung-galaxy-s10e/"><u>Affordable & Compact: A Comprehensive Review of the Samsung Galaxy S10e</u></a></li>
-<li><a href="https://article-files.techidaily.com/complete-analysis-breaking-down-the-google-podcast-app-for-2024/"><u>Complete Analysis Breaking Down the Google Podcast App for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-and-insights-on-lgs-latest-model-the-unparalleled-classic-in-the-evolution-of-wearos-20-timepieces/"><u>Comprehensive Analysis and Insights on LG's Latest Model - The Unparalleled Classic in the Evolution of WearOS 2.0 Timepieces</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-garmin-venu-assessment-your-ideal-247-wellness-and-activity-tracker/"><u>Comprehensive Garmin Venu Assessment: Your Ideal 24/7 Wellness & Activity Tracker</u></a></li>
-<li><a href="https://win-answers.techidaily.com/conquering-online-gameplay-glitches-mastering-high-ping-solutions-for-an-epic-chivalry-2-adventure-latest-fixes/"><u>Conquering Online Gameplay Glitches: Mastering High Ping Solutions for an Epic Chivalry 2 Adventure (Latest Fixes)</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/embracing-python-in-microsoft-excel-opportunities-and-considerations-for-users/"><u>Embracing Python in Microsoft Excel: Opportunities and Considerations for Users</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/enhancing-my-laptops-ram-a-step-by-step-guide/"><u>Enhancing My Laptop's RAM: A Step-by-Step Guide</u></a></li>
-<li><a href="https://win-able.techidaily.com/fixing-the-black-screen-issue-in-elden-ring-at-launch/"><u>Fixing the 'Black Screen' Issue in Elden Ring at Launch</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/hitman-3-review/"><u>Hitman 3 Review</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Infinix Smart 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/power-and-prestige-collide-an-in-depth-look-at-the-google-pixel-5-for-enthusiasts/"><u>Power and Prestige Collide: An In-Depth Look at the Google Pixel 5 for Enthusiasts</u></a></li>
-<li><a href="https://fox-making.techidaily.com/ripristina-facilmente-i-dati-da-un-volume-esteso-senza-stress/"><u>Ripristina Facilmente I Dati Da Un Volume Esteso Senza Stress!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-distinctions-between-echo-pop-and-echo-dot-a-comprehensive-guide/"><u>The Distinctions Between Echo Pop and Echo Dot - A Comprehensive Guide</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unityflip-blend-ios-and-macos-media-artfully-for-2024/"><u>UnityFlip Blend iOS & macOS Media Artfully for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-cutting-edge-techniques-for-subtitling-in-wmp/"><u>[New] Cutting Edge Techniques for Subtitling in WMP</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-fine-tuning-gameplay-roblox-closer-scan-guide/"><u>[New] Fine-Tuning Gameplay Roblox Closer Scan Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-curate-your-cognitive-playlist-top-trivia-channels/"><u>[Updated] 2024 Approved Curate Your Cognitive Playlist Top Trivia Channels</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-virtual-stage-enhancement-zooms-filter-guidebook/"><u>[Updated] In 2024, The Virtual Stage Enhancement Zoom's Filter Guidebook</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/choosing-your-champion-why-outlook-or-gmail-could-be-perfect-for-you/"><u>Choosing Your Champion: Why Outlook or Gmail Could Be Perfect for You</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-assessment-of-the-anker-superspeed-usb-30-multiport-charger/"><u>Comprehensive Assessment of the Anker SuperSpeed USB 3.0 Multiport Charger</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-on-moto-g-plays-robust-battery-life-and-solid-performance-metrics/"><u>Comprehensive Review on Moto G Play's Robust Battery Life and Solid Performance Metrics</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-memorable-content-explore-youtubes-top-10-creative-responses/"><u>Craft Memorable Content Explore YouTube's Top 10 Creative Responses</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/critical-analysis-of-cyberpunk-2077-an-incomplete-yet-groundbreaking-game/"><u>Critical Analysis of Cyberpunk 2077: An Incomplete Yet Groundbreaking Game</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-obtain-and-update-hp-laserjet-1320-drivers-on-a-windows-machine/"><u>How to Obtain & Update HP LaserJet 1320 Drivers on a Windows Machine</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-hide-location-on-apple-iphone-xs-max-and-android-without-others-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, Hide location on Apple iPhone XS Max and Android without others knowing | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-top-10-soundscape-enhancers-for-all-os-types/"><u>In 2024, Top 10 Soundscape Enhancers for All OS Types</u></a></li>
 </ul></div>
 

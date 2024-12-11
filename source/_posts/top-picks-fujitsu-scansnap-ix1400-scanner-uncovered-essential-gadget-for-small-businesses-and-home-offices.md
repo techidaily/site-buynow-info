@@ -1,7 +1,7 @@
 ---
 title: "Top Picks - Fujitsu ScanSnap iX1400 Scanner Uncovered: Essential Gadget for Small Businesses and Home Offices"
-date: 2024-08-26T06:44:33.955Z
-updated: 2024-08-27T06:44:33.955Z
+date: 2024-12-10T06:25:19.563Z
+updated: 2024-12-11T03:29:59.043Z
 categories:
   - BestProducts
 description: "This Article Describes Top Picks - Fujitsu ScanSnap iX1400 Scanner Uncovered: Essential Gadget for Small Businesses and Home Offices"
@@ -42,6 +42,10 @@ Lifewire / Scott Gercken
 
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/nC_G9Nr8iQMb-lVdoUhQTXWP5lo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_HeroSquare-7488fe2dd07248ca99020859f82cefaf.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Scott Gercken
 
 [View On Amazon $123](https://www.amazon.com/dp/B00OD39P6A/?tag=lifewire-onsite-prod-20&ascsubtag=4774703%7Cn28c55d632e7d431680ce54300ab4205d06%7CB00OD39P6A) [View On Walmart $78](https://www.walmart.com/ip/43241580) [View On B&H Photo Video $100](https://www.bhphotovideo.com/c/product/1086416-REG/pioneer%5Fbdr%5Fxd05b%5Fexternal%5Fblu%5Fray%5Fdvr%5Fdrive.html)
@@ -67,9 +71,6 @@ Lifewire / Scott Gercken
 
  Check out our buyers guide for more information on what you should look for in an optical drive.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ## **Design: Feels a little flimsy**
 
  The Pioneer BDR-XD05B[Blu-ray Burner](https://www.lifewire.com/best-desktop-blu-ray-drives-832423) is a sleek, small black drive. It’s a tiny 5.12” square by .5” tall with a black cover and a metal bottom. The clamshell case opens to 65 degrees, so it’s easy to slide a disc onto the spindle. The button to open the clamshell is on the front left of the drive, and there’s a blue LED indicator that lights up when the drive is plugged into a power source. The drive comes with an unusually shaped USB cord, with a male micro-B USB 3.0 on one side and two USB A male ends on the other. One is designed to power the drive and one is for data transfer. The back of the drive has both a micro-B USB 3.0 port and a DC power port as a second option for powering it. The Pioneer BDR-XD05B Blu-ray Burner’s look is minimalist, black with just a small gray Blu-ray logo on the top.
@@ -82,11 +83,12 @@ Lifewire / Scott Gercken
 
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/fUaHdcy3m2p6xK0x76rqvkRIi1s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_03-c61c4933818c4874b8edcadfca341ca9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Scott Gercken
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process: Some baffling software issues**
 
  The setup process for the Pioneer BDR-XD05B is both really easy and frustrating. The easy part is that we only needed to plug the USB cord into the right slots to get it running on the Macbook we used to test it. The frustrating part is that the included software only works on Windows computers. A major producer like Pioneer only including PC software is very frustrating.
@@ -97,9 +99,6 @@ Lifewire / Scott Gercken
 
 ![Pioneer BDR-XD05B Blu-ray Burner](https://www.lifewire.com/thmb/xaXRYsi71hFhblhSiQT18pmQ2Mw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/5LW832423_02-5138fb74431a40c1b0cbb76c30bc6350.jpg)
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
  Lifewire / Scott Gercken
 
 ## **Performance: Good for an inexpensive Blu-ray burner**
@@ -117,19 +116,25 @@ Lifewire / Scott Gercken
  We also connected the computer to an HD TV through the HDMI drive and didn’t get the 1080p we expected. Instead, the resolution was stuck at 726p and the image quality was terrible, worse than a DVD. The Blu-ray image was extremely noisy and filled with huge pixels. If you want to watch movies, don’t use this drive, except maybe to make yourself more appreciative of your Blu-ray player.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Sound Quality: Seriously, don’t watch Blu-rays on this drive**
 
  We think that the best reason to watch a Blu-ray isn’t the sharp[HD image](https://www.lifewire.com/what-you-need-to-see-hd-1847338) but the depth of sound this format can produce. But you don’t get any of that when you watch a Blu-ray using the Pioneer BDR-XD05B, because you have to watch it on a computer with computer speakers. It didn’t get any better when we connected the computer to the TV via HDMI—the sound remained flat and muddy.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Basic useful software**
 
  Like we wrote above, the included software was a mess to install, with windows popping up all over the place. The included software is called “CyberLink Media Suite 10.” It includes PowerDVD 14, Power2Go 8, and PowerDirector 14 LE. PowerDVD 14 is an app for playing Blu-rays and DVD’s on your[optical drive](https://www.lifewire.com/what-is-an-optical-disc-drive-2618157) . Power2Go 8 is a burning tool, and it has some system recovery tools, too. Powerdirector 14 LE is a movie editing app. All-in-all, this is a pretty useful, basic suite of software without anything that especially stands out. It gets the job done, and that’s what matters.
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Good budget Blu-ray burner**
 
  With an MSRP of $100, the Pioneer BDR-XD05B is one of the least expensive Blu-ray burners on the market. You get what you pay for, though—that low price comes with slower read/write speeds and a flimsy design. Still, if you’re looking for a budget Blu-ray burner, this is a good one. If you’re a heavy user, look for something faster.
@@ -154,9 +159,6 @@ Lifewire / Scott Gercken
 
  On one hand, the Pioneer BDR-XD05B is a light, portable Blu-ray burner with decent performance at a low cost. On the other hand, it also feels flimsy and has a smudge-magnet finish. It’s a solid performer in its price range, but there are other portable Blu-ray burners without these faults (albeit generally for more cash).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  BDR-XD05B Blu-ray Burner
@@ -173,14 +175,11 @@ Lifewire / Scott Gercken
 * Warranty  1 year
 * Boxed dimensions  8.75 x 6.6 x 3.5 in.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -189,4 +188,21 @@ Lifewire / Scott Gercken
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-influencer-tip-crafting-irresistible-templated-content-in-youtube-descriptions/"><u>[New] 2024 Approved Influencer Tip Crafting Irresistible Templated Content in YouTube Descriptions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-unleash-creativity-with-iphones-top-10-free-aesthetic-photo-composer-tools/"><u>[New] Unleash Creativity with iPhone’s Top 10 Free, Aesthetic Photo Composer Tools</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/choosing-your-perfect-mobile-companion-iphone-or-android/"><u>Choosing Your Perfect Mobile Companion: IPhone or Android?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-blh4100-blade-fpv-rtf-indooroutdoor-copter-evaluation/"><u>Comprehensive BLH4100 Blade FPV RTF Indoor/Outdoor Copter Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-portable-lenovo-ideapad-320-featuring-lenovos-signature-keyboard-experience/"><u>Comprehensive Evaluation of the Portable Lenovo Ideapad ^320 - Featuring Lenovo’s Signature Keyboard Experience</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/confrontation-of-dusk-defender-and-dawn-protector/"><u>Confrontation of Dusk Defender and Dawn Protector</u></a></li>
+<li><a href="https://android-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-asus-rog-phone-7-ultimate-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Asus ROG Phone 7 Ultimate FRP Locks</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-honor-play-8t-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Honor Play 8T?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-maximizing-hdr-photography-capabilities-on-iphone/"><u>In 2024, Maximizing HDR Photography Capabilities on iPhone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/kobo-clara-hd-evaluation-your-perfect-portable-companion-for-book-lovers/"><u>Kobo Clara HD Evaluation: Your Perfect Portable Companion for Book Lovers</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/save-big-by-choosing-the-affordable-macbook-air-over-the-expensive-macbook-pro/"><u>Save Big by Choosing the Affordable MacBook Air Over the Expensive MacBook Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/syma-x5c-rc-drone-evaluation-budget-friendly-beginners-choice/"><u>SYMA X5C RC Drone Evaluation: Budget-Friendly Beginner's Choice</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-budget-routers-expert-analysis-on-the-tp-link-archer-c9-model-performance/"><u>The Ultimate Guide to Budget Routers: Expert Analysis on the TP-Link Archer C9 Model Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-expert-ev-owners-love-affordable-fast-in-car-charging-with-ankers-unbeatable-pricing-and-performance/"><u>Why Expert EV Owners Love Affordable, Fast In-Car Charging with Anker’s Unbeatable Pricing and Performance</u></a></li>
+</ul></div>
 

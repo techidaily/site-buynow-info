@@ -1,7 +1,7 @@
 ---
 title: "Unlock the Secrets of Star Wars: Squadrons with Our Immersive Flight Simulation Review"
-date: 2024-11-28T22:53:32.985Z
-updated: 2024-12-05T04:42:48.313Z
+date: 2024-12-04T20:41:22.824Z
+updated: 2024-12-10T21:08:03.262Z
 categories:
   - BestProducts
 description: "This Article Describes Unlock the Secrets of Star Wars: Squadrons with Our Immersive Flight Simulation Review"
@@ -42,17 +42,9 @@ Lifewire / Kelsey Simon
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Dying Light
 
 ![Dying Light](https://www.lifewire.com/thmb/YWkGikwP23JK119N4M7J22dAPJY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -78,13 +70,13 @@ Lifewire / Kelsey Simon
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Straight into the action**
@@ -109,6 +101,10 @@ Harran is a whole different city at night.
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Gameplay: Parkour and zombies galore**
 
  You won’t have to wait long in the game before you’re introduced to its main unique mechanic: parkour. Other zombie games focus on having slow zombies you can run away from, or dumb zombies you sneak past, but Dying Light takes a completely different approach. Instead, the basic zombies are fast and almost always know where you are―but they can’t climb or jump. This means you can stay safe by leaping between rooftops, running up ramps, balancing across bars, etc. The parkour feature is the biggest thing that makes Dying Light unique in an oversaturated genre, and also part of what makes the game so much fun. It’s entertaining to cross the city running as fast as you can without pausing, challenging yourself to get from point A to point B without ever touching the ground.
@@ -125,6 +121,10 @@ Harran is a whole different city at night.
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Graphics: Attention to detail**
 
  The graphics of Dying Light compare well to other triple-A titles, though it feels like the developers took more care with the scenery than the characters. Human models look a little plasticky, but the world around you is textured beautifully and rich with small details like posters and graffiti that help make the world around you feel real.
@@ -133,19 +133,15 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Price: Worth the cost, especially with a friend**
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Other zombie and parkour games**
 
@@ -158,6 +154,10 @@ Harran is a whole different city at night.
 **An original in the zombie survival genre.**
 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -180,24 +180,19 @@ Harran is a whole different city at night.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-high-end-8-cam-modifiers-for-crystal-clear-feeds/"><u>[New] High-End 8 Cam Modifiers for Crystal Clear Feeds</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-the-ultimate-guide-to-dell-p2715qs-stunning-4k-visuals-for-2024/"><u>[Updated] The Ultimate Guide to Dell P2715Q's Stunning 4K Visuals for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-tongue-to-type-tools-a-guide-to-the-best-speech-to-text-software-for-2024/"><u>[Updated] Tongue-to-Type Tools A Guide to the Best Speech-to-Text Software for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-winning-strategies-the-complete-vegas-pro-21-review-for-2024/"><u>[Updated] Winning Strategies The Complete Vegas Pro '21 Review for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-masterclass-in-capturing-video-frames/"><u>2024 Approved Masterclass in Capturing Video Frames</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/analyzing-the-performance-and-features-of-the-samsung-galaxy-a20-as-a-budget-android-contender/"><u>Analyzing the Performance and Features of the Samsung Galaxy A20 as a Budget Android Contender</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/avoiding-game-crashes-solving-severe-bugs-in-call-of-duty-black-ops-iv/"><u>Avoiding Game Crashes: Solving Severe Bugs in Call of Duty: Black Ops IV</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cost-effective-ssls-worth-the-price/"><u>Cost-Effective SSLs: Worth the Price?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-key-iphone-enhancers-the-ideal-companion-products-for-seamless-functionality/"><u>Discover Key iPhone Enhancers – The Ideal Companion Products for Seamless Functionality</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-the-newest-amd-radeon-drivers-for-enhanced-windows-performance/"><u>Download the Newest AMD Radeon Drivers for Enhanced Windows Performance</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-strategies-for-securing-youtubers-as-sponsors/"><u>In 2024, Strategies for Securing YouTubers as Sponsors</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/inside-look-at-midlands-lxt500vp3-packed-with-potential-but-struggles-to-deliver-solid-results/"><u>Inside Look at Midland's LXT500VP3: Packed with Potential but Struggles to Deliver Solid Results</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-the-value-proposition-of-wireless-meshes/"><u>Navigating the Value Proposition of Wireless Meshes</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/netgears-powerhouse-unleashed-an-in-depth-look-at-the-superior-speeds-of-the-rax12n-ace-router/"><u>Netgear's Powerhouse Unleashed: An In-Depth Look at the Superior Speeds of the RAX12n Ace Router</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-the-issue-how-to-restore-your-non-functional-windows-11-start-menu/"><u>Solving the Issue: How to Restore Your Non-Functional Windows 11 Start Menu</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-hp-omen-x360-g5-reviewed-understanding-the-big-screen-and-mobility-trade-offs/"><u>The HP Omen X360 G5 Reviewed: Understanding the Big Screen and Mobility Trade-Offs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tp-link-re200-wireless-expander-ac750-the-best-budget-wifi-range-solution/"><u>TP-Link RE200 Wireless Expander AC750: The Best Budget WiFi Range Solution?</u></a></li>
-<li><a href="https://win-web3.techidaily.com/transferieren-sie-ihre-musikalischen-erfahrungen-effizient-von-iphone-playlists-zum-ipod/"><u>Transferieren Sie Ihre Musikalischen Erfahrungen Effizient: Von iPhone-Playlists Zum iPod</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-secrets-behind-the-lenovo-ideapads-attractive-build-and-simple-power/"><u>Unveiling the Secrets Behind the Lenovo Ideapad's Attractive Build and Simple Power</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-decoding-dynamic-range-sdr-vs-hdr-in-cinematic-workflows/"><u>[New] Decoding Dynamic Range SDR Vs. HDR in Cinematic Workflows</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-8-best-popular-instagram-after-effects-templates/"><u>[Updated] In 2024, 8 Best Popular Instagram After Effects Templates</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-nokia-g22-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Nokia G22 Phone with Broken Screen</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-skyrocket-your-income-on-youtube-the-power-of-500-loyal-fans/"><u>In 2024, Skyrocket Your Income on Youtube The Power of 500 Loyal Fans</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/luxury-meets-speed-a-critical-review-of-the-costly-glion-dolly-electric-scooter/"><u>Luxury Meets Speed: A Critical Review of the Costly Glion Dolly Electric Scooter</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/revolutionize-spreadsheet-tasks-the-ultimate-tutorial-on-using-chatgpt-for-google-sheets-and-docs-automation/"><u>Revolutionize Spreadsheet Tasks: The Ultimate Tutorial on Using ChatGPT for Google Sheets and Docs Automation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-blueears-wireless-beanie-hat-fashion-meets-functional-sound-clarity/"><u>The Ultimate Guide to BlueEar's Wireless Beanie Hat: Fashion Meets Functional Sound Clarity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-wireless-solution-in-depth-review-of-netgears-nighthawk-x6-ac3200-wifi-tri-band-router-for-faster-secure-homes/"><u>The Ultimate Wireless Solution: In-Depth Review of Netgear's Nighthawk X6 AC3200 WiFi Tri-Band Router for Faster, Secure Homes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-wallet-friendly-wonder-a-comprehensive-look-at-the-moto-g-with-stylus-technology/"><u>The Wallet-Friendly Wonder: A Comprehensive Look at the Moto G with Stylus Technology</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-nokia-c22-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Nokia C22 Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-iphone-models-ranked-by-gamer-performance-which-one-reigns-supreme/"><u>Top iPhone Models Ranked by Gamer Performance: Which One Reigns Supreme?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-picks-expertly-reviewed-best-wireless-mouse-models/"><u>Top Picks: Expertly Reviewed Best Wireless Mouse Models</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-chatgpt-restrictions-enhanced-features-in-google-news-stream-and-tips-for-superior-mobile-internet-while-exploring/"><u>Understanding ChatGPT Restrictions: Enhanced Features in Google News Stream & Tips for Superior Mobile Internet While Exploring</u></a></li>
 </ul></div>
 

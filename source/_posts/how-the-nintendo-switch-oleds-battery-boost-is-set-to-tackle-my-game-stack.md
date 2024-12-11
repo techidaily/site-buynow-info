@@ -1,7 +1,7 @@
 ---
 title: How the Nintendo Switch OLED's Battery Boost Is Set to Tackle My Game Stack
-date: 2024-09-04T01:38:36.780Z
-updated: 2024-09-05T01:38:36.780Z
+date: 2024-12-08T00:56:56.619Z
+updated: 2024-12-10T23:13:35.135Z
 tags:
   - games
   - tv
@@ -21,6 +21,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023
 
  Most gamers have a backlog of games that they've bought with good intentions, then never get around to finishing or even starting. For me, the Steam Deck has been transformational, and now I'm getting through my gaming pile of shame faster than ever.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Easier to Pick up and Play
 
  One reason I struggle so much with finishing games is the fact that so many of them ask for dozens of hours of my time, which makes even starting them a little intimidating. I feel obligated to spend hours at a time with a big AAA game so that I can feel like I've made meaningful progress.
@@ -35,18 +39,6 @@ Marcus Mears III / How-To Geek
 
  The answer to my backlog might just be short, sharp, but ultimately rewarding play sessions and the Steam Deck's boundless potential makes that possible.
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Old Games I Missed Feel Much More Appealing
 
  My interests change a lot, and while a game from 20 years ago might sound fun on a whim, by the time it's installed and ready to play there's a chance I've already lost interest due to outdated mechanics, graphics or technical limitations.
@@ -58,17 +50,9 @@ Marcus Mears III / How-To Geek
  The Deck runs Linux, which eliminates most worries about Windows compatibility. Since it's a dedicated gaming machine with little else running in the background, I can usually rely on having a stable frame rate and a level of visual fidelity that looks great on its 800p display.
 
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Playing Multiple Games at Once is Less Intimidating
 
  When I'm playing games on the PlayStation 5, I tend to stick to maybe one or two main games that I switch between while I work on finishing each one. This means I can more easily give each title my full, proper attention. It also means that I'm not progressing in any of the other games on my ever-growing backlog while I do so.
@@ -77,12 +61,6 @@ Marcus Mears III / How-To Geek
 
  Instead of starting another new game on my console, I can get on my Steam Deck and play something a bit more casually while still progressing through a game I've been meaning to finish anyway.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  I Can Pick Up Where I Left Off On My PC
 
  One of Steam's most useful features for Steam Deck owners is the save sync feature, which automatically backs up your saves to the cloud. This means that you can easily pick up where you left off later, even if you uninstall the game.
@@ -91,22 +69,14 @@ Marcus Mears III / How-To Geek
 
 ![Enable Steam Cloud Toggle in the Steam settings window.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/enable-steam-cloud-toggle-in-the-steam-settings-window.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Being away from my PC no longer means that my progress in a game has to be put on hold until I return, since I can just keep playing from where I was with almost no issue.
 
  Now, I can keep attempting that boss fight or grinding for items while I'm in the car, the doctor's office, or even on a break at work, giving me a lot more time to make progress than I would have if I only played at home.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Play Modded Games on the Go
 
  A big selling point of the Steam Deck for me was the fact that it has a desktop mode, which allows you to move files around and navigate them the same way you would on a full-fledged PC. This means installing mods in certain games is fairly easy as long as you know [how to navigate Linux](https://instagram-clips.techidaily.com/crafting-captivating-ig-stories-with-youtube-content-for-2024/). It's just a matter of dragging and dropping files in place, or even just enabling a mod in the Steam Store.
@@ -115,6 +85,10 @@ Marcus Mears III / How-To Geek
 
  Not only can I play nearly anything from my Steam Library on a handheld, I can even customize the experience in much the same way I would on a PC. I can fix outdated mechanics or bugs, add brand-new content, and much more without sacrificing the novelty of playing on a portable system.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  The Same Variety Without the Hassle
 
  Despite its limitations and the fact that many games that aren't fully compatible, the Steam Deck can still play a good majority of games from the Steam catalog without much compromise. Even if my PC can't run the game, there's a chance the Deck can, and if I feel so inclined, I can even get an adapter or a dock to play it on my monitor and emulate the home console experience with a controller.
@@ -122,11 +96,9 @@ Marcus Mears III / How-To Geek
 ![The Steam library accessed on a Steam Deck.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/pxl_20240619_185635501.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Zachary Cimaglio / How-To Geek
 
  Steam has a lot of games that are not available anywhere else, especially ports of older titles that may not even be available on modern consoles. On top of this, the platform tends to have a lot more free-to-play or early-access games and heavy discounts that are otherwise unavailable or deliver a lackluster experience on consoles. And then there are all the emulators that Steam Deck owners have access to.
@@ -145,8 +117,6 @@ Zachary Cimaglio / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -154,4 +124,20 @@ Zachary Cimaglio / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-free-themes-for-dynamic-youtuber-profiles-for-2024/"><u>[New] Free Themes for Dynamic YouTuber Profiles for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-unveiling-this-years-most-engaging-storytelling-youtubers/"><u>[New] Unveiling This Year's Most Engaging Storytelling YouTubers</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-choosing-the-right-partners-for-a-safer-tiktok-expansion/"><u>[Updated] In 2024, Choosing the Right Partners for a Safer TikTok Expansion</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-subtle-art-of-easing-audio-intensity-garageband/"><u>2024 Approved The Subtle Art of Easing Audio Intensity (Garageband)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hands-on-evaluation-combine-cutting-edge-tech-premium-sound-headset-stunning-display-panel-and-exceptional-quality-webcam/"><u>Hands-On Evaluation: Combine Cutting-Edge Tech - Premium Sound Headset, Stunning Display Panel & Exceptional Quality Webcam</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-contacts-on-iphone-4-methods-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Restore Contacts on iPhone (4 Methods) | Stellar</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-build-a-loyal-audience-on-facebook-using-effective-growth-methods/"><u>In 2024, Build a Loyal Audience on Facebook Using Effective Growth Methods</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/monitoring-digital-asset-values-a-guide-on-cryptocurrency-pricing-tracker-insights-by-yl-computing/"><u>Monitoring Digital Asset Values: A Guide on Cryptocurrency Pricing Tracker - Insights by YL Computing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/smaller-yet-mightier-how-does-nest-mini-stack-up-against-google-nest-audio/"><u>Smaller Yet Mightier: How Does Nest Mini Stack Up Against Google Nest Audio?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/step-by-step-guide-transforming-your-quicktime-files-into-mp3-format/"><u>Step-by-Step Guide: Transforming Your QuickTime Files Into MP3 Format</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/superior-connectivity-with-the-miniature-ourlink-u631-usb-wi-fi-stick/"><u>Superior Connectivity with the Miniature Ourlink U631 USB Wi-Fi Stick</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/totobays-second-gen-wake-up-alarm-clock-the-smart-budget-option-you-cant-skip/"><u>Totobay's Second Gen Wake-Up Alarm Clock: The Smart Budget Option You Can't Skip!</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/windowsaimei-backupper/"><u>Windows上最精妙的备份和数据同步解决方案：AIMEI Backupper</u></a></li>
+</ul></div>
 

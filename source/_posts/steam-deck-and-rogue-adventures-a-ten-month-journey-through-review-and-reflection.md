@@ -1,7 +1,7 @@
 ---
 title: "Steam Deck & Rogue Adventures: A Ten-Month Journey Through Review and Reflection"
-date: 2024-09-04T01:37:54.137Z
-updated: 2024-09-05T01:37:54.137Z
+date: 2024-12-07T16:59:46.355Z
+updated: 2024-12-11T03:57:58.154Z
 tags:
   - games
   - tv
@@ -13,6 +13,10 @@ thumbnail: https://thmb.techidaily.com/87aca7f6dd67e673512ab0a4b65285915e96bdcd3
 
 ## Steam Deck & Rogue Adventures: A Ten-Month Journey Through Review and Reflection
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * SteamOS offers a smooth gaming experience with Game Mode and controller optimization, outshining Windows on handhelds.
@@ -20,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/87aca7f6dd67e673512ab0a4b65285915e96bdcd3
 * The Ally wins for game compatibility and local game streaming, while the Deck excels in ergonomics and software usability.
 
  I've been using my Steam Deck since the tail end of 2022 and a ROG Ally since July 2023\. In that time I've used both enough to form some strong opinions. Here are my thoughts on the two handhelds, which I prefer, and the reasoning behind my decision.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Software-Wise, I Strongly Prefer SteamOS
 
@@ -41,6 +49,10 @@ Steam
 
  SteamOS isn't perfect either. I have experienced weird glitches and issues after multiple updates, slow download speeds over Wi-Fi, and I have to jump through multiple hoops to make non-Steam games work. But at the end of the day, I strongly prefer SteamOS to Windows as my OS of choice on a gaming-centric handheld.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  When It Comes to Power and Battery Management, It's a Tie
 
  When it comes to power, the ROG Ally is a beast that runs circles around the Steam Deck. That said, I'm still impressed with the level of performance my Steam Deck can deliver with its max [TDP](https://tech-haven.techidaily.com/boost-your-pcs-speaker-performance-with-a-new-install-of-realtek-hd-audio-manager-in-win-1011/) pegged at 15W. Also, while the Ally is quite potent for a handheld, it needs at least 12W-13W to show its muscles, while the Deck can run less demanding games with less than 10W of power.
@@ -53,22 +65,10 @@ Steam
 
  The ROG Ally's [battery life is dismal](https://some-guidance.techidaily.com/2024-approved-streamline-and-shine-the-top-5-video-quality-tools/), and I hope that the ROG Ally X [delivers on its promise](https://www.theverge.com/24152945/asus-rog-ally-handheld-gaming-pc-2024-revision) and packs a much larger cell than the 40Wh found in the OG Ally.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030395/7443" target="_top" id="2030395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  The ROG Ally Has Better Build Quality, Controls, and Ergonomics
 
 ![Steam Deck vs ROG Ally laying next to each other.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/steam-deck-vs-rog-ally-controls-and-design.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Goran Damnjanovic / How-To Geek
 
  The build quality is fantastic on both my Deck and Ally. They're both well-built machines that I have had zero issues with up until this point. I've opened both the Deck and Ally multiple times, and reassembling them always went smoothly.
@@ -85,28 +85,10 @@ Goran Damnjanovic / How-To Geek
 
  But I can play games on my Ally for hours on end while lying down without even feeling a trace of wrist discomfort, let alone pain, making the ROG Ally a winner of this round. Sure, the Deck looks nicer and has those sweet dual trackpads, but its weight, combined with the way I use my gaming handhelds, results in it landing just behind the Ally in terms of ergonomics.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  The Game Compatibility Trophy Goes to the ROG Ally
 
 ![Steam Game Library with assorted titles](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/06/52781464329_36035301f1_o.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Jason Fitzpatrick / How-To Geek
 
  This is one area where I have a clear winner. While the Windows-on-handheld experience is less than stellar, at least you know that you'll be able to play any PC game you want (as long as the Ally has enough oomph). Better still, I can seamlessly mod games on the Ally, I just need to hook a keyboard and mouse so I don't pull my hair out while doing it.
@@ -115,22 +97,14 @@ Jason Fitzpatrick / How-To Geek
 
  On the Steam Deck the process of installing and playing games is pretty straightforward most of the time as well, unless you want to play a non-Steam game. In that case, you have to visit Desktop Mode, [install third-party launchers such as Heroic](https://youtube-blog.techidaily.com/n-2024-the-future-of-tv-watching-a-closer-look-at-youtube-tv/), and sometimes even run Konsole or find your way through the system to apply some fixes, update Proton, or perform some other procedure needed to make a game run at all, which can be a huge pain. At least the process of setting up your emulators with EmuDeck is pretty painless.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Extra Features and Docked Mode: Another Tie
 
 ![Steam Deck hooked to a dock.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/04/dc58cf90.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Valve
 
  I rarely use my Deck and Ally docked, but when I do, they both work great when paired with the cheap dock I own. I've had no issues with docked mode, but you should note that a number of ROG Ally owners report not being able to use the 30W power profile when docked. I also have had no issues when using these handhelds with a mouse [or keyboard](https://driver-error.techidaily.com/unleashing-potential-in-windows-10-with-lenovo/). They work great with wired, Bluetooth, and 2.4GHz wireless peripherals.
@@ -144,6 +118,10 @@ Valve
  When it comes to emulating games, you've got EmuDeck for both the Deck and Ally, with the setup being more straightforward on the Ally. On SteamOS, you've got to switch to Desktop Mode, and locating the various folders used for games, emulators, and firmware can be a chore. But once you finish the setup, you can add your emulated games to Game Mode on the Deck, whereas you cannot add them to Armoury Crate on the Ally, which is a shame.
 
  Local game streaming with Moonlight and Sunshine works better on my Ally. Despite [disabling the 2.4GHz band](https://extra-information.techidaily.com/new-boosting-skypes-performance-with-advanced-zoom-functionalities/) on my router, which resulted in a massive improvement in download speeds and overall network stability on my Deck, I can still notice occasional stuttering when streaming games. Conversely, I experience almost no stuttering on the Ally. There might be a dropped frame or two in the first few minutes, but it's smooth sailing all around after that. This, coupled with the fact that I can stream at 120 frames per second to my Ally, makes it a better device for local game streaming. The situation is probably better on the Deck OLED since it comes with a Wi-Fi 6E module and you can stream at 90fps.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  The Rog Ally Is My Favorite, With One Exception
 
@@ -165,8 +143,6 @@ Valve
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -174,4 +150,20 @@ Valve
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/bringing-beats-integrating-music-in-inshot-editor-for-2024/"><u>Bringing Beats Integrating Music in InShot Editor for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-clutter-convert-videos-discover-the-best-alternatives-for-flv-to-yt/"><u>Cut the Clutter, Convert Videos Discover the Best Alternatives for Flv to YT</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dont-miss-out-on-these-key-takeaways-from-our-oneplus-nord-n10/"><u>Don't Miss Out on These Key Takeaways From Our OnePlus Nord N10</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-cod-black-ops-cold-war-error-80070057-comprehensive-troubleshooting-guide/"><u>Fixing Cod: Black Ops Cold War Error 80070057 - Comprehensive Troubleshooting Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/french-hues-rapid-speak-tutorial/"><u>French Hues: Rapid Speak Tutorial</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-best-value-fitness-gadget-xiaomi-mi-smart-band-prise-review/"><u>In-Depth Analysis of the Best-Value Fitness Gadget: Xiaomi Mi Smart Band Prise Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-why-the-samsung-galaxy-s10-stands-out-as-a-premier-device-in-its-class/"><u>In-Depth Review: Why the Samsung Galaxy S10 Stands Out as a Premier Device in Its Class</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/infinix-note-30i-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Infinix Note 30i ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/inside-the-new-windows-11-innovations/"><u>Inside the New Windows 11 Innovations</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/key-factors-to-evaluate-prior-to-purchasing-your-next-printer/"><u>Key Factors To Evaluate Prior To Purchasing Your Next Printer</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210268060-9781098065669-laughing-my-way-to-a-better-life/"><u>Laughing My Way to a Better Life! | Free Book</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nook-glowlight-3-in-depth-review-perfect-for-your-evening-reads/"><u>Nook GlowLight 3 In Depth Review: Perfect For Your Evening Reads</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-gimp-your-ultimate-guide-to-free-multi-platform-image-editing-tools/"><u>Unveiling the Power of GIMP: Your Ultimate Guide to FREE Multi-Platform Image Editing Tools</u></a></li>
+</ul></div>
 

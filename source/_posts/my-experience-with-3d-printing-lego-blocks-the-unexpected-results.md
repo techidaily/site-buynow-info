@@ -1,7 +1,7 @@
 ---
 title: "My Experience with 3D Printing LEGO Blocks: The Unexpected Results"
-date: 2024-09-04T01:39:45.153Z
-updated: 2024-09-05T01:39:45.153Z
+date: 2024-12-07T17:53:45.455Z
+updated: 2024-12-11T07:27:43.894Z
 tags:
   - games
   - tv
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/ae43e169f6c755c4c2193b461c421a8ddcf3ffe94
 
  Proper LEGO is expensive, and sometimes you just need a specific brick or a brick that no one makes anymore. So what about simply 3D printing LEGO? I took a shot at it, and it's not as simple as I thought.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  The Great LEGO Patent Expiration and “Compatible” Bricks
 
  Before we get onto my mini LEGO-printing adventure, it is worth covering why this is even possible from a legal standpoint. You've probably noticed that there are plenty of LEGO "compatible" bricks on the market, and the Danish toy company doesn't seem to be doing anything about it. The fact is that the [patents covering the locking mechanism of LEGO bricks](https://www.freepatentsonline.com/3005282.pdf) have expired. So, while the LEGO trademark is protected, there's nothing illegal about making bricks that are compatible with genuine LEGO.
@@ -28,17 +32,9 @@ thumbnail: https://thmb.techidaily.com/ae43e169f6c755c4c2193b461c421a8ddcf3ffe94
  Not that LEGO let this happen without a fight, its failed legal battles with companies like Mega Blocks make for [fascinating reading](https://www.nytimes.com/2005/02/02/business/worldbusiness/building-a-legal-case-block-by-block.html). For our purposes here, all you need to know is that regular folks making LEGO models for 3D printing is fine, as long as they don't pretend to be real LEGO or use the company's trademarks.
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Where to Find Brick Model Files
 
  If you have the talent and the time, nothing's stopping you from firing up your favorite CAD program and whipping up your own LEGO, but luckily plenty of people have already done the hard work for us. In this case I used FaronMentink's [LEGO compatible bricks](https://www.thingiverse.com/thing:5447694/files) found on Thingiverse, but if those don't work for you, there are numerous other options on Thingiverse and other websites that host files for 3D printing.
@@ -49,12 +45,6 @@ thumbnail: https://thmb.techidaily.com/ae43e169f6c755c4c2193b461c421a8ddcf3ffe94
 
  As far as possible, I try to avoid using supports for my prints, because they leave markers on the model that require cleaning later. So I've printed these bricks in place, right-way-up to ensure there are no overhangs that would fail. However, some more exotic brick types might need supports, which you'll have to generate using your 3D printing software.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  The Results
 
  My first attempt at printing a few test bricks did not go well. The K1 uses a smooth print bed out of the box, and you're supposed to rub a glue stick all over it before printing to help with adhesion. As a rule, I have not found this necessary, and so I can dispense with the messy cleanup and just get on with printing. Not so for my poor bricks, which very much did not remain stuck to the bed, and the print had to be abandoned. Two bricks did make it, giving me viable 0.2mm standard quality samples.
@@ -64,19 +54,15 @@ thumbnail: https://thmb.techidaily.com/ae43e169f6c755c4c2193b461c421a8ddcf3ffe94
 ![Two 3D-printed LEGO-compatible bricks](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/bad-blocks.jpeg) 
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Sydney Louw Butler/How-To Geek
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Testing Compatibility With Real LEGO
 
  While the blocks I printed certainly looked the part, unfortunately they simply did not work correctly. While they fit real LEGO pieces and each other, the tolerance were simply too loose. With some specific blocks, I could get a good fit, but there's no denying how precise injection-molded blocks like those made by LEGO are.
@@ -85,22 +71,14 @@ Sydney Louw Butler/How-To Geek
 
 ![Two 3D-printed LEGO-compatible blocks stuck together.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/good-blocks.jpeg) 
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Sydney Louw Butler/How-To Geek
 
  After printing out two test blocks, I got a pretty decent fit with real LEGO, but an incredible fit between the 3D-printed blocks themselves. In fact, they may be a little _too_ tight-fitting because them to come apart is much harder than with real LEGO. I can however, see myself printing out enough bricks to complete a build using this particular set, knowing that it won't fall apart.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  The Printed LEGO Rabbit Hole
 
  This was just some initial dabbling after I wondered how close I could get to real LEGO with the equipment I have. Filament is after all cheap, so if you have the patience you could print out bricks that would cost hundreds or even thousands of Dollars. However, there's no denying that the precise injection-molded method of making these bricks is still far superior when you need every brick to come out exactly the same, and the tolerances have to be just right.
@@ -115,8 +93,6 @@ Sydney Louw Butler/How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -124,4 +100,19 @@ Sydney Louw Butler/How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-info.techidaily.com/pokemon-shining-pearl-a-journey-towards-entertainment-and-thrills-for-trainers/"><u>'Pokemon Shining Pearl': A Journey Towards Entertainment and Thrills for Trainers</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-synchronize-your-team-with-easy-slack-and-filmora-integration/"><u>[New] In 2024, Synchronize Your Team with Easy Slack & Filmora Integration</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-unveiling-the-best-of-zoom-and-tiktok-video-sync/"><u>[New] In 2024, Unveiling the Best of ZOOM & TikTok Video Sync</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-blizzard-of-champions-highlighting-snowboard-cross-excellence-22-olympics/"><u>[Updated] Blizzard of Champions Highlighting Snowboard Cross Excellence, '22 Olympics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-top-extension-pad-models-to-upgrade-your-workspace/"><u>Comprehensive Review: Top Extension Pad Models to Upgrade Your Workspace</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-fun-of-maistos-rc-rock-crawler-ideal-choice-for-family-entertainment/"><u>Exploring the Fun of Maisto's RC Rock Crawler - Ideal Choice for Family Entertainment.</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-infinix-hot-30-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Infinix Hot 30 5G For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-x-to-ipad-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone X to iPad? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/metaverse-memetic-marvels-from-copycat-cartoons-to-originalist-oddities-for-2024/"><u>Metaverse Memetic Marvels - From Copycat Cartoons to Originalist Oddities for 2024</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-create-ai-video-with-ai-avatar-wondershare-virbo-for-2024/"><u>New Create AI Video with AI Avatar | Wondershare Virbo for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-top-tier-choices-for-advanced-eyewear-in-2nce/"><u>Unveiling the Top-Tier Choices for Advanced Eyewear in 2Nce</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-ultimate-selection-of-top-6-security-apps-for-iphones/"><u>Unveiling the Ultimate Selection of Top 6 Security Apps for iPhones</u></a></li>
+</ul></div>
 

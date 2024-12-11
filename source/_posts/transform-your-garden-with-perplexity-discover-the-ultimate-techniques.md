@@ -1,7 +1,7 @@
 ---
 title: Transform Your Garden with Perplexity - Discover the Ultimate Techniques
-date: 2024-08-30T14:08:36.189Z
-updated: 2024-08-31T14:08:36.189Z
+date: 2024-12-07T16:07:49.862Z
+updated: 2024-12-10T18:40:55.231Z
 tags:
   - games
   - tv
@@ -26,22 +26,29 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 [Perplexity](http://www.perplexity.ai) is a conversational AI chatbot similar to ChatGPT that validates its answers with curated internet search results. It was the perfect wingman to support me with this spring's new gardening project. I'd grown tomatoes, cucumbers, and a few sunflowers in previous years, but this spring we were dedicating more than half the garden space to buckwheat and popcorn. I had only seen buckwheat as flour added to pancakes, and I'm not sure whether I knew what kind of corn could pop! I have experience researching with AI through my work writing to train [Large Language Models](https://extra-support.techidaily.com/2024-approved-picture-perfect-presentation-software-for-impeccable-photo-framing/). So, I was undeterred by my lack of gardening experience. With Perplexity, I can't become an expert, but I can consult one!
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## ![A screenshot of the Perplexity AI user interface showing the prompt box.](https://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/perplexityui.jpeg)An AI-Powered Search Engine
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [ChatGPT](https://chatgpt.com) does have a search engine add-on tool, but web searches aren't an add-on or afterthought to Perplexity. It is an AI chatbot built from the ground up to be an AI-powered internet search engine. [ChatGPT and Perplexity have different strengths](https://instagram-video-files.techidaily.com/updated-2024-approved-enhance-your-video-impact-with-slow-motion-on-ig/), but Perplexity's unique response layout may be its most valuable feature.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ###  The List of Sources
 
  Entering the simple prompt, "How to grow buckwheat", provided the sources used to compose the answer. Perplexity uses its own knowledge and the search results to confirm and compose its response. For this prompt, three sources on how to grow buckwheat, one source on the advantages of growing buckwheat in your vegetable garden, and a YouTube video on its uses.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### ![A screen shot of Perplexity AI search results displaying the search prompt, sources, answer, and picture/videos.](https://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/perplexitybuckwheat.jpeg)A Step-By-Step Answer
 
  In both the web browser and mobile layout, the row of sources is followed by step-by-step bullets of information. For this prompt, the answer included ideal conditions for growing buckwheat, a description of growth from seed to flower, and the advantages of using it as a cover crop in vegetable gardens. Each step has citations from the source list. However, because Perplexity performs a new search each time, results can vary slightly with each search. Later, the same prompt resulted in information on "planting buckwheat", "growing buckwheat", and "harvesting buckwheat". After that well-organized answer, there's an option to ask a follow-up question.
@@ -61,22 +68,16 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 * YouTube - Discover and watch videos
 * Reddit - Search for discussions and opinions
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### ![A screenshot of the Perplexity AI focus feature below the prompt box on the home screen.](https://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/perplexityuifocus-1.jpeg)Focus: Reddit
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Crows began eating our freshly planted popcorn. I allowed my children to construct a scarecrow out of PVC pipe, but I knew there were likely some hacks on Reddit. Perplexity could save me at least an hour of scrolling aimlessly through dozens of posts and provide a summary of suggestions in a moment. This focused Perplexity answer had a list of Reddit posts as the sources and six numbered suggestions. They included hanging distracting shiny objects like wind chimes or pinwheels, placing fake owls or hawks around the garden, or constructing a physical barrier out of bird netting. They did not include a PVC scarecrow named Ted.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ### ![A screenshot of focused Perplexity AI search results displaying sources and the answer.](https://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/perplexityreddit.jpeg)Focus: YouTube
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  While our popcorn is sprouting, I'm planning ahead and trying to learn how to harvest both popcorn and buckwheat. After harvesting, buckwheat must be threshed, and popcorn must be cured. For the prompts, "How to thresh buckwheat" and then "How to harvest popcorn" the sources list five specific YouTube videos. The answer has numbered instructions on harvesting, and each step cites the specific video which the step was sourced from. On the right is a column of the source thumbnails, all playable in-app.
 
 ##  Elephant in the Room: Why Don't You Just Use Google?
@@ -91,8 +92,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -100,4 +99,20 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-pictureperfection-fine-tuning-image-sizes-on-insta/"><u>[New] 2024 Approved PicturePerfection Fine-Tuning Image Sizes on Insta</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-prolonged-sky-journeys-the-ultimate-drone-lineup/"><u>[New] Prolonged Sky Journeys The Ultimate Drone Lineup</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-unveiling-cosmic-divides-metaverse-and-multiverse-explained-for-2024/"><u>[New] Unveiling Cosmic Divides Metaverse and Multiverse Explained for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-streamlining-your-powerpoint-to-video-journey-for-2024/"><u>[Updated] Streamlining Your PowerPoint to Video Journey for 2024</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/1726028434227-usb/"><u>「USBを使って車載でも音楽再生方法！専門家による簡単チュートリアル」</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-form-and-function-an-in-depth-evaluation-of-fitbits-latest-tracker-the-charge-4/"><u>Exploring Form & Function: An In-Depth Evaluation of Fitbit's Latest Tracker – The Charge 4</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/revolutionizing-the-lineup-prospective-touchscreen-macbook-deets-and-gossip-revealed/"><u>Revolutionizing the Lineup: Prospective Touchscreen MacBook Deets and Gossip Revealed</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-essential-guide-to-mixing-linktree-and-tiktok-bios-for-2024/"><u>The Essential Guide to Mixing Linktree and TikTok Bios for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-premier-6-e-commerce-platforms-for-televisions-and-flatscreens/"><u>The Premier 6 E-Commerce Platforms for Televisions and Flatscreens</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-unrivaled-power-of-the-netgear-nighthawk-c7000-an-expert-review-on-its-impressive-router-capabilities/"><u>The Unrivaled Power of the Netgear Nighthawk C7000: An Expert Review on Its Impressive Router Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-zte-blade-a3y-examined-reliable-efficiency-at-a-reasonable-cost/"><u>The ZTE Blade A3Y Examined: Reliable Efficiency at a Reasonable Cost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-recommended-digital-programming-classes/"><u>Top Recommended Digital Programming Classes</u></a></li>
+</ul></div>
 

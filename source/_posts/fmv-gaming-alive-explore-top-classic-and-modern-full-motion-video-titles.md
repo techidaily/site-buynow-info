@@ -1,7 +1,7 @@
 ---
 title: "FMV Gaming Alive: Explore Top Classic & Modern Full Motion Video Titles!"
-date: 2024-09-04T01:37:39.125Z
-updated: 2024-09-05T01:37:39.125Z
+date: 2024-12-06T20:57:12.274Z
+updated: 2024-12-11T02:23:09.701Z
 tags:
   - games
   - tv
@@ -34,45 +34,33 @@ thumbnail: https://thmb.techidaily.com/e87b3408f54a53f91c9308647e5fc7c06d24ab266
  So, "FMV game" is a pretty broad term, but it's one of those things where, if you see it, you'll know it. There's something about the approach and production values that set these games apart. Maybe it's nostalgia, but FMV games will always hold a special place for me, since I lived through the ups and downs. I was just as ready as everyone to leave FMV behind when I slotted my first 3D accelerator card into my PC almost 25 years ago, but thankfully, the "best" of FMV gaming has been preserved, and certain developers are still keeping the dream alive.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Rediscover the FMV Magic With These Classic FMV Games
 
  One of the best things about looking back on the FMV era in hindsight, is that the notable games are the ones that have been preserved and have bubbled to the top. There were a LOT of FMV games, and it can be daunting to pick somewhere to begin, but I've put together a few examples of my personal favorites that I think are worth everyone's time.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ###  The Journeyman Project 1: Pegasus Prime
 
 ![Journey Man Project showing FMV footage of in-game character](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/journey-man-project-showing-fmv-footage-of-in-game-character.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Presto Studios
 
 [_The Journeyman Project 1: Pegasus Prime_](https://www.gog.com/en/game/journeyman%5Fproject%5F1%5Fpegasus%5Fprime%5Fthe) is an absolute classic example of both FMV games and the puzzle game genre, which has also danced with death a few times over the years. This sci-fi time-travel yarn has been updated for modern systems and received a visual overhaul, but this modern version still retains the spirit of that original game I played all those years ago. I can also confirm that it runs perfectly on my [M1 MacBook Air](https://facebook-video-share.techidaily.com/new-2024-approved-discover-the-best-tools-and-tips-to-accurately-tag-your-videos/), which makes it the perfect little game to snuggle up to in bed or on the couch! Also, if you enjoy the game, it's only the first of a trilogy.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ###  Phantasmagoria 2: A Puzzle of Flesh
 
 ![Phantasmagoria 2 showing a scene wth the main character and his girlfriend standing in a computer room.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/phantasmagoria-2-showing-a-scene-wth-the-main-character-and-his-girlfriend-standing-in-a-computer-room.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Sierra / Activision
 
  Most people probably remember the first [_Phantasmagoria_](https://www.gog.com/en/game/phantasmagoria) thanks to the splash this adults-only adventure game made, but for my money, _[Phantasmagoria 2: A Puzzle of Flesh](https://www.gog.com/en/game/phantasmagoria%5F2)_ is the one to play. I can't overemphasize that this is not a game for sensitive audiences, but if you enjoy watching TV shows like _Hannibal_ or enjoy psychological horror stories in general, this will be right up your alley. You play a man one year out of a mental hospital, looking to live a normal life, but so haunted by strange visions and events, you'll doubt your own sanity. I have a big nostalgic soft-spot for this game, and the gritty low-quality of the video actually plays to its benefit, creating a unique atmosphere.
@@ -81,18 +69,6 @@ Sierra / Activision
 
 ![Night Trap scene where three thugs conftony a woman in the bathroom.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/night-trap-scene-where-three-thugs-conftony-a-woman-in-the-bathroom.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Screaming Villains / Digital Pictures
 
  This is quite possibly the most infamous FMV game of all time, and along with titles like _Mortal Kombat_, is [one of the main reasons we have the ESRB](https://screenrant.com/night-trap-game-esrb-rating-creation-1990s/) today, with games rated according to their content.
@@ -112,14 +88,16 @@ Screaming Villains
  Think _House of the Dead,_ but all the zombies are FMV video cutouts instead of polygons. [_Corpse Killer_](https://store.steampowered.com/app/1087700/Corpse%5FKiller%5F%5F25th%5FAnniversary%5FEdition/) was originally a 3DO title, which was a console built on FMV technology, being basically a glorified video player with minimal graphics capabilities. That said, this is another genuinely good example of FMV games. Like [_Mad Dog McCree_](https://en.wikipedia.org/wiki/Mad%5FDog%5FMcCree) (another LaserDisc title), it takes the basic idea of a [light gun game](https://fox-helps.techidaily.com/transform-your-virtual-meetings-using-zoom-within-the-gmail-platform/) and used FMV to bring it to life at a time when real-tme 3D graphics just weren't very nice to look at.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ###  Sherlock Holmes Consulting Detective
 
 ![Sherlock Holmes speaking ot Watson in front of his fireplace.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/sherlock-holmes-speaking-ot-watson-in-front-of-his-fireplace.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Zojoi
 
@@ -141,8 +119,6 @@ Zojoi
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -150,4 +126,17 @@ Zojoi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-key-principles-to-deliver-dynamic-ppt-in-online-meets/"><u>[New] In 2024, Key Principles to Deliver Dynamic PPT in Online Meets</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-designing-direct-access-to-your-channels-subscribe-page-for-2024/"><u>[Updated] Designing Direct Access to Your Channel's Subscribe Page for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/8-best-video-conference-app-for-android-and-iphone-picked-for-2024/"><u>8 Best Video Conference App for Android and iPhone (Picked) for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-samsung-galaxy-a34-5g-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Samsung Galaxy A34 5G</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-mastery-building-dynamic-web-apps-from-scratch/"><u>ChatGPT Mastery: Building Dynamic Web Apps From Scratch</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-simplify-virtual-collaboration-a-zoom-setup-overview/"><u>In 2024, Simplify Virtual Collaboration A Zoom Setup Overview</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/kitty-chronicles-cam-enjoyable-home-based-observations/"><u>Kitty Chronicles Cam: Enjoyable Home-Based Observations</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/moto-g-play-review/"><u>Moto G Play Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/pet-cube-revolutionizes-long-distance-animal-care/"><u>Pet Cube Revolutionizes Long-Distance Animal Care</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-benefits-of-the-google-pixel-4a-a-smart-choice-for-casual-users/"><u>Unveiling the Benefits of the Google Pixel 4A: A Smart Choice for Casual Users</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "DIY Guide: Crafting Customizable Chroma Garden LEDs with Nanomaterial Technology"
-date: 2024-08-30T14:07:02.235Z
-updated: 2024-08-31T14:07:02.235Z
+date: 2024-12-05T06:33:01.871Z
+updated: 2024-12-11T07:38:27.979Z
 tags:
   - games
   - tv
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/60a050976608e9140d90809a0ac2529ef41e9995b
 ---
 
 ## DIY Guide: Crafting Customizable Chroma Garden LEDs with Nanomaterial Technology
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Quick Links
 
@@ -44,24 +48,26 @@ thumbnail: https://thmb.techidaily.com/60a050976608e9140d90809a0ac2529ef41e9995b
 
  Let's get building!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Step 1: Download and Print the Enclosure
 
 ![A mini Nanoleaf made with a Raspberry Pi Zero W, showing the STL files.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/screen-shot-2024-04-04-at-3-40-01-pm.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  First, you'll need to [download the STL files for the enclosure components](http://cults3d.com/en/3d-model/tool/mini-nanoleaf-replica-for-raspberry-pi). These include three mini base/top plates and one each of the box enclosure top and bottom.
 
  Once downloaded, print all the parts according to your 3D printer's instructions. There are also workarounds to [3D print stuff without your own printer](https://extra-information.techidaily.com/new-accelerated-editing-seamless-laptoppc-videos-with-inshot/).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Step 2: Prepare the LEDs
 
 ![Cutting the LED strip for a mini Nanoleaf.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/cut-led-strip.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Cherie Tan / How-To Geek
 
  Using sharp scissors, carefully snip the LED strips along the designated cut lines. For this project, you'll need exactly nine individual LEDs. Be mindful not to cut in between the designated markings, as this can damage the strip.
@@ -70,16 +76,10 @@ Cherie Tan / How-To Geek
 
 ![A mini Nanoleaf in a 3D printed panel.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/mini-nanoleaf-in-3d-printed-panel.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Cherie Tan / How-To Geek
 
  Now comes the fun part: building the LED layout! Gently bend each LED to fit snugly in the corners of the bottom enclosure. Take your time here to ensure clean and even distribution of the LEDs.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ##  Step 3: Make the Circuit Connections
 
 ![Three wires soldered to the LED strip in a mini Nanoleaf.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/solder-three-wires-to-led-strip.png) 
@@ -100,8 +100,9 @@ Cherie Tan / How-To Geek
  It's time to add the brain to your DIY Nanoleaf.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Step 4: Attach the Raspberry Pi and Loop Wires
 
 ![The Raspberry Pi Zero W for a mini Nanoleaf.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/raspberry-pi-zero-w-in-panel.png) 
@@ -116,6 +117,10 @@ Cherie Tan / How-To Geek
 
  Repeat the soldering process from Step 3, connecting the three looped wires from the previous enclosure to the new LED. Continue this process for all remaining LEDs and enclosures, ensuring all LEDs are wired in series.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ![A completely wired DIY Nanoleaf with a Raspberry Pi (powered).](https://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/led-strips-cut-and-connected-to-pi.png) 
 
  To diffuse the LEDs and create a softer light, we can use plain white printer paper. Trace the outline of the LED enclosure onto the paper and cut out the traced shape with slight adjustments to ensure a snug fit inside the enclosure. Place the paper diffusers inside the enclosures and snap the top components back on.
@@ -127,8 +132,9 @@ Cherie Tan / How-To Geek
 ![LED strip panels on a complete DIY Nanoleaf.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/led-strip-panels-complete-nanoleaf-raspberry-pi-w.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Cherie Tan / How-To Geek
 
  Now to program the Raspberry Pi, make sure you have set up SSH and launched a terminal window. Not sure how to do so? We've got a separate guide on [configuring your Raspberry Pi](https://facebook-video-files.techidaily.com/updated-2024-approved-expert-tips-to-cut-through-false-social-endorsements/) if you need a refresher. Open up the [nano editor](https://www.nano-editor.org/) with the following command:
@@ -265,25 +271,10 @@ sudo nano file-name.py
 
 ![A mini DIY Nanoleaf made with a Raspberry Pi.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/mini-nanoleaf-replica-with-pi.jpeg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 Cherie Tan / How-To Geek
 
  This might involve individual colors like red, green, and blue, or even a captivating rainbow effect.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Additional Tips and Tricks
 
  This is just the beginning of your mini Nanoleaf's potential! Here are some other exciting ways to personalize your light:
@@ -300,8 +291,6 @@ Cherie Tan / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -309,4 +298,20 @@ Cherie Tan / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/updated-adding-melodies-to-facebook-clips-easy-methods/"><u>[Updated] Adding Melodies to Facebook Clips Easy Methods</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-asmr-quality-high-standards-meet-affordable-costs/"><u>2024 Approved ASMR Quality High Standards Meet Affordable Costs</u></a></li>
+<li><a href="https://program-issues.techidaily.com/comprehensive-troubleshooting-of-missing-msvcr110dll-in-helldivers-2/"><u>Comprehensive Troubleshooting of Missing MSVCR110.DLL in Helldivers 2</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-must-have-game-in-yakuza-like-a-dragon/"><u>Discover the Must-Have Game in Yakuza: Like a Dragon</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/havit-5-gaming-laptop-cooling-pad-review/"><u>HAVIT 5 Gaming Laptop Cooling Pad Review</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-from-vivo-y28-5g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Vivo Y28 5G Devices</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-honor-x50iplus-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Honor X50i+ FRP Bypass Instantly</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/madden-19-critique-excellent-functionality-beginning-to-show-its-age/"><u>Madden '19 Critique: Excellent Functionality Beginning to Show Its Age</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/spotlight-on-apple-watch-series-4-a-leap-forward-in-excellence/"><u>Spotlight on Apple Watch Series 4: A Leap Forward in Excellence</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-assessing-the-amazon-kindle-oasis-beautifully-designed-luxury-device/"><u>The Ultimate Guide to Assessing the Amazon Kindle Oasis: Beautifully Designed Luxury Device</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-motorola-moto-g-5g-2023-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Motorola Moto G 5G (2023) to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlock-savings-and-convenience-with-a-kindle/"><u>Unlock Savings & Convenience With a Kindle</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-of-the-barnes-and-noble-nook-glowlight-3-an-ultimate-guide-to-your-next-e-reader-purchase/"><u>Unveiling the Features of the Barnes & Noble Nook Glowlight 3 - An Ultimate Guide to Your Next E-Reader Purchase</u></a></li>
+</ul></div>
 

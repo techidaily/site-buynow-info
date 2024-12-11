@@ -1,7 +1,7 @@
 ---
 title: "Forecast Vs. Reality: How Accurate Were Pre-2017 Predictions About the Modern eSports Landscape?"
-date: 2024-08-30T14:07:17.184Z
-updated: 2024-08-31T14:07:17.184Z
+date: 2024-12-07T17:40:04.759Z
+updated: 2024-12-11T02:09:58.350Z
 tags:
   - games
   - tv
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/fe46f510d5bddf23ae454985f506805f0ef965f85
 ---
 
 ## Forecast Vs. Reality: How Accurate Were Pre-2017 Predictions About the Modern eSports Landscape?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Quick Links
 
@@ -32,16 +36,10 @@ thumbnail: https://thmb.techidaily.com/fe46f510d5bddf23ae454985f506805f0ef965f85
 
  Hardware is still increasing at a rapid rate, and eSports tools like [Razr's new gaming keyboard](https://www.theverge.com/2024/7/23/24204422/wooting-razer-snap-tap-socd-beta-feature) promise a lot of fun things to come. Still, gamers in 2019 couldn't have predicted small shifts like this, since the landscape seemed primed to change into something completely revolutionary.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Software Has Also Seen a Lot of Changes
 
 ![A video game controller and a screen displaying a game catalog in the background.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/a-video-game-controller-and-a-screen-displaying-a-game-catalog-in-the-background.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lucas Gouveia / How-To Geek | [KateV28](https://www.shutterstock.com/image-photo/white-xbox-game-controller-lies-next-2248027319) / Shutterstock
 
  Much of the discussion around eSports five years ago centered on getting people engaged with games. [While I've had my issues with the Epic Game Store](https://change-location.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-vivo-y77t-drfone-by-drfone-virtual-android/), it was just beginning to come to prominence in 2019, having launched only a year before. Steam, being the major, dominant force in game distribution, was mentioned a lot during the discussion, but other services like Xbox Live also showed up in speculation.
@@ -51,8 +49,9 @@ Lucas Gouveia / How-To Geek | [KateV28](https://www.shutterstock.com/image-photo
  In 2019, crossplay wasn't supported in a lot of titles, but many gamers expected it to show up in eSports. Cross-platform play brings with it a [few problems when it comes to balancing competitive play](https://screen-sharing-recording.techidaily.com/1715859805411-2024-approved-seeking-the-best-ps2-games-try-these-5-android-emulators/), but that hasn't stopped companies from including it in some titles. This was one of those predictions that gamers got right.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Mobile Acceptance Is Less Than Expected
 
  The mobile gaming market remains one of the largest gaming sectors in the world. Yet many eSports fans don't really accept mobile gamers as being "real" gamers. Posters on the time capsule expected there to be a lot more progress toward mobile acceptance in gaming circles than actually happened.
@@ -60,11 +59,16 @@ Lucas Gouveia / How-To Geek | [KateV28](https://www.shutterstock.com/image-photo
 [Mobile gaming has a lot of serious players](https://win-solutions.techidaily.com/the-ultimate-strategy-to-correct-mw3-dev-error-6068-as-you-head-into-2024/), but most console and PC players think of mobile gamers as strictly casual. The downside of this stigma is that many of these mobile gamers don't bother to switch to more challenging, competitive areas and make their mark in the eSports arena.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Monetization, Microtransactions, and Focus
 
 ![Blade 16 eSports 01 copy-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/blade-16-esports-01-copy-1.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Razer
 
@@ -74,9 +78,6 @@ Razer
 
  Most of the posters expected that game companies, especially those involved in eSports, would double-down on promoting and rewarding eSports leagues. Unfortunately, companies seemed to have gone in completely the opposite direction. While eSports is still big in 2024, especially in titles like _League of Legends_ and _Apex Legends_, some games have fallen by the wayside or been removed from rotation completely. No one could have predicted that back in 2019.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  The More Things Change, The More They Stay The Same
 
  The eSports scene [was growing and expanding in 2019](https://www.androidauthority.com/esports-tournaments-leagues-963799/), with the biggest contenders being titles like _League of Legends_, _Overwatch_, and _Call of Duty_. Gamers predicted that we'd see an increase in the amount of competitive eSports leagues and games so that players in different genres could get in on the action. They also predicted that eSports would be more recognized as a 'real' sport. Unfortunately, neither of these two things happened.
@@ -86,8 +87,9 @@ Razer
  Gaming and eSports have become a much more acceptable pastime, but much of the focus on gaming has shifted from eSports to creators on sites like Twitch and YouTube. While some people still want to know [how to get picked up by professional eSports outlets](https://technical-tips.techidaily.com/ideal-gaming-gear-for-children-ultimate-list-of-consoles-and-add-ons/), most people are happy with creating on their own. Celebrities shifted from being those who could win world titles to those who made fun content online.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  What Should Gamers Expect In The Next 5 Years?
 
  Seeing how hit-and-miss some of the predictions that came from 2019 were, I don't think it's safe to predict anything for 2029\. The entire eSports landscape could have changed by then. Games might have shifted rotation. We might have gotten a _Dota 3_ or still be playing Dota 2 on the same engine. While some of the predictions were spot on, the truth is that eSports and gaming are too difficult to predict, even for short spaces of time, like five years. By then, we might have had [our first Olympics eSports event](https://metro.co.uk/2024/07/24/olympic-esports-games-coming-2025-non-violent-games-21286769/?ico=mosaic%5Fgaming)!
@@ -98,8 +100,6 @@ Razer
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -107,4 +107,21 @@ Razer
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/updated-formulating-flashy-podcast-announcements/"><u>[Updated] Formulating Flashy Podcast Announcements</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-saving-your-social-media-face-from-spurious-support/"><u>[Updated] In 2024, Saving Your Social Media Face From Spurious Support</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/all-in-one-computing-decoded-in-depth-look-at-microsoft-surface-studio-2s-offerings/"><u>All-in-One Computing Decoded: In-Depth Look at Microsoft Surface Studio 2'S Offerings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-differences-in-depth-comparison-of-apples-ipad-pro-vs-microsofts-surface-pro/"><u>Decoding Differences: In-Depth Comparison of Apple's iPad Pro Vs. Microsoft's Surface Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dji-phantom-4-pro-v20-analysis-an-inch-away-from-ideal-drone-performance/"><u>DJI Phantom 4 Pro V2.0 Analysis: An Inch Away From Ideal Drone Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/executive-chair-showdown-why-the-x-chair-x4-dominates-office-seating-reviews/"><u>Executive Chair Showdown: Why the X-Chair X4 Dominates Office Seating Reviews</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-achieving-perfect-fisheye-sphere-shots/"><u>In 2024, Achieving Perfect Fisheye Sphere Shots</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-oppo-reno-10-proplus-5g-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Oppo Reno 10 Pro+ 5G Device</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-oppo-a58-4g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Oppo A58 4G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/perfecting-screen-magnification-techniques-on-ms-teams-for-2024/"><u>Perfecting Screen Magnification Techniques on MS Teams for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/testing-the-limits-an-experts-take-on-the-spectacular-capabilities-of-the-netgear-nighthawk-c7000-router/"><u>Testing the Limits: An Expert's Take on the Spectacular Capabilities of the Netgear Nighthawk C7000 Router</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/top-tips-for-downloading-and-playing-mp3-audio-on-an-ipad-device/"><u>Top Tips for Downloading and Playing MP3 Audio on an iPad Device</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-unleash-your-creativity-top-online-stop-motion-animation-software-for-2024/"><u>Updated Unleash Your Creativity Top Online Stop Motion Animation Software for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Viair's Portable 88P Compressor: A Study in Sheer Power with Minor Compromises"
-date: 2024-12-04T06:44:09.851Z
-updated: 2024-12-05T01:51:17.298Z
+date: 2024-12-07T04:39:37.588Z
+updated: 2024-12-10T22:22:52.965Z
 categories:
   - BestProducts
 description: "This Article Describes Viair's Portable 88P Compressor: A Study in Sheer Power with Minor Compromises"
@@ -67,7 +67,7 @@ PHOTO: Amazon
 ![Anker PowerCore+](https://www.lifewire.com/thmb/_i-FntY6w2FTOeUIsfvpJiLc1SE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AnkerPowerCore-a9873c605cf5485699e0e159bcbd08f2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
@@ -77,10 +77,6 @@ Lifewire / Gannon Burgett
  The PowerCore+ can charge a smartphone up to six times or completely recharge a 13-inch MacBook Pro. That’s hours and hours of extra time on your devices without finding a wall outlet.
 
 [Anker PowerCore+ 26800 Battery Pack Bundle Review](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## High Capacity
 
@@ -109,6 +105,10 @@ PHOTO: Amazon
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/mUdXUjWxeupVqNR_y43_eFTC0ic=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-02-69b93dc934684ef5b71a40215f6162f2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
  The jumper cable features over-voltage protection, auto power off, short circuit protection, reverse polarity protection, reverse current protection, timer circuit protection, and jumper cable spark protection. The charger also doubles as a car emergency kit. It has an LED light, jumper cables, and a carrying pouch, making it an excellent tool for your glove box.
@@ -116,7 +116,7 @@ Lifewire / Andrew Hayward
 [Halo Bolt Portable Charger/Jump Starter Review](https://www.lifewire.com/halo-bolt-portable-charger-jump-starter-review-5071993)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Versatile
@@ -145,10 +145,6 @@ PHOTO: Amazon
 
 ![Max Oak](https://www.lifewire.com/thmb/2J2B95OEgddwTnTPqs5dxy5QN28=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/maxoak-5x4-5db32562b89e462f84a77a28b9065dfa.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Gannon Burgett
 
  Our tester also liked that it measures 8.1 x 5.3 x 1.3 inches and weighs 2.77 pounds, so it could easily fit into your camping bag and won’t be that much heavier. Finally, it includes 14 types of laptop connectors, so it covers most models but not those powered via[USB-C](https://www.lifewire.com/usb-c-4149490) .
@@ -159,6 +155,10 @@ Lifewire / Gannon Burgett
 
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/aab2LeeqDhnHWsxLWYdgueO7v1Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-03-1530f666df824f6281040c2ae3285eb2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
 ## What to Look For in a Portable Laptop Battery Charger
@@ -167,13 +167,13 @@ Lifewire / Andrew Hayward
 
  When picking a portable laptop battery charger, one of your primary considerations should be its capacity to store energy (measured in mAh)—this denotes the device’s battery life before it needs to be recharged. Be sure that the battery has equal or more capacity than the one already inside your machine so that you can expect a full charge.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Output
 
  Some portable chargers can be a bit slow when outputting a charge, so be sure that the battery you’re purchasing has an output equal to or higher than the wattage of your typical laptop charger.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Connectors
 
@@ -223,18 +223,16 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-journey-beyond-boundaries-secure-this-top-7-metavue-tech/"><u>[New] 2024 Approved Journey Beyond Boundaries - Secure This Top 7 Metavue Tech</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-the-best-front-row-activities-that-arent-games/"><u>[New] 2024 Approved The Best Front-Row Activities That Aren't Games</u></a></li>
-<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-realme-v30-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Realme V30 to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-motorola-one-5g-ace-assessment-blazing-fast-5g-and-unmatched-battery-life-explored/"><u>Comprehensive Motorola One 5G Ace Assessment - Blazing-Fast 5G and Unmatched Battery Life Explored</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-premier-vertical-mice-of-2024-innovative-designs-for-ultimate-control/"><u>Discover the Premier Vertical Mice of 2024: Innovative Designs for Ultimate Control</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-ankers-superspeed-usb-30-hub-powerhouse-performance/"><u>Expert Insights on Anker's SuperSpeed USB 3.0 Hub Powerhouse Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-alienware-aurora-r11-claiming-the-throne-as-the-premier-gaming-computer/"><u>Expert Insights on the Alienware Aurora R11: Claiming the Throne as the Premier Gaming Computer</u></a></li>
-<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-tecno-pova-5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Tecno Pova 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/immerse-yourself-in-books-rain-or-shine-discovering-the-kobo-libra-h2os-top-features-and-review/"><u>Immerse Yourself in Books, Rain or Shine: Discovering the Kobo Libra H2O's Top Features and Review</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-exclusive-screenflow-examination-for-mac-users/"><u>In 2024, Exclusive ScreenFlow Examination for Mac Users</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Nokia XR21? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/movavimovavi-f4v-to-mp4/"><u>MOVAVIを使った無料で簡単なオンラインMovavi F4V to MP4変換ツール</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/why-modern-apps-might-not-work-on-your-current-ipad/"><u>Why Modern Apps Might Not Work on Your Current iPad</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-ultimate-youtuber-convention-guide-post-vidcon/"><u>2024 Approved The Ultimate Youtuber Convention Guide (Post-VidCon)</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Nokia 105 Classic | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/conversione-rapida-e-senza-perdite-di-qualita-trasforma-i-tuoi-file-mkv-in-mp4-sul-tuo-mac/"><u>Conversione Rapida E Senza Perdite Di Qualità: Trasforma I Tuoi File MKV in MP4 Sul Tuo Mac</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/effortless-aac-upgrade-from-wma-on-the-web-discover-how-movavi-can-help-you/"><u>Effortless AAC Upgrade From WMA on the Web: Discover How Movavi Can Help You!</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-ultimate-selection-for-top-tier-hdr-cameras/"><u>In 2024, Ultimate Selection for Top-Tier HDR Cameras</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-trendy-and-sophisticated-swagtrn-swagger-e-scooter-for-urban-travel/"><u>Reviewing the Trendy and Sophisticated Swagtrn Swagger E-Scooter for Urban Travel</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rotibox-bluetooth-beanie-cap-analysis-exceptional-wearability-meets-high-quality-audio-features/"><u>Rotibox Bluetooth Beanie Cap Analysis: Exceptional Wearability Meets High-Quality Audio Features</u></a></li>
+<li><a href="https://techidaily.com/the-5-best-methods-to-track-a-lost-or-stolen-iphone-13-pro-max-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>The 5 Best Methods to Track a Lost or Stolen iPhone 13 Pro Max | Stellar</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-7th-generation-kindle-paperwhite-from-amazon-an-in-depth-book-lovers-guide-and-review/"><u>The 7Th Generation Kindle Paperwhite From Amazon - An In-Depth Book Lover's Guide & Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-top-5-usb-wi-fi-adapter-models-dominating-202-cuisine-trends/"><u>The Top 5 USB Wi-Fi Adapter Models Dominating 202 Cuisine Trends</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-lowdown-on-the-budget-friendly-beatech-bitwatch-s1-plus-an-intriguing-wearable-device-review/"><u>The Ultimate Lowdown on the Budget-Friendly Beatech Bitwatch S1 Plus: An Intriguing Wearable Device Review</u></a></li>
 </ul></div>
 

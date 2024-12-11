@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Guide to the Netgear Nighthawk RAX80: Experience Lightning-Fast Wi-Fi 6 Technology"
-date: 2024-12-02T07:55:04.372Z
-updated: 2024-12-04T20:40:08.459Z
+date: 2024-12-09T00:25:54.993Z
+updated: 2024-12-10T18:46:17.418Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Guide to the Netgear Nighthawk RAX80: Experience Lightning-Fast Wi-Fi 6 Technology"
@@ -18,17 +18,9 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/GshnCnk_G-hNSwDTRjGVB28Nl-o=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -80,7 +72,7 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Pretty awkward**
@@ -92,7 +84,7 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Avoid the app**
@@ -106,6 +98,10 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
  Over and over, the setup process wouldn’t complete… and then it finally did. I ran into similar issues with the other Netgear extenders, in which setup processes didn’t work as expected on the first or second time, but this was a much longer and more arduous ordeal. Finally, however, I got the Nighthawk AX8 up and running. From there, you’ll need to find a new location for the extender—roughly halfway between the router and your Wi-Fi dead zone is ideal, but play around with positioning if you’re not getting the results you seek.
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -125,10 +121,6 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -137,11 +129,19 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: More than most**
 
  The Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender is listed at $250, although it’s being sold for $220 at multiple retailers as of this writing. That’s definitely on the higher end for an extender.
 
  Should you really spend that much on an extender? If you don’t already have a new Wi-Fi 6 router, then probably not. You might see higher peaks of speed as I did, but rather than trying to mix and match old and new tech, you’re probably better off investing in a new Wi-Fi mesh system that can cover the entire house. Netgear’s Orbi is a favorite, as is Google’s similar Nest Wi-Fi system.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Netgear Nighthawk AX8 vs. Netgear Nighthawk X6S (EX8000)**
 
@@ -179,22 +179,22 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-engaging-audiences-triad-of-effective-storytelling/"><u>[Updated] In 2024, Engaging Audiences Triad of Effective Storytelling</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-top-10-collage-apps-for-android-top-picks/"><u>2024 Approved Top 10 Collage Apps for Android (Top Picks)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-and-evaluation-of-the-google-maps-iphone-version/"><u>Comprehensive Guide & Evaluation of the Google Maps iPhone Version</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/critical-analysis-of-the-pixel-slate-unraveling-chromeos-complications/"><u>Critical Analysis of the Pixel Slate: Unraveling ChromeOS Complications</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/decoding-iphones-software-succession-for-future-proofing-phones/"><u>Decoding iPhone's Software Succession for Future-Proofing Phones</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/effective-blog-monetization-strategies-leveraging-buyselladscom-to-increase-earnings/"><u>Effective Blog Monetization Strategies: Leveraging BuySellAds.com to Increase Earnings</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/enhance-your-zoom-experience-with-top-cam-picks-6/"><u>Enhance Your Zoom Experience with Top Cam Picks #6</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/free-winx-dvd-creator-software-top-choice-for-seamless-dvd-burning-on-windows-11/"><u>Free WinX DVD Creator Software: Top Choice for Seamless DVD Burning on Windows 11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ideal-trackpad-solutions-for-your-ipad/"><u>Ideal Trackpad Solutions for Your iPad</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/identifying-key-differences-between-amazons-echo-pop-and-echo-dot/"><u>Identifying Key Differences Between Amazon's Echo Pop and Echo Dot</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-startups-guide-to-earnings-on-youtube-platform/"><u>In 2024, Startups' Guide to Earnings on YouTube Platform</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-meizu-21-pro-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Meizu 21 Pro Device</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ring-metadata-the-power-of-accurate-video-tags-for-2024/"><u>Mastering Metadata The Power of Accurate Video Tags for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mavix-m9-chairs-for-gamers-a-thorough-review-on-performance-and-ergonomic-support/"><u>Mavix M9 Chairs for Gamers – A Thorough Review on Performance and Ergonomic Support</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-your-computer-solutions-for-missing-fm20dll-files/"><u>Troubleshooting Your Computer: Solutions for Missing fm20.dll Files</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/unlock-creative-potential-advanced-zooming-on-snapchat-for-2024/"><u>Unlock Creative Potential Advanced Zooming on Snapchat for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-of-the-huion-inspiroy-g1-t-tablet-a-detailed-review-on-quality-and-efficiency/"><u>Unveiling the Features of the Huion Inspiroy G1# T-Tablet: A Detailed Review on Quality and Efficiency</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/aomei-windows-10/"><u>AOMEI 图像部署工具——针对Windows 10的最佳选择</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bargain-hunters-rejoice-unmatched-savings-on-benq-monitors-and-projectors-this-prime-sale-season/"><u>Bargain Hunters Rejoice: Unmatched Savings on BenQ Monitors & Projectors This Prime Sale Season!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-high-end-philips-somneo-alarm-system/"><u>Comprehensive Review of the High-End Philips Somneo Alarm System</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-creative-marvels-with-apples-ipad-air-2019-an-in-depth-review/"><u>Discover the Creative Marvels with Apple's iPad Air (2019): An In-Depth Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-delight-in-driving-with-the-ddpai-mini-3-a-fresh-take-on-dashcams/"><u>Discovering Delight in Driving with the DDpai Mini 3: A Fresh Take on Dashcams</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-motorola-one-5g-ace-lightning-fast-5g-speeds-and-robust-battery-life-reviewed/"><u>Experience the Motorola One 5G Ace: Lightning Fast 5G Speeds and Robust Battery Life Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-the-finest-upgrades-for-your-iphone-experience/"><u>Expert Picks: The Finest Upgrades for Your iPhone Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-a-fun-narrative-a-comprehensive-look-into-the-outer-worlds-shooter-game/"><u>Exploring a Fun Narrative: A Comprehensive Look Into The Outer Worlds Shooter Game</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-features-and-performance-of-the-affordable-samsung-galaxy-s1e-review-making-big-impact-in-a-small-package/"><u>Exploring the Features and Performance of the Affordable Samsung Galaxy S1e Review: Making Big Impact in a Small Package</u></a></li>
+<li><a href="https://techidaily.com/factory-reset-on-apple-iphone-14-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>Factory Reset on Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/guide-to-parent-controls-on-microsoft-windows-11/"><u>Guide to Parent Controls on Microsoft Windows 11</u></a></li>
+<li><a href="https://os-tips.techidaily.com/how-to-securely-archive-your-messages-comprehensive-guide-to-sms-backup-for-iphone-and-android-devices/"><u>How to Securely Archive Your Messages: Comprehensive Guide to SMS Backup for iPhone and Android Devices</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-1-to-10-superior-4k-screen-selections/"><u>In 2024, 1 to #10 Superior 4K Screen Selections</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/reformatting-your-pc-a-step-by-step-guide-post-windows-11-update/"><u>Reformatting Your PC: A Step-by-Step Guide Post-Windows 11 Update</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/saghe-numeriche-in-italiano-comunicazione-e-lettura-intermedia/"><u>Saghe Numeriche in Italiano: Comunicazione E Lettura Intermedia</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-how-to-binge-watch-dragon-ball-chronologically/"><u>Step by Step: How to Binge-Watch Dragon Ball Chronologically</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unlocking-home-security-with-less-than-50-iseebell-video-doorbells-reviewed/"><u>Unlocking Home Security with Less Than $50 - ISeeBell Video Doorbells Reviewed!</u></a></li>
 </ul></div>
 

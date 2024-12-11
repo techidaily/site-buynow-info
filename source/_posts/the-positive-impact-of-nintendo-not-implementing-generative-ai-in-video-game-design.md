@@ -1,7 +1,7 @@
 ---
 title: The Positive Impact of Nintendo Not Implementing Generative AI in Video Game Design
-date: 2024-08-30T14:07:40.396Z
-updated: 2024-08-31T14:07:40.396Z
+date: 2024-12-03T19:20:06.543Z
+updated: 2024-12-11T00:07:35.057Z
 tags:
   - games
   - tv
@@ -13,12 +13,20 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ## The Positive Impact of Nintendo Not Implementing Generative AI in Video Game Design
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Quick Links
 
 * [Generative AI Raises Serious Ethical Concerns](https://extra-lessons.techidaily.com/in-2024-boost-your-iphone-imagery-with-light-tricks/)
 * [Generative AI Can Hardly Add Any Value (For Now)](https://www.howtogeek.com/nintendo-wont-use-generative-ai-in-games-heres-why-thats-a-good-thing/#generative-ai-can-hardly-add-any-value-for-now)
 * [Generative AI Is Expensive](https://facebook-video-files.techidaily.com/updated-fb-sounds-unlimited-grab-and-go/)
 * [It’s Good to See a Big Company Standing Its Ground](https://on-screen-recording.techidaily.com/updated-which-should-you-use-obs-studio-or-bandicam-for-2024/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -29,8 +37,9 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
  AI-adjacent technologies are nothing new in video games. Enemies dubbed "artificial intelligence" have existed in games as old as _Space Invaders_ and _Pac-Man_, but because of generative AI, it's now a matter of contention for game developers. Nintendo, for one, won't be jumping on the AI bandwagon just yet.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Generative AI Raises Serious Ethical Concerns
 
  Nintendo president Shuntaro Furukawa explained in a [shareholder Q&A](https://www.tweaktown.com/news/99109/nintendo-wont-use-generative-ai-in-its-first-party-games/index.html) that the company won't use generative AI because of potential copyright issues: "Generative AI, which is becoming a big topic recently, can be used in creative ways, but we recognize that it may also raise issues with intellectual property rights." Because of how generative AI learns, [vast amounts of (potentially copyrighted) data](https://youtube-docs.techidaily.com/approved-mastering-timeliness-using-current-events-to-your-advantage/) has been used to understand, recognize, and recreate common patterns.
@@ -41,9 +50,6 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Nintendo Switch console with green and pink JoyCon controllers.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/nintendo_switch_green_pink.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 Tim Brookes / How-To Geek
 
  Another ethical concern over the use of generative AI is the fact that it's potentially taking away jobs from real people. The video game industry has seen massive layoffs over the last few years, which resulted in [over 20,000 people](https://www.eurogamer.net/games-industry-layoffs-surpass-10000-for-2024-so-far) losing their livelihoods in 2023 and 2024 due to the post-pandemic slowdown, high-profile mergers and acquisitions, and rising video game development costs.
@@ -52,9 +58,6 @@ Tim Brookes / How-To Geek
 
  Fortunately, Nintendo plans to retain its talented workforce in the face of AI. This is what they had to say at the aforementioned Q&A: "We have decades of know-how in creating optimal gaming experiences for our customers, and while we remain flexible in responding to technological developments, we hope to continue to deliver value that is unique to us and cannot be achieved through technology alone."
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Generative AI Can Hardly Add Any Value (For Now)
 
  In my opinion, the content generated by current AI models is generic and light on substance for two important reasons. First, AI has no opinions and emotions, so it doesn't have the capability to understand and judge its own work.
@@ -62,6 +65,10 @@ Tim Brookes / How-To Geek
  When you were (or still are) a high school student submitting a poorly written essay, you had a pretty good understanding of what grade to expect. If you knew you were turning in a well-written essay, there's a good chance that your teacher would agree. AI isn't self-aware and can't evaluate its work, at least not in a way that would create an impact on a game's story, gameplay, or even artwork.
 
 ![A ChatGPT AI tutor robot helping a boy.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/a-chatgpt-ai-tutor-robot-helping-a-boy.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
   
 Lucas Gouveia / How-To Geek | [Stock-Asso](https://www.shutterstock.com/en/image-photo/innovative-ai-robot-tutor-helping-teenage-2271198751) / Shutterstock
@@ -75,8 +82,9 @@ Lucas Gouveia / How-To Geek | [Stock-Asso](https://www.shutterstock.com/en/image
  To be fair to generative AI, the technology is still in its infancy, so it'll only get better over time. Machine learning algorithms help developers make more realistic graphics, environments, and physics. Additionally, clever AI in enemies can make combat more immersive—think of NPCs running for cover when a shootout starts or drivers avoiding collisions to stay in the race.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Generative AI Is Expensive
 
  While generative AI has the potential to cut down on costs and the time it takes to develop a game significantly, the current situation tells us otherwise. [LLMs](https://extra-support.techidaily.com/2024-approved-picture-perfect-presentation-software-for-impeccable-photo-framing/) need a ton of processing power provided by powerful hardware. Moreover, developers have to adapt and train the LLM to suit their needs, so it takes a lot of money and human work before an AI model can be effectively used in a game.
@@ -85,16 +93,10 @@ Lucas Gouveia / How-To Geek | [Stock-Asso](https://www.shutterstock.com/en/image
 
 ![An AI chip with a video game controller above it.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/an-ai-chip-with-a-video-game-controller-above-it.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 Lucas Gouveia / How-To Geek | Best Buy
 
  Even though generative AI can assist game development in major ways and potentially reduce labor costs, it's unlikely to reduce video game development costs. According to a [Bain & Company report](https://www.bain.com/about/media-center/press-releases/2023/generative-ai-will-contribute-to-more-than-half-of-video-game-development-within-next-5-to-10-years-finds-bain--company), only 20% of gaming executives believe that generative AI will reduce development costs.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  It’s Good to See a Big Company Standing Its Ground
 
  Nintendo isn't a perfect video game company by any measure, but it's good to see a company worth [$63 billion](https://companiesmarketcap.com/nintendo/marketcap/) say "no" to the generative AI craze. If Nintendo keeps up the good work, retains its reputation among gamers, and sees a market cap increase, its reliance on traditional human talent can have a significant influence on the whole video game industry.
@@ -107,8 +109,6 @@ Lucas Gouveia / How-To Geek | Best Buy
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -116,4 +116,23 @@ Lucas Gouveia / How-To Geek | Best Buy
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-video-recording-titans-obs-studio-vs-fraps-face-off/"><u>[New] In 2024, Video Recording Titans OBS Studio vs Fraps Face-Off</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-discover-leading-free-apps-excellent-srt-file-converters/"><u>[Updated] Discover Leading Free Apps Excellent Srt File Converters</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unmatched-no-fee-mobile-and-web-picture-enhancement-for-2024/"><u>[Updated] Unmatched No-Fee Mobile & Web Picture Enhancement for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boring-godfall-a-disappointing-debut-for-the-playstation-5/"><u>Boring Godfall - A Disappointing Debut for the PlayStation 5</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/critical-look-at-godfall-for-ps5-a-lackluster-gaming-experience/"><u>Critical Look at Godfall for PS5 – A Lackluster Gaming Experience</u></a></li>
+<li><a href="https://network-issues.techidaily.com/disconnected-from-wi-fi-reconnect-with-win10-steps/"><u>Disconnected From Wi-Fi? Reconnect with Win10 Steps</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-navigating-through-the-speed-and-reliability-of-asus-orbis-whole-home-mesh-wi-fi-solution/"><u>Expert Review: Navigating Through the Speed and Reliability of Asus Orbi's Whole-Home Mesh Wi-Fi Solution</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-find-and-install-updated-drivers-for-the-hp-laserjet-1320-on-windows-systems/"><u>How to Find and Install Updated Drivers for the HP LaserJet 1320 on Windows Systems</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-honor-play-8t-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Honor Play 8T</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/navigating-the-world-of-snapchat-for-professional-growth/"><u>Navigating the World of Snapchat for Professional Growth</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-translate-instagram-videos-easily-a-step-by-step-guide/"><u>New Translate Instagram Videos Easily A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/raspberry-pi-400-review-a-mini-pc-in-a-keyboard/"><u>Raspberry Pi 400 Review: A Mini PC in a Keyboard</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-the-barnes-and-noble-nook-glowlight-plus-featuring-expansive-screen-size/"><u>Review of the Barnes & Noble Nook GlowLight Plus – Featuring Expansive Screen Size!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-asus-vivobook-11-stellar-reviews-for-a-compact-and-economical-machine/"><u>The Ultimate Guide to Asus VivoBook 11: Stellar Reviews for a Compact & Economical Machine</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-selection-of-top-tier-portable-gaming-consoles/"><u>The Ultimate Selection of Top-Tier Portable Gaming Consoles</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/transformative-strategies-for-youtube-live-enthusiasts-for-2024/"><u>Transformative Strategies for YouTube Live Enthusiasts for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Review of the iX Smart Escort Detection Device: A Cutting-Edge Gadget That Learns Your Routes"
-date: 2024-11-27T18:09:34.260Z
-updated: 2024-12-04T20:53:31.442Z
+date: 2024-12-08T19:23:59.289Z
+updated: 2024-12-11T04:18:35.082Z
 categories:
   - BestProducts
 description: "This Article Describes Review of the iX Smart Escort Detection Device: A Cutting-Edge Gadget That Learns Your Routes"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/OIHJ0F8VMR0yFUpC8veJBJ39E6A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -48,10 +52,6 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Tony Mitera
 
 [View On EBay](https://www.ebay.com/p/563813511)
@@ -76,7 +76,7 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: A lot of power packed into a small frame**
@@ -97,10 +97,6 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: Plenty of power for all your needs**
 
  Time and again, the Beatit Jump Starter D11 was able to get a car with a very[depleted battery](https://www.lifewire.com/car-batteries-are-made-to-die-534765) started. Even after repeated testing the unit’s own battery only dropped down to 85% capacity.
@@ -108,6 +104,10 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
  Charging a phone with a jump starter seems like overkill, and the unit’s ability to charge at 1,200mAh confirms that impression. At such an elevated level of charging your phone or other device will likely get its battery topped off in very little time. With 18,000mAh of capacity you can fully charge a modern phone at least twice, and still leave the unit with the juice it needs in order to start a car.
 
  Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
@@ -117,15 +117,15 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: A ton of value for a tiny cost**
 
  The MSRP of the Beatit Jump Starter D11 is $70 which makes it one of the most affordable jump starters on the market. Indeed, at that price, it's the least expensive one we tested, yet no part of it feels like any corners were cut in terms of quality or performance.
 
  At that price point, it packs a ton of value into its diminutive size.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: In the battle of the smallest, this one reigns supreme**
 
@@ -144,7 +144,7 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -178,24 +178,19 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-innovative-mobile-multimedia-tools-to-transform-photos/"><u>[New] Innovative Mobile Multimedia Tools to Transform Photos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-perfectly-permanent-images-instagram-photowatermark-techniques-for-2024/"><u>[New] Perfectly Permanent Images Instagram Photowatermark Techniques for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-snapchat-entrepreneurs-handbook-for-profitability/"><u>[Updated] The Snapchat Entrepreneur's Handbook for Profitability</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-autofocus-on-iphone-a-step-by-step-approach/"><u>2024 Approved Mastering Autofocus on iPhone A Step-by-Step Approach</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/adventure-danger-and-discovery-critical-insight-into-the-majestic-creatures-of-monster-hunter-world/"><u>Adventure, Danger & Discovery: Critical Insight Into the Majestic Creatures of 'Monster Hunter: World'</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-unboxing-and-in-depth-review-of-apple-watch-series-9/"><u>Comprehensive Guide: Unboxing & In-Depth Review of Apple Watch Series 9</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-amazfit-gts-where-chic-design-clashes-with-performance/"><u>Evaluating the Amazfit GTS: Where Chic Design Clashes with Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expanding-wi-fi-signal-strength-the-power-of-netgear-nighthawk-x6s-extender/"><u>Expanding Wi-Fi Signal Strength: The Power of Netgear Nighthawk X6S Extender</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-vivo-y28-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Vivo Y28 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Stop My Spouse from Spying on My Apple iPhone 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/learn-9-methods-to-access-and-tweak-windows-sound-settings/"><u>Learn 9 Methods to Access and Tweak Windows Sound Settings</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-mobile-workflows-how-the-202n-ipad-pro-with-m1-chip-delivers-desktop-efficiency-in-tablet-form/"><u>Mastering Mobile Workflows: How the 202N iPad Pro with M1 Chip Delivers Desktop Efficiency in Tablet Form</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-video-editing-on-a-budget-top-free-special-effects-apps-for-mobile/"><u>New Video Editing on a Budget Top Free Special Effects Apps for Mobile</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/rugged-and-ready-in-depth-analysis-of-the-powerful-unihertz-atom-xl-device/"><u>Rugged and Ready: In-Depth Analysis of the Powerful Unihertz Atom XL Device</u></a></li>
-<li><a href="https://win-blog.techidaily.com/simple-solutions-repairing-a-steam-game-with-a-corrupted-installation-disc/"><u>Simple Solutions: Repairing a Steam Game with a Corrupted Installation Disc</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-ranking-review-of-apples-new-marvel-the-iphone-12/"><u>Top Ranking Review of Apple's New Marvel, The iPhone 12</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-adobe-after-effects-fixing-crashes-on-windows-11-and-10/"><u>Troubleshooting Adobe After Effects: Fixing Crashes on Windows 11 and 10</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-lg-gram-156-laptop-evaluation-for-2018-exceptionally-lightweight-with-long-battery-life/"><u>Ultimate LG Gram 15.6 Laptop Evaluation for 2018 - Exceptionally Lightweight with Long Battery Life</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-upgrades-a-detailed-review-of-samsung-galaxy-watch-active-2s-enhanced-smartwatch-capabilities/"><u>Unveiling the Upgrades: A Detailed Review of Samsung Galaxy Watch Active 2'S Enhanced Smartwatch Capabilities</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-savvy-sponsorship-strategies-for-small-scale-sites/"><u>[New] 2024 Approved Savvy Sponsorship Strategies for Small-Scale Sites</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-high-end-sound-pumping-tools-pcs-and-smartphones-for-2024/"><u>[New] High-End Sound Pumping Tools PCs & Smartphones for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/solved-computer-wont-wake-up-from-sleep-windows-1110/"><u>[SOLVED] Computer Won't Wake Up From Sleep Windows 11/10</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-revolutionize-your-content-with-these-top-10-editing-strategies/"><u>[Updated] In 2024, Revolutionize Your Content with These Top 10 Editing Strategies</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-blueprint-to-surge-in-youtubers-popularity/"><u>[Updated] The Blueprint to Surge in Youtubers' Popularity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-imac-215-inch-4k-review-style-and-power/"><u>Apple iMac 21.5-Inch 4K Review: Style and Power</u></a></li>
+<li><a href="https://techtrends.techidaily.com/davinci-resolve-continues-to-fail-at-launch-discover-how-to-stabilize-your-editing-software/"><u>DaVinci Resolve Continues to Fail at Launch? Discover How to Stabilize Your Editing Software!</u></a></li>
+<li><a href="https://fox-access.techidaily.com/perfecting-your-sound-palette-with-audacity-crossfading-for-2024/"><u>Perfecting Your Sound Palette with Audacity Crossfading for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-future-of-portable-computing-revealed-a-comprehensive-review-of-razer-blade-stealth-13/"><u>The Future of Portable Computing Revealed - A Comprehensive Review of Razer Blade Stealth 13</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-image-manipulation-with-macastockticker-a-secret-editor-tool/"><u>The Ultimate Guide to Image Manipulation with Mac'astock_ticker, a Secret Editor Tool</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-picks-why-the-ring-video-doorbell-pro-stands-out-in-reviews/"><u>Top Picks: Why the Ring Video Doorbell Pro Stands Out in Reviews</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitching-videos-seamlessly-twitter-and-tumblr-guide/"><u>Twitching Videos Seamlessly Twitter & Tumblr Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-evaluation-of-the-2021-ipad-pro-with-m1-chip-top-notch-desktop-level-performance/"><u>Ultimate Evaluation of the 2021 iPad Pro with M1 Chip - Top Notch Desktop-Level Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-evaluation-of-the-google-wireless-nest-doorbell-on-batteries/"><u>Ultimate Evaluation of the Google Wireless Nest Doorbell on Batteries</u></a></li>
 </ul></div>
 

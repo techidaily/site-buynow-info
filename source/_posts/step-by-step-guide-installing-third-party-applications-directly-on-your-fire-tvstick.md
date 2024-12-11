@@ -1,7 +1,7 @@
 ---
 title: "Step-by-Step Guide: Installing Third-Party Applications Directly on Your Fire TV/Stick"
-date: 2024-09-04T01:37:55.550Z
-updated: 2024-09-05T01:37:55.550Z
+date: 2024-12-03T23:50:59.747Z
+updated: 2024-12-11T07:52:15.628Z
 tags:
   - games
   - tv
@@ -29,18 +29,6 @@ thumbnail: https://thmb.techidaily.com/918241799e85f81dec9b4161207ab0693452bcd53
 
 [Sideloading](https://tech-haven.techidaily.com/navigating-nuance-the-human-advantage-over-bots/) is the process of installing apps without the Appstore. We'll manually download the APK and install it ourselves. There are apps made for [Android TV and Google TV](https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-apple-iphone-6s-plus-here-is-the-answer-drfone-by-drfone-virtual-ios/) that aren't available in the Amazon Appstore, and some Android apps work fine on a TV despite not being designed for it. Sideloading allows you to use them on a Fire TV.
 
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  How to Enable Developer Options on Amazon Fire TV
 
  To [enable the hidden "Developer Options" menu](https://fix-guide.techidaily.com/how-to-fix-it-samsung-galaxy-a05s-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/), go to Settings > My Fire TV or Device & Options > About > Click the device name until a message says, "You are now a developer." Here's what that process looks like.
@@ -49,32 +37,22 @@ thumbnail: https://thmb.techidaily.com/918241799e85f81dec9b4161207ab0693452bcd53
 
 ![Select &quot;My Fire TV.&quot;](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/06/2-fire-tv-menu.png?trim=1,1&amp;bg-color=000&amp;pad=1,1) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Next, select "About."
 
 ![Select "About."](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2017/12/2023-05-11_11-44-23.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030391/7443" target="_top" id="2030391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030391/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Now click your device name seven times until you see a message that says, "You are now a developer."
 
 ![Select the Fire TV device name seven times.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/06/4-fire-tv-unlock-developer-options-menu.png?trim=1,1&amp;bg-color=000&amp;pad=1,1) 
 
 <!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  The Developer Options menu will now be visible underneath "About" on the "My Fire TV" or "Device & Software" screen.
 
 ![Unlocked &quot;Developer Options&quot; menu on Fire TV.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/06/5-fire-tv-developer-options.png?trim=1,1&amp;bg-color=000&amp;pad=1,1) 
@@ -82,11 +60,9 @@ thumbnail: https://thmb.techidaily.com/918241799e85f81dec9b4161207ab0693452bcd53
  That's all there is to it! This menu used to be visible by default, but now it more closely resembles the process for [enabling the Developer Options menu on other Android devices](https://desktop-recording.techidaily.com/premium-video-capture-without-extras-for-2024/).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Allow Apps From Unknown Sources on Fire TV
 
  To sideload Android apps on a Fire TV device, you need to first allow "Apps From Unknown Sources" to be installed. This can be done from the Developer Options menu we enabled in the section above.
@@ -106,17 +82,9 @@ thumbnail: https://thmb.techidaily.com/918241799e85f81dec9b4161207ab0693452bcd53
  You're all set! Now, we can go ahead and install apps from sources other than the Amazon Appstore.
 
 <!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  How to Sideload Android Apps on Fire TV
 
  Before we can do anything, you'll need an APK to sideload, and we highly recommend using your phone for this part. You can [download APKs with some tools](https://youtube-sure.techidaily.com/cover-film-noir-creating-vintage-scenes/) or use the [APK Mirror](https://www.apkmirror.com/) website, which is a trusted source for downloading apps. Just make sure to download APK files, not [app "bundles."](https://tiktok-clips.techidaily.com/updated-the-artisans-guide-to-tiktok-captions-top-5-craftsmanship-strategies-for-2024/) 
@@ -126,11 +94,9 @@ thumbnail: https://thmb.techidaily.com/918241799e85f81dec9b4161207ab0693452bcd53
 !["Send Files to TV" app.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2017/12/screen-2023-05-11-100477.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  After installing the app on your Fire TV, open it and grant permission to access media. Then, go to the main screen and select "Receive."
 
 ![Grant permission and select "Receive."](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2020/12/2023-05-10_10-05-04.png) 
@@ -139,35 +105,25 @@ thumbnail: https://thmb.techidaily.com/918241799e85f81dec9b4161207ab0693452bcd53
 
 ![Grant permission and tap "Send."](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2020/12/2023-05-10_10-27-04.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Find the APK file you downloaded earlier, then select your Fire TV device to send it.
 
 ![Send the APK file to your Fire TV.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2017/12/2023-05-11_12-24-55.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  You'll see the file transfer appear in the app on your TV. Once it's finished, select the file.
 
 ![Select the transferred APK file.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2020/12/2023-05-10_10-31-59.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Select "Open" from the menu.
 
 ![Select "Open."](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2017/12/screen-2023-05-11-101448.png) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Next, select "Install" from the menu.
 
@@ -189,8 +145,6 @@ thumbnail: https://thmb.techidaily.com/918241799e85f81dec9b4161207ab0693452bcd53
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -198,4 +152,19 @@ thumbnail: https://thmb.techidaily.com/918241799e85f81dec9b4161207ab0693452bcd53
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/haping-viewers-attention-employing-jump-cuts-in-video-editing/"><u>[New] Shaping Viewers’ Attention Employing Jump Cuts in Video Editing</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-best-practices-for-imovie-videos-entering-the-vimeo-realm/"><u>[Updated] 2024 Approved Best Practices for iMovie Videos Entering the Vimeo Realm</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-fitbit-charge-6-a-detailed-user-guide/"><u>Comprehensive Analysis of the Fitbit Charge 6: A Detailed User Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-test-of-the-asus-rt-ac68u-quick-robust-5g-networking-experience/"><u>Comprehensive Test of the Asus RT-AC68U: Quick, Robust 5G Networking Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/getting-the-most-out-of-your-workouts-with-the-fitbit-versa-lite-review/"><u>Getting the Most Out of Your Workouts with The Fitbit Versa Lite Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-the-latest-8th-generation-apple-ipad-with-a-102-inch-screen-redefines-affordability-and-quality/"><u>How The Latest 8Th Generation Apple iPad With a 10.2-Inch Screen Redefines Affordability and Quality</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-nwstoreexe-application-error/"><u>How to Fix NW_store.exe Application Error</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-permanent-linkage-to-tiktok-profiles-without-hiccups/"><u>In 2024, Permanent Linkage to TikTok Profiles Without Hiccups</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-the-modestly-powerful-google-pixel-phone-5/"><u>In-Depth Review of the Modestly Powerful Google Pixel Phone 5,</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-home-security-a-complete-breakdown-of-the-newly-released-ring-battery-doorbell/"><u>Mastering Home Security: A Complete Breakdown of the Newly Released Ring Battery Doorbell</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/secure-your-new-ipad-pro-air-and-pencil-pro-before-launch-top-deals-on-zdnet-now/"><u>Secure Your New iPad Pro, Air, and Pencil Pro Before Launch - Top Deals on ZDNET Now!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/squared-success-creating-compelling-video-posts-on-facebook/"><u>Squared Success Creating Compelling Video Posts on Facebook</u></a></li>
+</ul></div>
 

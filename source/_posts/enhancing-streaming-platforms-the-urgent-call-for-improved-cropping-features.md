@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Streaming Platforms: The Urgent Call for Improved Cropping Features"
-date: 2024-09-04T01:38:59.125Z
-updated: 2024-09-05T01:38:59.125Z
+date: 2024-12-07T07:11:32.752Z
+updated: 2024-12-11T07:33:46.131Z
 tags:
   - games
   - tv
@@ -13,6 +13,10 @@ thumbnail: https://thmb.techidaily.com/b918b2416ccc3c3bc24e5dbb4922efd59cd6316c8
 
 ## Enhancing Streaming Platforms: The Urgent Call for Improved Cropping Features
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * TV shows and movies with non-standard aspect ratios cause annoying black bars on streaming services.
@@ -20,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/b918b2416ccc3c3bc24e5dbb4922efd59cd6316c8
 * Lack of cropping tools on streaming apps creates issues for viewers watching content with non-standard aspect ratios, unlike older media players.
 
  Streaming services are great, but they have their disadvantages compared to offline and physical media. We all know the obvious ones, but have you considered that you don't get to crop services like Netflix the way you want, when you want?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  The Aspect Ratio Mismatch
 
@@ -30,11 +38,9 @@ thumbnail: https://thmb.techidaily.com/b918b2416ccc3c3bc24e5dbb4922efd59cd6316c8
  While cinematic purists may balk at this idea, in many films and shows, the parts of the frame that are lost by "punching in" like this may not make much of a difference, and even if it's not the most artistically pure way to watch the content, the principle that you should have the choice certainly means something.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Streaming Apps Rarely Have Cropping Features
 
  Sadly, streaming apps rarely have tools built in to let you crop or zoom the image if you don't like having black bars. At least not mainstream paid apps like Netflix or Amazon Prime Video. When you stream your own content with apps like [Plex](https://network-issues.techidaily.com/instantly-eradicate-playback-problems/), you do have the option to flip between different aspect ratios.
@@ -42,11 +48,9 @@ thumbnail: https://thmb.techidaily.com/b918b2416ccc3c3bc24e5dbb4922efd59cd6316c8
  There are also clever methods of stretching video that don't distort the picture quite so much, such as nonlinear video stretching, where the image is more stretched to the edges of the frame and less to the middle, so you don't really notice it and characters and objects in the center of the frame still appear normal. Either way, there are lots of viable and valid reasons to have these options in these apps.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Native Aspect Ratio vs Containers
 
  While I would personally not usually stretch or crop movies and shows to fit the screen, the whole reason I'm disappointed this isn't possible in these apps has to do with video formatting. You see, I watch a lot (even most) of my movies and shows on my iPad Pro. This device has a native aspect ratio of 4:3, which means I absolutely love watching older content on its gorgeous mini LED screen.
@@ -55,30 +59,12 @@ thumbnail: https://thmb.techidaily.com/b918b2416ccc3c3bc24e5dbb4922efd59cd6316c8
 
 ![An iPad playing an episode of Star Trek The Next Generation](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/star-trek-tng.jpeg) 
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Sydney Louw Butler / How-To Geek / Paramount
 
  However, on some streaming services (I'm looking at you [Crunchyroll](https://fix-guide.techidaily.com/how-to-resolve-samsung-galaxy-s23-fe-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/)) 4:3 content seems to be encoded in a 16:9 container. In other words, the black bars are built into the video! Consequently, on my iPad I get both black bars _and_ black pillars!
 
 ![Gundam shown on an iPad with double black bars.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/gundam.jpeg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Sydney Louw Butler / How-To Geek / Bandai Namco
 
  If the app had any sort of native cropping tool, I could solve this issue with the tap of a button, but sadly it does not.
@@ -86,11 +72,9 @@ Sydney Louw Butler / How-To Geek / Bandai Namco
  Despite usually offering native 4:3 content, Netflix isn't totally off the hook. Consider the infamous _Seinfeld_ episodes that were cropped to widescreen natively, making some scenes nonsensical. Netflix could simply have offered the native 4:3 video, and given us the choice of whether seeing [the pothole](https://www.indiewire.com/features/general/seinfeld-netflix-aspect-ratio-pothole-cropped-1234668934/) mattered or not.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Using Your TV’s Native Tools to Adjust the Picture
 
  While you can't restore pre-cropped images, if you want to convert 4:3 or 21:9 content to your 16:9 TV, you may have the option to do it by using built-in options on your screen. Assuming you're using a device like an Android or Apple TV, you can usually override the aspect ratio by using an option on your TV.
@@ -103,8 +87,6 @@ Sydney Louw Butler / How-To Geek / Bandai Namco
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -112,4 +94,22 @@ Sydney Louw Butler / How-To Geek / Bandai Namco
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-smooth-scene-transitions-with-premieres-fades/"><u>[New] 2024 Approved Smooth Scene Transitions with Premiere's Fades</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-virtual-enhancer-facebook-story-sinker/"><u>[New] 2024 Approved Virtual Enhancer Facebook Story Sinker</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-liveaudiovideocasting-network-for-2024/"><u>[New] LiveAudioVideocasting Network for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-chromebook-flip-c302ca-review-cheap-convertible-and-seriously-great/"><u>Asus Chromebook Flip C302CA Review: Cheap, Convertible, and Seriously Great</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-performance-of-the-tp-link-re200-wifi-extender-ac750-reviewed/"><u>Budget-Friendly Performance of the TP-Link RE200 WiFi Extender (AC750) Reviewed</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fix-your-razer-barracuda-x-microphone-step-by-step-guide-on-win10-and-win11/"><u>Fix Your Razer Barracuda X Microphone - Step-by-Step Guide on Win10 & Win11</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/future-proofing-siri-how-apples-latest-ai-advancements-will-enhance-the-assistant-by-2025-insights-from-zdnet/"><u>Future-Proofing Siri: How Apple's Latest AI Advancements Will Enhance the Assistant by 2025 - Insights From ZDNet</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-poco-c65-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Poco C65 Phone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-through-value-proposition-an-insightful-evaluation-of-the-google-pixelbook-go/"><u>Navigating Through Value Proposition: An Insightful Evaluation of the Google Pixelbook Go</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/petcam-insider-secrets-maximizing-your-spend/"><u>PetCam Insider Secrets: Maximizing Your Spend</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-miniature-sony-xperia-5-elegant-but-not-budget-friendly/"><u>Reviewing the Miniature Sony Xperia 5: Elegant, But Not Budget-Friendly</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-rpg-journey-an-in-depth-look-at-the-elder-scrolls-v-skyrim-on-switch/"><u>The Ultimate RPG Journey: An In-Depth Look at The Elder Scrolls V: Skyrim on Switch</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/ultimate-fix-for-astro-a1ve-10-microphone-failure-expert-advice-and-tips/"><u>Ultimate Fix for Astro A1ve 10 Microphone Failure: Expert Advice and Tips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-peace-of-mind-a-closer-look-at-the-amazonbasics-micro-cut-high-security-shredder-review/"><u>Unlocking Peace of Mind - A Closer Look at the AmazonBasics Micro Cut, High-Security Shredder Review</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/unstick-your-fortnite-voice-chat-swift-fix-for-audio-problems/"><u>Unstick Your Fortnite Voice Chat - Swift Fix for Audio Problems</u></a></li>
+</ul></div>
 

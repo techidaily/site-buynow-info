@@ -1,7 +1,7 @@
 ---
 title: From Afar, Hugs and Merriment with Petcube Bites 2
-date: 2024-11-28T23:45:51.017Z
-updated: 2024-12-04T17:53:05.768Z
+date: 2024-12-09T02:33:10.246Z
+updated: 2024-12-10T23:47:32.259Z
 categories:
   - BestProducts
 description: This Article Describes From Afar, Hugs and Merriment with Petcube Bites 2
@@ -44,17 +44,9 @@ Lifewire / Andy Zahn
 
 4.3
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -88,6 +80,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -104,15 +100,15 @@ Lifewire / Andy Zahn
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
 
@@ -129,10 +125,6 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -151,7 +143,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Modes: Plenty to choose from (and only some are useful)**
@@ -182,6 +174,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -199,7 +195,7 @@ Lifewire / Andy Zahn
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
@@ -223,6 +219,10 @@ Lifewire / Andy Zahn
 * [Panasonic Lumix DC-FZ80](https://www.lifewire.com/panasonic-lumix-dc-fz80-review-4691071)
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -258,19 +258,15 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-a-deep-dive-into-youtube-mastery-using-sony-vegas-software/"><u>[Updated] 2024 Approved A Deep Dive Into YouTube Mastery Using Sony Vegas Software</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-flawless-approach-securing-gotomeeting-recordings/"><u>[Updated] Flawless Approach Securing GoToMeeting Recordings</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-be-bold-on-igtv-the-10-cutting-edge-video-concepts-for-your-brand/"><u>2024 Approved Be Bold on IGTV The 10 Cutting-Edge Video Concepts for Your Brand</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-why-the-samsung-galaxy-tab-s4-is-a-game-changer-in-android-tablets/"><u>Comprehensive Review: Why the Samsung Galaxy Tab S4 Is a Game-Changer in Android Tablets</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-why-the-stanley-j5c09-is-a-go-to-choice-for-professional-woodworkers/"><u>Discover Why the Stanley J5C09 Is a Go-To Choice for Professional Woodworkers</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/exploring-and-exploiting-law-filters-in-window-environments/"><u>Exploring and Exploiting LAW Filters in Window Environments</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-fix-a-microphone-thats-not-capturing-your-sound/"><u>How to Fix a Microphone That's Not Capturing Your Sound</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-best-practices-for-online-vhs-image-retouching-and-editing/"><u>In 2024, Best Practices for Online VHS Image Retouching and Editing</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-bloodbornes-haunting-universe/"><u>In-Depth Analysis of Bloodborne's Haunting Universe</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/insta360-one-x2-a-camera-that-dives-into-vr-and-water-alike/"><u>Insta360 One X2 - A Camera That Dives Into VR & Water Alike</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/motorolas-mighty-contender-a-thorough-review-of-moto-g-powers-long-lasting-efficiency-and-robust-functionality/"><u>Motorola's Mighty Contender: A Thorough Review of Moto G Power’s Long-Lasting Efficiency & Robust Functionality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionize-your-image-editing-game-with-darktable-the-best-free-raw-photo-processor-for-mac-linux-and-more/"><u>Revolutionize Your Image Editing Game with Darktable - The Best Free RAW Photo Processor for Mac, Linux, and More</u></a></li>
-<li><a href="https://win-blog.techidaily.com/smoothen-your-experience-fix-bluestacks-stability-problems-swiftly/"><u>Smoothen Your Experience: Fix BlueStacks Stability Problems Swiftly</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/superior-tech-for-live-stream-correction/"><u>Superior Tech for Live Stream Correction</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-efficient-desktop-capture-for-windows-users/"><u>[New] Efficient Desktop Capture for Windows Users</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-amplify-earnings-monetize-youtube-on-the-go-with-effective-techniques/"><u>[Updated] 2024 Approved Amplify Earnings Monetize YouTube on the Go with Effective Techniques</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/archive-your-antics-a-practical-guide-to-capturing-and-storing-gif-images-from-twitter-for-2024/"><u>Archive Your Antics A Practical Guide to Capturing and Storing GIF Images From Twitter for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/streaming-for-the-mind-get-access-to-thousands-of-audiobooks-on-spotify-starting-at-only-999/"><u>Streaming for the Mind - Get Access to Thousands of Audiobooks on Spotify, Starting at Only $9.99!</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-power-of-networking-building-strong-relationships-with-stakeholders-for-2024/"><u>The Power of Networking Building Strong Relationships with Stakeholders for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-and-review-capturing-life-in-stunning-hd-with-the-logitech-c92amc/"><u>Ultimate Guide and Review: Capturing Life in Stunning HD with the Logitech C92amc</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unstoppable-energy-on-wheels-reviewing-the-power-of-the-peak-18000mah-jumper-by-m-mock/"><u>Unstoppable Energy on Wheels: Reviewing the Power of the Peak 18,000mAh Jumper by M MOCK</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-powerhouse-an-in-depth-look-at-the-revolutionary-apple-mac-mini-m1-2e-dominating-over-rivals/"><u>Unveiling the Powerhouse: An In-Depth Look at the Revolutionary Apple Mac Mini (M1, 2E) - Dominating Over Rivals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/urban-construction-meets-martian-adventure-epic-chaos-and-joy/"><u>Urban Construction Meets Martian Adventure: Epic Chaos and Joy</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/which-frame-rate-is-ideal-analyzing-benefits-of-30fps-and-60fps-for-2024/"><u>Which Frame Rate Is Ideal? Analyzing Benefits of 30Fps and 60Fps for 2024</u></a></li>
 </ul></div>
 

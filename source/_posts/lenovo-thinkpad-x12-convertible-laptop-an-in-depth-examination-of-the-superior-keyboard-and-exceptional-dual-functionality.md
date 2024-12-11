@@ -1,7 +1,7 @@
 ---
 title: Lenovo ThinkPad X12 Convertible Laptop - An In-Depth Examination of the Superior Keyboard and Exceptional Dual Functionality
-date: 2024-12-03T06:39:17.251Z
-updated: 2024-12-05T02:48:16.804Z
+date: 2024-12-07T07:06:34.990Z
+updated: 2024-12-11T02:23:57.892Z
 categories:
   - BestProducts
 description: This Article Describes Lenovo ThinkPad X12 Convertible Laptop - An In-Depth Examination of the Superior Keyboard and Exceptional Dual Functionality
@@ -19,12 +19,16 @@ thumbnail: https://www.lifewire.com/thmb/M7cbcf9RaLnWFD_BZCSTd_n3AbI=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Z-Edge Z3 Plus Dashcam
 
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/OL3QdFJ2E8lLE0w3IGyxR-rAD4Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
 
@@ -48,10 +52,6 @@ Lifewire / Danny Chadwick
 ## Z-Edge Z3 Plus Dashcam
 
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/sE7fZzxcPjZXohzroVqLVr5l4qs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
 
@@ -77,10 +77,6 @@ Lifewire / Danny Chadwick
  It has a couple of minor drawbacks, like only having one[choice for mounting](https://www.lifewire.com/best-car-gps-trackers-4158961) and a mere 20-minute battery life when not connected to power. But if you’re in the market for a dashcam, the Z3 Plus should be among the devices you’re considering.
 
  Lifewire / Danny Chadwick
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Design: Small but solid**
 
@@ -119,7 +115,7 @@ Lifewire / Danny Chadwick
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Camera Quality: Beyond high definition**
@@ -146,6 +142,10 @@ Lifewire / Danny Chadwick
 
  As of the time of this writing, you can pick up this dashcam from Z-Edge for between $120 and $140, which seems like a good value to us. Given its features, tools, and image quality, it’s a fair price for a useful and reliable device.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Competition: Z-Edge Z3 Plus vs. Apeman C450 Dash Camera**
 
  We tested the Z3 Plus alongside the Apeman C450 Series A dashcam. The two are comparable in size and function, but the Apeman is a more budget-friendly model that costs around $50\. We definitely noticed a difference when it comes to the construction quality, image resolution, clarity of the user manual, and overall experience—the Z3 Plus was superior in almost every way.
@@ -163,7 +163,7 @@ Lifewire / Danny Chadwick
  The Z-Edge Z3 Plus is easy to set up, intuitive to use, captures clear video footage for a reasonable price. We would like to have seen a second mounting option to the suction cup and a longer-lasting battery, but those are minor quibbles in light of this device’s reliable performance.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -198,17 +198,18 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-stabilized-mobile-shooting-with-precision-mounts/"><u>[Updated] 2024 Approved Stabilized Mobile Shooting with Precision Mounts</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-alight-motion-comprehensive-review-2023-for-2024/"><u>[Updated] Alight Motion Comprehensive Review 2023 for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-best-smartphone-video-recording-assistants/"><u>2024 Approved Best Smartphone Video Recording Assistants</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-why-the-mohu-leaf-30-is-a-top-pick-for-value-and-functionality-in-tv-antenna-shopping/"><u>Discover Why the Mohu Leaf 30 Is a Top Pick for Value and Functionality in TV Antenna Shopping</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-performance-of-tp-link-re505x-wireless-booster/"><u>Expert Insights on the Performance of TP-Link RE505X Wireless Booster</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-how-to-share-the-screen-with-zoom/"><u>In 2024, How to Share the Screen with Zoom</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-revive-your-photos-two-methods-to-restore-photo-viewing-in-win10/"><u>In 2024, Revive Your Photos Two Methods to Restore Photo Viewing in Win10</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-in-2024-innovations-in-audio-production-adding-subtle-fading-techniques-to-your-toolkit/"><u>New In 2024, Innovations in Audio Production Adding Subtle Fading Techniques to Your Toolkit</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nalize-and-protect-youtube-channel-url-made-simple-for-2024/"><u>Personalize & Protect YouTube Channel URL Made Simple for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-a71-groovy-dont-you-think/"><u>Samsung Galaxy A71 Groovy, Don't You Think?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tech-packed-little-bundle-exploring-the-remarkable-capabilities-of-the-xbox-series-s-gaming-console/"><u>Tech-Packed Little Bundle? Exploring the Remarkable Capabilities of the Xbox Series S Gaming Console</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-ranked-artists-choice-for-graphic-tablets-2024-edition/"><u>Top Ranked Artists' Choice for Graphic Tablets - 2024 Edition</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-deciding-filmora-vs-democracy-creator/"><u>[New] Deciding Filmora Vs. Democracy Creator</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-pristine-teaser-trailer-trove/"><u>[New] Pristine Teaser Trailer Trove</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-cinemas-craftsmanship-the-best-camera-tricks-and-techniques-24-edition/"><u>[Updated] Cinema's Craftsmanship The Best Camera Tricks & Techniques - '24 Edition</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-in-depth-examination-androids-photography-solution-lightroom/"><u>[Updated] In 2024, In-Depth Examination Android's Photography Solution, Lightroom</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-alcatels-joy-tab-2-best-value-lte-tablets-compared/"><u>Comprehensive Review of Alcatel's Joy Tab 2 - Best Value LTE Tablets Compared</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/deconstructing-googles-pixel-slate-an-in-depth-chromeos-review/"><u>Deconstructing Google's Pixel Slate: An In-Depth ChromeOS Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-americas-best-value-singing-rooms-karaoke-nights-for-150-or-less/"><u>Discover America's Best Value Singing Rooms: Karaoke Nights For $150 or Less</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/easy-conversion-guide-transforming-mkv-files-into-avi-format-for-pcs-and-mac/"><u>Easy Conversion Guide: Transforming MKV Files Into AVI Format for PCs & Mac</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/economical-studiolightkit-unveiled/"><u>Economical StudioLightkit Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-syma-s111g-remote-controlled-copter-great-deals-and-indoor-adventures/"><u>Explore the Syma S111G Remote Controlled Copter: Great Deals and Indoor Adventures</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-enhanced-features-of-wasteland-2-directors-cut-a-gripping-tbrpg-evaluation/"><u>Exploring the Enhanced Features of Wasteland 2 Director’s Cut - A Gripping TBRPG Evaluation</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on OnePlus 12 | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/online-elusiveness-on-series-xs-a-discovery-guide/"><u>Online Elusiveness on Series X/S: A Discovery Guide</u></a></li>
 </ul></div>
 

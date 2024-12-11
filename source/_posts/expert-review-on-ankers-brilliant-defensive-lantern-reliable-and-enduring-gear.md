@@ -1,7 +1,7 @@
 ---
 title: Expert Review on Anker's Brilliant Defensive Lantern – Reliable and Enduring Gear
-date: 2024-12-04T06:00:51.430Z
-updated: 2024-12-04T22:12:29.436Z
+date: 2024-12-08T19:23:29.096Z
+updated: 2024-12-10T22:47:19.528Z
 categories:
   - BestProducts
 description: This Article Describes Expert Review on Anker's Brilliant Defensive Lantern – Reliable and Enduring Gear
@@ -17,10 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/6LT3niV6b8rxfFzKUOSGiOSPwO4=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Cyberpunk 2077
 
@@ -51,13 +47,13 @@ Andy Zahn / Lifewire
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Cyberpunk 2077
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/sG6odS-sTBDQKNtpoev0kWtdSGg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cyberpunk-2077-1-d90f62b5a126437681da9916c0360527.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -88,10 +84,14 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/YQBwL9wFHphVzIqJYlYwd0J2OYU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-2-7e358ac09a2c48fbb0f6aaec1e9381e9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Story: Engaging and well written
@@ -143,7 +143,7 @@ Andy Zahn / Lifewire
  Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Customization: Lots to tinker with
@@ -153,6 +153,10 @@ Andy Zahn / Lifewire
  Next, you get seven points with which to customize your character’s attributes between body, intelligence, technical ability, and cool. This determines your proficiency in both physical and technical skills. Don’t worry too much, as you will level up and add to these attributes and their associated skills as the game progresses. Skills allow you to fine-tune your abilities, as well as add new ones to your arsenal. It’s a good idea to focus on a specialty, once you know what you enjoy doing in the game because the more points you put into a category the more options unlock.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/Uqy4AEm6VMUR3LFH9U2FK5UDvo0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-3-28901c5bd3564eeea8e98bc9dbb8ae07.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -176,15 +180,7 @@ At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/JM3cD1pX6maee1yiQYZnSgc-9pw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-4-624da4fa8225434eb59ba999a53dafd6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Andy Zahn / Lifewire
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Mature content: Pushing the boundaries
 
@@ -214,6 +210,10 @@ Andy Zahn / Lifewire
 
  An alternative worth considering if you have a robust high-speed internet connection is streaming the game on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) . This will allow you to experience the game at its best without having to invest in a two thousand dollar PC. However, it does leave your ability to play the game at the mercy of your ability to access a strong internet connection.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Graphics: Ahead of its time
 
  The star of the show in Cyberpunk 2077 are the visuals, and if you have a PC with the hardware to render the game at its maximum quality while maintaining playable frame rates the world of Night City is absolutely jaw-dropping. Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
@@ -234,17 +234,21 @@ Andy Zahn / Lifewire
 
 Andy Zahn / Lifewire
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Multiplayer: Absent for the moment
 
  At launch and for long after Cyberpunk 2077 will be a single-player game. However, CDPR has said that a few years down the road they will be launching a multiplayer mode, and a lot of people are looking forward to that. Of course, it is impossible to predict if this will be any good or if some circumstances might prevent its release, but there is a lot of potential for Cyberpunk to become a better experience when Night City goes online. With that said, CDPR really needs to fix the single-player game before they even think about launching multiplayer.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Price: A refreshing lack of micro-transactions
 
  At $60 with no extra monetization at launch, Cyberpunk 2077 is something of a bargain. Take this with a grain of salt though, as this situation could change dramatically once the multiplayer mode is released.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Cyberpunk 2077 vs. Assassin’s Creed: Valhalla
 
@@ -259,10 +263,6 @@ Andy Zahn / Lifewire
  **An open-world RPG with enormous potential that’s sadly incomplete and unpolished.**
 
  Cyberpunk 2077 had enormous potential, but it launched long before it was complete and the result is a deeply conflicting experience. Game-breaking bugs, performance issues, missing features, and demanding hardware requirements make it difficult to recommend, but there is the core of something great lying within. There are hundreds of hours of content to enjoy if you can temper your expectations and employ a saintly degree of patience.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -288,19 +288,18 @@ Andy Zahn / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-seamless-igtv-and-fb-sharing-guide/"><u>[New] Seamless IGTV and FB Sharing Guide</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-tips-for-adding-personalized-audio-effects-to-windows-10-photos/"><u>[New] Tips for Adding Personalized Audio Effects to Windows 10 Photos</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/before-buying-reflect-on-these-essential-dash-cam-qualities/"><u>Before Buying, Reflect on These Essential Dash Cam Qualities</u></a></li>
-<li><a href="https://solve-info.techidaily.com/comment-et-pourquoi-sauvegarder-reliablement-vos-fichiers-de-votre-synologyqnap-nas-sur-un-pc/"><u>Comment Et Pourquoi Sauvegarder Reliablement Vos Fichiers De Votre Synology/QNAP NAS Sur Un PC</u></a></li>
-<li><a href="https://common-error.techidaily.com/decode-your-issues-comprehensive-strategies-against-windows-error-code-31/"><u>Decode Your Issues: Comprehensive Strategies Against Windows Error Code 31</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-the-next-level-hands-on-review-of-the-newly-released-apple-iphone-15-pro/"><u>Experience the Next Level: Hands-On Review of the Newly Released Apple iPhone 15 Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/get-the-most-bang-for-your-buck-with-the-pruveeo-f5-1080p-hd-dashcam-expert-review-inside/"><u>Get the Most Bang for Your Buck with The Pruveeo F5 1080P HD Dashcam: Expert Review Inside</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-find-your-dream-cellphone-case-with-confidence-and-ease/"><u>How to Find Your Dream Cellphone Case with Confidence and Ease</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-oppo-reno-8t-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Oppo Reno 8T</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximize-your-savings-with-the-lenovo-chromebook-duet-a-2-in-1-review/"><u>Maximize Your Savings with The Lenovo Chromebook Duet - A 2-in-1 Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-j5-tactical-prov1-the-ultimate-compact-flashlight-with-enhanced-durability-and-brilliant-illumination/"><u>Review of J5 Tactical ProV1 - The Ultimate Compact Flashlight with Enhanced Durability and Brilliant Illumination</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/solve-your-assassins-creed-odyssey-boot-up-problems-with-these-expert-tips/"><u>Solve Your Assassin's Creed Odyssey Boot-Up Problems with These Expert Tips</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-3-strategies-maximizing-your-excel-experience-with-chatgpt/"><u>Top 3 Strategies: Maximizing Your Excel Experience with ChatGPT</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/why-alienware-aurora-r11-stands-as-the-supreme-pc-for-gamers-in-202n/"><u>Why Alienware Aurora R11 Stands as the Supreme PC for Gamers in 202N</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-astronomy-enthusiasts-top-website-picklist/"><u>[New] 2024 Approved Astronomy Enthusiasts' Top Website Picklist</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-tapping-into-trending-topics-for-videography-ideas-via-google/"><u>[New] Tapping Into Trending Topics for Videography Ideas via Google</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-perfect-your-presentation-essential-strategies-for-video-length-reduction-in-vimeo/"><u>[Updated] 2024 Approved Perfect Your Presentation Essential Strategies for Video Length Reduction in Vimeo</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-celebrity-fleeting-frame-study/"><u>2024 Approved Celebrity Fleeting Frame Study</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/compact-hc-v770-unpacking-premium-features/"><u>Compact HC-V770 Unpacking Premium Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-how-samsung-galaxy-s21-ultra-dominates-android-market/"><u>Comprehensive Review: How Samsung Galaxy S21 Ultra Dominates Android Market</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dells-xps-ebx-13-convertible-laptop-reviewed-remarkable-processing-and-design-features-unveiled/"><u>Dell's XPS Ebx 13 Convertible Laptop Reviewed: Remarkable Processing and Design Features Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-value-of-a-budget-friendly-smartwatch-the-fitbit-versa-unveiled/"><u>Discover the Value of a Budget-Friendly Smartwatch - The Fitbit Versa Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-zmi-powerpack-20000-the-ultimate-portable-energy-solution/"><u>Expert Analysis of the ZMI PowerPack 20000 - The Ultimate Portable Energy Solution</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-amplify-your-social-impact-with-these-innovative-fb-growth-tactics/"><u>In 2024, Amplify Your Social Impact with These Innovative FB Growth Tactics</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/maximize-drive-efficiency-the-top-three-methods-for-managing-backup-space-in-windows-os-versions/"><u>Maximize Drive Efficiency: The Top Three Methods for Managing Backup Space in Windows OS Versions</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/simple-troubleshooting-steps-for-solving-google-hangouts-microphone-issues/"><u>Simple Troubleshooting Steps for Solving Google Hangouts Microphone Issues</u></a></li>
+<li><a href="https://video-capture.techidaily.com/speedy-conversion-guide-transforming-wav-files-into-aiff-format-on-pc/"><u>Speedy Conversion Guide: Transforming WAV Files Into AIFF Format on PC</u></a></li>
 </ul></div>
 

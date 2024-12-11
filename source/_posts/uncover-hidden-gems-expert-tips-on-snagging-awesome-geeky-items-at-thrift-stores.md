@@ -1,7 +1,7 @@
 ---
 title: "Uncover Hidden Gems: Expert Tips on Snagging Awesome Geeky Items at Thrift Stores"
-date: 2024-09-04T01:38:09.286Z
-updated: 2024-09-05T01:38:09.286Z
+date: 2024-12-08T01:59:03.259Z
+updated: 2024-12-11T05:51:57.111Z
 tags:
   - games
   - tv
@@ -53,11 +53,9 @@ Tim Brookes / How-To Geek
 ![A slightly yellowed but still functional Wii Remote, Wii Motion Plus, and Wii Nunchuk.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/wii_remote.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Tim Brookes / How-To Geek
 
  Occasionally you’ll find controllers and accessories too, though you should be a little more cautious here. [Stick drift is a real phenomenon](https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-itel-p55t-drfone-by-drfone-fix-android-problems-fix-android-problems/) and with no method of testing a controller in the store, you should only pay what you’re comfortable losing. This is especially true with less reliable hardware, like the N64 controller and its notorious analog stick.
@@ -68,6 +66,10 @@ Tim Brookes / How-To Geek
 
  Remember that these items are sold untested. In the case of consoles, you may be able to ask staff if you can plug the item into the wall to see if you at least get a power LED, but you’re unlikely to be able to fully test these items. Don’t get carried away and pay over the odds to avoid disappointment.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  CRT Monitors and Televisions
 
  Cathode ray tube (CRT) displays gradually fell out of favor with the arrival of flat screens in the 2000s, before becoming highly desirable objects among collectors and enthusiasts. They feature excellent pixel response times, low latency, and that soft CRT look that’s perfect for era-appropriate gaming.
@@ -76,35 +78,21 @@ Tim Brookes / How-To Geek
 
 ![An old beige PC with a CRT monitor.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/an-old-pc.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Santi S / Shutterstock.com
 
  CRT televisions and monitors are bulky and heavy. Thrift store pricing should better reflect the need to sell rather than cash in on the trend. This is where you might be able to still score a CRT for a reasonable price, especially when it comes to computer monitors that lack the utility of a TV.
 
  These displays are great for old PC builds and retro consoles. If you don’t have the room or inclination and you still want to play on original hardware, consider spending your money on a [RetroTink](https://www.retrotink.com) or [Open Source Scan Converter](https://www.retrorgb.com/ossc.html) instead.
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  PC Parts and Electronics
 
  From beige boxes to PCI sound cards, you’ll be amazed at what you might find tucked away at the back of a thrift store. This is where I found a boxed USB Apple SuperDrive, the only optical drive I still own that isn’t attached to a game console. It sure came in handy that time I needed to check the contents of some old CDs I burned a long time ago.
 
 ![An Apple USB SuperDrive.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/super_drive.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Tim Brookes / How-To Geek
 
@@ -115,11 +103,9 @@ Tim Brookes / How-To Geek
  If you’re into old personal electronics like MP3 players and iPods or [MiniDisc players](https://some-skills.techidaily.com/updated-top-choice-5-image-background-adjuster-apps-ios/), you should check your local thrift store. Radio cassette players, Walkmans, and Discmans aren’t uncommon either. Just be careful about what you pay, since anything with a tape head or a laser is susceptible to degradation.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Cameras and Lenses
 
  Did you know that those chunky late 2000s digital cameras are [all the rage again](https://theconversation.com/why-are-so-many-gen-z-ers-drawn-to-old-digital-cameras-198854)? These “pure” photography devices are desirable for their lack of notifications and in-app purchases. It seems that JPEG artifacts are cool now, and these cameras revel in them thanks to a reliance on compression and relatively low megapixel counts by today’s standards.
@@ -130,12 +116,6 @@ Tim Brookes / How-To Geek
 
 ![A selection of 35mm single lens reflex cameras.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/35mm_camera.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Tim Brookes / How-To Geek
 
  If you’re lucky you’ll stumble across something really special, like a twin lens reflex (TLR) camera or a box camera that, if nothing else, will look great on a shelf somewhere in your house. But these items are better if you can use them, and in the case of lenses, you can do wonders with a [lens adapter](https://facebook-record-videos.techidaily.com/updated-understanding-the-criteria-for-youtube-comment-spotlighting/).
@@ -143,11 +123,9 @@ Tim Brookes / How-To Geek
  If you can work out what camera system the lens was originally designed for, you can probably find a lens adapter that will work with a modern camera system. You’ll lose a few stops of light and autofocus, but you’ll get a unique look to your images and videos that only decades of decay can provide. There’s also something fun about the challenge of giving an old piece of glass a new life.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Vinyl and CDs
 
  Just like early digital cameras, CDs are cool again. [One How-To Geek writer is going back to CDs](https://fox-http.techidaily.com/crafting-stunning-slideshows-on-iphone-series-13-for-2024/), swearing off streaming in favor of shiny discs that can be had for less than a dollar. As streaming has taken hold, more and more people are donating their CD collections which means there are so many available at rock-bottom prices.
@@ -155,6 +133,10 @@ Tim Brookes / How-To Geek
  Vinyl is also right at home in a musty thrift shop, though like CRT displays you have to be careful that the trend hasn’t inflated the price beyond reasonable levels. A few dollars for old LP in questionable condition is fine, but $30 per disc for anything in the crate is not.
 
 ![Electric Light Orchestra's Out of the Blue on vinyl.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/elo_vinyl.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Tim Brookes / How-To Geek
 
@@ -174,12 +156,6 @@ Tim Brookes / How-To Geek
 
  Sometimes you can find some real oddities, like releases that are hard to find, obscure films you’ve never heard of, or those weird DVD games that definitely weren’t worth the retail price they launched at.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  You Can Donate This Stuff Too
 
  When you buy from a thrift store, you’re often supporting a charity or good cause. When you donate to a thrift store, you’re also showing your support. The latter is a great way to free up some space in your house (or make room for new stuff) while feeling good about it.
@@ -192,8 +168,6 @@ Tim Brookes / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -201,4 +175,21 @@ Tim Brookes / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-photoshop-shake-control-necessary-tool-or-unnecessary-for-2024/"><u>[New] Photoshop Shake Control Necessary Tool or Unnecessary for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-swift-fixes-for-non-functional-facebook-video-sharing-on-androidios/"><u>[Updated] In 2024, Swift Fixes for Non-Functional Facebook Video Sharing on Android/iOS</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-iphonedesktops-top-8-video-transformation-tools/"><u>[Updated] IPhone/Desktop's Top 8 Video Transformation Tools</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-average-podcast-income-whats-the-payoff/"><u>2024 Approved Average Podcast Income What's the Payoff?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-websites-for-selling-and-buying-smart-tvs-ranked/"><u>Best Websites for Selling & Buying Smart TVs - Ranked</u></a></li>
+<li><a href="https://techtrends.techidaily.com/conversor-de-video-online-gratuito-de-vob-para-asf-com-o-movavi-atualizacao-simplificada/"><u>Conversor De Vídeo Online Gratuito: De VOB Para ASF Com O Movavi - Atualização Simplificada!</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/enhancing-realism-in-ar-worlds-through-lut-techniques-for-2024/"><u>Enhancing Realism in AR Worlds Through LUT Techniques for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/expert-analysis-of-the-blueear-wireless-beanie-cap-for-stylish-listening-experience/"><u>Expert Analysis of the BlueEAR Wireless Beanie Cap for Stylish Listening Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insight-into-iphone-13-features-and-performance-testing/"><u>Expert Insight Into iPhone 13 Features & Performance Testing</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-unlock-on-iphone-13-pro-max-how-to-fix-it-by-drfone-ios/"><u>In 2024, Apple ID Unlock On iPhone 13 Pro Max? How to Fix it?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-a20-review-still-a-decent-budget-android/"><u>Samsung Galaxy A20 Review: Still a Decent Budget Android</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-fit2-ultra-portable-fitness-gadget/"><u>Samsung Galaxy Fit2: Ultra-Portable Fitness Gadget</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-the-power-of-macs-built-in-program-learn-how-to-utilize-preview-for-stunning-images/"><u>Unlocking the Power of Mac's Built-In Program - Learn How to Utilize Preview for Stunning Images</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/updating-now-vs-total-overhaul-in-code/"><u>Updating Now Vs. Total Overhaul in Code</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Exploring Video Games: Understanding the Differences Between Metroidvania and Search-Action Blends"
-date: 2024-09-04T01:39:01.793Z
-updated: 2024-09-05T01:39:01.793Z
+date: 2024-12-09T09:02:28.025Z
+updated: 2024-12-11T02:42:19.478Z
 tags:
   - games
   - tv
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/363cfd8ccc7387dbea9a9af2228add755c6db4677
 
  The “Metroidvania” genre can be hard to wrap your head around if you’re not familiar with the _Metroid_ or _Castlevania_ franchises. To further muddy the waters, the genre has a completely different name in Japan. But these games are worthy of your time considering the ways in which they reward progression and exploration.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  What Is a Metroidvania or Search-Action Game?
 
  The term Metroidvania is a portmanteau of _Metroid_ and _Castlevania_, two games that ultimately defined the genre. Nintendo’s _Metroid_ saw its first release in August 1986, while _Castlevania_ made its debut in September of the same year.
@@ -38,17 +42,9 @@ _Metroid: Dread_
  In Japan, this type of game is known as a “Search-Action” game (Tansaku-Gata Akushon). This is likely because _Metroid_ didn’t experience the same level of success there as it did in the West, and because _Castlevania_ is known as _Akumajō Dracula_ in Japan.
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  The Evolution of _Metroid_ and _Castlevania_ 
 
  After _Metroid_ and _Castlevania_ debuted in 1986, both franchises saw success with the release of further entries. _Super Metroid_ became an SNES hit in 1994, taking advantage of the system’s increased power with improved visuals. It further encouraged exploration with secret areas, varied biomes, and a more compelling narrative.
@@ -57,12 +53,6 @@ _Castlevania: Symphony of the Night_ is regarded by many as the franchise’s be
 
 ![Castlevania: Symphony of the Night on PlayStation.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/castlevania_sotn.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _Castlevania: Symphony of the Night_
 
 _Metroid_ eventually made the move to the 3D realm with the arrival of the _Metroid Prime_ series, which blends first-person shooting with more traditional Metroidvania elements. Nintendo’s most recent 2D _Metroid_ outing was 2021’s _Metroid: Dread_ for Nintendo Switch, a follow-up that received widespread praise from fans of the series and critics alike.
@@ -76,11 +66,9 @@ _Axiom Verge_ is another similar Metroidvania that started as a side project by 
 ![Axion Verge.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/screenshot-2024-08-09-at-10-40-14.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _Axiom Verge_
 
  The _Ori_ series is another fan-favorite Metroidvania platformer, with a more approachable difficulty curve and beautiful visuals. _Hollow Knight_ is another beloved title that takes inspiration from _Metroid_, _Zelda_, and _Mega Man_ that saw its development funded by a Kickstarter campaign. The follow-up, _Hollow Knight: Silksong_ is one of the most eagerly awaited games of all time.
@@ -90,17 +78,9 @@ _Axiom Verge_
  But perhaps the best example of a modern _Metroidvania_ is _Dead Cells_, a game that blends the best parts of a roguelike game with the exploration and permanent unlocks of a Metroidvania. Like other roguelikes, the game is run-based, and when you die you lose all of your items and upgrades while still making progress by unlocking Runes and spending an in-game currency on consumables called Cells.
 
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Where Should You Start?
 
  If you’ve never played a Metroidvania before, many of the games mentioned above are good starting points. Perhaps the two most obvious choices though are _Super Metroid_ (available on the Super Nintendo Entertainment System with a Nintendo Switch Online membership) and _Castlevania: Symphony of the Night_ (available on PS4 and playable on PS5).
@@ -109,12 +89,6 @@ _Steamworld Dig 2_ is worthy of your time if you’re put off by the difficulty 
 
 ![Steamworld Dig 2.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/screenshot-2024-08-09-at-11-03-37.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _Steamworld Dig 2_
 
  For a step up in difficulty and a chance to be wowed by an endearing story and jaw-dropping art direction, _Ori and the Blind Forest_ and its sequel _Ori and the Will of the Wisps_ are challenging but fair jumping-on points. The same could be said of _Hollow Knight_, though the game dials up the difficulty with its bosses.
@@ -124,11 +98,9 @@ _Steamworld Dig 2_
 ![Dead Cells.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/screenshot-2024-08-09-at-11-06-36.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _Dead Cells_
 
  And even if you are put off by the [Soulslike](https://instagram-videos.techidaily.com/updated-tutorial-uploading-youtube-to-instagram-stories-effortlessly/) combat and fast pace, _Dead Cells_ is a masterpiece of game design that feels oh-so-satisfying to play, even if you are making progress at a glacial pace.
@@ -143,8 +115,6 @@ _Dead Cells_
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -152,4 +122,24 @@ _Dead Cells_
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discord-videos.techidaily.com/updated-expert-screenshots-for-discord-enthusiasts-for-2024/"><u>[Updated] Expert Screenshots for Discord Enthusiasts for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-rapid-restoration-of-reddit-archives-removed/"><u>2024 Approved Rapid Restoration of Reddit Archives Removed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/barnes-and-nobles-latest-e-ink-marvel-a-detailed-look-at-the-nook-glowlight-ebook-reader/"><u>Barnes & Noble's Latest E-Ink Marvel - A Detailed Look at the Nook GlowLight eBook Reader</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/conversao-de-arquivos-audiovisuais-online-gratuita-movavi/"><u>Conversão De Arquivos Audiovisuais Online Gratuita - Movavi</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-elite-range-of-2024s-most-accurate-fitness-trackers/"><u>Discover the Elite Range of 2024'S Most Accurate Fitness Trackers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/highly-rated-but-high-costing-a-comprehensive-review-of-the-ambient-weather-ws-10002-wifi-weather-station/"><u>Highly Rated but High Costing - A Comprehensive Review of the Ambient Weather WS-10002 WiFi Weather Station</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-to-fix-msi-camera-not-working-2024-tips/"><u>How to Fix MSI Camera Not Working [2024 Tips]</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-realme-11-proplus-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Realme 11 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-google-pixel-7a-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Google Pixel 7a</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-crafting-stories-excellence-among-8-film-categories/"><u>In 2024, Crafting Stories Excellence Among 8 Film Categories</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-activation-lock-on-ipod-and-apple-iphone-15-plus-the-right-way-by-drfone-ios/"><u>In 2024, How To Bypass iCloud Activation Lock On iPod and Apple iPhone 15 Plus The Right Way</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-comparison-ring-vs-nest-for-intelligent-entryway-solutions/"><u>In-Depth Comparison: Ring Vs. Nest for Intelligent Entryway Solutions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-convenience-with-the-automatic-arf-pet-feeder/"><u>Innovative Convenience with the Automatic Arf Pet Feeder</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/journey-to-superior-audio-with-amazing-amazon-basic-soundbar/"><u>Journey to Superior Audio with Amazing Amazon Basic Soundbar</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210385435-9782017150060-lunivers-a-toujours-un-plan/"><u>L'univers a toujours un plan | Free Book</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mobvoi-ticwatch-e2-review-cheap-but-not-a-good-deal/"><u>Mobvoi TicWatch E2 Review: Cheap, But Not a Good Deal</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stay-active-with-fitbit-versa-3-enhanced-motivation-through-inbuilt-gps-and-health-tracking/"><u>Stay Active with Fitbit Versa 3: Enhanced Motivation Through Inbuilt GPS & Health Tracking</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Expert Critique on Star Wars: Squadrons – A Deep Dive Into Epic Galactic Fights"
-date: 2024-11-23T18:59:05.145Z
-updated: 2024-11-25T08:04:09.847Z
+date: 2024-12-04T00:10:44.576Z
+updated: 2024-12-10T22:24:37.637Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Critique on Star Wars: Squadrons – A Deep Dive Into Epic Galactic Fights"
@@ -42,13 +42,13 @@ Lifewire / Todd Braylor
 
 3.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -72,7 +72,7 @@ Lifewire / Todd Braylor
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design:** **A bit cheap**
@@ -84,6 +84,10 @@ Lifewire / Todd Braylor
  The speaker on this radar detector is very small, about a quarter-inch square, but the audio alerts are high volume. You can select between standard and loud tones. The SmartCord power cable for the S55 has a handy mute button on it so you don't have to reach over the dash.
 
  Lifewire / Todd Braylor
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Easy installation**
 
@@ -98,7 +102,7 @@ Lifewire / Todd Braylor
  It reliably delivers on its promise of long-distance sensitivity.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
@@ -110,7 +114,7 @@ Lifewire / Todd Braylor
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: You get what you pay for**
@@ -130,10 +134,6 @@ Lifewire / Todd Braylor
  **A basic radar detector that's ideal for beginners or anyone on a budget.**
 
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -164,18 +164,19 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/he-8-most-effective-authentic-promotion-techniques/"><u>[New] The 8 Most Effective, Authentic Promotion Techniques</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-unlock-youtubes-power-for-free-educational-sessions/"><u>2024 Approved Unlock YouTube's Power for FREE Educational Sessions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazon-insignia-ns-43df710na19-fire-tv-stick-plus-with-alexa-voice-remote-high-definition-streaming-at-a-budget/"><u>Amazon Insignia NS-43DF710NA19 Fire TV Stick Plus with Alexa Voice Remote - High-Definition Streaming at a Budget</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/conversion-de-fichiers-musique-convertissez-vos-fichiers-opus-en-flac-gratuitement-surlineaire-par-movavi/"><u>Conversion De Fichiers Musique: Convertissez Vos Fichiers Opus en Flac Gratuitement Surlinéaire Par Movavi</u></a></li>
-<li><a href="https://article-tips.techidaily.com/efficient-windows-file-review-methods-for-2024/"><u>Efficient Windows File Review Methods for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/essential-factors-you-should-evaluate-when-shopping-for-the-right-printer/"><u>Essential Factors You Should Evaluate When Shopping for the Right Printer</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/get-more-for-less-why-the-lg-24lh4830-is-a-smart-budget-friendly-television-option/"><u>Get More for Less: Why the LG 24LH4830 Is a Smart Budget-Friendly Television Option</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/macbook-pro-13-saves-the-day-with-procase-a-straightforward-affordable-cover-reviewed/"><u>MacBook Pro 13 Saves the Day with ProCase: A Straightforward, Affordable Cover Reviewed</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-fcp-audio-editing-made-easy-a-tutorial-for-creators-for-2024/"><u>New FCP Audio Editing Made Easy A Tutorial for Creators for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-to-activate-and-utilize-androidve-quick-settings-for-maximum-efficiency/"><u>Step-by-Step Guide to Activate and Utilize Android've Quick Settings for Maximum Efficiency</u></a></li>
-<li><a href="https://win11.techidaily.com/the-art-of-image-editing-efficiently-removing-backdrops/"><u>The Art of Image Editing: Efficiently Removing Backdrops</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-quintessential-guide-to-understanding-lgs-new-smartwatch-era-with-wearos-amoeba/"><u>The Quintessential Guide to Understanding LG's New Smartwatch Era with WearOS Amoeba</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-lamicall-ss-robust-stand-for-tablets-performance-meets-style/"><u>Unveiling the Lamicall S's Robust Stand for Tablets: Performance Meets Style</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-demystifying-instagrams-videography-restrictions/"><u>[Updated] In 2024, Demystifying Instagram's Videography Restrictions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-kindle-oasis-assessment-exceptional-style-justifies-price-premium/"><u>Amazon Kindle Oasis Assessment: Exceptional Style Justifies Price Premium</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazons-latest-breakthrough-in-well-being-the-halo-tracker-a-disruptive-approach-to-personal-health-monitoring/"><u>Amazon's Latest Breakthrough in Well-Being: The Halo Tracker - A Disruptive Approach to Personal Health Monitoring</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/analyzing-the-retro-icon-a-comprehensive-review-of-super-mario-on-nintendos-pioneering-device-game-and-watch/"><u>Analyzing the Retro Icon: A Comprehensive Review of Super Mario on Nintendo's Pioneering Device, Game & Watch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/audio-assistant-showdown-analyzing-the-similarities-and-differences-between-echo-dot-and-homepod-mini/"><u>Audio Assistant Showdown: Analyzing the Similarities & Differences Between Echo Dot and HomePod Mini</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/educational-edge-5-innovative-ways-for-students-to-harness-the-power-of-chatgpt/"><u>Educational Edge: 5 Innovative Ways for Students to Harness the Power of ChatGPT</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/elevate-interactive-exchanges-chatgpt-meets-mac/"><u>Elevate Interactive Exchanges: ChatGPT Meets Mac</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-your-samsung-galaxy-s23-tactical-edition-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Samsung Galaxy S23 Tactical Edition Lock Screen Password</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/keep-the-best-of-facebook-in-super-hd-quality/"><u>Keep the Best of Facebook in Super HD Quality</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722978965013-latest-nvidia-1080-driver-update-for-windows-11-get-them-instantly/"><u>Latest NVIDIA 1080 Driver Update for Windows 11: Get Them Instantly!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722777360859-sealoc-55-inch-4k-outdoor-tv-a-comprehensive-review-and-guide/"><u>Sealoc 55-Inch 4K Outdoor TV: A Comprehensive Review and Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/seamless-visuals-on-screen-zooming-into-clarity-for-2024/"><u>Seamless Visuals on Screen Zooming Into Clarity for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/slash-your-tech-expenses-with-this-50-gadget-unveiled-by-zdnet/"><u>Slash Your Tech Expenses with This $50 Gadget - Unveiled by ZDNet</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/the-ultimate-compilation-of-top-tier-free-iphone-composition-software/"><u>The Ultimate Compilation of Top-Tier Free iPhone Composition Software</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Battle of Portability Vs. Performance: Discovering the Disparities Between MacBook Air and Pro"
-date: 2024-08-26T06:44:08.850Z
-updated: 2024-08-27T06:44:08.850Z
+date: 2024-12-04T06:04:52.329Z
+updated: 2024-12-10T20:41:10.377Z
 categories:
   - BestProducts
 description: "This Article Describes The Battle of Portability Vs. Performance: Discovering the Disparities Between MacBook Air and Pro"
@@ -67,22 +67,16 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
@@ -90,8 +84,9 @@ No advertising on the website.
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
 ## **Setup Process/Installation: Easy install, irritating setup**
@@ -104,10 +99,11 @@ No advertising on the website.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
 
@@ -116,6 +112,10 @@ No advertising on the website.
  Should you happen to own dynamic headphones, you should find their impedance curve. Dynamic headphones with a high impedance may be distorted by the ACM, thanks to the ACM’s high resistance. How your headphones will be affected depends on their impedance curve: for the HD800s, for example, there is a peak at 100Hz (this range captures electric bass and the lower octaves of guitars), so the upper bass range is boosted relative to the other frequencies in the audio. Increasing the volume on the ACM reduces its output resistance and in turn reduces the distortion, but it may be easier to plug equipment directly into the sound card and use the system volume instead.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -127,9 +127,17 @@ No advertising on the website.
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
 
@@ -151,17 +159,11 @@ No advertising on the website.
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Sound Blaster ZxR
@@ -185,14 +187,11 @@ No advertising on the website.
 * Software  Sound Blaster Z-Series Software
 * What’s Included  Sound Blaster ZxR sound card, Sound Blaster DBpro card, Sound Blaster Audio Control Module, 1Optical Cable, 1x Stereo(3.5mm)-to-RCA cable, 1x DBpro cable, Quick Start Leaflet, Installation CD containing: Drivers for Windows 7 and Windows 8, Creative Software Suite, User's Guide
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -201,4 +200,26 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-comprehensively-guide-to-transferring-videos-onto-facebook-from-pc-and-android/"><u>[New] 2024 Approved Comprehensively Guide to Transferring Videos Onto Facebook From PC & Android</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/arnessing-imovies-potential-for-youtube-broadcasting-for-2024/"><u>[New] Harnessing iMovie's Potential for YouTube Broadcasting for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-revolutionize-your-clips-with-the-latest-vida-tools/"><u>[New] Revolutionize Your Clips with the Latest Vida Tools</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-realistic-or-risky-vrs-hidden-dangers/"><u>2024 Approved Realistic or Risky? VR's Hidden Dangers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-deep-dive-into-zmis-mighty-power-pack-evaluating-the-portable-20000-watt-marvel/"><u>A Deep Dive Into ZMI's Mighty Power Pack - Evaluating the Portable 20000 Watt Marvel</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/advanced-global-flight-simulation-unveiled-a-detailed-appraisal-of-x-plane-11s-remarkable-visual-fidelity/"><u>Advanced Global Flight Simulation Unveiled: A Detailed Appraisal of X-Plane 11'S Remarkable Visual Fidelity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/advanced-tech-review-discover-the-cutting-edge-large-computer-mouse-pads-revolutionizing-ergonomics-and-productivity/"><u>Advanced Tech Review: Discover the Cutting-Edge Large Computer Mouse Pads Revolutionizing Ergonomics & Productivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722699446069-affordable-amazon-basics-antenna-guide-for-crystal-clear-free-television/"><u>Affordable Amazon Basics Antenna Guide for Crystal Clear Free Television</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/all-in-one-security-solution-expert-review-of-the-arlo-video-doorbell-with-live-streaming-and-alarms/"><u>All-in-One Security Solution: Expert Review of the Arlo Video Doorbell with Live Streaming & Alarms</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-the-reliability-of-cyberpower-cp685avrg-ups-unit-an-affordable-option-for-stabilizing-your-electronic-devices/"><u>Assessing the Reliability of CyberPower CP685AVRG UPS Unit: An Affordable Option for Stabilizing Your Electronic Devices</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/expert-tips-and-tricks-for-using-stellar-standard-edition-8-for-windows-detailed-guide/"><u>Expert Tips & Tricks for Using Stellar Standard Edition 8 for Windows - Detailed Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-deciphering-digital-domination-a-deep-dive-into-directors-videos/"><u>In 2024, Deciphering Digital Domination A Deep Dive Into Directors' Videos</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Vivo Y100i Power 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/photographing-the-stars-at-night-with-iphones-for-2024/"><u>Photographing the Stars at Night with iPhones for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-the-iphones-audio-issues-fixing-no-sound-and-clearing-up-distortions/"><u>Solving the iPhone's Audio Issues: Fixing No Sound & Clearing Up Distortions</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-6-free-dvd-copying-software-to-duplicate-full-movies-and-main-content-on-discs/"><u>Top 6 Free DVD Copying Software to Duplicate Full Movies & Main Content on Discs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-lenovo-tab-p11-pro-a-superb-device-with-slight-setbacks/"><u>Unveiling the Lenovo Tab P11 Pro: A Superb Device with Slight Setbacks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-performance-of-samsungs-qn55q60rafxza-a-premium-4k-tv-review/"><u>Unveiling the Performance of Samsung's QN55Q60RAFXZA: A Premium 4K TV Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/value-pack-of-fresh-air-the-topmate-c302-cooling-pad-breakdown-and-recommendation/"><u>Value Pack of Fresh Air: The TopMate C302 Cooling Pad Breakdown and Recommendation</u></a></li>
+</ul></div>
 

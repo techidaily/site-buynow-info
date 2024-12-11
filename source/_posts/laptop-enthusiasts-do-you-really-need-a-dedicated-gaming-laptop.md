@@ -1,7 +1,7 @@
 ---
 title: "Laptop Enthusiasts: Do You Really Need a Dedicated Gaming Laptop?"
-date: 2024-09-04T01:37:42.907Z
-updated: 2024-09-05T01:37:42.907Z
+date: 2024-12-05T09:12:36.939Z
+updated: 2024-12-11T08:09:39.254Z
 tags:
   - games
   - tv
@@ -13,6 +13,10 @@ thumbnail: https://thmb.techidaily.com/19d1e1f9a7e016bed2849100cf93d86788ddae5b2
 
 ## Laptop Enthusiasts: Do You Really Need a Dedicated Gaming Laptop?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Gaming laptops often have similar specs to standard laptops but with better RAM speed, GPU, and cooling systems.
@@ -20,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/19d1e1f9a7e016bed2849100cf93d86788ddae5b2
 * The decision between a gaming laptop and a standard laptop depends on your budget, how often you play games, and what you expect from your play sessions.
 
  Hardware manufacturers have turned to using the word “gaming” as a broad adjective to describe any product with RGB lighting and sleek aesthetics, whether they offer performance advantages or not. This can lead laptop gamers to wonder whether gaming laptops are just another marketing ploy, and if they're worth the premium price tag.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  What Makes a Gaming Laptop?
 
@@ -31,12 +39,6 @@ Hannah Stryker / How-To Geek
 
  However, PC manufacturers have started producing standard laptops like the [Dell Inspiron 16 Plus](https://apple-account.techidaily.com/how-to-reset-apple-id-and-apple-password-from-iphone-15-by-drfone-ios/) with specs that appear to stack up to those of gaming laptops. They are several hundred dollars cheaper on average.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  How to Choose a Laptop for Gaming
 
  When searching for a laptop to game on, the first thing you’ll want to do is check the spec requirements of the most demanding games you play or want to try out. The easiest way to do this is on whatever gaming platform you plan to purchase from.
@@ -46,11 +48,9 @@ Hannah Stryker / How-To Geek
 ![System requirements of Apex Legends mentioned on the Steam website.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/12/1-system-requirements-of-apex-legends-mentioned-on-the-steam-website.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 [The CPU is the brain of your PC,](https://facebook-clips.techidaily.com/echoes-of-now-strategies-for-downloading-current-events/) allowing it to execute "thinking" tasks. Each CPU is made up of [individual processors known as “cores”](https://some-guidance.techidaily.com/updated-the-ultimate-no-experience-guide-to-earning-on-reddit-13-strategies-inside/). The more cores a CPU has, the more programs it can run at once. [While it isn’t necessary to have the latest CPU](https://remote-screen-capture.techidaily.com/updated-in-2024-enhanced-interaction-through-effective-zoom-screenshares/), you’ll want one powerful enough to meet your computing needs.
 
  For instance, Lenovo’s Legion Pro 5i Gen 8 base model features a 13th-generation Intel Core i5 processor which has 14 cores. While their ThinkPad X1 Carbon Gen 11 base model is also equipped with a 13th-generation Intel® Core™ i5 processor, you’d have to upgrade to the most expensive laptop model to get a processor with the same number of cores.
@@ -60,11 +60,9 @@ Hannah Stryker / How-To Geek
 ![Laptop ram sitting on a laptop keyboard-2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/laptop-ram-sitting-on-a-laptop-keyboard-2.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Hannah Stryker / How-To Geek
 
  Next, we’ll look at RAM requirements. To continue the brain analogy, [RAM is your PC’s short-term memory,](https://youtube-web.techidaily.com/ed-2024-approved-unlocking-youtube-success-top-video-strategies-to-explode-views/) helping it quickly access information currently in use. Typically, most modern games will require 8GB of RAM with 16GB recommended for smooth results. Most standard laptops are equipped with the necessary 8GB and some have upgrade options available.
@@ -75,18 +73,6 @@ Hannah Stryker / How-To Geek
 
  Though some standard laptops can be upgraded by the manufacturer to include a GeForce, Radeon, or Intel ARC GPU, the majority don't provide this option. This not only limits your graphics quality, but you may also miss out on [important features like ray tracing](https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-honor-70-lite-5g-for-parents-drfone-by-drfone-virtual-android/). Because laptop GPUs can't be upgraded like their desktop counterparts, your only other option would be to purchase an external GPU. Of course, this would still be limited by your CPU and [could lead to a bottleneck effect](https://tech-recovery.techidaily.com/troubleshooting-windows-11-what-to-do-if-your-system-fails-to-shut-down/).
 
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Other Components Laptop Gamers Should Consider
 
  Another crucial aspect when selecting a laptop for gaming is the amount of storage provided. PCs already come with files, programs, and apps preinstalled that take up a chunk of the advertised storage space. Add to that any downloads you may need for work or school, and there might not be much room for a game like _The Last Of Us Part 1_, which requires 100GB of space.
@@ -95,12 +81,6 @@ Hannah Stryker / How-To Geek
 
 ![A person gaming on a PC laptop.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/01/shutterstock_730594951.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [ginger\_polina\_bublik/Shutterstock.com](https://www.shutterstock.com/image-photo/close-addiction-guy-manly-hands-playing-730594951)
 
  Gamers searching for their next laptop will also want to consider the display type and features. Most notably, the refresh rate, which is [the number of times your monitor updates per second](https://fox-that.techidaily.com/top-11-solutions-to-locate-missing-airpods-on-find-my-apple-feature/). The higher your refresh rate, the smoother your gameplay will look.
@@ -110,11 +90,9 @@ Hannah Stryker / How-To Geek
  Of course, even if all of these components exceed recommendations, you won’t be playing very long without a good cooling system. In 2023, [CyberPowerPC debuted an optional water cooling system](https://twitter-videos.techidaily.com/share-live-feeds-skip-the-retweet-tactics/) with their gaming laptops, and ASUS offers intelligent cooling with "Tri-Fan Technology" for certain gaming laptops. Since the average user doesn’t demand as much from their laptop, standard laptops often primarily rely on the airflow provided by the case design.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Are Gaming Laptops Worth the Sticker Shock?
 
  So we finally arrive at the big question: should you buy the $1800 gaming laptop or the upgraded $1200 standard laptop with nearly the same specs? The answer largely depends on what type of gamer you are.
@@ -127,8 +105,6 @@ Hannah Stryker / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -136,4 +112,24 @@ Hannah Stryker / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-oneplus-ace-3-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor OnePlus Ace 3 Activity | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-visual-wit-composition-kapwings-meme-workshop/"><u>2024 Approved Visual Wit Composition Kapwing’s Meme Workshop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/an-immersive-dive-into-the-wasteland-2-directors-cut-a-masterful-revival-of-a-classic-tactical-rpg/"><u>An Immersive Dive Into the Wasteland 2 Director’s Cut: A Masterful Revival of a Classic Tactical RPG</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-ultimate-body-cams-of-2024-professional-choices-unveiled/"><u>Discover the Ultimate Body Cams of 2024: Professional Choices Unveiled</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/guia-completa-para-el-programa-de-afiliados-de-movavi-ganar-rentablemente-con-publicidad-en-linea/"><u>Guía Completa Para El Programa De Afiliados De Movavi: Ganar Rentablemente Con Publicidad en Línea</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-augment-your-design-abilities-the-10-most-powerful-android-graphics-tools/"><u>In 2024, Augment Your Design Abilities The 10 Most Powerful Android Graphics Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-privacy-centric-explore-instagram-stories-anon-on-your-devices/"><u>In 2024, Privacy-Centric Explore Instagram Stories Anon on Your Devices</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Motorola Razr 40 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-tab-a-2020-the-noteworthy-absence/"><u>In-Depth Analysis of the Samsung Galaxy Tab A (2020): The Noteworthy Absence</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-messages-from-blaze-pro-5g-by-fonelab-android-recover-messages/"><u>Possible solutions to restore deleted messages from Blaze Pro 5G</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/samsung-galaxy-fit2-the-perfect-pocket-sized-exercise-monitor/"><u>Samsung Galaxy Fit2: The Perfect Pocket-Sized Exercise Monitor</u></a></li>
+<li><a href="https://win-able.techidaily.com/step-by-step-tutorial-for-simple-recording-of-teamviewer-sessions-in-windows-1011/"><u>Step-by-Step Tutorial for Simple Recording of TeamViewer Sessions in Windows 10/11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-samsung-cf591-monitor-perfect-for-hardcore-gamers/"><u>The Ultimate Guide to the Samsung CF591 Monitor - Perfect for Hardcore Gamers?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-review-of-apc-back-ups-model-be600m1-with-superior-battery-support-and-usb-charging-facility/"><u>Top Review of APC Back-UPS Model: BE600M1 with Superior Battery Support and USB Charging Facility</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-asus-zephyrus-g14-why-its-a-game-changer-for-serious-gamers/"><u>Unboxing the Asus Zephyrus G14: Why It's a Game-Changer for Serious Gamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unleash-your-inner-pilot-the-syma-137rmk-prc-review-for-affordable-home-flight-simulation/"><u>Unleash Your Inner Pilot: The Syma 137RMK-PRC Review for Affordable Home Flight Simulation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-pros-and-cons-of-ps5-versus-ps5-slim/"><u>Unveiling the Pros and Cons of PS5 Versus PS5 Slim</u></a></li>
+</ul></div>
 

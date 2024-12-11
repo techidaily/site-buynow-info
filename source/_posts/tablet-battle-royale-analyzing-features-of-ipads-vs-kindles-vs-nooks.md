@@ -1,7 +1,7 @@
 ---
 title: "Tablet Battle Royale: Analyzing Features of iPads Vs. Kindles Vs. Nooks"
-date: 2024-11-28T22:53:01.494Z
-updated: 2024-12-05T03:37:56.734Z
+date: 2024-12-06T17:54:52.869Z
+updated: 2024-12-11T02:02:03.392Z
 categories:
   - BestProducts
 description: "This Article Describes Tablet Battle Royale: Analyzing Features of iPads Vs. Kindles Vs. Nooks"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/bJGZVvLPIuXJptw8uPYtObxbpMQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -77,7 +81,7 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/v7wi7isxu06LAoWNZK3dJ908mCk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-4-cb1a370bd78244b383c802010a570313.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -94,25 +98,21 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 
  On the front of the screen, the bezels are a little thicker than some of the 4K TVs we’ve reviewed, but they’re pretty thin and shouldn’t distract. There’s your standard anti-glare coating found on the screen here too.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Stick to the on-screen instructions**
 
  Setting up pretty much any modern-day smart TV is an easy process, so just stick to the on-screen instructions and you’ll be golden. Go ahead and unpack it all, tear off that plastic film, plug in the power cable, and turn on the device.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vvIZMf3BNAr8JmiDAVdv4o3ceHg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-2-7eabd63fb6c0415ab75fd927d664a841.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
  Sony has done a solid job here of making the setup process simple, or maybe we should be thanking Google for that, as this is an Android TV. All you need to do is follow along with the on-screen instructions and complete them as necessary. Using the remote, you’ll be prompted to choose a language, location, internet connection, sign into accounts, etc. Just stick to the guide.
 
  With the initial process done, you will likely need to run a quick update check. This should automatically pop up, but check under the settings tab if it doesn’t. An update to the firmware should improve things considerably, especially if you need to upgrade to the latest version of Android TV. Updating takes a bit of time to do, so maybe go watch some TV while…oh right. Well, whatever you do during this process, just remember not to unplug the power while it’s running through updates.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Image Quality: Impressive 4K for IPS with some shortcomings**
 
@@ -137,20 +137,20 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Audio Quality: Loud, but distorted**
 
  Built-in speakers are never going to be great, but they’re nice to have if you’re lacking an[external sound system](https://www.lifewire.com/connect-tv-to-external-audio-system-1846816) like a soundbar. While we’d recommend getting an external setup for the best experience, let’s take a quick look at what the XBR65X850F has to offer with the included setup.
 
  Right off the bat, this TV can get quite loud and you shouldn’t run into any volume issues. That being said, the overall experience is mediocre at best. The louder you turn it up, the more distortion is added. These speakers should suffice in quiet environments if you’re primarily looking for nice clear dialogue with treble and mid, but the bass is not so good.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Software: A bit sluggish but good enough**
 
@@ -166,10 +166,6 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 
  One last thing, your phone can also be used as a remote if you so choose. All you need to do is download the app and connect it to the TV. This works with both Android and iOS devices (thanks Google). While it’s not a good as the regular remote, it works fine enough if you’re too lazy to get up and find the standard remote.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Not bad for the size, but not the cheapest**
 
  The X850F series come in a range of sizes, from 65 to 85 inches, so the prices can vary considerably depending on which one you go with. Any TV in this size range is going to cost a good bit of coin, no matter the manufacturer, but Sony isn’t too bad here.
@@ -177,6 +173,10 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
  On Sony’s website, the 65-inch model we tested here is listed at $1,300, the 75 at $2,300, and the 85 at a whopping $4,000\. Now these prices aren’t exactly accurate, especially since these are an older series. Typically you can find the 65-inch for about $1,100 or so. The other models are also heavily discounted depending on where you look, so definitely shop around. It’s likely that you can snag them for even less during sales.
 
  But how do these prices stack up against comparable TVs from competitors like LG or Samsung? Taking a quick look around online, you can easily save a few hundred dollars by going with a comparable LG TV, while Samsung was pretty closely matched with Sony. In the end, the price for the X850F series isn’t the best bang for your buck, but it ain’t bad either.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Sony XBR65X850F vs. Samsung UN65RU8000**
 
@@ -225,21 +225,19 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/5-tips-to-get-more-views-with-youtube-optimization-for-2024/"><u>5 Tips to Get More Views with YouTube Optimization for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/6-best-extensions-to-enhance-gpt-and-vs-code/"><u>6 Best Extensions to Enhance GPT and VS Code</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/athena-smart-display-gen-4-an-in-depth-evaluation/"><u>Athena Smart Display (Gen 4): An In-Depth Evaluation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cat-s42-rugged-phone-review/"><u>CAT S42 Rugged Phone Review</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/disappear-online-initiating-stealth-mode-in-top-web-browsers/"><u>Disappear Online: Initiating Stealth Mode in Top Web Browsers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/tial-audio-enhancement-apps-for-youtubers-videos-for-2024/"><u>Essential Audio Enhancement Apps for YouTubers' Videos for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-elder-scrolls-v-skyrim-a-detailed-review-for-switch-gamers/"><u>Exploring The Elder Scrolls V: Skyrim - A Detailed Review for Switch Gamers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-robust-capabilities-of-the-small-yet-potent-unihertxl-smartphone-review/"><u>Exploring the Robust Capabilities of the Small Yet Potent Unihert^XL Smartphone Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-shadows-in-depth-bloodborne-game-analysis/"><u>Exploring the Shadows: In-Depth Bloodborne Game Analysis</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-the-download-now-zebra-gk420d-printer-drive-simple-installation-process/"><u>Get the [DOWNLOAD Now] Zebra GK420d Printer Drive - Simple Installation Process</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-create-an-apple-developer-account-from-apple-iphone-7-by-drfone-ios/"><u>How To Create an Apple Developer Account From Apple iPhone 7</u></a></li>
-<li><a href="https://change-location.techidaily.com/list-of-pokemon-go-joysticks-on-vivo-y100a-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Vivo Y100A | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/perfect-color-balancing-for-free-leveraging-luts-within-obs-studio-environment-for-2024/"><u>Perfect Color Balancing for Free Leveraging LUTs Within OBS Studio Environment for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reviewing-the-rotibox-beanies-top-notch-audio-and-ultimate-comfort-the-best-of-both-worlds-in-a-hat/"><u>Reviewing the Rotibox Beanies: Top-Notch Audio and Ultimate Comfort - The Best of Both Worlds in a Hat!</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ltimate-guide-to-filming-for-virality-on-youtube/"><u>The Ultimate Guide to Filming for Virality on YouTube</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unpacking-the-reasons-behind-my-unwavering-love-for-the-huawei-p30-pro/"><u>Unpacking the Reasons Behind My Unwavering Love for the Huawei P30 Pro</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-squared-up-strategies-boosting-video-popularity-on-the-platform/"><u>[New] 2024 Approved Squared Up Strategies Boosting Video Popularity on the Platform</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/esign-best-practices-for-engaging-youtube-thumbnails/"><u>[New] Design Best Practices for Engaging YouTube Thumbnails</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-perfecting-video-frames-for-instagram-shares/"><u>[New] Perfecting Video Frames for Instagram Shares</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-ultimate-guide-igniting-video-visionaries-in-your-channel/"><u>[Updated] Ultimate Guide Igniting Video Visionaries in Your Channel</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-the-ultimate-handbook-for-youtube-video-creation/"><u>2024 Approved The Ultimate Handbook for YouTube Video Creation</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/enhancing-video-content-step-by-step-cropping-and-export-guide/"><u>Enhancing Video Content Step-by-Step Cropping & Export Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/step-by-step-guide-to-infectious-internet-memes-gifs/"><u>Step-by-Step Guide to Infectious Internet Memes (GIFs)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-picks-for-portable-gaming-devices/"><u>Top Picks for Portable Gaming Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-comfort-friendly-keyboards/"><u>Top Rated Comfort-Friendly Keyboards</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/ultimate-online-call-and-group-communication-hubs/"><u>Ultimate Online Call & Group Communication Hubs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-potential-of-the-powershot-sx70-hs-a-zoom-marvel/"><u>Unpacking the Potential of the PowerShot SX70 HS - A Zoom Marvel</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-value-of-hisenses-40-h5590f-a-comprehensive-smart-tv-review/"><u>Unveiling the Value of Hisense's 40 H5590F: A Comprehensive SMART TV Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/venturing-into-despair-an-unparalleled-reveal-of-bloodbornes-chilling-journey/"><u>Venturing Into Despair: An Unparalleled Reveal of Bloodborne's Chilling Journey</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Realme 11X 5G? | Dr.fone</u></a></li>
 </ul></div>
 

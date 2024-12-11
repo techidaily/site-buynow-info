@@ -1,7 +1,7 @@
 ---
 title: Why Purchasing PC Games From Microsoft Remains a Superior Choice
-date: 2024-09-04T01:39:14.481Z
-updated: 2024-09-05T01:39:14.481Z
+date: 2024-12-07T19:48:19.978Z
+updated: 2024-12-11T01:54:18.060Z
 tags:
   - games
   - tv
@@ -13,6 +13,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ## Why Purchasing PC Games From Microsoft Remains a Superior Choice
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Xbox Play Anywhere lets you play digital games on both PC and Xbox with progress syncing.
@@ -20,6 +24,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 * Consider buying games from the Microsoft Store for Play Anywhere benefits, but know that some games may lack mod support and cross-platform multiplayer.
 
  One big advantage of PC gaming is the ability to play all your games on a single device. As a PC gamer, you probably think there's hardly any reason to turn on your Xbox at all, right? Well, Xbox Play Anywhere presents a compelling argument to the contrary.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Xbox Play Anywhere Lets You Play on PC or Xbox
 
@@ -34,11 +42,9 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
  There are many reasons to be [both a console and PC gamer](https://data-safeguard.techidaily.com/full-restoration-of-your-iphone-master-the-reset-process-with-stellar-across-windowsmac/). If you find yourself going back and forth between your Xbox and PC, it can be worth your while to buy supported Play Anywhere games from Microsoft rather than from PC-focused storefronts like Steam or Epic Games.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Not All Games Support Play Anywhere
 
  While Play Anywhere can be a great value proposition for the hybrid gamer, it is important to note that not all games are compatible with this service. The [official Play Anywhere website](https://www.xbox.com/en-US/games/xbox-play-anywhere) provides a full list of compatible games.
@@ -48,11 +54,9 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
  The Xbox Play Anywhere program fails to include some notable must-have titles, though. For example, some of 2023's biggest hits like _Hogwarts Legacy_, _Diablo IV_, and _Star Wars Jedi: Survivor_ remain conspicuously absent from the list of supported games. It is also extremely important to be aware that [choosing to buy the physical version](https://fox-boxes.techidaily.com/2024-approved-maximizing-b-roll-creative-uses-and-integration/) of an Xbox game will not allow you to play it on PC, even if the digital version of the game supports Play Anywhere.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  How the Microsoft Store Compares to Steam and Others
 
  Play Anywhere is a great point in favor of any games that support it, but it does require purchasing the games from the Microsoft Store to take advantage of the feature. This may or may not be a dealbreaker, depending on your preferences. While some users have no complaints regarding the Microsoft Store, others report slow performance while browsing and claim that the algorithm recommends uninteresting games or apps.
@@ -60,11 +64,9 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 ![Browsing the Microsoft Store interface on PC.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/07/microsoft-store-gaming-interface.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  If you're interested in [modding your PC games](https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-tecno-spark-10-4g-phone-by-drfone-android/), be aware that buying through the Microsoft Store can complicate the process. The Microsoft Store version of many games use a locked folder that modders cannot access, or they may lack key dependencies that certain mods rely on.
 
  Multiplayer is another factor to consider. Some Play Anywhere games, like _Sea of Thieves_ for example, have full [cross-platform multiplayer](https://win-howtos.techidaily.com/overcoming-laptop-navigation-hurdles-how-to-unfreeze-and-restore-mouse-functionality/). This means that you can play with friends no matter what platform they are on, be it Xbox, Steam, or anywhere else. Others, like _Mortal Kombat 11_, lack this functionality and might not enable you to play with friends on the Steam version of the game if you are playing the Microsoft Store version.
@@ -79,8 +81,6 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -88,4 +88,22 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-cut-to-quality-perfecting-videos-with-enhancer-22/"><u>[New] 2024 Approved Cut to Quality Perfecting Videos with Enhancer 2.2</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-master-the-art-of-attraction-secrets-to-viral-tiktok-unboxing-content/"><u>[New] In 2024, Master the Art of Attraction Secrets to Viral TikTok Unboxing Content</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-fb-messenger-call-history-management-made-easy-for-2024/"><u>[Updated] FB Messenger Call History Management Made Easy for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-digitally-liberated-fb-tunes/"><u>[Updated] In 2024, Digitally Liberated FB Tunes</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-unlocking-the-secrets-to-perfect-thumbnails-for-2024/"><u>[Updated] Unlocking the Secrets to Perfect Thumbnails for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/choosing-your-digital-helper-alexa-vs-google-assistant/"><u>Choosing Your Digital Helper: Alexa Vs. Google Assistant</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exceptional-value-and-performance-a-comprehensive-guide-to-the-fossil-sports-lineup/"><u>Exceptional Value & Performance: A Comprehensive Guide to the Fossil Sports Lineup</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/horizon-hours-the-ultimate-guide-to-the-most-informative-car-code-books-and-articles-released-so-far-in-los-angeles-rev/"><u>Horizon Hours - The Ultimate Guide to the Most Informative Car Code Books and Articles Released So Far In Los Angeles (Rev.)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/how-to-amplify-and-modify-your-instagram-voice/"><u>How to Amplify and Modify Your Instagram Voice</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-effortless-srt-to-txt-conversion-in-under-minutes/"><u>In 2024, Effortless SRT to TXT Conversion in Under Minutes</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-low-end-pc-visual-data-harvesters/"><u>In 2024, Low-End PC Visual Data Harvesters</u></a></li>
+<li><a href="https://driver-download.techidaily.com/quick-fixes-how-to-easily-update-your-intel-nuc-drivers/"><u>Quick Fixes: How to Easily Update Your Intel NUC Drivers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-list-of-top-online-education-platforms-for-personal-growth/"><u>The Ultimate List of Top Online Education Platforms for Personal Growth</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/underwhelming-wi-fi-performance-nikon-coolpix-b500-review/"><u>Underwhelming Wi-Fi Performance: Nikon COOLPIX B500 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-futures-vinyl-player-at-lp60xbt-examined/"><u>Unveiling the Future's Vinyl Player: AT-LP60XBT Examined</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Syma S107G RC Helicopter Review
-date: 2024-11-30T20:04:03.621Z
-updated: 2024-12-04T19:46:36.711Z
+date: 2024-12-04T04:16:40.032Z
+updated: 2024-12-10T23:46:50.450Z
 categories:
   - BestProducts
 description: This Article Describes Syma S107G RC Helicopter Review
@@ -17,6 +17,10 @@ thumbnail: https://www.lifewire.com/thmb/P-8UxsMZel3cjt1hVtk4iOKfgsw=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
@@ -93,7 +97,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process** :**Get charged up and you’re ready to go**
@@ -106,6 +110,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Display and Viewfinder: Saturated and clear**
 
  The three-inch, 920,000-dot screen on the SX70 HS looks amazing—perhaps_too_ amazing, as your photos will look better on it than on your phone or computer. The screen is fully articulating and solidly built. Our one complaint would be how easily it picks up smudges, and how difficult those smudges are to remove. An advantage of the articulating screen is that it can be turned face-in to avoid dirt and damage and to save on battery life.
@@ -114,6 +122,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Autofocus: Blazing fast**
 
  We were shocked by how fast and consistent the autofocus is in the SX70 HS, even in low-light situations. It rarely fails to lock on to your intended subject, and focus tracking works flawlessly.
@@ -121,10 +133,6 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -157,7 +165,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
@@ -174,6 +182,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -184,19 +196,11 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
 
@@ -213,10 +217,6 @@ Lifewire / Andy Zahn
  **A tremendously fun camera that is exceedingly well-rounded if a bit pricey.**
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -258,21 +258,18 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-innovative-entryways-for-panzoid-life/"><u>[New] Innovative Entryways for Panzoid Life</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-sky-to-framing-a-compreenasive-review-of-the-drone-dji-spark/"><u>2024 Approved From Sky to Framing A Compreenasive Review of the Drone DJI Spark</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-unattached-audio-puzzle-resolution-guide/"><u>2024 Approved Unattached Audio Puzzle Resolution Guide</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unleash-creativity-with-ease-mastering-the-art-of-photo-text-editing/"><u>2024 Approved Unleash Creativity with Ease Mastering the Art of Photo Text Editing</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-the-budget-friendly-asus-vivobook-11-notebook/"><u>Comprehensive Guide to the Budget-Friendly Asus Vivobook 11 Notebook</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/echo-dot-versus-homepod-mini-which-smart-speaker-wins-for-you/"><u>Echo Dot Versus HomePod Mini - Which Smart Speaker Wins for You?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/guia-simple-para-transformar-archivos-de-codificacion-hevc-en-mp4-sin-degradacion-visual/"><u>Guía Simple Para Transformar Archivos De Codificación HEVC en MP4 Sin Degradación Visual</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-from-oppo-a59-5g-by-drfone-android/"><u>How to Bypass FRP from Oppo A59 5G?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/illuminating-innovation-the-taotronics-tt-dl16-review-a-blend-of-functionality-and-fashionable-design/"><u>Illuminating Innovation: The TaoTronics TT-DL16 Review - A Blend of Functionality and Fashionable Design</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastering-rainmeter-fixes-common-bugs-and-workarounds/"><u>Mastering Rainmeter Fixes: Common Bugs and Workarounds</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/mastering-the-art-of-taking-screenshots-a-comprehensive-guide-for-samsung-galaxy-users/"><u>Mastering the Art of Taking Screenshots: A Comprehensive Guide for Samsung Galaxy Users</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/speeding-up-tiktoks-simple-techniques-for-faster-videos/"><u>Speeding Up TikToks Simple Techniques for Faster Videos</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/syma-x5c-rc-quadcopter-evaluation-exceptional-entry-level-performance-at-a-reasonable-price-point/"><u>SYMA X5C R/C Quadcopter Evaluation - Exceptional Entry-Level Performance at a Reasonable Price Point</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-in-depth-analysis-of-the-newly-improved-apple-ipad-102-a-sleek-choice-for-budget-conscious-tech-enthusiasts/"><u>Ultimate Guide: In-Depth Analysis of the Newly Improved Apple iPad 10.2 - A Sleek Choice for Budget-Conscious Tech Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-the-competition-how-the-s10plus-stands-against-the-new-samsung-s20/"><u>Unboxing the Competition: How the S10+ Stands Against the New Samsung S20</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unraveling-the-secrets-of-pruveeos-cost-effective-full-hd-1080p-dash-cam-a-thorough-review/"><u>Unraveling the Secrets of Pruveeo’s Cost-Effective Full HD 1080P Dash Cam - A Thorough Review</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-revealed-the-best-videos-from-facebooks-pages/"><u>[New] 2024 Approved Revealed The Best Videos From Facebook’s Pages</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/hannel-growth-hacks-the-ultimate-list-of-5-youtube-strategies-for-2024/"><u>[New] Channel Growth Hacks – The Ultimate List of 5 YouTube Strategies for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-non-google-augmented-reality-visual-aids/"><u>[Updated] 2024 Approved Non-Google Augmented Reality Visual Aids</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-from-anonymous-to-notable-the-complete-guide-to-updating-your-tiktok-handle/"><u>[Updated] From Anonymous to Notable The Complete Guide to Updating Your TikTok Handle</u></a></li>
+<li><a href="https://change-location.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-vivo-y100i-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Vivo Y100i | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-leap-forward-transition-from-windows-7-to-11/"><u>A Leap Forward: Transition From Windows 7 To 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/all-ages-enjoyable-racing-adventure-holy-stone-cartoon-race-car-reviewed/"><u>All-Ages Enjoyable Racing Adventure: Holy Stone Cartoon Race Car Reviewed!</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-90-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on 90.</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-apple-iphone-x-to-ipod-touch-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Transfer Music from Apple iPhone X to iPod touch | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-streamline-your-podcast-with-ease/"><u>In 2024, Streamline Your Podcast With Ease</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/tunetracker-outside-of-dacast-realm/"><u>TuneTracker Outside of DaCast Realm</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/vibrant-hits-crafting-the-perfect-fitness-soundtrack/"><u>Vibrant Hits: Crafting the Perfect Fitness Soundtrack</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/x4-executive-chair-by-x-chair-the-ideal-selection-for-professional-workspaces/"><u>X4 Executive Chair by X-Chair - The Ideal Selection for Professional Workspaces</u></a></li>
 </ul></div>
 

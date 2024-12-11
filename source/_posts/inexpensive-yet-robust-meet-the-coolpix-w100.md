@@ -1,7 +1,7 @@
 ---
 title: Inexpensive Yet Robust - Meet the Coolpix W100
-date: 2024-11-23T11:02:24.545Z
-updated: 2024-11-24T20:28:29.488Z
+date: 2024-12-08T18:21:14.766Z
+updated: 2024-12-10T21:46:19.798Z
 categories:
   - BestProducts
 description: This Article Describes Inexpensive Yet Robust - Meet the Coolpix W100
@@ -19,7 +19,7 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## TP-Link RE200 AC750 Wi-Fi Range Extender
@@ -27,7 +27,7 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 ![TPLInk Network Extender RE200](https://www.lifewire.com/thmb/YhW6wEcN1-qJeUTqIMVwHkGr5cI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_HeroSquare-307b31f9d0a4494d8a3d563c761542d5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -51,13 +51,13 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 3.5
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## TP-Link RE200 AC750 Wi-Fi Range Extender
 
 ![TPLInk Network Extender RE200](https://www.lifewire.com/thmb/kJVLlJFDWoRIQXYy8IO30U8ybaE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_HeroSquare-307b31f9d0a4494d8a3d563c761542d5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -93,10 +93,6 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
  It doesn’t have a pass-through plug for your wall outlet, but thankfully the compact design should only take up one plug on your outlet.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: It’s straightforward**
 
  You have three different options for setting up the TP-Link RE200, all of which are pretty straightforward. With all three options, you’ll begin setup in close proximity to your router. The first setup option, which is what I chose, is to use TP-Link’s Tether app for iOS or Android devices. You’ll connect to the extender’s own Wi-Fi network, as indicated in the instructions, and then complete the steps to link to your home Wi-Fi network(s).
@@ -108,7 +104,7 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 ![TP-Link AV1300 Powerline](https://www.lifewire.com/thmb/04F8fDpm18B1nKg67KGE62zSjHI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_02-66c2a71ae40f45de8466ab23b5f96c09.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -120,6 +116,10 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
  I primarily tested the TP-Link RE200 in my office in my house, where I routinely see slower and sometimes inconsistent Wi-Fi speeds than when in closer proximity to my router. The RE200 clearly had an impact on both the speed and steadiness of the connection, with both my 2.4GHz and 5GHz networks showing full bars and typically delivering up to double the speed or more compared to my router’s own networks.
 
 ![TP-Link AV1300 Powerline](https://www.lifewire.com/thmb/frUD2wVjOiQ6xyicmibzSTBMRNY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_04-97804e236e3642ca87cfaf2bd29d69c6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -183,24 +183,20 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-info.techidaily.com/the-outer-worlds-a-unique-space-expedition-brimming-with-entertainment-and-intrigue/"><u>'The Outer Worlds': A Unique Space Expedition Brimming with Entertainment & Intrigue</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-iphone-hacks-seamless-video-repetition/"><u>[New] IPhone Hacks Seamless Video Repetition</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-mac-users-top-5-mkv-decoders/"><u>[New] Mac Users Top 5 MKV Decoders</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-integral-youtube-conduct-framework/"><u>[Updated] 2024 Approved Integral YouTube Conduct Framework</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-essential-strategies-for-professional-grade-video-editing/"><u>[Updated] Essential Strategies for Professional-Grade Video Editing</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/achieving-greatness-an-in-depth-analysis-of-why-fifa-19-reigns-supreme-in-the-world-of-soccer-games/"><u>Achieving Greatness: An In-Depth Analysis of Why FIFA 19 Reigns Supreme in the World of Soccer Games</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/google-pixel-3-review-mastering-the-essence-of-android-technology/"><u>Google Pixel 3 Review: Mastering the Essence of Android Technology</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/guide-facile-et-complet-pour-resoudre-les-problemes-dimportation-hevc-dans-windows-8-10-and-ailleurs/"><u>Guide Facile Et Complet Pour Résoudre Les Problèmes D'Importation HEVC Dans Windows (8, 10 & Ailleurs)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-the-heimvision-a8n-alarm-clock-revolutionizes-your-mornings-an-in-depth-look-at-its-light-therapy-features/"><u>How the HeimVision A8n Alarm Clock Revolutionizes Your Mornings: An In-Depth Look at Its Light Therapy Features</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-oneplus-11-5g-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on OnePlus 11 5G Devices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-d-link-homeplug-av-2000-kit-seamless-setup-and-accelerated-data-speeds/"><u>In-Depth Analysis of D-Link HomePlug AV 2000 Kit: Seamless Setup and Accelerated Data Speeds</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/inside-status-bts-rating-tight-wallet-slightly-off-track/"><u>Inside Status BT's Rating: Tight Wallet, Slightly Off Track</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolved-steps-for-restoring-compromised-windows-store-cache/"><u>Resolved: Steps for Restoring Compromised Windows Store Cache</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-definitive-guide-to-why-microsofts-new-surface-laptop-outshines-competitors/"><u>The Definitive Guide to Why Microsoft's New Surface Laptop Outshines Competitors</u></a></li>
-<li><a href="https://fox-links.techidaily.com/top-10-miniature-portable-dvd-systems-unveiled-for-2024/"><u>Top 10 Miniature Portable DVD Systems Unveiled for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-5-factors-to-evaluate-when-selecting-your-next-fitness-tracker/"><u>Top 5 Factors to Evaluate When Selecting Your Next Fitness Tracker</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/twelve-south-compass-pro-examination-innovatively-engineered-for-optimal-balance/"><u>Twelve South Compass Pro Examination: Innovatively Engineered for Optimal Balance</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/windows-11-couldnt-be-installed-error-code-80240020-solved/"><u>Windows 11 Couldn't Be Installed Error Code 80240020 [Solved]</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/your-gateway-to-success-with-a-bundle-of-50-free-adornments-in-2024/"><u>Your Gateway to Success with a Bundle of 50 FREE Adornments, In 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-quick-start-guide-to-arranging-engaging-google-sessions-for-2024/"><u>[New] Quick Start Guide to Arranging Engaging Google Sessions for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtubes-payment-cycle-a-detailed-look/"><u>[New] YouTube’s Payment Cycle A Detailed Look</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-make-fortnite-thumbnail-in-30-seconds/"><u>[Updated] 2024 Approved How to Make Fortnite Thumbnail in 30 Seconds</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-inaugural-directors-shorts/"><u>[Updated] Inaugural Director's Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-jake-pauls-youtube-success-story/"><u>[Updated] Jake Paul's YouTube Success Story</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/abbyy-annonce-deux-nouvelles-additions-au-sein-de-son-comite-executif/"><u>ABBYY Annonce Deux Nouvelles Additions Au Sein De Son Comité Exécutif</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-guide-to-restoring-d3dx924dll-file-on-windows/"><u>Comprehensive Guide to Restoring d3dx9_24.dll File on Windows</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/enhance-your-play-cut-down-on-latency-for-seamless-gaming-in-202c/"><u>Enhance Your Play: Cut Down on Latency for Seamless Gaming in 202C</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-integrated-activity-evaluation-guide/"><u>In 2024, Integrated Activity Evaluation Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/should-you-dive-into-the-world-of-amazon-prime/"><u>Should You Dive Into the World of Amazon Prime?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/silent-weapons-loud-fun-plants-vs-zombies-battle-for-neighborville-reviewed/"><u>Silent Weapons, Loud Fun: Plants Vs. Zombies Battle for Neighborville Reviewed!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-dreame-bot-l10-pro-unveiled-revolutionizing-home-cleaning-with-advanced-lidar-sensors/"><u>The Dreame Bot L10 Pro Unveiled: Revolutionizing Home Cleaning with Advanced LiDAR Sensors</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-moto-g-power-assessment-exceptional-operation-and-stellar-battery-longevity-reviewed/"><u>The Moto G Power Assessment: Exceptional Operation & Stellar Battery Longevity Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-construct-and-code-your-own-bot-with-the-makeblock-mbot-creator-pack/"><u>The Ultimate Guide to Construct and Code Your Own Bot with the Makeblock mBot Creator Pack</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-googles-pixel-4a-5g-an-expert-opinion-on-a-sleek-economical-android-device/"><u>The Ultimate Guide to Google's Pixel 4a 5G - An Expert Opinion on a Sleek, Economical Android Device</u></a></li>
 </ul></div>
 

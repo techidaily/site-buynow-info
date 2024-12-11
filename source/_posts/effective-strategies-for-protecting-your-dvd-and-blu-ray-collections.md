@@ -1,7 +1,7 @@
 ---
 title: Effective Strategies for Protecting Your DVD & Blu-Ray Collections
-date: 2024-08-30T14:07:04.613Z
-updated: 2024-08-31T14:07:04.613Z
+date: 2024-12-09T17:24:05.580Z
+updated: 2024-12-11T01:44:00.042Z
 tags:
   - games
   - tv
@@ -12,6 +12,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 ---
 
 ## Effective Strategies for Protecting Your DVD & Blu-Ray Collections
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Quick Links
 
@@ -32,17 +36,14 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
  So, if you've been convinced that it makes sense to [collect and preserve](https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-nokia-105-classic-devices-by-drfone-android/) content on disc, let's talk about how you can make those discs last as long as possible.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ##  Always Handle Discs by the Edge
 
 ![Blu-ray disc with Blu-ray player](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/3994a5fd.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Corbin Davenport / How-To Geek
 
  Optical discs work by shining a laser on the data side of the disc, which is covered in microscopic "pits" and "lands", which represent binary code as zeroes and ones. The disc has multiple layers, with the actual data layer sandwiched between other materials, including a clear layer the laser must pass through to read the information.Fingerprints and dirt from your fingertips can distort the laser, making the data hard to read. Which is why you should always handle discs by their edges. I always hold the disc between my thumb and middle finger, putting my index finger through the hold for stability.
@@ -51,24 +52,22 @@ Corbin Davenport / How-To Geek
 
 ![An ASUS BW-16D1X-U external Blu-ray disc reader with a disk inside](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/692ecf3d.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Jordan Gloor / How-To Geek
 
  While you can simply clean off fingerprints and dirt from a disc using a suitable cloth (I use ones for glasses), the same can't be said for scratches. If something sharp or hard scratches the disc there's a good chance you'll face playback issues. The simplest way to avoid ever scratching your disc is to follow a simple rule where a disc is either safely in its case, or it's in the player. Not shiny-side-up on top of your player, and not stacked on a bunch of other discs. Loose discs are a recipe for scratched and trashed media!
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Keep Away From Heat and the Sun
 
  One of the things you want to avoid is having our discs warp, in which case it doesn't matter how scratch-free it is. Direct heat is the main enemy here. Plenty of people have thoughtlessly left their CDs on a car seat only to return and find that the disc will no longer go into the player, because it's now banana-shaped. So be mindful of where you put those discs and store them somewhere room-temperature and out of direct light.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Minimize the Odds of Disc Rot
 
  Disc "rot" is the name given to chemical deterioration that happens in some optical discs. This usually happens to the metal layer that holds the data if the seal created by the clear materials on the outside of the sandwich fails. Allowing a chemical reaction that makes the disc unreadable. Sometimes disc rot is the result of poor manufacturing standards. Which is why earlier CDs are more likely to have this issue than those pressed more recently. Different types of disc have different causes and susceptibility to disc rot. CDs seem to be the most vulnerable, with DVDs and Blu-rays more resistant. However, as any collector can tell you, the rot can strike any disc type at seemingly any time.
@@ -78,8 +77,9 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
  If your disc does show signs of disc rot, such as clouding, or "bronzing", then it might be eligible for replacement if the issue was widespread. For example, certain [Criterion Collection](https://criterioncast.com/defective) discs were eligible for free replacement.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Can Discs Be Repaired?
 
  There's no shortage of advice you'll get online on how to reverse the damage done to a scratched disc, but the truth is that most of it simply doesn't work. I've tested trying to polish a disc with toothpaste or metal polish such as Brasso, and in most cases it either did nothing or damaged the disc even more. Any scratch down to the metal layer where the data is stored is irreversible, but it is possible to reduce or remove superficial scratches using a disc resurfacing tool. Of course, you can only resurface a disc so many times before you actually damage it, but if you have no other recourse, there's no harm in trying.
@@ -94,8 +94,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -103,4 +101,20 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-explore-tiktoks-curated-collection-books-and-beyond/"><u>[New] Explore TikTok's Curated Collection Books & Beyond</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ain-traction-on-youtube-surpass-10000-viewer-count-for-affiliate-rewards/"><u>[New] Gain Traction on YouTube - Surpass 10,000 Viewer Count for Affiliate Rewards</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-leading-websites-for-acoustic-phone-alerts-for-2024/"><u>[New] Leading Websites for Acoustic Phone Alerts for 2024</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/comprehensive-atomic-lead-harvesting-guide-master-phone-and-email-extraction-with-massmail-tool/"><u>Comprehensive Atomic Lead Harvesting Guide: Master Phone & Email Extraction with MassMail Tool</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dive-into-the-comfort-and-convenience-a-closer-look-at-the-cycwagen-e-cargo-upgrade/"><u>Dive Into the Comfort and Convenience: A Closer Look at the CycWagen E-Cargo Upgrade</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/essential-antivirus-software-for-your-iphone-discover-the-top-picks/"><u>Essential Antivirus Software for Your iPhone - Discover the Top Picks</u></a></li>
+<li><a href="https://fox-that.techidaily.com/expert-tips-for-resolving-iphone-14-energy-consumption-issues/"><u>Expert Tips for Resolving iPhone 14 Energy Consumption Issues</u></a></li>
+<li><a href="https://program-issues.techidaily.com/expert-tips-for-when-you-cant-access-gta-5-online-diagnosis-and-fixes/"><u>Expert Tips for When You Can't Access 'GTA 5 Online': Diagnosis and Fixes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-select-your-ideal-tablet-a-focus-on-size-and-weight-factors/"><u>How to Select Your Ideal Tablet - A Focus on Size and Weight Factors</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-next-level-splitting-tools-beyond-xsplit/"><u>In 2024, Next-Level Splitting Tools Beyond Xsplit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-multiplayer-where-spanish-meets-society/"><u>Mondly's Multiplayer: Where Spanish Meets Society</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-your-next-keyboard-spotlight-on-fellowes-microban-wireless-model/"><u>The Ultimate Guide to Choosing Your Next Keyboard – Spotlight on Fellowes Microban Wireless Model</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-vehicle-decryptors-of-2024/"><u>Top Vehicle Decryptors of 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Enhance Mobile Shots Creatively: Discover the Power of Contrast & Analysis for Stunning Results!"
-date: 2024-08-30T14:08:57.782Z
-updated: 2024-08-31T14:08:57.782Z
+date: 2024-12-04T09:30:06.911Z
+updated: 2024-12-10T19:54:04.291Z
 tags:
   - games
   - tv
@@ -34,9 +34,6 @@ thumbnail: https://thmb.techidaily.com/013867366887b6fa0094f393317cb0e64fa230f89
 
  In this piece, I'm going to suggest four types of contrast you can seek out to create photos that catch the eye, as well as ways to use similar elements for a visually pleasing effect.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ##  Old & New
 
  One of the simplest techniques is to combine elements of old and new. This can be really effective in travel shots, for example. Almost every city has evolved over time and will contain a mix of old buildings and new ones, classical and modern architecture. If you can find an angle that brings the two into stark contrast, people will almost always enjoy the effect, even if they can't say why.
@@ -52,9 +49,9 @@ Ben Lovejoy / How-To Geek
  The modern London building here is formally known as 30 St Mary Axe but is far better known around the world as The Gherkin. The round cross-section of the building means it can be photographed from any angle, and I've chosen a position here that puts a far older building in the foreground. I've again gone in very tight, both to exclude other buildings but also to create more of an abstract-looking shot.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Color & Mono
 
  Another simple technique is to find a rather monochrome background, and either wait for something or someone colorful to walk in front of it, or to bring your own colour.
@@ -68,26 +65,36 @@ Ben Lovejoy / How-To Geek
 ![A Buddhist monk standing in front of photos of victims of Cambodia's Killing Fields](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/2-color-mono-1.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  This was a more somber shot, taken inside the Choeung Ek Genocidal Center in Cambodia. The framed black-and-white photos of some of the victims are made more poignant by the colorful robe of the Buddhist monk studying the faces. The contrast helps to convey the message of life and death, then and now.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  Light & Dark
 
  Another form of contrast is light and dark, which can be achieved in various ways.
 
 ![A yellow building in Havana, upper-right section brightly sunlit, the rest in shadow](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/3-light-dark1.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  On a sunny day, this is easily done by finding angles that show both brightly lit and shadow areas, as in this example in Havana, Cuba.
 
 ![London's Millennium Bridge and St Paul's Cathedral taken in the Blue Hour after sunset](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/3-light-dark2.JPG) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ben Lovejoy / How-To Geek
 
  This example of the Millennium Bridge and St Paul's Cathedral in London works in several different ways. Taken in the blue hour—the time after sunset when the sky appears in various shades of blue—has a number of contrasts within it. We have a lighter sky and a darker river. The lighter water surface on the left reflects the sky, and the darker surface on the right is shaded by the bridge and more buildings. We also have the very beautifully designed lighting of the cathedral itself, which was very carefully created in order to create a contrast of light and dark on the dome.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Warm & Cold
 
@@ -96,9 +103,9 @@ Ben Lovejoy / How-To Geek
 ![The London skyline shot during the blue hour](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/4-warm-cold-2.JPG) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Ben Lovejoy / How-To Geek
 
  The blue hour is often a good opportunity for this, contrasting the cold-feeling blue skies with the yellow warmth of the light from buildings, as in this shot of the London skyline.
@@ -109,9 +116,6 @@ Ben Lovejoy / How-To Geek
 
  For me, this shot of the bare branches of a tree in winter against the warm light from inside the building really conveys an almost visceral sense of cold outside and warmth inside.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ##  Similar Colors & Tones
 
  Turning now to similarities, rather than differences, looking out for matching colors can make for harmonious-feeling shots.
@@ -124,18 +128,6 @@ Ben Lovejoy / How-To Geek
 
 ![A woman at night lit by the warm glow from a street lamp](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/5-similar-color2.jpeg) 
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  Here, we have the warm light on a street lamp reflected in the face of the woman, matched by the same warm light from lamps further down the street behind her.
@@ -147,8 +139,9 @@ Ben Lovejoy / How-To Geek
 ![Jetty supports on a river giving a squares-within-squares effect](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/6-repetition1.JPG) 
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Ben Lovejoy / How-To Geek
 
  In this example, we have some jetty supports on the River Thames, and I've positioned myself to make these match as perfectly as possible.
@@ -156,8 +149,9 @@ Ben Lovejoy / How-To Geek
 ![Repeating arches in Tel Aviv](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/6-repetition2.JPG) 
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Ben Lovejoy / How-To Geek
 
  A similar idea with these arches in Tel Aviv. In this case, to get the background view I wanted, I needed to offset the near and far arches, rather than having them perfectly symmetrical, as I'd hoped, but I actually found it was a happy accident, as I like the feel of the offset.
@@ -174,9 +168,6 @@ Ben Lovejoy / How-To Geek
 
 ![Shoes with a pattern blending in with the carpet pattern](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/9-fun2.JPG) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Ben Lovejoy / How-To Geek
 
  And finally, in an airport lounge in Atlanta, I looked down to find my grey shoes and jeans blending in rather well with the carpet! It made for a fun final shot while waiting for my flight.
@@ -191,8 +182,6 @@ Ben Lovejoy / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -200,4 +189,19 @@ Ben Lovejoy / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-enchanting-eloquence-exploring-the-top-8-storytelling-haunts-for-2024/"><u>[New] Enchanting Eloquence Exploring the Top 8 Storytelling Haunts for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-mastering-windows-10-zoom-integration-essentials-for-2024/"><u>[New] Mastering Windows 10 Zoom Integration Essentials for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-how-to-add-text-to-photos-on-windows-and-mac/"><u>[Updated] 2024 Approved How to Add Text to Photos on Windows and Mac</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-preparing-your-environment-zoom-room-configuration-tips/"><u>2024 Approved Preparing Your Environment Zoom Room Configuration Tips</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/backup-fai-da-te-gratis-con-aomei-ripristina-and-duplica-i-tuoi-file-rapidamente/"><u>Backup Fai Da Te Gratis Con AOMEI: Ripristina & Duplica I Tuoi File Rapidamente!</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-itel-a60-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Itel A60 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-motorola-moto-g04-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Motorola Moto G04 to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-vivo-y27-4g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Vivo Y27 4G to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mars-receives-urban-spectacle-ignites-fun-and-windy-frenzies/"><u>Mars Receives Urban Spectacle, Ignites Fun and Windy Frenzies</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsungs-q60r-the-perfect-smart-4k-tv-for-gamers-reviewed/"><u>Samsung's Q60R: The Perfect Smart 4K TV for Gamers, Reviewed!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-leading-choices-for-premium-external-blu-ray-drives-best-picks/"><u>The Leading Choices for Premium External Blu-Ray Drives - Best Picks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-pixel-slates-experience-with-chromeos-dysfunction/"><u>Unpacking the Pixel Slate's Experience with ChromeOS Dysfunction</u></a></li>
+</ul></div>
 

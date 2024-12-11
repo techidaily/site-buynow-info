@@ -1,7 +1,7 @@
 ---
 title: "Maximizing Xbox Series X|S Performance: A Guide to Clearing Extra Space"
-date: 2024-09-04T01:39:08.132Z
-updated: 2024-09-05T01:39:08.132Z
+date: 2024-12-10T01:55:25.288Z
+updated: 2024-12-10T18:31:39.107Z
 tags:
   - games
   - tv
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/3b9684531fbf23c2641f6279330c8cba0c78b446e
 ---
 
 ## Maximizing Xbox Series X|S Performance: A Guide to Clearing Extra Space
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Quick Links
 
@@ -25,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/3b9684531fbf23c2641f6279330c8cba0c78b446e
 
  Are you running out of space on your Xbox? Don’t worry, creating free space is easy. We’ll have you downloading and installing new games in no time.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Delete Games to Create Free Space
 
  The easiest way to create space on your Xbox console is to delete games you’re no longer playing. Think about what you’re currently playing, what’s coming out soon, and what else is on your backlog to make an educated decision about what to delete.
@@ -34,6 +42,10 @@ thumbnail: https://thmb.techidaily.com/3b9684531fbf23c2641f6279330c8cba0c78b446e
  An easy method to do this is to open “My games and apps” and use the “Sort” drop-down at the top to “Sort by size” and then use the “Filter” option to select “Internal storage” (since everything on all drives will be shown by default). This will place the largest games at the start of the list, and give you an idea of how much space they’re taking up.
 
 ![Sorting the Xbox "My Games and apps" list by size.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/sort_by_size.PNG) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Highlight a game, hit the “More” (hamburger) button on your console, then select “Uninstall” to get rid of it.
 
@@ -47,12 +59,6 @@ thumbnail: https://thmb.techidaily.com/3b9684531fbf23c2641f6279330c8cba0c78b446e
 
 ![Deleting multiple games at once from Xbox storage.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/delete_multiple.PNG) 
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Check for Add-Ons and Shrinkable Games
 
  Deleting games isn’t necessarily as thorough as you might think. Sometimes things get left behind, and sometimes you can elect to shrink a game by removing optional content. Microsoft has made this easy.
@@ -61,12 +67,6 @@ thumbnail: https://thmb.techidaily.com/3b9684531fbf23c2641f6279330c8cba0c78b446e
 
 ![The "Leftover add-ons" option on Xbox.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/leftover_add_ons.PNG) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  You’ll now see two options in the sidebar that you can choose between: “Leftover add-ons” and “Shrinkable games.” Flip between the two to see what your options are. “Leftover add-ons” refers to content for a game that you no longer have installed, whereas “Shrinkable games” are games for which you can remove optional content.
 
 ##  Clear Out Your Xbox Captures
@@ -82,12 +82,6 @@ Tim Brookes / How-To Geek
 
  From here it’s simply a case of selecting a capture and choosing “Delete” to remove it. If you have an external drive connected you can copy it over to external storage, then delete it. You can also choose “Upload to the Xbox network” to access (and save) the clip using the Xbox app for iPhone or Android.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Move Data to an External Drive
 
  If you’re on a slow or unreliable internet connection, you might not appreciate having to reinstall games from the internet the next time you want to play them. Sometimes, the servers on which the games are hosted are slow (so it doesn’t matter how fast your internet connection is).
@@ -103,35 +97,15 @@ Tim Brookes / How-To Geek
 ![Selecting games you want to move on Xbox.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/move_games_external.PNG) 
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  When you’re ready, choose “Move selected” followed by “Move” to confirm. Once the item has been moved, you’ll be able to use the space for something else.
 
  Xbox Series X and S games cannot be played from external storage (but older Xbox One games can, though we recommend against it for performance reasons).
 
  To play your game again, copy it back to the internal storage. Head to the “Storage devices” menu and choose the external drive, then use the same method to transfer the data.
 
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Delete Offline Media in Streaming Apps
 
  If you use apps like Crunchyroll or Apple TV, you may have media sitting on your drive doing nothing. You’ll need to boot up these apps and check the “Downloaded” or “Offline” sections for titles that you may have saved for offline viewing.
@@ -140,6 +114,10 @@ Tim Brookes / How-To Geek
 
  Deleting an app should delete additional offline data too.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Some Games May Use Additional Space
 
  Sometimes, in addition to the space a game requires to install, you can designate storage space as a cache. This isn’t common, and I can only think of one game that does it and that’s _Microsoft Flight Simulator_. But since I haven’t played every single Xbox title, there’s a chance other games do it too.
@@ -147,17 +125,9 @@ Tim Brookes / How-To Geek
 ![Disabling the "Rolling Cache" option in Microsoft Flight Sim.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/flight_sim_cache.PNG) 
 
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  In _Flight Sim_, this option can be found under Options > General Options > Data > Rolling Cache. You can turn the feature off or reduce the amount of space available.
 
 ##  Don’t Forget About Developer Mode
@@ -178,8 +148,6 @@ Tim Brookes / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -187,4 +155,24 @@ Tim Brookes / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-visual-storytelling-in-business-marketing/"><u>[Updated] 2024 Approved Visual Storytelling in Business Marketing</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-insta-savvy-the-top-10-tags-that-matter-most-for-2024/"><u>[Updated] Insta Savvy The Top 10 Tags That Matter Most for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-temperature-gauge-the-good-the-bad-and-the-ugly-of-thermopro-tp67-reviewed/"><u>Affordable Temperature Gauge: The Good, the Bad and the Ugly of ThermoPro TP67 Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-samsung-galaxy-fit-assessment-the-perfect-partner-for-health-conscious-individuals/"><u>Comprehensive Samsung Galaxy Fit Assessment - The Perfect Partner for Health-Conscious Individuals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/eardial-hifi-earplug-review-great-low-profile-concert-earplugs/"><u>EarDial HiFi Earplug Review: Great, Low-Profile Concert Earplugs</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/economical-panoramic-hd-camcorders-on-a-budget/"><u>Economical Panoramic HD Camcorders on a Budget</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/enhancing-networking-how-chatgpt-boosts-your-chance-for-linkedin-employment/"><u>Enhancing Networking: How ChatGPT Boosts Your Chance for LinkedIn Employment</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-essential-knowledge-zooming-into-clustered-rooms/"><u>In 2024, Essential Knowledge Zooming Into Clustered Rooms</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-laughter-in-lightboxes-essential-free-image-enhancers/"><u>In 2024, Laughter in Lightboxes Essential Free Image Enhancers</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-learn-how-to-lock-stolen-your-iphone-14-plus-properly-by-drfone-ios/"><u>In 2024, Learn How To Lock Stolen Your iPhone 14 Plus Properly</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-the-artisans-guide-mastering-gopro-video-editing/"><u>In 2024, The Artisan's Guide Mastering GoPro Video Editing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-nook-glowlight-4-ereader-analysis/"><u>In-Depth Nook GlowLight 4 Ereader Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-your-commute-with-aphaca-bt69-bluetooth-fm-car-stereo-transmitter-detailed-examination-and-insights/"><u>Mastering Your Commute with Aphaca BT69 Bluetooth FM Car Stereo Transmitter - Detailed Examination and Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/performance-vs-appearance-for-the-2v-hdtv-antenna-by-clearstream-top-quality-just-not-pretty/"><u>Performance vs Appearance for the 2V HDTV Antenna by ClearStream: Top Quality, Just Not Pretty</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-cost-efficient-choice-for-watchful-pet-owners/"><u>The Cost-Efficient Choice for Watchful Pet Owners</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-a-fitbit-charge-6-based-on-user-reviews/"><u>The Ultimate Guide to Choosing a Fitbit Charge 6 Based on User Reviews</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1726224517019-aacmp3/"><u>オンラインでのワナビー音楽ファイル変換:無料でAACとMP3に変える方法</u></a></li>
+</ul></div>
 

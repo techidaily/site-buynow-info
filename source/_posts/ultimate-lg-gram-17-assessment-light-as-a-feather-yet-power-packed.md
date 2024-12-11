@@ -1,7 +1,7 @@
 ---
 title: "Ultimate LG Gram 17 Assessment: Light as a Feather Yet Power-Packed"
-date: 2024-11-29T17:19:08.798Z
-updated: 2024-12-05T03:52:22.521Z
+date: 2024-12-05T08:19:14.391Z
+updated: 2024-12-10T21:44:06.153Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate LG Gram 17 Assessment: Light as a Feather Yet Power-Packed"
@@ -18,9 +18,17 @@ thumbnail: https://thmb.techidaily.com/4494210181b361ed33c42bb9503adb4d12c1be013
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Razer Book 13
 
 ![Razer Book 13](https://www.lifewire.com/thmb/VaOshLbjt_41gksIyYfg24DF6KM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_HeroSquare-80401fcfbef94a1b8444cd0832388aac.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -45,12 +53,16 @@ Lifewire / Andy Zahn
 4.9
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Razer Book 13
 
 ![Razer Book 13](https://www.lifewire.com/thmb/0i6VvZqT39MNfVUbDSY7z3l8-Tw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_HeroSquare-80401fcfbef94a1b8444cd0832388aac.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -78,10 +90,6 @@ Lifewire / Andy Zahn
 
  An[ultrabook](https://www.lifewire.com/best-laptops-to-buy-4043650) is typically a thing of compromises, and if you want a laptop that’s thin and light, power is often sacrificed. However, the Razer Book 13 challenges that stereotype and offers a sleek and attractive alternative to other high-end[ultra-portables](https://www.lifewire.com/best-lightweight-laptops-to-buy-4065134) . I tested it for 40 hours to find if it can live up both to its stunning ultrabook looks and Razer’s prowess in building high-powered gaming laptops.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Design: Beauty in minimalism
 
  Razer is known for their flashy gaming-focused laptops, mice, and keyboards that are clearly marketed towards gamers, but they have always also employed a certain degree of restraint over some more exuberant gaming products. With the Book 13, that restraint is pushed even further with only a few tasteful reminders of the laptop’s gaming heritage—the twisted snaky Razer logo on the top, and of course RGB backlighting for the keyboard.
@@ -102,10 +110,6 @@ Lifewire / Andy Zahn
 
  There’s not a lot to say about setting up the Razer Book 13\. It’s just a standard install of Windows 10 Home with no surprises along the way so you can be up and running in just a few minutes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Display: Positively stunning
 
  The Razer Book 13 configuration we tested comes with an absolutely gorgeous 13.5-inch UHD 60Hz display that is both very color accurate and provides stunning visuals. This is great for both creative tasks that require color accuracy, and for media consumption. The 16:10 aspect ratio is definitely tailored for productivity. The bezel is attractively thin, and the screen is made of Gorilla Glass 6, making it highly scratch resistant.
@@ -113,10 +117,6 @@ Lifewire / Andy Zahn
 ![Razer Book 13](https://www.lifewire.com/thmb/C308jEtLYxnwMp68uF5Sd-2hjyA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_02-4da7b450ac1c4b879f1b0bebfa9815b5.jpg)
 
 Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Performance: Lean and mean
 
@@ -138,19 +138,23 @@ Lifewire / Andy Zahn
 
 Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Connectivity: The latest and greatest
 
  With[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , the Book 13 had no trouble taking full advantage of my home network. It provides a fast and reliable connection, and Bluetooth 5.0 is available as well.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Battery: Juice for the day
 
  Razer claims a battery life of up to 10 hours or even a bit more, and I found this to be accurate. The Book 13 should get you through a day at the office without needing to recharge, depending upon use, of course.
 
 ![Razer Book 13](https://www.lifewire.com/thmb/6yYQ1e8vR0Ldvs2GP61CrvFy3zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_05-1c8a8e1bdd78413fb72cc6307a07ea40.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -168,10 +172,6 @@ Lifewire / Andy Zahn
 
  The webcam on the Book 13 is about average for a laptop. It captures 720p video and is perfectly acceptable, though not exceptional in any way. Video quality looks decent, even in relatively challenging situations.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Price: The cost of quality
 
  The configuration of the Razer Book 13 I tested is definitely pricey at $2,000\. That’s a decent chunk of change, and you could certainly buy a laptop with more graphical power for the money, but the Book 13 isn’t made for high-end gaming.
@@ -179,10 +179,6 @@ Lifewire / Andy Zahn
  Between its solid design, attractive aesthetics, and nice little touches that tie the whole package together, this is one awesome little ultrabook.
 
  This is a premium, ultra-portable device designed more for professional work, and its ability to game is basically a nice bonus. Considering the competition from Dell and Apple, it’s not unreasonably priced.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Razer Book 13 vs. Dell XPS 13 7390 2-in-1
 
@@ -195,6 +191,10 @@ Lifewire / Andy Zahn
  **A laptop with great looks, compact design, and remarkable power.**
 
  There’s a lot to love about the Razer Book 13, and not a lot of negative things to say about it. It’s not a graphical powerhouse, but the fact that it’s able to game at all is remarkable. Between its solid design, attractive aesthetics, and nice little touches that tie the whole package together, this is one awesome little ultrabook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -234,20 +234,16 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-recording-revelry-capturing-the-thrill-of-sports-games/"><u>[Updated] 2024 Approved Recording Revelry Capturing the Thrill of Sports Games</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-resolve-ineffective-fb-content-distribution/"><u>[Updated] In 2024, Resolve Ineffective FB Content Distribution</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-accelerated-editing-seamless-laptoppc-videos-with-inshot/"><u>2024 Approved Accelerated Editing Seamless Laptop/PC Videos with Inshot</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-eye-catching-coverage-laptop-wallpapers-online/"><u>2024 Approved Eye-Catching Coverage Laptop Wallpapers Online</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-how-to-use-aiseesoft-screen-recorder/"><u>2024 Approved How to Use Aiseesoft Screen Recorder</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-nulaxy-km18-the-reliable-classic-fm-transmitter-for-your-car/"><u>Comprehensive Review of Nulaxy KM18: The Reliable Classic FM Transmitter for Your Car</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dual-sim-this-model-supports-dual-sim-cards-making-it-more-flexible-for-international-travel-or-managing-multiple-numbers/"><u>Dual-SIM: This Model Supports Dual Sim Cards, Making It More Flexible for International Travel or Managing Multiple Numbers.</u></a></li>
-<li><a href="https://win-answers.techidaily.com/expert-solutions-preventing-snowrunner-from-shutting-down-unexpectedly-on-desktops/"><u>Expert Solutions: Preventing SnowRunner From Shutting Down Unexpectedly on Desktops</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/future-proof-choices-a-comprehensive-list-of-the-best-external-drives/"><u>Future-Proof Choices: A Comprehensive List of the Best External Drives</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/immersive-viewing-experience-with-the-lg-65-oled-c9-smart-tv-ultimate-guide-and-review-for-enthusiasts/"><u>Immersive Viewing Experience with the LG 65 OLED C9 Smart TV: Ultimate Guide and Review for Enthusiasts</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-cutting-edge-top-20-zero-copyright-pubg-screenshots/"><u>In 2024, Cutting-Edge Top 20 Zero-Copyright PUBG Screenshots</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-nhl-19s-engaging-digital-play-experience/"><u>In-Depth Analysis of NHL 19'S Engaging Digital Play Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-zte-blade-a3y-delivering-quality-for-budget-conscious-users/"><u>In-Depth Analysis of the ZTE Blade A3Y: Delivering Quality for Budget Conscious Users</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/649085-9780307785855-the-ancient-art-of-faery-magick/"><u>The Ancient Art of Faery Magick | Free Book</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tp-link-archer-a9-reviewed-unmatched-speed-and-functionality-for-a-budget-friendly-price/"><u>TP-Link Archer A9 Reviewed: Unmatched Speed and Functionality for a Budget-Friendly Price</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/fresh-update-achieve-full-potential-optimizing-your-thinkpad-with-thunderbolt-3-dock-accessories-and-drivers/"><u>[FRESH UPDATE] Achieve Full Potential: Optimizing Your ThinkPad with Thunderbolt 3 Dock Accessories and Drivers</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-guide-to-consolidating-your-youtube-video-collection-for-2024/"><u>[New] Guide to Consolidating Your YouTube Video Collection for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-simple-trick-on-how-to-instagram-collage/"><u>[New] Simple Trick on How to Instagram Collage</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-harmony-in-chat-blending-music-into-status/"><u>[Updated] Harmony in Chat Blending Music Into Status</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-unlock-creative-potential-crafting-tiktok-videos-using-templates-for-2024/"><u>[Updated] Unlock Creative Potential Crafting TikTok Videos Using Templates for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-fix-your-fb-account-post-hack-recovery-guide/"><u>2024 Approved Fix Your FB Account Post-Hack Recovery Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/peak-picks-2024s-premier-workout-beats/"><u>Peak Picks: 2024'S Premier Workout Beats</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/should-you-buy-an-apple-tv/"><u>Should You Buy An Apple TV?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sony-dsc-w800-unboxing-a-powerful-camera-great-value-proposition/"><u>Sony DSC-W800 Unboxing: A Powerful Camera, Great Value Proposition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/spotify-plusthe-ultimate-music-experience-or-overhyped/"><u>Spotify Plus—The Ultimate Music Experience or Overhyped?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-softbox-lighting-kits-of-2024/"><u>The Best Softbox Lighting Kits of 2024</u></a></li>
 </ul></div>
 

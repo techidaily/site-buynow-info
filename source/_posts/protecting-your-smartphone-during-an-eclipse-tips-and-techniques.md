@@ -1,7 +1,7 @@
 ---
 title: "Protecting Your Smartphone During an Eclipse: Tips & Techniques"
-date: 2024-08-30T14:09:20.775Z
-updated: 2024-08-31T14:09:20.775Z
+date: 2024-12-07T03:56:32.445Z
+updated: 2024-12-10T19:12:42.293Z
 tags:
   - games
   - tv
@@ -13,6 +13,10 @@ thumbnail: https://thmb.techidaily.com/dd8665fd574b8b8849bc905e8ab75258e662c1b7c
 
 ## Protecting Your Smartphone During an Eclipse: Tips & Techniques
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Quick Links
 
 * [How to Photograph the Eclipse with your Phone](https://hardware-reviews.techidaily.com/navigating-the-digital-landscape-with-toms-hardware-insider/)
@@ -20,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/dd8665fd574b8b8849bc905e8ab75258e662c1b7c
 * [How to Test Solar Eclipse Glasses and Filters](https://snapchat-videos.techidaily.com/new-in-2024-decoding-the-art-of-hidden-storytelling-on-snapchat/)
 
  A total solar eclipse may be a once in a lifetime event, but that doesn't mean you should be careless. Here is how you can protect your phone from any accidental damage, and take the best possible photo.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  How to Photograph the Eclipse with your Phone
 
@@ -29,9 +37,6 @@ thumbnail: https://thmb.techidaily.com/dd8665fd574b8b8849bc905e8ab75258e662c1b7c
 
  NASA says that it is [safe to view totality without wearing eye protection](https://science.nasa.gov/eclipses/safety/). Just be sure that you don't start looking too early or keep watching too late.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ###  Use a Filter Until Totality
 
  If you're going to try to use your phone to capture a picture of an eclipse that is not at totality, we'd recommend that you use a filter for two reasons.
@@ -44,18 +49,14 @@ thumbnail: https://thmb.techidaily.com/dd8665fd574b8b8849bc905e8ab75258e662c1b7c
 
 ![The sun captured with a Pixel 8 Pro.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/pxl_20240328_173921583-raw-01-mp-cover.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Nick Lewis / How-to Geek
 
  Since you can view totality without eye protection, it will also be safe to photograph the eclipse with your phone without a filter. Just be sure that you're not premature, and that you don't keep looking for too long. Totality only lasts a few minutes.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ###  Be Careful With External Telephoto Lenses
 
  There are tons of [smartphone telephoto lenses](https://extra-information.techidaily.com/the-food-filmmakers-blueprint-techniques-and-tricks/) available on the market, but you should avoid almost all of them if you're going to attempt to photograph the eclipse.
@@ -68,9 +69,6 @@ Nick Lewis / How-to Geek
 
  If you're wondering if you can use a solar filter (like those found on eclipse glasses) in **front** of a regular clip on telephoto lens, the answer is yes–it'll work. However, it is a bit too easy to accidentally drop the filter away from the front of the lens and damage your phone. We don't recommend it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ###  Use a Tripod
 
  You can pick up a tripod designed to fit your smartphone online or in brick-and-mortar stores, and we'd highly recommend you use one if you want to capture a picture or video of the eclipse, especially if you're using the telephoto lens built into your phone.
@@ -78,24 +76,23 @@ Nick Lewis / How-to Geek
  Just be sure to keep an eye on it. The sun and moon move across the sky faster than you might expect, and you may find that they move out of frame if you don't adjust your tripod regularly.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ###  Use Burst Mode and Lock Your Focus
 
 [Burst mode](https://extra-lessons.techidaily.com/add-cinematic-shake-to-images-using-ps-for-2024/), if your phone supports it, is a great way to capture the motion of the moon across the face of the sun.
 
  We also highly recommend that you go into your camera app's settings and set the focus to infinity. That will prevent autofocus from interfering with your perfect shot.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ##  How to Buy Safe Solar Eclipse Glasses or Filters
 
  There are fake, unsafe solar eclipse glasses for sale. The American Astronomical Society has put together [a list of safe solar filters and glasses](https://eclipse.aas.org/eye-safety/viewers-filters), and we'd recommend you buy from that list.
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  How to Test Solar Eclipse Glasses and Filters
 
  If you already purchased solar glasses and want to find out if they're safe to use, begin with a basic inspection. Examine the lenses for any tears, holes, scrapes, or scratches. If you see any, don't use them.
@@ -114,8 +111,6 @@ Nick Lewis / How-to Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -123,4 +118,24 @@ Nick Lewis / How-to Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-exploring-digital-worlds-vr-explained/"><u>[New] 2024 Approved Exploring Digital Worlds VR Explained</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-beaming-brilliance-for-android-video-creation/"><u>[New] Beaming Brilliance for Android Video Creation</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-explore-artistic-possibilities-premier-android-graphics-app-selection/"><u>[New] Explore Artistic Possibilities Premier Android Graphics App Selection</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-crafting-a-harmonic-narrative-adding-youtube-music-to-vids/"><u>2024 Approved Crafting a Harmonic Narrative Adding YouTube Music to Vids</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-watch-connectivity-explored-the-benefits-of-gps-and-cellular-variants/"><u>Apple Watch Connectivity Explored: The Benefits of GPS and Cellular Variants</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/enhancing-client-engagement-with-gpt-in-therapy-sessions/"><u>Enhancing Client Engagement with GPT in Therapy Sessions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-best-ergonomic-vertical-mice-for-a-healthy-workspace/"><u>Expert Picks: Best Ergonomic Vertical Mice for a Healthy Workspace</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/frameworks-for-dynamic-fb-video-marketing-for-2024/"><u>Frameworks for Dynamic FB Video Marketing for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209660969-9781547575596-il-tredicesimo-compleanno-di-megan/"><u>Il Tredicesimo Compleanno Di Megan | Free Book</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-google-pixel-8-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Google Pixel 8? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/iphone-15-pro-max-vs-samsung-galaxy-s2e-ultra-which-is-better-for-you/"><u>IPhone 15 Pro Max Vs. Samsung Galaxy S2e Ultra - Which Is Better for You?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/masterful-creation-assessment-insights-into-the-stylish-and-technical-marvel-that-is-the-samsung-galaxy-watch/"><u>Masterful Creation Assessment – Insights Into the Stylish & Technical Marvel That Is the Samsung Galaxy Watch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/new-marshall-vision-for-anc-sleek-design-plus-rhythmic-euphoria/"><u>New Marshall Vision for ANC: Sleek Design + Rhythmic Euphoria</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/petsafes-reliable-6-meal-programmable-feeder-perfect-for-your-pets-schedule/"><u>PetSafe's Reliable 6-Meal Programmable Feeder: Perfect for Your Pet’s Schedule</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-consumers-checklist-for-finding-the-right-sized-tablet-that-packs-just-enough-punch/"><u>The Consumer's Checklist for Finding the Right-Sized Tablet that Packs Just Enough Punch</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-how-to-stop-gas-station-simulator-from-crashing-on-windows/"><u>Troubleshooting Guide: How to Stop 'Gas Station Simulator' From Crashing on Windows</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/viair-88p-compact-air-compressor-examined-exceptional-strength-with-some-minor-constraints/"><u>Viair 88P Compact Air Compressor Examined - Exceptional Strength with Some Minor Constraints</u></a></li>
+</ul></div>
 

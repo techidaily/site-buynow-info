@@ -1,7 +1,7 @@
 ---
 title: "Say Goodbye to Terrible External Control Systems: A New Era Begins!"
-date: 2024-09-04T01:38:42.007Z
-updated: 2024-09-05T01:38:42.007Z
+date: 2024-12-10T08:44:38.465Z
+updated: 2024-12-11T05:19:50.994Z
 tags:
   - games
   - tv
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/983f31d4ff46a88bf34dd06f49261024f8d7c362e
 ---
 
 ## Say Goodbye to Terrible External Control Systems: A New Era Begins!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Quick Links
 
@@ -28,18 +32,6 @@ thumbnail: https://thmb.techidaily.com/983f31d4ff46a88bf34dd06f49261024f8d7c362e
 
  If you've been gaming for a while, you probably have a story about a terrible third-party controller. But now these off-brand manufacturers are making some of the best controllers in the market today.
 
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  The Age of Bad Third-Party Controllers
 
  Third-party controllers have developed a stigma that dates back to the 90s when home consoles hit the mainstream. Many of these controllers never worked quite right or stopped working a month after you purchased them. They were made from terrible plastic that felt horrible to play with after a few minutes, let alone over a full gaming session.
@@ -59,37 +51,17 @@ Tim Brookes / How-To Geek
 ![Logitech PC controller with a horrible D-Pad.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/logitech_controller.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Tim Brookes / How-To Geek
 
  Essentially, controllers used to be a "you get what you pay for" situation. You had to pay a bit more for a first-party controller, but it was going to last longer and work better than a third-party one, making it the better purchase in the long term. You would just have to hope that whoever was buying the controllers saw it the same way, so you wouldn't get stuck with an awkward Mad Catz controller where the Y button would only work half of the time.
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  First-Party Standards are Slipping (and Prices Are Rising)
 
 ![Nintendo Switch Joy Cons.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/52659706170_2192629c1a_o.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Corbin Davenport / How-To Geek
 
  If you've had a lot of bad experiences with third-party controllers, you may have been like me and sworn them off for good. Only the makers of the consoles could understand what needed to go into making a proper controller, or so I thought.
@@ -98,9 +70,17 @@ Corbin Davenport / How-To Geek
 
  While Sony's PS5 DualSense and Microsoft's Xbox Core Controller perform better overall than the Joy-Cons, the prices for these accessories have crept up over the years. At some point, it becomes hard to justify the steep price. The [DualSense](https://www.amazon.com/PlayStation-DualSense-Wireless-Controller-Galactic-5/dp/B0CQKLS4RP?tag=hotoge-20&ascsubtag=UUhtgUeUpU2002105&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fthe-days-of-awful-third-party-controllers-are-over%2F&asc%5Fcampaign=Evergreen) retails at $70 for the standard white controller, while [specific colors](https://www.amazon.com/PlayStation-DualSense-Wireless-Controller-Galactic-5/dp/B09NJNR716?th=1&tag=hotoge-20&ascsubtag=UUhtgUeUpU2002105&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fthe-days-of-awful-third-party-controllers-are-over%2F&asc%5Fcampaign=Evergreen) get an additional price hike. [Xbox Core Controllers](https://www.amazon.com/Microsoft-Xbox-WL-Controller-Gaming-Console/dp/B09BY1FTF7?tag=hotoge-20&ascsubtag=UUhtgUeUpU2002105&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fthe-days-of-awful-third-party-controllers-are-over%2F&asc%5Fcampaign=Evergreen) retail at $65 and are very basic in terms of the features you get. In other words, you no longer get what you pay for.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Some of the Best Controllers are Third-Party Now
 
 ![8BitDo SN30 closeup](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/pxl_20240304_204309207-1.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Kris Henges / How-To Geek
 
@@ -115,11 +95,9 @@ Kris Henges / How-To Geek
 ![FLYDIGI Apex 2 on keyboard](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/pxl_20240304_212844734.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Kris Henges / How-to Geek
 
  These third-party companies are also leagues ahead in terms of accessibility. As I've gotten older, my job being at a computer all day coupled with gaming put a lot of strain on my wrists and hands, and it eventually became tougher to use the Xbox Core Controller due to its size and how far the triggers needed to be pressed to actuate.
@@ -128,12 +106,6 @@ Kris Henges / How-to Geek
 
  The ability to customize controllers and remap buttons is huge in terms of accessibility, but it's something missing in most first-party gaming controllers, with the exception of the [Xbox Adaptive Controller](https://www.xbox.com/en-US/accessories/controllers/xbox-adaptive-controller). You normally have to go third-party if you want to be able to customize your inputs or make your gaming experience more comfortable.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Steer Clear of the Cheapest and Nastiest Controllers
 
  With that said, not every third-party controller is great. Amazon is full of listings of no-name controllers offering what looks to be a great experience on the cheap, until you unbox it and realize your mistake. Be careful when buying controllers from sites like AliExpress and Wish since it's harder to verify what kind of item you're getting (or if it's the genuine article).
@@ -146,8 +118,6 @@ Kris Henges / How-to Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -155,4 +125,21 @@ Kris Henges / How-to Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-how-to-charm-your-way-into-a-friends-tiktok-show/"><u>[New] 2024 Approved How to Charm Your Way Into a Friend’s TikTok Show</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-journeying-through-yesteryears-facebook-posts-on-mobilelaptop/"><u>[New] Journeying Through Yesteryear's Facebook Posts on Mobile/Laptop</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-setting-up-audacity-for-effective-mac-based-sound-capture/"><u>[Updated] In 2024, Setting Up Audacity for Effective Mac-Based Sound Capture</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-amplify-your-voice-expert-insights-on-podcast-editing-in-garageband/"><u>2024 Approved Amplify Your Voice Expert Insights on Podcast Editing in GarageBand</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-lava-yuva-3-pro-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Lava Yuva 3 Pro Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/choosing-the-right-graphics-card-for-your-windows-pc-insights-by-yl-computing/"><u>Choosing the Right Graphics Card for Your Windows PC: Insights by YL Computing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-enhanced-entertainment-with-the-budget-friendly-insignia-ns-43df710na19-fire-tv-ultra-hd-and-alexa-integrated/"><u>Experience Enhanced Entertainment with the Budget-Friendly Insignia NS-43DF710NA19 Fire TV - Ultra HD and Alexa Integrated</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-features-and-compromises-of-the-asus-rog-zephyrus-g14-a-laptop-for-gamers/"><u>Exploring the Features and Compromises of the Asus ROG Zephyrus G14: A Laptop for Gamers</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-oppo-reno-10-pro-5g-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Oppo Reno 10 Pro 5G FRP Without Computer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/large-scale-success-with-the-apple-iphone-12-pro-max-review-embracing-a-bigger-approach/"><u>Large-Scale Success with the Apple iPhone 12 Pro Max Review: Embracing a Bigger Approach</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/microsoft-sculpt-ergo-keyboard-analysis-superior-quality-at-an-excellent-price/"><u>Microsoft Sculpt Ergo-Keyboard Analysis: Superior Quality at an Excellent Price</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/portable-powerhouse-the-hp-stream-11-ultrabook-for-everyday-use/"><u>Portable Powerhouse: The HP Stream 11 Ultrabook for Everyday Use</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-mighty-beastie-bt-d11-jump-starter-assessment-delivering-unmatched-performance/"><u>The Mighty Beastie BT-D11 Jump Starter Assessment: Delivering Unmatched Performance</u></a></li>
+<li><a href="https://win11.techidaily.com/unplugged-access-navigating-localized-onedrive-files/"><u>Unplugged Access: Navigating Localized OneDrive Files</u></a></li>
+</ul></div>
 

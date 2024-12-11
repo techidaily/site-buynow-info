@@ -1,7 +1,7 @@
 ---
 title: "Bloodborne Game Analysis: Exploring a Sinister Universe"
-date: 2024-11-28T07:47:22.385Z
-updated: 2024-12-04T21:02:07.008Z
+date: 2024-12-10T09:05:49.766Z
+updated: 2024-12-10T23:28:11.543Z
 categories:
   - BestProducts
 description: "This Article Describes Bloodborne Game Analysis: Exploring a Sinister Universe"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
 ## Watch Dogs: Legion
 
 ![Watch Dogs: Legion](https://www.lifewire.com/thmb/U5ORlS3mu37z0H9kyUjZmri_r7c=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Watch-Dogs-Legion-PC-1-4cb0288b78324a52bf9ccce096ab5218.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -47,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Watch Dogs: Legion
@@ -80,10 +76,6 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
 
 ![Watch Dogs: Legion car chase](https://www.lifewire.com/thmb/w01z_qW1xkiYdMVSg0obsvGJ2NU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-3-042727c8603245bfbcde2e3b67ab7ed8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
  In the opening mission, you play as an agent infiltrating Parliament. You set traps, fight a few guys in hand-to-hand combat, and shoot some bad guys with the goal of preventing the building from being blown to smithereens. The early tutorial type missions help get you acquainted with the game and its systems. The game takes you through the downfall of DedSec, walks you through the beginning of setting up the rebuilding of DedSec, and you select your very first recruit to your legion. There’s a pretty good selection of starting characters, and I selected a Board Game Designer who has the ability to summon a personal drone.
@@ -100,6 +92,10 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
 
  Watch Dogs: Legion looks incredible, with great draw distances, and an incredibly detailed world.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Gameplay: Cool character engine, redundant missions**
 
  Watch Dogs: Legion is an open world action-adventure game. I played on PC, and I used an[Xbox controller](https://www.lifewire.com/games-console-reviews-4102640) . The controls were tight, intuitive, and consistently responsive. It felt natural to run through the world, climb, and drive. I was especially impressed with the vehicles, as you can feel the difference when you’re driving a sports car versus when you’re driving a bus.
@@ -109,7 +105,7 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
 ![Watch Dogs: Legion character creation](https://www.lifewire.com/thmb/fT7PRS6tGlloKdqVFXl8H-TPrVY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-2-ed238e68324c450997c310f225ff57a6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -134,6 +130,10 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
 
  Erika Rawes / Lifewire
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: The usual $60**
 
  Watch Dogs: Legions sells for $60 for the standard edition. The Gold Edition sells for $100, and the Ultimate and Collectors Editions sell for $120 and $190, respectively. Everything above the standard edition comes with extra missions and a season pass, but these perks don’t really seem worth the added cost.
@@ -151,7 +151,7 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
  Watch Dogs: Legion feels like a missed opportunity, with a “play as anyone” feature that’s cool, but not cool enough to compensate for the lack of novelty. The addition of online play may offer more replayability, but as of launch, there isn’t enough to keep us coming back.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -177,20 +177,21 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-integrate-voice-over-into-powerpoint-shows-easily/"><u>[Updated] 2024 Approved Integrate Voice-Over Into PowerPoint Shows Easily</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-for-every-level-of-filmmaker-our-top-10-camera-picks-for-2024/"><u>[Updated] For Every Level of Filmmaker, Our Top 10 Camera Picks for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/avoiding-major-pitfalls-on-your-iphone-essential-tips-to-save-your-apple-vision-pro-experience/"><u>Avoiding Major Pitfalls on Your iPhone - Essential Tips to Save Your Apple Vision Pro Experience</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/boost-your-outreach-with-atomics-cutting-edge-bluetooth-advertising-and-massmail-services/"><u>Boost Your Outreach with Atomic's Cutting-Edge Bluetooth Advertising & Massmail Services</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-acer-xfa240-monitor-prioritizing-performance-and-usability/"><u>Expert Analysis of the Acer XFA240 Monitor: Prioritizing Performance and Usability</u></a></li>
-<li><a href="https://win-dash.techidaily.com/free-nvidia-surround-screen-driver-downloads-compatible-with-windows-and-solutions/"><u>Free NVIDIA Surround Screen Driver Downloads: Compatible with Windows and Solutions</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-to-easily-refresh-cpu-drivers-for-better-performance-on-windows-computers/"><u>How to Easily Refresh CPU Drivers for Better Performance on Windows Computers</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-motorola-g54-5g-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Motorola G54 5G to Another | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-solidify-iphone-footage-top-stabilization-practices-unveiled/"><u>In 2024, Solidify iPhone Footage Top Stabilization Practices Unveiled</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leap-forward-upgrading-windows-11-from-32-to-64-bit/"><u>Leap Forward: Upgrading Windows 11 From 32 to 64-Bit</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/star-wars-squadrons-reviewed-a-deep-dive-into-authentic-x-wing-aerial-combat-action/"><u>Star Wars Squadrons Reviewed: A Deep Dive Into Authentic X-Wing Aerial Combat Action</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-aesthetic-and-featherlight-advantages-of-the-acer-chromebook-r-11-examined/"><u>The Aesthetic & Featherlight Advantages of The Acer Chromebook R 11 Examined</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-laptops-of-2021-ranking-with-a-close-look-at-the-lenovo-yoga-a940/"><u>The Best Laptops of 2021: Ranking with a Close Look at the Lenovo Yoga A940</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-bookworms-choice-how-to-maximize-reading-pleasure-with-the-latest-kindle-paperwhite-7th-gen/"><u>The Bookworm's Choice: How to Maximize Reading Pleasure with the Latest Kindle Paperwhite 7Th Gen</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-the-future-of-reading-a-closer-look-at-the-kobo-libra-h2os-water-resistance-features/"><u>Unboxing the Future of Reading: A Closer Look at the Kobo Libra H2O's Water Resistance Features</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-essential-how-to-securely-downloading-gratis-vlc-on-macos/"><u>[New] The Essential How-To Securely Downloading Gratis VLC on MACOS</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-full-reviewed-evaluation-hero4-black-capabilities-for-2024/"><u>[Updated] Full Reviewed Evaluation Hero4 Black Capabilities for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparative-insights-fitbit-versa-lites-price-and-performance-breakdown/"><u>Comparative Insights: Fitbit Versa Lite's Price and Performance Breakdown</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-apple-homepod-mini-analysis-featuring-audio-quality-and-smart-assistant-capabilities/"><u>Comprehensive Apple HomePod Mini Analysis: Featuring Audio Quality & Smart Assistant Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-d-link-powerline-2e-series-review-quick-setup-and-fast-data-transferring-explained/"><u>Comprehensive D-Link Powerline 2E Series Review: Quick Setup and Fast Data Transferring Explained</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-mobvoi-ticwatch-pro-4g-the-ultimate-smartwatch-connectivity/"><u>Comprehensive Review of Mobvoi TicWatch Pro 4G: The Ultimate Smartwatch Connectivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-petsafe-automatic-pet-feeder-effective-weight-management-solution/"><u>Comprehensive Review of the PetSafe Automatic Pet Feeder: Effective Weight Management Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-samsung-galaxy-watch-active-2-assessment-enhanced-connections-and-intelligence-over-predecessor/"><u>Comprehensive Samsung Galaxy Watch Active 2 Assessment: Enhanced Connections & Intelligence Over Predecessor</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cool-down-your-game-the-ultimate-review-on-the-havit-5-high-performance-laptop-cooler-with-five-precision-fans/"><u>Cool Down Your Game: The Ultimate Review on the HAVIT #5 High-Performance Laptop Cooler with Five Precision Fans</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-the-latest-hp-deskjet-ink-advantage-2652-driver-compatible-with-windows-11-10-8-and-7/"><u>Download the Latest HP Deskjet Ink Advantage 2652 Driver Compatible with Windows 11, 10, 8 & 7</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-motorola-moto-g-stylus-2023-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Motorola Moto G Stylus (2023) Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-infinix-smart-8-pro-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Infinix Smart 8 Pro Phone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/realizing-your-audio-based-ppt-with-easy-s2t-tools-for-2024/"><u>Realizing Your Audio-Based PPT with Easy S2T Tools for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/seamless-viewing-eliminating-the-buffer-interruptions-on-kodi-platform/"><u>Seamless Viewing: Eliminating the Buffer Interruptions on Kodi Platform</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/supreme-creation-studio-test/"><u>Supreme Creation Studio Test</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-limited-capacity-issues-during-command-execution/"><u>Troubleshooting Limited Capacity Issues During Command Execution</u></a></li>
 </ul></div>
 

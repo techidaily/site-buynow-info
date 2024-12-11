@@ -1,7 +1,7 @@
 ---
 title: Critical Review of the Viair 88P Mobile Air Compressor - Incredible Force, Yet Some Trade-Offs
-date: 2024-12-02T19:24:25.298Z
-updated: 2024-12-05T06:27:42.515Z
+date: 2024-12-03T22:13:09.971Z
+updated: 2024-12-11T05:05:53.282Z
 categories:
   - BestProducts
 description: This Article Describes Critical Review of the Viair 88P Mobile Air Compressor - Incredible Force, Yet Some Trade-Offs
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/ZevQObLlQ-0zecghfgF1_QfuuRw=/400x300/fi
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -51,7 +47,7 @@ Lifewire / Todd Braylor
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
@@ -86,7 +82,7 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easy installation**
@@ -96,7 +92,7 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Range: Impressive detection**
@@ -106,7 +102,7 @@ Lifewire / Todd Braylor
  It reliably delivers on its promise of long-distance sensitivity.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
@@ -116,6 +112,10 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: You get what you pay for**
 
@@ -164,16 +164,16 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-fbs-leading-charts-10-hot-music-videos/"><u>[Updated] FB's Leading Charts 10 Hot Music Videos</u></a></li>
-<li><a href="https://app-tips.techidaily.com/could-microsofts-new-offering-soothe-or-annoy-you-expert-analysis-by-zdnet-revealed/"><u>Could Microsoft's New Offering Soothe or Annoy You? Expert Analysis by ZDNet Revealed</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-x5-pro-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Poco X5 Pro Phone with Broken Screen</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-the-latest-apple-watch-model-merely-an-aesthetic-change/"><u>Is the Latest Apple Watch Model Merely an Aesthetic Change?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leveraging-buyselladscom-for-effective-advertising-on-your-blog/"><u>Leveraging BuySellAds.com for Effective Advertising on Your Blog</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-connectivity-with-linksys-ea8300-an-in-depth-review-of-its-multi-gadget-management-capabilities/"><u>Mastering Connectivity with Linksys EA8300: An In-Depth Review of Its Multi-Gadget Management Capabilities</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/optimal-storage-solutions-the-leading-10-gopro-housings-for-2024/"><u>Optimal Storage Solutions - The Leading 10 GoPro Housings for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/test-drive-the-blueear-bluetooth-beanie-hat-a-chic-sound-quality-savvy-headpiece-assessment/"><u>Test Drive the Blueear Bluetooth Beanie Hat - A Chic, Sound Quality Savvy Headpiece Assessment</u></a></li>
-<li><a href="https://fox-making.techidaily.com/transitioning-your-eflipbook-layout-guide-for-changing-text-flow-in-flipplrcom/"><u>Transitioning Your eFlipbook Layout: Guide for Changing Text Flow in flipplr.com</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-the-lamicall-ss-innovative-features-in-this-thoughtful-tablet-mount-review/"><u>Unboxing the Lamicall S's Innovative Features in This Thoughtful Tablet Mount Review</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-sturdiness-and-value-of-the-omoton-t1-tablet-support-accessory/"><u>Unveiling the Sturdiness and Value of the Omoton T1 Tablet Support Accessory</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-how-to-block-facebook-video-ads/"><u>[New] How to Block Facebook Video Ads?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-the-quintessential-selection-5-must-have-mac-snipers/"><u>[New] In 2024, The Quintessential Selection 5 Must-Have Mac Snipers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quash-unwanted-youtube-suggested-videos/"><u>[Updated] Quash Unwanted YouTube Suggested Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-blocking-the-buzz-no-more-fb-video-ads/"><u>2024 Approved Blocking the Buzz No More FB Video Ads</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-nubia-red-magic-9-pro-drfone-by-drfone-android/"><u>How to Screen Mirroring Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/in-the-realm-of-ramblings-mistral-versus-gpt-3/"><u>In the Realm of Ramblings: Mistral Versus GPT-3</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719168257558-step-into-the-fun-zone-engage-with-these-6-chatgpt-games/"><u>Step Into the Fun Zone: Engage With These 6 ChatGPT Games</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/test-drive-the-new-samsung-galaxy-buds-plus-in-depth-review-and-impressions/"><u>Test Drive the New Samsung Galaxy Buds Plus: In-Depth Review and Impressions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-alluring-world-of-affordable-dashcams-a-thorough-review-of-the-z-edge-z3-plus/"><u>The Alluring World of Affordable Dashcams - A Thorough Review of the Z-Edge Z3 Plus</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-dell-inspiron-3671-a-middle-of-the-road-desktop-examined-for-budget-conscious-users/"><u>The Dell Inspiron 3671: A Middle-of-the-Road Desktop Examined for Budget-Conscious Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-latest-microsoft-surface-pro-7-assessed-steady-performance-with-minor-updates/"><u>The Latest Microsoft Surface Pro 7 Assessed: Steady Performance with Minor Updates</u></a></li>
 </ul></div>
 

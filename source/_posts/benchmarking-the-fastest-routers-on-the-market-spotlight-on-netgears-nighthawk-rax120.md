@@ -1,7 +1,7 @@
 ---
 title: Benchmarking the Fastest Routers on the Market - Spotlight on Netgear's Nighthawk RAX120
-date: 2024-08-26T06:42:13.117Z
-updated: 2024-08-27T06:42:13.117Z
+date: 2024-12-09T16:26:24.220Z
+updated: 2024-12-10T19:16:49.263Z
 categories:
   - BestProducts
 description: This Article Describes Benchmarking the Fastest Routers on the Market - Spotlight on Netgear's Nighthawk RAX120
@@ -39,9 +39,17 @@ thumbnail: https://www.lifewire.com/thmb/gPiXgT_a0D1ZOSWgqfWGf_uaY7E=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Netgear Nighthawk X10 AD7200 Router
 
 ![Netgear Nighthawk X10 AD7200](https://www.lifewire.com/thmb/0rm8vUox5EoeaGCQJw0E5XQxwck=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_HeroSquare-885945bb208b49a583aca8da1aa09378.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -68,8 +76,9 @@ thumbnail: https://www.lifewire.com/thmb/gPiXgT_a0D1ZOSWgqfWGf_uaY7E=/400x300/fi
  I recently unpacked a Netgear Nighthawk X10 and plugged it into my own wireless network to see how it performs in the real world. Over several hours of intense testing, and a couple of days of more casual use, I tested connection speeds at various distances, ease of setup and use, and more.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Netgear continues to impress with its off-beat designs**
 
  I’ve tested a lot of[Netgear routers](https://www.lifewire.com/best-netgear-routers-4159862) , and this falls somewhere between the stealth bomber angles of the Nighthawk AC series and the slick flying wing designs seen in the Nighthawk RAX routers.
@@ -84,14 +93,8 @@ thumbnail: https://www.lifewire.com/thmb/gPiXgT_a0D1ZOSWgqfWGf_uaY7E=/400x300/fi
 
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/I8vaunCMjxEzWH-oM1U7fsSYe9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_04-abc45a63844e4ebe8f43e4f6facbd601-d54874ec8e984393b51c0bea9803c849.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Zero hassle from start to finish**
 
  Setting up the Netgear Nighthawk X10 AD7200 was easy, from unboxing to plugging it into my network. Unlike most routers, the Nighthawk X10 comes completely assembled. Each antenna comes sheathed in a bit of protective plastic, but even that slips right off. The router is basically ready to go right out of the box, which is a big time saver.
@@ -102,9 +105,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/RfTANl22rAcY7Xy986eYa_62r44=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_02-1721b933d315435f98631847bf3ebb0b.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
  Lifewire / Jeremy Laukkonen
 
 ## **Connectivity: AD7200 tri-band with MU-MIMO and 10G SFP+**
@@ -133,9 +133,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Netgear Nighthawk X10 AD7200 (R9000)](https://www.lifewire.com/thmb/Jwl6BD38cWznmN0op6bpzAmBs_U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_WirelessRouters_NighthawkX10AD7200_03-4cfe683a7cf94e94b14c0ec2be12da50.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Jeremy Laukkonen
 
  To the Nighthawk X10’s credit, the 5GHz network performance exceeded my wildest expectations. Using my 1Gbps Mediacom cable internet connection, I measured a relatively mediocre 373Mbps down and 73.6Mbps up. At the same time, using a wired connection to the same router, I measured 536.8Mbps down.
@@ -148,9 +145,6 @@ Lifewire / Jeremy Laukkonen
 
  Strangely enough, this 802.11ad router’s strongest selling point might be the impressively robust nature of its 5 GHz network.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ## **Software: Netgear’s web interface and web app, plus Plex and more**
 
  Like its other offerings, Netgear gives you the option to manage the Nighthawk X10 using a web interface or a smartphone app. I used the web interface, and I found it fairly easy to understand and navigate if a bit slow.
@@ -164,6 +158,10 @@ Lifewire / Jeremy Laukkonen
  Aside from the robust 5GHz network, the built-in Plex server is definitely the strongest feature included with this router. I plugged in one of my media-filled SSD USB drives and had no trouble streaming to any of the Plex clients I have on my network.
 
  I plugged in one of my media-filled SSD USB drives and had no trouble streaming to any of the Plex clients I have on my network.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Not bad if you really need 802.11ad**
 
@@ -186,6 +184,10 @@ Lifewire / Jeremy Laukkonen
  **Strong 5GHz performance and Plex Media Center make this a good option if you need an 802.11ad router.**
 
  The Netgear Nighthawk X10 AD7200 is a bit of a mixed bag since its key feature is so niche. If you really need an 802.11ad router, you may want to look for one with a stronger range. However, this router has fantastic performance on the 5GHz band, and the Plex Media Server implementation is also a very strong plus. If short-range 802.11ad support with excellent fallback 5GHz performance sounds good to you, then this is the router you’re looking for.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -214,8 +216,6 @@ Lifewire / Jeremy Laukkonen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -223,4 +223,23 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-a-visual-guide-to-building-believable-characters-in-virtual-space/"><u>[New] A Visual Guide to Building Believable Characters in Virtual Space</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-a-comprehensive-examination-of-webcamflex-pro/"><u>[New] In 2024, A Comprehensive Examination of WebcamFlex Pro</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-income-streams-from-google-adsense-to-money-matters/"><u>[New] Unlocking Income Streams From Google AdSense to Money Matters</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-superior-iphone-editor-tools-pick-between-cameo-and-filmorago-for-2024/"><u>[Updated] Superior iPhone Editor Tools Pick Between Cameo and FilmoraGo for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-fire-hd-10-review-a-multimedia-tablet-made-for-the-whole-family/"><u>Amazon Fire HD 10 Review: A Multimedia Tablet Made for the Whole Family</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/animal-antics-live-familys-happiness-source/"><u>Animal Antics Live: Family's Happiness Source</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assassins-creed-valhalla-explored-epic-norsemen-adventure-set-in-historical-medieval-landscape/"><u>Assassin's Creed: Valhalla Explored - Epic Norsemen Adventure Set in Historical Medieval Landscape</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/beyond-traditional-wearables-understanding-amazon-halos-advanced-health-insights/"><u>Beyond Traditional Wearables - Understanding Amazon Halo's Advanced Health Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/choosing-your-voice-companion-alexa-vs-google-assistant-the-ultimate-showdown/"><u>Choosing Your Voice Companion: Alexa Vs. Google Assistant – The Ultimate Showdown</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-mapmyride-app-features-and-performance/"><u>Comprehensive Analysis of MapMyRide App Features and Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-all-terrain-top-race-rc-rock-crawler-a-thrilling-off-road-experience/"><u>Comprehensive Review of the All-Terrain Top Race RC Rock Crawler – A Thrilling Off-Road Experience</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-object-oriented-programming-for-complex-applications-for-2024/"><u>Exploring Object-Oriented Programming for Complex Applications for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-get-your-usb-device-detected-by-windows-10-easy-fix-tips/"><u>How to Get Your USB Device Detected by Windows 10 - Easy Fix Tips</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-oneplus-ace-2v-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For OnePlus Ace 2V Phones</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcoming-game-security-infraction-error-message-successfully/"><u>Overcoming 'Game Security Infraction' Error Message Successfully</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-instructions-master-the-art-of-ipad-soft-and-hard-resets/"><u>Step-by-Step Instructions: Master the Art of iPad Soft and Hard Resets</u></a></li>
+</ul></div>
 

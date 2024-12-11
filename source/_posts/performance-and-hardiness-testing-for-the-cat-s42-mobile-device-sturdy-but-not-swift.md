@@ -1,7 +1,7 @@
 ---
 title: "Performance and Hardiness Testing for the CAT S42 Mobile Device: Sturdy but Not Swift"
-date: 2024-11-29T21:43:32.679Z
-updated: 2024-12-04T21:00:52.565Z
+date: 2024-12-08T19:39:29.399Z
+updated: 2024-12-10T23:53:48.711Z
 categories:
   - BestProducts
 description: "This Article Describes Performance and Hardiness Testing for the CAT S42 Mobile Device: Sturdy but Not Swift"
@@ -44,10 +44,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Just Buy This (All Around Best)
 
 [Apple Watch Series 9 GPS + Cellular 45mm](https://www.amazon.com/Apple-Cellular-Smartwatch-Midnight-Aluminum/dp/B0CHXFH656?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CHXFH656)
@@ -59,6 +55,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 [$457 at Amazon](https://www.amazon.com/Apple-Cellular-Smartwatch-Midnight-Aluminum/dp/B0CHXFH656?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CHXFH656) [$439 at Walmart](https://www.walmart.com/ip/Apple-Watch-Series-9-GPS-45mm-Pink-Aluminum-Case-with-Light-Pink-Sport-Band-S-M/5032289284) [$429 at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fapple-watch-series-9-gps-45mm-midnight-aluminum-case-with-midnight-sport-band-m-l-midnight%2F6340284.p%3FskuId%3D6340284)
 
 **TL;DR:** Highly customizable for any situation, simple to use, and regularly updated, the Apple Watch Series 9 is the one to beat.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Why We Recommend This
 
@@ -108,7 +108,7 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 **TL;DR:** Sleek and stylish, the Samsung Galaxy Watch 6 has some great features provided you’re an Android phone owner. Its body composition tool is a particular highlight.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Why We Recommend This
@@ -154,7 +154,7 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 **TL;DR:** More affordable than most Garmin watches, the Garmin Vivoactive 5 offers all the key features while not looking too sporty.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Why We Recommend This
@@ -190,7 +190,7 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **What do buyers think?** The Garmin Vivoactive 5 has over 1,800 ratings on Amazon, with 76% of them rating it five or four stars. Its average rating is 4.4 out of 5.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How We Test
@@ -207,10 +207,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
  I used all the devices for several weeks, with some smartwatches used for months. I wore them daily while working, exercising, relaxing, and asleep.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What to Look For
 
  Buying a smartwatch involves finding the right balance between looks and practicality. Consider where you plan on wearing it, such as in the office or when walking, and plan accordingly.
@@ -222,6 +218,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 [The Best Running Watches of 2024](https://www.lifewire.com/best-running-watches-8681631)
 
 [The Best Fitness Trackers of 2024](https://www.lifewire.com/best-fitness-trackers-8656291)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Other Smartwatches We Reviewed
 
@@ -258,21 +258,20 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-mastering-video-posts-on-the-worlds-biggest-social-network/"><u>[New] Mastering Video Posts on the World's Biggest Social Network</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/treamline-visual-marking-in-youtube-posts-with-watermarks-and-logos-for-2024/"><u>[New] Streamline Visual Marking in Youtube Posts with Watermarks & Logos for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ransform-free-channel-into-a-profitable-venture-with-500plus-subscribers-for-2024/"><u>[New] Transform Free Channel Into a Profitable Venture - With 500+ Subscribers for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-the-fastest-way-to-scan-windows-files/"><u>2024 Approved The Fastest Way to Scan Windows Files</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-the-first-timers-blueprint-for-youtube-income/"><u>2024 Approved The First-Timer's Blueprint for YouTube Income</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/choosing-your-e-reader-ipad-kindle-or-nook-a-comprehensive-guide/"><u>Choosing Your E-Reader: IPad, Kindle, or Nook - A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-how-amplifi-hd-wi-fi-mesh-system-bids-farewell-to-dead-zones-forever/"><u>Comprehensive Review: How Amplifi HD Wi-Fi Mesh System Bids Farewell to Dead Zones Forever</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/entry-level-excellence-with-amazfit-bip-detailed-insights-and-reviews/"><u>Entry-Level Excellence with Amazfit Bip: Detailed Insights and Reviews</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/error-224003-restoring-file-playback/"><u>Error 224003: Restoring File Playback</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/examining-value-proposition-buying-into-apple-vision-pro/"><u>Examining Value Proposition: Buying Into Apple Vision Pro</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-honor-magic-vs-2-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Honor Magic Vs 2 Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionize-your-home-theater-experience-with-the-insignia-ns-43df710na19-fire-tv-comprehensive-review-of-its-alexa-and-ultra-hd-capabilities/"><u>Revolutionize Your Home Theater Experience with the Insignia NS-43DF710NA19 Fire TV: Comprehensive Review of Its Alexa and Ultra HD Capabilities</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ricohs-compact-theta-sc2-revolutionizes-travel-gear/"><u>Ricoh's Compact Theta SC2 Revolutionizes Travel Gear</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/skyrim-on-switch-a-comprehensive-overview-of-an-epic-rpg-experience/"><u>Skyrim on Switch: A Comprehensive Overview of an Epic RPG Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unobtrusive-security-meets-excellent-value-in-the-rexing-v1-dashcam-in-depth-review/"><u>Unobtrusive Security Meets Excellent Value in the Rexing V1 Dashcam – In-Depth Review</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Motorola Edge+ (2023) | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-essential-guide-to-best-10-gratis-srt-transformers/"><u>[New] 2024 Approved The Essential Guide to Best 10 Gratis SRT Transformers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ow-much-wealth-can-you-generate-on-youtube-using-cpm-for-2024/"><u>[New] How Much Wealth Can You Generate on YouTube Using CPM for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-auto-arcade-adventures-for-kids/"><u>[Updated] 2024 Approved Auto Arcade Adventures for Kids</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/diy-football-viewing-watch-record-cut-on-the-cheap/"><u>DIY Football Viewing Watch, Record, Cut on the Cheap</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-honor-90-gt-by-fonelab-android-recover-data/"><u>How to recover lost data from Honor 90 GT?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-vivo-y100i-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Vivo Y100i PC | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insightful-guide-top-reasons-to-get-an-ipad-today/"><u>Insightful Guide: Top Reasons to Get An iPad Today</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ios-versus-android-finding-the-ideal-device-for-your-needs/"><u>IOS versus Android – Finding the Ideal Device for Your Needs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/jaco-smartpro-digital-tire-inflator-reviewed-portable-powerhouse-for-puncture-repairs/"><u>Jaco SmartPro Digital Tire Inflator Reviewed – Portable Powerhouse for Puncture Repairs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-budget-and-versatility-with-the-lenovo-chromebook-duet-review/"><u>Navigating Budget and Versatility with the Lenovo Chromebook Duet Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/premium-e-reader-showdown-amazon-kindle-oasis-is-the-expensive-price-worth-it/"><u>Premium E-Reader Showdown: Amazon Kindle Oasis - Is the Expensive Price Worth It?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sizzling-secrets-unveiled-the-ultimate-overcooked-2-critique/"><u>Sizzling Secrets Unveiled: The Ultimate Overcooked! 2 Critique</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/step-into-a-world-of-magic-expert-led-guide-to-snapchat-edits/"><u>Step Into a World of Magic Expert-Led Guide to Snapchat Edits</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-guide-offline-driver-installation-for-windows-systems/"><u>Step-by-Step Guide: Offline Driver Installation for Windows Systems</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-lenovo-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Lenovo Phone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Potential Impact of a New Xbox Handheld Device by Microsoft: A Closer Look at Why the Gaming World Needs It Now"
-date: 2024-09-04T01:39:54.003Z
-updated: 2024-09-05T01:39:54.003Z
+date: 2024-12-06T07:40:37.614Z
+updated: 2024-12-10T18:23:29.434Z
 tags:
   - games
   - tv
@@ -38,6 +38,10 @@ Marcus Mears III / How-To Geek
 
  What if Microsoft can get within spitting distance of the performance seen in the Xbox Series S, albeit at a smaller and pocket-friendly resolution? Dedicated hardware for upscaling and frame generation using AMD’s [FidelityFX Super Resolution](https://review-topics.techidaily.com/how-to-update-iphone-xs-max-to-the-latest-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/) could make all the difference.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Potentially Good for the Windows Handheld Experience
 
  There are two routes Microsoft can go with an Xbox handheld, and one involves a fully functional version of Windows. Though we haven’t seen Windows running on an Xbox before, the arrival of so many handheld gaming PCs that run Windows could present Microsoft with an opportunity that’s hard to resist.
@@ -48,11 +52,19 @@ Marcus Mears III / How-To Geek
 
 ![windows display settings on the asus rog ally](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/12/windows-display-settings-on-the-asus-rog-allyjpg_53306024207_o.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Hannah Stryker / How-To Geek
 
  Since Microsoft has pivoted hard towards subscriptions in the form of Game Pass, introducing a handheld-friendly Windows interface makes a lot of sense. Debuting this interface alongside an Xbox handheld but leaving it open to other manufacturers is unlikely to harm the company’s long-term plans. Microsoft is still the PC company and they dominate the non-console gaming market.
 
  Microsoft can solve this problem from the inside, by making a change to the operating system that similar handhelds can make use of. A better handheld Windows gaming experience further cements Windows as _the_ platform for PC gaming, and they can probably sell more Game Pass subscriptions while they’re doing it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Alternatively, a True Mobile Xbox Experience
 
@@ -72,11 +84,9 @@ Tim Brookes / How-To Geek
  You might not even have to leave your disc-based games behind either. In 2022 [Microsoft applied for a patent](https://arstechnica.com/gaming/2022/05/how-microsoft-could-bring-disc-based-xbox-games-to-disc-free-xbox-series-s/) that would grant “software ownership validation of optical discs using secondary device.” What if you could just leave a game disc in your Xbox Series X and play said game on a digital-only (potentially portable) console?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  It Could Be a Homebrew Monster
 
  The [Xbox Series X and PlayStation 5 are essentially custom PCs](https://extra-guidance.techidaily.com/new-shade-savvy-mastering-the-art-of-color-adjustment-with-ease/), but there’s one thing Xbox does that PlayStation won’t: Developer Mode. Pay your $20 and get access to a development environment on your Xbox, where you’re free to write and run custom software.
@@ -87,12 +97,6 @@ Tim Brookes / How-To Geek
 
  If such a portable runs vanilla Windows then there would be no need for a Developer Mode at all, since you’d be able to install regular old Windows emulators.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Game Pass on the Go
 
  Game Pass is arguably the best deal in gaming, offering hundreds of titles for $16.99/month (or $9.99/month on PC, with a reduced selection of games). There’s always _something_ to play, and the subscription includes access to online multiplayer and cloud gaming to boot.
@@ -102,28 +106,14 @@ Tim Brookes / How-To Geek
 ![Skyrim's Whiterun guard with a bucket on his head.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/skyrim_guard_bucket.jpg) 
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _The Elder Scrolls V: Skyrim_  
 Tim Brookes / How-To Geek
 
  Handhelds like the ROG Ally can access Game Pass, but only Game Pass for PC. It’s also hit and miss in terms of performance, leaving players to their own devices in terms of tweaking settings to get things working smoothly. Microsoft’s position would enable them to work with developers and curate software in a manner that hopefully guarantees a good level of performance.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Combining Native, Remote, and Cloud Play
 
  The Steam Deck can play games natively, over a local network with Steam Remote Play, but cloud gaming relies on a web browser. The PlayStation Portal can play games over the local network or via the internet but has no native gaming capabilities. A portable Xbox could excel at all three.
@@ -132,12 +122,6 @@ Tim Brookes / How-To Geek
 
  The infrastructure is largely there to make this a success. Cloud saves work well, Game Pass is becoming ubiquitous, and Smart Delivery ensures your console runs the “best” version of a game.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Pricing Strategy Matters
 
  Valve’s Steam Deck might not be the most powerful handheld, but its aggressive pricing strategy is arguably what has earned it so many fans. Valve boss [Gabe Newell admitted](https://www.slashgear.com/valve-boss-says-very-aggressive-steam-deck-pricing-was-painful-16682744/) that launching at $399 was “painful” but the strategy seems to have worked, at least in terms of market adoption.
@@ -146,12 +130,6 @@ Tim Brookes / How-To Geek
 
 ![Asus ROG Ally and Steam Deck being held in hands](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/12/2023-12-08-14-23-57.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Bill Logudice / How-To Geek
 
 Asus ROG Ally Z1 Extreme (left) versus Steam Deck 512GB LCD (right)
@@ -172,8 +150,6 @@ Asus ROG Ally Z1 Extreme (left) versus Steam Deck 512GB LCD (right)
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -181,4 +157,20 @@ Asus ROG Ally Z1 Extreme (left) versus Steam Deck 512GB LCD (right)
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-solving-isolated-sound-issue/"><u>[New] Solving Isolated Sound Issue</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-timeless-videos-selecting-excellent-slow-motion-cameras/"><u>[Updated] 2024 Approved Timeless Videos Selecting Excellent Slow-Motion Cameras</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-earnings-expertise-for-youtube-creators-fb-insights-and-tactics-for-2024/"><u>[Updated] Earnings Expertise for YouTube Creators FB Insights and Tactics for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/complete-tutorial-on-restoring-a-broken-micro-sd-card-to-safeguard-your-data/"><u>Complete Tutorial on Restoring a Broken Micro SD Card to Safeguard Your Data</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cost-effective-networking-gear-spotlight-the-capabilities-of-the-tp-link-archer-c50/"><u>Cost-Effective Networking Gear Spotlight: The Capabilities of the TP-Link Archer C50</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/effective-strategies-for-learning-french-at-home/"><u>Effective Strategies for Learning French at Home</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/head-to-head-smartphone-showdown-why-the-samsung-galaxy-s21-ultra-stands-out-in-androids-top-tier-devices/"><u>Head-to-Head Smartphone Showdown: Why the Samsung Galaxy S21 Ultra Stands Out in Android's Top Tier Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-is-the-google-pixelbook-go-worth-its-premium-cost/"><u>In-Depth Look: Is the Google Pixelbook Go Worth Its Premium Cost?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insightful-analysis-of-sonys-xperia-5-nimble-format-and-luxury-pricing/"><u>Insightful Analysis of Sony's Xperia 5: Nimble Format & Luxury Pricing</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/transferring-data-effortlessly-connecting-your-pc-with-a-galaxy-s-using-wifi-or-usb-cable-methods/"><u>Transferring Data Effortlessly: Connecting Your PC with a Galaxy S # Using WiFi or USB Cable Methods</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-your-os-win7-)-win11-upgrade-guide/"><u>Transform Your OS: Win7 -> Win11 Upgrade Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unbeatable-mac-xdvd-offer-save-86-upgrade-with-media-bundle-and-enjoy-6-premium-apps-at-no-extra-cost-this-black-friday/"><u>Unbeatable Mac XDVD Offer: Save 86%, Upgrade with Media Bundle & Enjoy 6 Premium Apps at No Extra Cost This Black Friday</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-aukey-usb-hub-the-essential-stylish-toolkit-for-fast-data-transfer/"><u>Unveiling the Aukey USB Hub - The Essential, Stylish Toolkit for Fast Data Transfer</u></a></li>
+</ul></div>
 

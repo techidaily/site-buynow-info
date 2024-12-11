@@ -1,7 +1,7 @@
 ---
 title: "Mastering the Jargon: 10 Essential Video Game Terms Often Misinterpreted"
-date: 2024-08-30T14:07:23.395Z
-updated: 2024-08-31T14:07:23.395Z
+date: 2024-12-06T04:09:13.106Z
+updated: 2024-12-11T08:53:46.897Z
 tags:
   - games
   - tv
@@ -34,14 +34,19 @@ thumbnail: https://thmb.techidaily.com/92d4d3774b8fd498c6cfb488cbb5cb9a7cceb0aea
 
 ![Death Stranding's Capital Knot City.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/death_stranding.jpeg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _Death Stranding_  
 Tim Brookes / How-To Geek
 
  Now, however, gamers often use the term "walking simulator" for titles that are true games. For example, _Death Stranding_ is as much a game as _Skyrim_ but because the main game mechanic is traversal and overcoming obstacles and enemies on your route, it's erroneously dubbed a walking sim. If you're interested in true walking simulators, our friends over at GameRant have a great list of the [best walking simulators that everyone should play](https://gamerant.com/best-walking-simulators/). 
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Simulation
 
  This is a tricky one, because simulation is something that happens on a spectrum. At the most extreme end, you get pure simulators such as _Microsoft Flight Simulator_ which tries to be a serious and true digital reproduction of what flying a plane is really like. Generally, pure simulations like these allow you to learn the real world skills you'd need to actually do the thing in real life.
@@ -59,25 +64,23 @@ Tim Brookes / How-To Geek
 
 ![Fallout 2 from Black Isle.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/fallout_2.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 Interplay/Bethesda Softworks
 
  The silliest use I've seen myself is in reference to _Baldur's Gate 3,_which is a true 3D game, with a movable camera that can be moved from a top-down perspective all the way down to an over-the-shoulder view. So it's not isometric in any sense of the word. To be even more pedantic, many "isometric" games from the classic gaming era weren't isometric either. The first _Fallout_ game, for example, was trimetric.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  RPG
 
  Role-Playing Games (RPGs) are a popular genre of game you can find in both tabletop, video game, and live-action formats. Players assume the role of a character in a fictional setting, and then explore that world, making choices, and pursuing quests and goals. These games are built on a game rules framework, such as [Dungeons & Dragons](https://dnd.wizards.com/) or [GURPS](https://www.sjgames.com/gurps/).
 
 ![Screenshot from Bethesda RPG Starfield on Xbox.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/02/starfield.jpeg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Starfield_  
 Tim Brookes / How-To Geek
@@ -90,17 +93,11 @@ Tim Brookes / How-To Geek
 
 ![Helldivers 2 by Arrowhead Game Studios](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/helldivers2.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _Helldivers 2_  
 Arrowhead Game Studios
 
  Whether you approve of "P2W" games or not, the term only applies to games where money can get you a significant advantage over other players. So, for example, it can never apply to a single-player game. Likewise, it can't apply to a PvE (Player Versus Enemy) game such as _Helldivers II_ because all the players are on the same side and the enemies are non-player characters.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  Microtransaction vs DLC
 
  This is a curious one I saw for the first time not too long before writing this. There might be some disagreement on the finer details, but a [microtransaction](https://facebook-video-share.techidaily.com/new-in-2024-essential-list-7-cost-free-video-tags-extractors-on-youtube/) is a small payment you can make over and over again in a game to ge some sort of resource. Such as buying premium currency, or buying lootboxes. DLC (Downloadable content) are digital items you buy once and keep forever. Examples would include new weapons or outfits that are permanently added to your game, or even major game and story expansions.
@@ -112,8 +109,9 @@ Arrowhead Game Studios
  Frame rate issues happen for a number of reasons, but they are related to the performance of your computer. For example, if a game scene is too complex, your game may appear to slow down and become choppy. If it's not caused by a network issue, then your game isn't "lagging."
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Downloading (Yes, Really)
 
  I hope this isn't too widespread, but I've personally witnessed people refer to installing a game from a disc as "downloading" in a discussion on whether modern consoles can install and play games without an internet connection. They can, by the way.
@@ -125,8 +123,9 @@ Arrowhead Game Studios
 ![A screenshot of a ceiling with light reflections from the game "Cyberpunk 2077."](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/screenshot-2023-11-06-204826.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Cianna Garrison / How-To Geek
 
 "Cyberpunk 2077"
@@ -147,8 +146,6 @@ Cianna Garrison / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -156,4 +153,20 @@ Cianna Garrison / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-value-for-money-4k-video-tools/"><u>[New] 2024 Approved Value for Money 4K Video Tools</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-incorporating-vimeo-videos-seamlessly-in-microsoft-slides/"><u>[New] In 2024, Incorporating Vimeo Videos Seamlessly in Microsoft Slides</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-prime-picks-of-youtubes-snackable-shorter-videos-free/"><u>[New] In 2024, Prime Picks of YouTube's Snackable Shorter Videos (FREE)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-maximizing-your-video-potential-through-smart-co-stars-selection/"><u>[Updated] Maximizing Your Video Potential Through Smart Co-Stars Selection</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-unveiling-fake-followers-on-instagram-effortlessly/"><u>2024 Approved Unveiling Fake Followers on Instagram, Effortlessly</u></a></li>
+<li><a href="https://techtrends.techidaily.com/boost-your-twitch-presence-with-these-critical-5-features/"><u>Boost Your Twitch Presence with These Critical 5 Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-xbox-series-s-high-end-tech-meets-miniature-design/"><u>Evaluating the Xbox Series S: High-End Tech Meets Miniature Design</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-free-sound-effects-galore-how-to-discover-and-use-them-in-final-cut-pro-for-stunning-videos/"><u>In 2024, Free Sound Effects Galore How to Discover and Use Them in Final Cut Pro for Stunning Videos</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-motorola-defy-2-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Motorola Defy 2 Phone without PIN</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-kid-friendly-amazon-fire-hd-10s-superior-protective-features-unveiled/"><u>In-Depth Analysis: Kid-Friendly Amazon Fire HD 10'S Superior Protective Features Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-through-tech-differences-and-similarities-of-ipad-pro-and-macbook-pro/"><u>Navigating Through Tech: Differences and Similarities of iPad Pro & MacBook Pro</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/the-art-of-lenovos-video-screen-capture/"><u>The Art of Lenovo's Video Screen Capture</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-compact-colossus-unveiled-a-comprehensive-analysis-of-the-ipad-mini-5-from-apple/"><u>The Compact Colossus Unveiled: A Comprehensive Analysis of the iPad Mini 5 From Apple</u></a></li>
+</ul></div>
 

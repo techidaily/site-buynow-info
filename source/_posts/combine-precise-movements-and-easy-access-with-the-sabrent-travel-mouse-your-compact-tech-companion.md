@@ -1,7 +1,7 @@
 ---
 title: Combine Precise Movements & Easy Access with the Sabrent Travel Mouse - Your Compact Tech Companion
-date: 2024-10-26T01:08:51.652Z
-updated: 2024-10-30T16:11:22.132Z
+date: 2024-12-08T09:43:59.058Z
+updated: 2024-12-10T23:47:29.212Z
 categories:
   - BestProducts
 description: This Article Describes Combine Precise Movements & Easy Access with the Sabrent Travel Mouse - Your Compact Tech Companion
@@ -44,6 +44,10 @@ Lifewire / Andy Zahn
 
 4.3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
@@ -80,6 +84,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -92,22 +100,12 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Battery life: No worries**
@@ -117,10 +115,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
@@ -139,6 +134,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Photo Quality: Great colors, average resolution**
 
  We love the warm, natural color tone that[Canon cameras](https://www.lifewire.com/best-new-canon-cameras-493499) produce, and the SX70 HS doesn’t disappoint. Its photos are vibrant and it captures particularly nice portraits.
@@ -155,6 +154,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -168,13 +171,6 @@ Lifewire / Andy Zahn
  A problem with all these automated modes and scene settings is that the images they produce are exclusively JPEG, with RAW being unavailable. Fortunately, Program mode is essentially the same as Auto, and you can enable RAW image recording there.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
 
@@ -228,19 +224,6 @@ Lifewire / Andy Zahn
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  PowerShot SX70
@@ -275,22 +258,17 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-engaging-stories-through-customized-instagram-quests/"><u>[New] Engaging Stories Through Customized Instagram Quests</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-beat-bloggers-base-downloads-for-analysis-for-2024/"><u>[Updated] Beat Bloggers' Base Downloads for Analysis for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-efficiency-a-thorough-examination-of-hewlett-packards-amd-notebook-for-daily-use/"><u>Affordable Efficiency: A Thorough Examination of Hewlett-Packard’s AMD Notebook for Daily Use</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/become-a-pokemon-champion-playing-pokemon-unite-on-your-computer/"><u>Become a Pokémon Champion: Playing 'Pokémon Unite' On Your Computer</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/behind-glasses-and-screens-vrs-evolutionary-tale-for-2024/"><u>Behind Glasses and Screens VR’s Evolutionary Tale for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/detailed-analysis-of-imos-messaging-app-pros-and-cons/"><u>Detailed Analysis of Imo's Messaging App: Pros & Cons</u></a></li>
-<li><a href="https://blog-min.techidaily.com/download-and-enjoy-the-thrilling-film-brick-mansions-in-hd-after-dvd-ripping-start-now/"><u>Download & Enjoy the Thrilling Film, Brick Mansions in HD After DVD Ripping - Start Now!</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/expert-strategies-separating-real-from-fake-apps/"><u>Expert Strategies: Separating Real From Fake Apps</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/gopro-hero9-black-review-the-best-of-gopro-comes-at-a-price/"><u>GoPro HERO9 Black Review: The Best of GoPro Comes at a Price</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-best-gopro-accessories-for-beginners/"><u>In 2024, Best GoPro Accessories for Beginners</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-intro-to-cinema-top-8-user-friendly-cameras-35mm/"><u>In 2024, Intro to Cinema Top 8 User-Friendly Cameras (35Mm)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-sony-xperia-5-stylish-but-pricey/"><u>In-Depth Look at Sony Xperia 5 - Stylish but Pricey?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-the-game-once-more-insightful-look-at-the-latest-fortnite-royale-season/"><u>Mastering the Game Once More: Insightful Look at the Latest Fortnite Royale Season</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/offworld-trading-company-game-breakdown-tactical-approaches-for-rising-as-a-merchant-monarch/"><u>Offworld Trading Company Game Breakdown: Tactical Approaches for Rising as a Merchant Monarch</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-google-nest-hello-next-gen-security-with-face-verification-and-package-tracking/"><u>The Ultimate Guide to Google Nest Hello - Next-Gen Security with Face Verification and Package Tracking</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-lenovo-chromebook-duet-your-go-to-inexpensive-tabletlaptop-combo/"><u>The Ultimate Guide to the Lenovo Chromebook Duet: Your Go-To Inexpensive Tablet/Laptop Combo</u></a></li>
-<li><a href="https://win-able.techidaily.com/world-of-warships-crashing-on-pc-5-quick-fixes/"><u>World of Warships Crashing on PC [5 Quick Fixes]</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-convenient-video-sharing-on-microsoft-hub-for-2024/"><u>[New] Convenient Video Sharing on Microsoft Hub for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exploring-5-engaging-book-promo-videos/"><u>[Updated] Exploring 5 Engaging Book Promo Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-six-offbeat-sources-for-customized-video-theme-elements/"><u>[Updated] In 2024, Six Offbeat Sources for Customized Video Theme Elements</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-ultimate-compact-drone-guide-unraveling-dji-sparks-selfie-prowess-for-2024/"><u>[Updated] The Ultimate Compact Drone Guide Unraveling DJI Spark's Selfie Prowess for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/effective-temperature-regulation-with-kooteks-laptop-cooler-an-in-depth-product-review/"><u>Effective Temperature Regulation with Kootek's Laptop Cooler - An In-Depth Product Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevating-your-pc-experience-from-windows-10-to-11/"><u>Elevating Your PC Experience: From Windows 10 To 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-cost-effective-apeman-c450-a-complete-guide-to-your-next-dash-cam-purchase/"><u>Evaluating the Cost-Effective Apeman C450: A Complete Guide to Your Next Dash Cam Purchase</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-netgears-powerline-with-1200-mbps-is-the-bulky-look-worth-it-for-high-speed-internet/"><u>Expert Analysis: Netgear's Powerline with 1200 Mbps – Is the Bulky Look Worth It for High-Speed Internet?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-expensive-and-exquisite-glion-dolly-high-speed-electric-scooter/"><u>Expert Insights on the Expensive & Exquisite Glion Dolly High-Speed Electric Scooter</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-iphone-12-pro-or-ipad-by-drfone-ios/"><u>In 2024, How to Bypass Activation Lock on iPhone 12 Pro or iPad?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/precise-methods-to-address-windows-activation-failure-code-0x803f700f/"><u>Precise Methods to Address Windows Activation Failure Code 0X803F700f</u></a></li>
+<li><a href="https://driver-download.techidaily.com/successful-broadcom-ethernet-driver-installation-guide-on-windows-10/"><u>Successful Broadcom Ethernet Driver Installation Guide on Windows 10</u></a></li>
 </ul></div>
 

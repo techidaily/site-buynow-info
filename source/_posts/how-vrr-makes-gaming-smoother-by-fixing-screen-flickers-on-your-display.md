@@ -1,7 +1,7 @@
 ---
 title: How VRR Makes Gaming Smoother by Fixing Screen Flickers on Your Display.
-date: 2024-09-04T01:39:34.113Z
-updated: 2024-09-05T01:39:34.113Z
+date: 2024-12-07T21:55:28.593Z
+updated: 2024-12-11T06:25:33.892Z
 tags:
   - games
   - tv
@@ -27,12 +27,6 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
  In some games, at least when using a monitor with a [VA panel](https://facebook-video-footage.techidaily.com/updated-the-art-of-youtube-management-by-studio-techniques/), even the slightest frame rate or frame time variation can trigger VRR flicker because VA panels are quite sensitive to the voltage fluctuations that occur when the refresh rate changes. So, how can you make VRR flicker disappear?
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Disable Variable Refresh Rate (VRR)
 
  This solution is a surefire way to deal with VRR flicker. On the flip side, disabling VRR means you’ll have to use [V-Sync](https://facebook-video-content.techidaily.com/how-to-enhance-facebook-stream-volume-completely-for-2024/) or deal with [screen tearing](https://tech-haven.techidaily.com/unpacking-the-preloaded-features-of-chatgpt-functions-and-implementation-tips/). 
@@ -45,18 +39,6 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Graphics settings tab in the NVIDIA App.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/does-your-monitor-flicker-in-games-here-s-how-to-solve-it-01.png) 
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  If you’re rocking an AMD GPU, open AMD Software, go to the “Gaming” tab, select the "Games" tab, and click the game you want to disable VRR for.
 
 ![The Gaming tab in AMD Software listing installed games.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/does-your-monitor-flicker-in-games-here-s-how-to-solve-it-02.png) 
@@ -65,16 +47,18 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Individual game settings listed in AMD software.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/does-your-monitor-flicker-in-games-here-s-how-to-solve-it-03.png) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Change the option from “AMD Optimized” or “On” to “Off” and exit AMD Software.
 
 ![AMD FreeSync toggle in AMD software.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/does-your-monitor-flicker-in-games-here-s-how-to-solve-it-04.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  That’s it!
 
 ##  Set a Framerate Cap In Games That Trigger Screen Flickering
@@ -95,22 +79,14 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Graphics settings listed in the NVIDIA app.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/does-your-monitor-flicker-in-games-here-s-how-to-solve-it-05.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Now you should enable the option, set the maximum FPS, and click “Apply,”
 
 ![Tweaking maximum frame rate in the NVIDIA app.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/does-your-monitor-flicker-in-games-here-s-how-to-solve-it-06.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  If you own an AMD GPU, you can either use the global frame rate cap or a feature called “Radeon Chill” that can play the role of a frame rate limiter for individual games.
 
  To enable the global frame rate limiter, open AMD software, click the “Gaming” tab, then click the “Graphics” tab. Locate the option called “Frame Rate Target Control,” enable it, and limit the max FPS to the desired value.
@@ -118,11 +94,9 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 ![Frame rate limiter tool in AMD software.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/does-your-monitor-flicker-in-games-here-s-how-to-solve-it-07.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  To limit FPS for individual games, click the “Games” tab and select the game you want to limit the max FPS for.
 
 ![The Gaming tab in AMD Software listing installed games.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/does-your-monitor-flicker-in-games-here-s-how-to-solve-it-02.png) 
@@ -131,27 +105,23 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ![Graphics options in AMD software including Radeon Chill.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/does-your-monitor-flicker-in-games-here-s-how-to-solve-it-08.png) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Click “Enable” when asked to enable it. Note that enabling Radeon Chill will disable certain features, including Radeon Super Resolution, AMD Fluid Motion Frames, Radeon Anti-Lag, and Radeon Boost.
 
 ![Enabling Radeon Chill in AMD software.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/does-your-monitor-flicker-in-games-here-s-how-to-solve-it-09.png) 
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Now, set both the minimum and maximum FPS to the same value.
 
 ![Customizing Radeon Chill options in AMD software.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/does-your-monitor-flicker-in-games-here-s-how-to-solve-it-10.png) 
 
  You can also use a third-party app, such as [RivaTuner Statistics Server](https://www.guru3d.com/download/rtss-rivatuner-statistics-server-download/) (RTSS), to limit max FPS globally or in specific games.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  VRR Flicker Should Be Less Noticeable At Higher Framerates
 
@@ -175,8 +145,6 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -184,4 +152,20 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://hardware-tips.techidaily.com/acer-laptop-impresses-with-stunning-oled-display-and-top-notch-webcam-quality-latest-reviews-on-zdnet/"><u>Acer Laptop Impresses with Stunning OLED Display & Top-Notch Webcam Quality - Latest Reviews on ZDNet</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/asus-rog-swift-oled-pg32ucdp-a-critics-take-on-reaching-the-pinnacle-of-gaming-displays/"><u>Asus ROG Swift OLED PG32UCDP: A Critic's Take on Reaching the Pinnacle of Gaming Displays</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/black-friday-alert-huge-savings-of-1100-on-apples-macbook-pro-with-m1-max-at-bandh-photo-exclusive-deal/"><u>Black Friday Alert: Huge Savings of $1,100 on Apple’s MacBook Pro with M1 Max at B&H Photo - Exclusive Deal!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-apple-watch-series-review-surpassing-excellence-one-step-further/"><u>Comprehensive Apple Watch Series √ Review: Surpassing Excellence, One Step Further</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cost-effective-ssl-certificate-analysis/"><u>Cost-Effective SSL Certificate Analysis</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-network-locked-vivo-y28-5g-phone-by-drfone-android/"><u>How to Unlock a Network Locked Vivo Y28 5G Phone?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-tecno-spark-10-5g-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Tecno Spark 10 5G</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/motorola-edgeplus-review/"><u>Motorola Edge+ Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-all-in-one-laptop-review-how-the-hp-chromebook-11-excels-in-study-sessions-office-tasks-and-gaming-adventures/"><u>The All-in-One Laptop Review: How the HP Chromebook 11 Excels in Study Sessions, Office Tasks & Gaming Adventures</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-synologys-rt2600ac-exceptional-long-range-wi-fi-and-built-in-parental-controls-unveiled/"><u>The Ultimate Guide to Synology's RT2600ac: Exceptional Long Range Wi-Fi & Built-In Parental Controls Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-your-digital-lifestyle-with-the-m1-powered-ipad-pro-a-game-changer-in-desktop-alternatives-for-on-the-go-users/"><u>Transform Your Digital Lifestyle with the M1-Powered iPad Pro : A Game-Changer in Desktop Alternatives for On-the-Go Users</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-nubia-red-magic-8s-pro-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Nubia Red Magic 8S Pro Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/win11-screencapture-guide-effortless-screenshots-with-windows-11-movavi/"><u>Win11 Screencapture Guide: Effortless Screenshots with Windows 11 | Movavi</u></a></li>
+</ul></div>
 

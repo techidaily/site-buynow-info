@@ -1,7 +1,7 @@
 ---
 title: "AmazonBasics Flat TV Antenna Review: Free TV, On a Budget"
-date: 2024-11-19T09:59:03.722Z
-updated: 2024-11-24T20:45:48.638Z
+date: 2024-12-07T04:20:17.832Z
+updated: 2024-12-10T19:54:30.143Z
 categories:
   - BestProducts
 description: "This Article Describes AmazonBasics Flat TV Antenna Review: Free TV, On a Budget"
@@ -19,12 +19,16 @@ thumbnail: https://thmb.techidaily.com/aad91a6ecd7769da95953b80a90f8da974d1c7ad6
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazon Echo Dot (4th Gen)
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/keJ5E0aZJqydWO0ehe3iUZ1hYB8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Amazon-Echo-Dot-4th-Generation-1-fc73a047312d4d588ffcbeae7bdd3368.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -50,6 +54,10 @@ Lifewire / Erika Rawes
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/wkHXB7KTws9HfL-i1yYYsWIMm5w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Amazon-Echo-Dot-4th-Generation-1-fc73a047312d4d588ffcbeae7bdd3368.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 [View On Amazon $50](https://www.amazon.com/All-new-generation-International-Version-Charcoal/dp/B085K45C3S/?tag=lifewire-onsite-prod-20&ascsubtag=5083605%7Cn256cf1ee30214e0e97879a24f265685d08%7CB085K45C3S) [View On Best Buy $40](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Famazon-echo-dot-4th-gen-smart-speaker-with-alexa-charcoal%2F6430060.p%3FskuId%3D6430060) [View On Verizon](https://www.verizon.com/products/amazon-echo-dot-4th-gen-smart-speaker-with-alexa/?slfpid=3)
@@ -71,10 +79,6 @@ Lifewire / Erika Rawes
  _We purchased the Amazon Echo Dot (4th Gen) so our expert reviewer could thoroughly test and assess it. Keep reading for our full product review._
 
  Amazon’s[Echo](https://www.lifewire.com/what-is-the-amazon-echo-4147189) Dot has become a go-to option for those looking for a compact and affordable smart speaker. The brand has now released a 4th generation of its[Echo Dot](https://www.lifewire.com/amazon-dot-4149509) , and the new version has a totally different look than its predecessors. What else is new and different about the Echo Dot (4th Gen)? How does the new Dot perform? I tested the Echo Dot (4th Gen) to find out.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Design: A completely new look**
 
@@ -102,11 +106,11 @@ Lifewire / Erika Rawes
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/dVUkRuy5SxFHmCHXxSseZY5tjhw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-3-320d298cdb18405d9d326c272464ef0d.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Sound Quality: A front-firing speaker**
 
@@ -122,10 +126,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Features: The same Alexa**
 
  The Echo Dot (4th Gen) is powered by[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) . The Alexa voice assistant on the new Echo Dot is the same Alexa that you get on the Echo Dot (3rd Gen). You’ll be able to control your smart devices, listen to music, hear the news, set routines, shop, manage your schedule, and do all of the same things you could do before.[Alexa is always learning new skills](https://www.lifewire.com/alexa-skills-4126799) though. Amazon announced new Alexa features (coming soon) like Care Hub, which is a free feature that lets you check in on loved ones.
@@ -137,6 +137,10 @@ Lifewire / Erika Rawes
  I was blown away by the Echo Dot (4th Gen) With Clock. It’s the same device (internally) as the regular Echo Dot (4th Gen), but it has an LED display on the front of the speaker. Doesn’t sound like much, right?
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/bnVMEDjyf8t4zDkpRwr4-5msD2s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-7-with-Clock-9b93a56f3d0049c5a2064cd4b21c7cb5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -152,11 +156,11 @@ Lifewire / Erika Rawes
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/fdW9QpFUSBjNMTYTGdjFggaOH9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-5-Comparison-6841e2f32a734282b509976489bd0383.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Amazon Echo Dot (4th Gen) vs. Apple HomePod Mini**
 
@@ -167,10 +171,6 @@ Lifewire / Erika Rawes
 **Primarily a design upgrade.**
 
  The new Echo Dot is a great speaker at a great price, but it’s not worth an upgrade if you already have the 3rd-gen Dot unless you’re going with the clock version. For first time buyers, it's a no-brainer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -204,22 +204,22 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-art-of-instagram-video-craftsmanship/"><u>[New] The Art of Instagram Video Craftsmanship</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-top-8-cost-effective-multi-platform-virtual-communication-software/"><u>[Updated] In 2024, Top 8 Cost-Effective, Multi-Platform Virtual Communication Software</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-is-it-legal-to-screen-record-youtube-videos/"><u>[Updated] Is It Legal to Screen Record YouTube Videos</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-rhythm-research-capture-and-review-music-files/"><u>2024 Approved Rhythm Research Capture & Review Music Files</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/gamers-meet-your-new-best-friend-asus-dali-concept-upgrades-the-zephyrus-g1-with-a-stunning-colorful-touch-enabled-lid/"><u>Gamers, Meet Your New Best Friend - Asus' Dali Concept Upgrades the Zephyrus G1지네터 with a Stunning Colorful Touch-Enabled Lid</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/i-tried-both-nintendo-switch-lite-vs-nintendo-switch-oled/"><u>I Tried Both: Nintendo Switch Lite vs Nintendo Switch OLED</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-tangos-communication-suite-top-features-for-budget-chats/"><u>In-Depth Analysis of Tango's Communication Suite: Top Features for Budget Chats</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/mastering-stardews-core-principles-and-secrets-with-special-emphasis-on-ginger-island-for-2024/"><u>Mastering Stardew's Core Principles and Secrets, With Special Emphasis on Ginger Island for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reliable-petfeast-six-serve-automatic-food-dispenser-consistent-nutrition/"><u>Reliable PetFeast Six-Serve Automatic Food Dispenser: Consistent Nutrition</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/significant-aspects-in-techno-narrative-design-for-2024/"><u>Significant Aspects in Techno Narrative Design for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-art-of-power-exploring-empire-building-in-imperator-rome/"><u>The Art of Power: Exploring Empire Building in 'Imperator: Rome'</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-rise-of-chromecast-with-google-tv-is-it-time-for-firetv-users-to-switch/"><u>The Rise of Chromecast with Google TV - Is It Time for FireTV Users to Switch?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/transition-guide-windows-11-from-32-bit-to-64-bit/"><u>Transition Guide: Windows 11 From 32-Bit to 64-Bit</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/ultimate-mac-system-all-in-one-screen-and-sound-capture-tool-for-2024/"><u>Ultimate Mac System All-in-One Screen & Sound Capture Tool for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unpacking-the-asus-x441ba-an-in-depth-review-of-its-advantages-and-sacrifices/"><u>Unpacking the Asus X441BA: An In-Depth Review of Its Advantages & Sacrifices</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unveiling-the-best-artificial-intelligence-prompt-hubs-of-2021/"><u>Unveiling the Best Artificial Intelligence Prompt Hubs of 2021</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/why-the-nook-glowlight-3-stands-out-in-low-light-a-comprehensive-review-for-book-lovers/"><u>Why the Nook GlowLight 3 Stands Out in Low Light: A Comprehensive Review for Book Lovers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/teps-to-manage-video-watcher-restrictions-on-youtube-for-2024/"><u>[New] Steps to Manage Video Watcher Restrictions on Youtube for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-deluxe-low-cost-asmr-recording-options-for-enthusiasts/"><u>[Updated] Deluxe Low-Cost ASMR Recording Options for Enthusiasts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-your-makeup-maestro-journey-establishing-a-channel-for-beauty-buffs/"><u>[Updated] In 2024, Your Makeup Maestro Journey Establishing a Channel for Beauty Buffs</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/ausgezeichnete-auswahl-an-kompatiblen-datenhaltungslosungen-verfugbar/"><u>Ausgezeichnete Auswahl an Kompatiblen Datenhaltungslösungen Verfügbar</u></a></li>
+<li><a href="https://windows11.techidaily.com/eliminating-the-root-of-windows-update-problems-0xc1900101/"><u>Eliminating the Root of Windows Update Problems (0xC1900101)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/find-the-best-prices-acers-unmissable-promotions-during-prime-day-2024/"><u>Find the Best Prices: Acer's Unmissable Promotions During Prime Day 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/firsttimers-guide-to-durable-child-friendly-underwater-shots/"><u>FirstTimer's Guide to Durable Child-Friendly Underwater Shots</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/from-raw-footage-to-social-stardom-the-art-of-video-cropping-on-instagram/"><u>From Raw Footage to Social Stardom The Art of Video Cropping on Instagram</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/furbo-dog-camera-review/"><u>Furbo Dog Camera Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-processor-speed-defines-your-ideal-tablet-choice/"><u>How Processor Speed Defines Your Ideal Tablet Choice</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-large-scale-tiktok-video-downloads/"><u>In 2024, Mastering Large-Scale TikTok Video Downloads</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-search-of-a-budget-friendly-compact-audio-experience/"><u>In Search of a Budget-Friendly, Compact Audio Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-amazon-lunas-seamless-cloud-gaming-service/"><u>In-Depth Look at Amazon Luna's Seamless Cloud Gaming Service</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-timekeepers-a-curated-list-of-superior-smartwatches/"><u>Innovative Timekeepers: A Curated List of Superior Smartwatches</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/journey-into-unprecedented-sound-clarity-the-new-flexus-200-by-klipsch/"><u>Journey Into Unprecedented Sound Clarity: The New Flexus 200 by Klipsch</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/maximize-your-youtube-reach-key-tips-for-enhancing-video-seo/"><u>Maximize Your YouTube Reach Key Tips for Enhancing Video SEO</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/okx-suspends-dcr-minting-for-major-algorithm-revamp-and-reduced-payouts-on-aug-29-check-earnings-till-sep-29-yl-computing-insights/"><u>OKX Suspends DCR Minting for Major Algorithm Revamp & Reduced Payouts on Aug 29, Check Earnings Till Sep 29 | YL Computing Insights</u></a></li>
 </ul></div>
 

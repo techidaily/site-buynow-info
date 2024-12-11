@@ -1,7 +1,7 @@
 ---
 title: "Inside This Week’s Tech News: The Evolution of New Windows Laptops and Behind-the-Scenes Look at Spotify's Future Plans"
-date: 2024-09-04T01:39:06.835Z
-updated: 2024-09-05T01:39:06.835Z
+date: 2024-12-05T22:39:31.762Z
+updated: 2024-12-10T16:54:05.284Z
 tags:
   - games
   - tv
@@ -21,25 +21,25 @@ There was a whole lot of tech news this week, from the arrival of Copilot+ Windo
 
  Spotify Basic is $1 cheaper per month for individuals, with one missing feature.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### [Android 15 Beta 3 Has Arrived](https://article-knowledge.techidaily.com/new-2024-approved-unveiling-cropped-lengths-imovies-automatic-trimming-logic/) 
 
  We're getting close to the final release of Android 15, and Google has now released the third beta for eager testers and app developers.
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### [Windows 11 24H2 Is Ready, but Not for Your PC](https://extra-tips.techidaily.com/beginners-guide-to-windows-11-audible-recording/) 
 
  This year's big Windows 11 update is on the first wave of Copilot+ PCs, but other PCs will have to wait a while longer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### [Vivaldi’s Email Client Is Now Better Than Ever](https://extra-resources.techidaily.com/epic-narrative-institute-premier-choices/) 
 
@@ -53,28 +53,10 @@ Vivaldi
 
  The Lenovo Tab Plus has eight integrated speakers.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### [Proton Drive Can Now Replace Google Photos on iPhone](https://win-amazing.techidaily.com/1722970879070-get-the-latest-realtek-pci-express-fe-chipset-drivers-on-windows-10-no-cost/) 
 
  Automated photo and video backups with full end-to-end encryption is coming to the Proton Drive app for iPhone and iPad.
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### [Google is Selling a LEGO-Like Chrome Dinosaur Set](https://techno-recovery.techidaily.com/yahoo-mail-alert-what-to-do-when-your-inbox-stops-populating-emails/) 
 
  The pixelated dinosaur from Chrome’s offline error page now has its very own LEGO-like brick set. You can get it from Google’s online merch store.
@@ -82,35 +64,19 @@ Vivaldi
 ![Chrome Dino set](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/dino.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Google / Corbin Davenport
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### [Microsoft Is Serious About Gaming on ARM Windows Laptops](https://some-knowledge.techidaily.com/updated-humorhatchery-app/) 
 
  ARM Windows laptops won't replace your gaming PC anytime soon, but now they can run many of the same games.
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  The Other Stuff
 
  The first Copilot+ Windows laptops were [released earlier this week](https://blogs.windows.com/devices/2024/06/18/top-things-to-know-about-copilot-pcs-from-microsoft-surface-available-today-at-microsoft-com/), with Qualcomm’s ARM-based Snapdragon X Elite chipsets instead of the usual AMD or Intel processors found in PC laptops. We’ll have to wait and see how well they work over time, but they more closely match the power efficiency of Apple’s MacBook lineup (which use ARM-based Apple Silicon chips).
@@ -125,8 +91,6 @@ Google / Corbin Davenport
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -134,4 +98,18 @@ Google / Corbin Davenport
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/achieve-social-media-excellence-with-ios-and-androids-best-planners/"><u>Achieve Social Media Excellence with iOS & Android's Best Planners</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/authoritative-ranking-the-elite-choices-of-bodycams-for-security-forces/"><u>Authoritative Ranking: The Elite Choices of Bodycams for Security Forces</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-benefits-of-the-microsoft-sculpt-keyboard-premium-comfort-great-quality-and-best-buy-reviewed/"><u>Discovering the Benefits of the Microsoft Sculpt Keyboard: Premium Comfort, Great Quality & Best Buy Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-uniden-r3-sturdy-design-with-wide-radar-coverage/"><u>In-Depth Analysis of the Uniden R3 - Sturdy Design with Wide Radar Coverage</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/inside-insights-on-electronics-toms-devices-explored/"><u>Inside Insights on Electronics - Tom's Devices Explored</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/navigating-computer-components-and-software-tips-from-toms-hardware/"><u>Navigating Computer Components and Software - Tips From Tom's Hardware</u></a></li>
+<li><a href="https://extra-support.techidaily.com/seamless-integration-of-skype-and-zoom-for-businesses-for-2024/"><u>Seamless Integration of Skype and Zoom for Businesses for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/superior-sound-options-our-best-of-wired-headphones/"><u>Superior Sound Options: Our Best of Wired Headphones</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/time-saving-strategies-for-gotomeeting-audiovideo-logging/"><u>Time-Saving Strategies for GoToMeeting Audio/Video Logging</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/vital-considerations-when-opting-for-renewed-pcs/"><u>Vital Considerations When Opting for Renewed PCs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/wma-moveitnow/"><u>오피스에서 공개된 원자성 소음 파일을 WMA로 바꾸기 - MoveItNow</u></a></li>
+</ul></div>
 

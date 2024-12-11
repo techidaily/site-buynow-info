@@ -1,7 +1,7 @@
 ---
 title: Exploring the Persistent Necessity of Installing and Downloading in Modern Physical Gaming
-date: 2024-09-04T01:39:30.154Z
-updated: 2024-09-05T01:39:30.154Z
+date: 2024-12-08T06:17:45.372Z
+updated: 2024-12-11T08:33:54.407Z
 tags:
   - games
   - tv
@@ -19,6 +19,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 * Downloading updates also allows physical games to benefit from bug patches and added features that the developers release over time.
 
  If you prefer buying physical copies of the latest video games, you have likely noticed that modern physical games require lengthy installations and additional updates before you can start playing. While this may seem like an unnecessary and inconvenient change, it serves an important purpose.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Console Gaming Has Changed
 
@@ -39,27 +43,17 @@ _[Anthony McLaughlin/Shutterstock.com](https://www.shutterstock.com/image-photo/
  However, while [long install and download times can be an inconvenience](https://instagram-videos.techidaily.com/updated-in-2024-essential-tips-for-effective-instagram-video-conversations/)—especially with major releases like _Final Fantasy XVI_ and _Call of Duty: Modern Warfare III_ requiring at least 90 GB and 140 GB on the PlayStation 5, respectively—they also bring numerous advantages to modern consoles.
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Installations Allow for Smoother Performance
 
 ![WD BLACK 5TB P10 Portable External Hard Drive laying beside an Xbox and controller.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2022/10/HTG-Deals-10.12.22-WD_BLACK-5TB-P10-Portable-External-Hard-Drive.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Western Digital
 
  Installing a game on your console's hard drive allows the system to quickly access game files and load resources, leading to faster load times and improved performance. While this helps avoid [constant loading screens](https://screen-activity-recording.techidaily.com/instant-screen-grabber-for-chromebooks-for-2024/) and performance drops, it has also become a necessity for modern games.
@@ -71,11 +65,9 @@ Western Digital
  Since modern consoles rely on installing games, they've also expanded to give more storage options for users, such as allowing you to [expand the internal storage on a PS5](https://sim-unlock.techidaily.com/in-2024-what-to-do-if-your-iphone-14-has-bad-esn-or-blacklisted-imei-by-drfone-ios/) or run games from an external hard drive or [solid-state drive (SSD)](http://www.howtogeek.com/45359/htg-explains-whats-a-solid-state-drive-and-what-do-i-need-to-know/).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Downloads Provide Day-One Fixes and Long-Term Support
 
  Needing to download content to play a physical game is actually a good thing, most of the time. Although downloading a massive day-one patch can be just as frustrating as waiting for a new game to install—especially when infamous cases like _Fallout 76_ and _Star Wars: Jedi Survivor_ launch with over 50GB of patches—downloadable updates are still one of the best features on modern consoles.
@@ -87,21 +79,13 @@ Western Digital
  In rare cases, post-launch updates have even turned critically panned failures into unexpected success stories. Both _No Man's Sky_ and _Cyberpunk 2077_ were released to overwhelmingly negative reception, but later fixed their technical issues and addressed fan criticisms through numerous patches, content overhauls, and quality-of-life improvements. If physical games didn't bother downloading updates, you wouldn't get to benefit from those changes.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Are Physical Games Still Worth Buying?
 
 ![A selection of PS4 disc games: Snowrunner, The Outer Wilds, Tony Hawk's Pro Skater 1+2.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/10/disc_games_ps4.jpeg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Tim Brookes / How-To Geek
 
  Modern consoles have seen numerous improvements in their handling of physical games, but these changes have also lessened the value of discs. With game files being installed and managed through a system's storage and downloadable updates being completely separate from discs, physical copies rarely provide a game's full experience on their own.
@@ -124,8 +108,6 @@ Tim Brookes / How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -133,4 +115,24 @@ Tim Brookes / How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-transforming-viewers-into-active-participants/"><u>[New] In 2024, Transforming Viewers Into Active Participants</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-digital-personas-made-simple-a-guide-for-the-curious-vr-explorer/"><u>[Updated] In 2024, Digital Personas Made Simple A Guide for the Curious VR Explorer</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-poco-c55-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Poco C55 by Name | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-hdtv-placement-discover-the-dream-md2380/"><u>Affordable HDTV Placement: Discover the Dream MD2380</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/barnes-and-nobles-premium-nook-glowlight-plus-a-comprehensive-review/"><u>Barnes & Noble's Premium Nook GlowLight Plus - A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-test-drive-of-the-netgear-nighthawk-x10-router-superior-wi-fi-connectivity-at-blazing-speeds/"><u>Comprehensive Test Drive of the Netgear Nighthawk X10 Router: Superior Wi-Fi Connectivity at Blazing Speeds</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/effective-strategies-crafting-a-professional-resume-with-chatgpt/"><u>Effective Strategies: Crafting a Professional Resume with ChatGPT</u></a></li>
+<li><a href="https://win-blog.techidaily.com/efficient-webm-en-mp4-konvertor-zelfs-onderlinge-online-luchtvaart/"><u>Efficiënt WebM en MP4 Konvertor: Zelfs Onderlinge Online Luchtvaart</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-features-of-iphone-15-pro-max-versus-samsung-galaxy-s24-ultra-which-wins/"><u>Exploring the Features of iPhone 15 Pro Max Versus Samsung Galaxy S24 Ultra: Which Wins?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-realme-11-proplus-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Realme 11 Pro+ Devices</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-from-apple-iphone-14-plus-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock From Apple iPhone 14 Plus?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-realme-c51-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Realme C51 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-best-steam-deck-game-titles-to-play-in-2023/"><u>Navigating the Best Steam Deck Game Titles to Play in 202^[3]</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-grand-odyssey-of-assassins-creed-valhalla-a-deep-dive-into-the-heart-of-viking-conquests/"><u>The Grand Odyssey of Assassin's Creed: Valhalla – A Deep Dive Into the Heart of Viking Conquests</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-ranked-cable-modems-for-optimal-internet-speed/"><u>Top-Ranked Cable Modems for Optimal Internet Speed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tp-link-archer-a9-comprehensive-testing-of-a-powerful-sub-100-wireless-router/"><u>TP-Link Archer A9 - Comprehensive Testing of a Powerful Sub-$100 Wireless Router</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/troubleshooting-a-non-responsive-display-what-to-do-when-your-monitor-wont-power-up-tips-from-yl-computing/"><u>Troubleshooting a Non-Responsive Display: What to Do When Your Monitor Won't Power Up - Tips From YL Computing</u></a></li>
+</ul></div>
 

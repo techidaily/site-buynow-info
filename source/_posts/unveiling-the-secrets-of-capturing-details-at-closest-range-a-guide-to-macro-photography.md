@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Secrets of Capturing Details at Closest Range: A Guide to Macro Photography"
-date: 2024-09-04T01:38:14.448Z
-updated: 2024-09-05T01:38:14.448Z
+date: 2024-12-08T04:32:01.071Z
+updated: 2024-12-11T01:48:22.503Z
 tags:
   - games
   - tv
@@ -13,6 +13,10 @@ thumbnail: https://thmb.techidaily.com/e03e43d6c35d148960447c0d2ee89542320d7730a
 
 ## Unveiling the Secrets of Capturing Details at Closest Range: A Guide to Macro Photography
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Macro photography involves extreme close-up photography of small subjects for detailed shots.
@@ -20,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/e03e43d6c35d148960447c0d2ee89542320d7730a
 * Good lighting is crucial for macro photography, with specialized lenses having built-in lights for better illumination.
 
  Macro photography is kind of a big deal, but many people don't know what it is despite having the hardware to take macro photos. So let's clear up the big and small details of this fascinating photographic art.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Macro Photography Is About Getting Close and Personal
 
@@ -29,12 +37,6 @@ thumbnail: https://thmb.techidaily.com/e03e43d6c35d148960447c0d2ee89542320d7730a
 
  So, if you see a finely-detailed image of a tiny subject, but it's still something you can see with the naked eye, then you're almost certainly looking at macro photography.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Macro Lenses, Macro Smartphone Cameras, and Macro Compact Camera Modes
 
  While you can take any camera system and put it up as close as possible to a small subject, you may not get the result that you want. Macro photography requires a lens with a very short focal distance from the subject. That is, it needs to have the ability to focus on something that's very close to the lens. You can also get lenses that are essentially macro telephoto lenses, which can create that 1:1 reproduction ratio on the sensor while having the subject relatively far away from the lens, but that's not how a typical macro lens works.
@@ -44,11 +46,9 @@ thumbnail: https://thmb.techidaily.com/e03e43d6c35d148960447c0d2ee89542320d7730a
 ![Sigma 105mm F2.8 EX DG OS HSM Macro](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/sigma-105mm-f2-8-ex-dg-os-hsm-macro-1.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 #####  Sigma 105mm F2.8 EX DG OS HSM Macro
 
 $525 $669 Save $144 
@@ -65,12 +65,6 @@ A superb macro lens with image stabilization that offers a nice balance between 
 
  Finally, though they are rare to see these days, many compact dedicated digital cameras also have a "macro mode", but the results from this mode have never been great, and really don't let you get nearly as close to the subject as a true macro lens does.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030373/7443" target="_top" id="2030373">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030373" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030373/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  Macro Photography Lighting Can Be a Challenge
 
  With their extremely short focal distances, and very shallow depth of field, macro photos often suffer from a lack of good lighting. Lighting is paramount in any sort of photography (it literally means the capture of light after all), but perhaps never more than with macro shots. This is why many macro lenses, and macro cameras on some phones have a built-in LED ring to light up the subject.
@@ -85,12 +79,6 @@ A superb macro lens with image stabilization that offers a nice balance between 
 
 ![Macro photo of mushroom on forest floor](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/macro-photo-of-mushroom-on-forest-floor.jpeg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Sydney Louw Butler / How-To Geek
 
  Likewise, up close, the carapace of this beetle seems like it's almost infused with gold.
@@ -98,11 +86,9 @@ Sydney Louw Butler / How-To Geek
 ![Macro photo of beetle](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/macro-photo-of-beetle.jpeg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Sydney Louw Butler / How-To Geek
 
  I will never, ever get tired of shooting photos of these teeny-tiny jumping spiders.
@@ -116,11 +102,9 @@ Sydney Louw Butler / How-to Geek
 ![macro photo of a grasshopper taken with S21 Ultra smartphone.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2021/11/Grasshopper-Macro-S21.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Sydney Butler/How-To Geek
 
 ---
@@ -133,8 +117,6 @@ Sydney Butler/How-To Geek
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -142,4 +124,17 @@ Sydney Butler/How-To Geek
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-enhancing-online-presence-obs-and-facebook-synergy-for-2024/"><u>[New] Enhancing Online Presence OBS & Facebook Synergy for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-secure-techniques-to-boost-speed-in-spotify-listening/"><u>[New] Secure Techniques to Boost Speed in Spotify Listening</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unlocking-viral-potential-in-digital-content-creation/"><u>[New] Unlocking Viral Potential in Digital Content Creation</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-survey-spectrum-of-video-and-film-equipment/"><u>[Updated] Survey Spectrum of Video and Film Equipment</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-complete-guide-to-producing-high-quality-gopro-time-lapse-for-2024/"><u>[Updated] The Complete Guide to Producing High-Quality GoPro Time-Lapse for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-top-choice-video-capture-apps-iphone/"><u>2024 Approved Top Choice Video Capture Apps iPhone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/analyzing-the-tp-link-av2000-powerline-adaptor-unmatched-speeds-contrasted-with-disappointing-design-flaws/"><u>Analyzing the TP-Link AV2000 Powerline Adaptor: Unmatched Speeds Contrasted with Disappointing Design Flaws</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-ultimate-freebie-lightzone-top-photo-editing-app-compatible-with-pcs-and-mac/"><u>Explore the Ultimate Freebie: LightZone – Top Photo Editing App Compatible with PCs & MAC</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-cycling-in-style-hands-on-with-cycwagens-latest-e-bike/"><u>The Ultimate Guide to Cycling in Style: Hands-On With CycWagen's Latest E-Bike</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-list-of-leading-smartwatches-for-234-tech-enthusiasts/"><u>The Ultimate List of Leading Smartwatches for 2^34 Tech Enthusiasts</u></a></li>
+</ul></div>
 

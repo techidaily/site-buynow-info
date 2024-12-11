@@ -1,7 +1,7 @@
 ---
 title: "Beyond Netflix & Co.: Building My Custom Streaming Experience - A Step-by-Step Guide"
-date: 2024-08-30T14:06:57.465Z
-updated: 2024-08-31T14:06:57.465Z
+date: 2024-12-04T20:48:59.214Z
+updated: 2024-12-10T22:29:16.349Z
 tags:
   - games
   - tv
@@ -13,6 +13,10 @@ thumbnail: https://thmb.techidaily.com/cf44629f086fd2b8084bdc12a848844a50c0357a1
 
 ## Beyond Netflix & Co.: Building My Custom Streaming Experience - A Step-by-Step Guide
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * I built my own personal streaming service using a media server like Plex or Jellyfin, avoiding subscription fees and content limitations.
@@ -21,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/cf44629f086fd2b8084bdc12a848844a50c0357a1
 
  If you're like me, you're tired of seeing the phrase "price hike" in headlines about the streaming services you're paying for. I got so tired I decided to use my movie collection to build what you might call a personal streaming service. Here's what it involved.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  How Can You Stream Movies Yourself?
 
  If you have copies of your movies or shows saved to a computer or [external drive](https://facebook-videos.techidaily.com/updated-in-2024-how-to-engage-fans-through-real-time-streams-mobile-edition/), you can use a media server to organize and stream that content remotely to a TV, phone, or computer. If anyone has given you a login for their [Plex](https://network-issues.techidaily.com/instantly-eradicate-playback-problems/) account, you've seen one of these servers in action. Plex is one of your options, but there are several [Plex alternatives](https://win-answers.techidaily.com/effective-remedies-for-unresponsive-qbittorrent-torrents/) out there. I went with Jellyfin for myself. If you want to avoid having to solve technical issues yourself, though, and don't mind spending a little money for premium features, Plex might be your best bet.
@@ -28,8 +36,9 @@ thumbnail: https://thmb.techidaily.com/cf44629f086fd2b8084bdc12a848844a50c0357a1
  We have resources if you want to [learn more about running Jellyfin](https://extra-approaches.techidaily.com/iphone-tricks-to-embrace-cameras-motion-artistry-for-2024/) yourself. Instead of retreading that ground, I'm just going to cover some key information about home streaming that I wish I'd known before going in.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Early Hiccups in Building a Streaming Server
 
  One thing I didn't initially think about was that though you can avoid paying a subscription by running something like Jellyfin, you're still going to pay for something. You need a hard drive with enough space for all the movies you want. I bought a 6TB [internal HDD](https://screen-video-capture.techidaily.com/updated-2024-approved-5-secrets-to-preventing-blank-scenes-with-obs-recording/) to start with. Now, with close to 200 movies and TV shows of varying quality, I've already used up about two-thirds of the drive, so I'm looking into [affordable hard drive upgrades](https://blog-min.techidaily.com/how-i-transferred-messages-from-xiaomi-redmi-note-12-4g-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/). A [backup drive](https://discord-videos.techidaily.com/updated-mastering-live-broadcasts-your-step-by-step-guide-to-discord-streaming/) of the same or larger size is also necessary since, otherwise, you risk losing your entire library.
@@ -39,8 +48,9 @@ thumbnail: https://thmb.techidaily.com/cf44629f086fd2b8084bdc12a848844a50c0357a1
 ![An external Blu-ray drive.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/52781571646_3bd529ceb6_o.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Jordan Gloor / How-To Geek
 
  Then I wanted to make my server accessible from outside my home, and that was its own job. After trying a few different methods and running into issues with port forwarding on my router, the solution I landed on was [a Cloudflare tunnel](https://www.cloudflare.com/products/tunnel/). That solved several problems like avoiding port forwarding and enabling HTTPS.
@@ -49,10 +59,6 @@ Jordan Gloor / How-To Geek
 
 ![Asustor AS5202T](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/10/asustor-as5202t.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 #####  Asustor AS5202T
 
 $269 $299 Save $30 
@@ -64,8 +70,9 @@ If you're looking for a NAS mainly for media and Plex, you can make it easy with
  Once I got the NAS, though, I learned that a Jellyfin server is difficult to move. There's no built-in function for it at all. There are scripts you can find online that are meant to partially automate it for you, but they still require some technical knowledge to use and aren't guaranteed to work. I ultimately decided figuring it all out wasn't worth my time, so I started a new Jellyfin instance on my NAS and copied over all my movies and shows. That was a much simpler, albeit slow, process.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Was It All Worth It?
 
  So I spent a lot of time solving technical problems, and I spent a significant amount of my paycheck on equipment, but I absolutely love what I've built. I have a private library of movies and shows I like that I can stream from anywhere. No content will suddenly disappear due to licensing deals between the Hollywood powers that be. Since I'm using Jellyfin, I can't be forced to accept price hikes or watch ad breaks.
@@ -78,8 +85,6 @@ If you're looking for a NAS mainly for media and Plex, you can make it easy with
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -87,4 +92,26 @@ If you're looking for a NAS mainly for media and Plex, you can make it easy with
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boost-your-projects-quality-rankings-of-the-best-free-editing-apps-top-9/"><u>[Updated] In 2024, Boost Your Projects' Quality Rankings of the Best Free Editing Apps (Top 9)</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-paper-to-cloud-preserving-old-family-photographs/"><u>2024 Approved From Paper to Cloud Preserving Old Family Photographs</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/dive-into-hardware-with-tom-expert-tips-and-advice/"><u>Dive Into Hardware with Tom - Expert Tips & Advice</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-game-capacity-with-an-upgraded-ps3-hdd/"><u>Elevate Game Capacity with an Upgraded PS3 HDD</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elgoog-decoded-a-witty-take-on-googles-functionality-as-a-mirror-site-review/"><u>ElgooG Decoded: A Witty Take on Google's Functionality as a Mirror Site Review</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-honor-90-pro-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-convert-srt-fastly-a-compreenas-the-minute-blueprint-2023/"><u>In 2024, Convert SRT Fastly A Compreenas-the-Minute Blueprint 2023</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-motorola-edge-2023-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Motorola Edge 2023 for Free? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-most-effective-ways-to-bypass-apple-iphone-x-activation-lock-by-drfone-ios/"><u>In 2024, The Most Effective Ways to Bypass Apple iPhone X Activation Lock</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/labor-day-deal-alert-score-a-massive-700-off-on-the-newest-202e-pad-pro-check-out-the-details/"><u>Labor Day Deal Alert: Score a Massive $700 Off on the Newest 202E Pad Pro! Check Out the Details</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-call-logs-from-realme-narzo-60-5g-by-fonelab-android-recover-call-logs/"><u>Possible solutions to restore deleted call logs from Realme Narzo 60 5G</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/powershot-g9x-mark-ii-fusing-nostalgia-with-new-tech/"><u>PowerShot G9X Mark II – Fusing Nostalgia with New Tech</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ps5-and-godfall-a-pairing-that-proves-incoherent-and-dull/"><u>PS5 & Godfall: A Pairing That Proves Incoherent and Dull</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-list-best-all-in-one-scanners-of-2024/"><u>The Ultimate List: Best All-in-One Scanners of 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-the-poweradd-pilot-pro2-portable-power-station-ideal-for-laptops-and-devices/"><u>The Ultimate Review of the POWERADD Pilot Pro2 Portable Power Station – Ideal for Laptops and Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-showdown-how-the-new-apple-mac-mini-m1-2020-crushes-its-rival-pc-rivals/"><u>The Ultimate Showdown: How the New Apple Mac Mini (M1, 2020) Crushes Its Rival PC Rivals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/uncovering-the-smooth-operation-of-amazon-lunas-game-streaming-platform/"><u>Uncovering the Smooth Operation of Amazon Luna's Game Streaming Platform</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unleashing-potential-a-detailed-review-of-the-adaptive-samsung-galaxy-tab-s/"><u>Unleashing Potential: A Detailed Review of the Adaptive Samsung Galaxy Tab S</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211145920-9798889267539-yin-yang/"><u>Yin Yang | Free Book</u></a></li>
+</ul></div>
 

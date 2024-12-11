@@ -1,7 +1,7 @@
 ---
 title: Top 10 Advantages of Choosing a Low-Profile Mechanical Keyboard
-date: 2024-08-30T14:06:47.117Z
-updated: 2024-08-31T14:06:47.117Z
+date: 2024-12-03T23:30:13.998Z
+updated: 2024-12-10T21:59:55.676Z
 tags:
   - games
   - tv
@@ -12,6 +12,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2
 ---
 
 ## Top 10 Advantages of Choosing a Low-Profile Mechanical Keyboard
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Quick Links
 
@@ -35,9 +39,6 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2
 
  For quite some time, there were just a handful of low-profile mechanical keyboards on the market. Nowadays, you can pick between a ton of different models in every price bracket. Here’s why low-profile mechanical keyboards are great, and why you ought to get one.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  They’re Brilliant for Typing
 
  Despite being a writer, I’m a pretty slow typist. On my [Keychron K2](https://www.amazon.com/Keychron-Bluetooth-Wireless-Mechanical-Tenkeyless-Keyboard/dp/B07QBPDWLS?tag=hotoge-20&ascsubtag=UUhtgUeUpU2003073&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2F10-reasons-you-need-a-low-profile-mechanical-keyboard%2F&asc%5Fcampaign=Evergreen) with Cherry profile keycaps, I can manage about 70WPM—words per minute—on [Monkeytype](https://monkeytype.com/). Replacing Cherry keycaps with an SA keycap set improves my score to about 75WPM. But when I type on my [Vissles LP85](https://ios-unlock.techidaily.com/iphone-13-mini-backup-password-never-set-but-still-asking-heres-the-fix-by-drfone-ios/), I regularly go over 80WPM, usually scoring higher than 85WPM.
@@ -47,24 +48,19 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2
 ![Comparison between a Cherry, SA, and low profile keycap.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/comparison-between-a-cherry-sa-and-low-profile-keycap.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _Goran Damnjanovic/How-To Geek_
 
  Another reason is the flatness of low profile keycaps. Not only do they offer a larger surface for your fingers to hit, they’re also quite flat and only a teeny bit concave, making typing easier and faster.
 
  This applies to most low-profile keyboards. Despite a number of models with inwardly sloped keycaps, the slope is much less pronounced than on regular mech boards. Even in keycaps with a more pronounced slope, the size of the topside surface is less affected because of the short length of every low-profile keycap profile.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  They Have a Smaller Footprint Than Regular Mechanical Boards
 
 ![A Normal and a low profile mecnanical keyboard](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/a-normal-and-a-low-profile-mecnanical-keyboard.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 _Keychron_
 
  A low-profile keyboard is thinner, lighter, and has a noticeably smaller footprint than a regular mechanical keyboard. This not only makes them perfect for travel but also makes your desk setup look much cooler and cleaner looking.
@@ -82,15 +78,13 @@ _Sergio Rodriguez / How-To Geek_
 ![Keychron K11 Max Low profile mechanical keyboard with Alice layout on a desk.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/keychron-k11-max-low-profile-mechanical-keyboard-with-alice-layout-on-a-desk.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _Keychron_
 
  No matter which keyboard form factor you prefer, you can find multiple low-profile mechanical keyboard models featuring it, which is great to see.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  If Sound Is What You’re After, You Can Find a Number of Low-Profile Options That Sound Great
 
 ![Sound dampening layers on a low profile mechanical keyboard.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/sound-dampening-layers-on-a-low-profile-mechanical-keyboard.png) 
@@ -120,15 +114,24 @@ _Kailh_
 ![Gateron Low Profile Switches with Cherry Style Stems](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/gateron-low-profile-switches-with-cherry-style-stems.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _Gateron/Keychron_
 
  The situation isn't great, but I reckon that in a year or two we’ll have a ton of different keycap sets to choose from. Heck, maybe we’ll even see a set or two from GMK.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  Many Low-Profile Mechanical Keyboards Are Hot-Swappable
 
 ![A hot swappable low profile mechanical keyboard PCB.](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/a-hot-swappable-low-profile-mechanical-keyboard-pcb.png) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _NuPhy_
 
@@ -139,16 +142,13 @@ _NuPhy_
  The focus on improving customization has also led to the release of a couple of gasket-mounted low-profile mechanical keyboard models, finally ending the rule of plate-mounted low-profile mechanical keyboards.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  There are More and More Models With QMK and VIA Support
 
  The focus on customization has also led many brands to offer [QMK and VIA](https://some-skills.techidaily.com/in-2024-ultimate-chuckles-and-pixels-suite/) support. QMK and VIA are software tools that allow owners to customize their keyboard’s firmware, which means full freedom in remapping keys, adding macros and multiple layers, changing light effects, and more.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ##  Virtually Every Low-Profile Mechanical Keyboard Supports Wireless Connectivity
 
 ![Keychron mechanical keyboard with wireless connectivity](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/05/keychron-mechanical-keyboard-with-wireless-connectivity.jpg) 
@@ -172,8 +172,9 @@ _Jerome Thomas / How-To Geek_
  Despite the massive strides mechanical keyboard manufacturers have been making in the low-profile market, regular mech keyboards still do a number of things better.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ###  Level of Customization
 
  Regular mech boards feature a substantially higher level of customization. This most likely won’t change in the future because the low-profile form factor has inherent limitations concerning its design, stemming from the limited space inside the case.
@@ -182,16 +183,10 @@ _Jerome Thomas / How-To Geek_
 
  Then we have the situation with keycaps. While you can now find a decent selection of low-profile keycaps online, they aren’t even close to the number of regular keycap sets.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ###  Number of Switches to Pick From
 
  While we’re getting more and more low-profile switches, the insane abundance of regular mechanical switches will never be matched. You have hundreds, if not thousands, of different mechanical switch designs. Unless low-profile mechanical keyboards surpass regular ones in popularity, low-profile switches will never come close to that number.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ###  Hall Effect Mechanical Keyboards Are a Better Option for Gaming
 
 ![Wooting 60HE against a light grey background](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/12/wooting-60he-01.png) 
@@ -199,6 +194,10 @@ _Jerome Thomas / How-To Geek_
 Wooting
 
  While regular mechanical keyboards and low-profile mech boards are both solid options for gaming, [Hall Effect mechanical keyboards](https://some-knowledge.techidaily.com/evaluating-inshots-capabilities-against-market-leaders-for-2024/), especially the [Wooting 60HE](https://wooting.io/wooting-60he), are the superior choice for gaming thanks to their adjustable actuation point and Rapid Trigger Features. And all HE keyboards feature the normal, taller height.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ###  You Won’t Find Custom Low-Profile Mech Keyboard Kits
 
@@ -216,8 +215,6 @@ Wooting
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -225,4 +222,24 @@ Wooting
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-in-2024-obtaining-high-quality-photos-without-restrictions/"><u>[New] In 2024, Obtaining High-Quality Photos Without Restrictions</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/audio-first-video-second-comparing-podcast-vs-youtube/"><u>Audio First, Video Second? Comparing Podcast vs YouTube</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/compact-100-instant-capture-cameras-in-2s/"><u>Compact $100 Instant Capture Cameras in 2S</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/detailed-breakdown-and-assessment-of-apples-newly-launched-iphone-13/"><u>Detailed Breakdown & Assessment of Apple's Newly Launched iPhone 13</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/dive-into-high-definition-hitachi-4k-tvs-combined-with-convenient-roku-streaming-capabilities/"><u>Dive Into High Definition: Hitachi 4K TVs Combined with Convenient Roku Streaming Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-leading-rechargeable-battery-chargers-dominating-2024/"><u>Expert Picks: Leading Rechargeable Battery Chargers Dominating 2024</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/high-definition-iron-man-desktop-pictures-and-screen-savers-download-premium-themes-by-yl-computing/"><u>High Definition Iron Man Desktop Pictures & Screen Savers - Download Premium Themes by YL Computing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-samsungs-latest-masterpiece-the-galaxy-tab-s4-for-android-users/"><u>In-Depth Analysis: Samsung's Latest Masterpiece, The Galaxy Tab S4 for Android Users</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209667295-9781547576548-meditacao-melhore-sua-saude-e-combata-a-anxiedade/"><u>Meditação - Melhore Sua Saúde E Combata A Anxiedade | Free Book</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/roku-or-amazon-fire-tv-stick-the-ultimate-showdown-for-streamers/"><u>Roku or Amazon Fire TV Stick - The Ultimate Showdown for Streamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/selecting-supreme-keyboard-wrist-supports-the-best-picks-for-a-healthy-2024/"><u>Selecting Supreme Keyboard Wrist Supports - The Best Picks for a Healthy 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-future-of-planning-how-chatgpt-can-revolutionize-your-timeline-management/"><u>The Future of Planning: How ChatGPT Can Revolutionize Your Timeline Management</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722884954689-the-future-unfolds-with-the-samsung-z-fold-4-know-more-about-its-arrival-date-price-tag-and-specifications/"><u>The Future Unfolds with the Samsung Z Fold 4: Know More About Its Arrival Date, Price Tag and Specifications!</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-science-of-attractiveness-building-engaging-audio-introductions-for-2024/"><u>The Science of Attractiveness Building Engaging Audio Introductions for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-6-iphone-antivirus-programs-for-optimal-mobile-security/"><u>Top 6 iPhone Antivirus Programs for Optimal Mobile Security</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tp-link-archer-a9-examined-exceptional-networking-solutions-at-a-wallet-friendly-price-point-below-100-usd/"><u>TP-Link Archer A9 Examined – Exceptional Networking Solutions at a Wallet-Friendly Price Point Below 100 USD</u></a></li>
+<li><a href="https://win-special.techidaily.com/troubleshooting-overcoming-installation-lockup-in-version-906-of-emeditor-software/"><u>Troubleshooting: Overcoming Installation Lockup in Version 9.06 of EmEditor Software</u></a></li>
+</ul></div>
 

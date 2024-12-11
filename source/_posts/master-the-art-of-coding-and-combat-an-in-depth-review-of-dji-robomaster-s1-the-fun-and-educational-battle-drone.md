@@ -1,7 +1,7 @@
 ---
 title: "Master the Art of Coding & Combat: An In-Depth Review of DJI Robomaster S1, The Fun & Educational Battle Drone"
-date: 2024-11-30T18:03:25.826Z
-updated: 2024-12-05T04:59:30.458Z
+date: 2024-12-04T19:58:34.132Z
+updated: 2024-12-11T07:22:27.482Z
 categories:
   - BestProducts
 description: "This Article Describes Master the Art of Coding & Combat: An In-Depth Review of DJI Robomaster S1, The Fun & Educational Battle Drone"
@@ -46,6 +46,10 @@ Lifewire / Fred Meyer
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/ypwoGr7PKp9XOfm_EgF2BsvzZkg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-2LW4043312-1-5c924aa1c9e77c0001e11e41.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Fred Meyer
 
 [View On Amazon $150](https://www.amazon.com/dp/B00HQ883QW/?tag=lifewire-onsite-prod-20&ascsubtag=4589563%7Cnf6fcfa1894d54bf0ada72e1fcaa1a30012%7CB00HQ883QW) [View On Walmart $65](https://www.walmart.com/ip/NETGEAR-AC1200-Dual-Band-Desktop-WiFi-Range-Extender-EX6200/34761189)
@@ -78,10 +82,6 @@ Lifewire / Fred Meyer
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/lHiNdBeYxT8ClO7fv3LwEZqMjWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-6-5c924b2dc9e77c0001a9278c.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Fred Meyer
 
  We also loved the fact that the EX6200 uses a separate AC adapter and cord to supply its power. Other extenders that plug into a socket limit the areas you can deploy them, take up a wall plug, and just are usually an eyesore. On the other hand, the EX6200 is a very attractive piece of equipment that looks sharp sitting on a desk. Also, if you just don't want to show, since it uses a cord you have the freedom to tuck it somewhere out of sight easily.
@@ -104,10 +104,6 @@ Lifewire / Fred Meyer
 
  If you've followed the above steps and your Wi-Fi connection is strong, you're good-to-go and you can start living your life with the Wi-Fi coverage you always knew you deserved. Otherwise, you'll have to shuffle the extender either closer to the dead zone or closer to the router until you find the sweet spot.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Software: Netgear magic**
 
  The Netgear EX6200 doesn't require any special software installation. If you need to access the interface, you just need to be connected to it in some manner, either through Wi-Fi or Ethernet, and you can open the control panel in a browser. You can access the extender by either using the local address (<www.mywifiext.net>) or via the device's IP.
@@ -119,14 +115,10 @@ Lifewire / Fred Meyer
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/C3GG9BATc7pjzGQZsIXmC4hlBTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-4-5c924c5046e0fb000146ae2c-e8aa858c433c410696d08b615cdee234.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Fred Meyer
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Connectivity: Hardwire everything**
 
@@ -145,10 +137,14 @@ Lifewire / Fred Meyer
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/ZHlEjP4KLtEcUqCvuXTg1eZBnFg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-3-5c924c8f46e0fb0001770187-2a10c24af5834857aeb7b4cfcd1cc6a9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Fred Meyer
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Network Performance: Adequate but not spectacular**
 
@@ -161,6 +157,10 @@ Lifewire / Fred Meyer
 ## **Price: A solid balance**
 
  At $99.99 (MSRP) the EX6200 isn't exactly cheap. You can get extenders for $30 or lower that get the job done, but that's all they'll do. We found that the EX6200 struck a good balance between price and features, and is an excellent extender for most use cases.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Middle of the road choice**
 
@@ -176,14 +176,14 @@ Lifewire / Fred Meyer
 
  If you're in the market for an extender, the EX6200 is one of our favorites. It doesn't excel in any category, but it does everything it’s designed to do well.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008)
 * [TP-Link AC1200 RE305](https://www.lifewire.com/tp-link-ac1200-wifi-range-extender-re305-review-4589559)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -220,15 +220,17 @@ Lifewire / Fred Meyer
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-the-power-of-popularity-in-stock-images-and-stories/"><u>[New] 2024 Approved The Power of Popularity in Stock Images & Stories</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/avigating-the-financial-aspects-of-youtube-success/"><u>[New] Navigating the Financial Aspects of YouTube Success</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-instant-impact-applying-motion-blur-to-ai-artwork/"><u>[Updated] 2024 Approved Instant Impact Applying Motion Blur to AI Artwork</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-expert-strategies-for-tackling-copyright-claims-on-youtube-for-2024/"><u>[Updated] Expert Strategies for Tackling Copyright Claims on YouTube for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/crafting-soundscapes-with-chatgpt-advanced-techniques-for-digital-audio-workstations/"><u>Crafting Soundscapes with ChatGPT: Advanced Techniques for Digital Audio Workstations</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elite-gaming-experience-decoded-the-xbox-ones-best-controller-reviewed/"><u>Elite Gaming Experience Decoded: The Xbox One's Best Controller Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/high-speed-google-nest-wi-fi-analysis-effortless-and-reliable-mesh-connectivity/"><u>High-Speed Google Nest Wi-Fi Analysis: Effortless and Reliable Mesh Connectivity</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-motorola-moto-g04-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Motorola Moto G04 To iPhone 15/14/13? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/samsung-q60r-4k-qled-gaming-smart-tv-overview-and-assessment/"><u>Samsung Q60R 4K QLED Gaming Smart TV Overview & Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-for-loyal-companions-in-depth-insight-into-furbos-prime-canine-cam/"><u>The Ultimate Guide for Loyal Companions: In-Depth Insight Into Furbo's Prime Canine Cam</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-master-your-gaming-footage-top-5-techniques-for-windows-11-recorders/"><u>[New] 2024 Approved Master Your Gaming Footage Top 5 Techniques for Windows 11 Recorders</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-top-7-must-have-metaverse-devices-you-need-to-prepare/"><u>[New] Top 7 Must-Have Metaverse Devices You Need to Prepare</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-unleash-your-potential-with-top-igtv-creators-for-2024/"><u>[New] Unleash Your Potential with Top IGTV Creators for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-new-era-of-computing-the-impacts-and-performance-of-the-2020-apple-macbook-pro-m1-13-reviewed/"><u>A New Era of Computing: The Impacts & Performance of the 2020 Apple MacBook Pro (M1, 13) Reviewed</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Samsung Galaxy S21 FE 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-oppo-a59-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Oppo A59 5G without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-unlock-content-insights-7-premier-free-tag-extraction-tools/"><u>In 2024, Unlock Content Insights 7 Premier Free Tag Extraction Tools</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/restoring-lost-glare-on-lenovo-monitors/"><u>Restoring Lost Glare on Lenovo Monitors</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-17-inch-laptop-picks-for-ultimate-performance/"><u>Top 17-Inch Laptop Picks for Ultimate Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-high-speed-cable-modems-your-ultimate-guide/"><u>Top Rated High-Speed Cable Modems : Your Ultimate Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-ergonomic-trackballs/"><u>Top-Rated Ergonomic Trackballs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-benefits-of-the-acer-chromebook-cuisine-such-as-grilled-salmon-or-roast-beef-for-desserts-fresh-berries-and-fruit-tarts-would-suit-the-theme-y74/"><u>Unveiling the Benefits of the Acer Chromebook Cuisine, Such as Grilled Salmon or Roast Beef. For Desserts, Fresh Berries and Fruit Tarts Would Suit the Theme. You Can Also Serve a Crisp White Wine Like Sauvignon Blanc to Complement the Fish Dishes.</u></a></li>
 </ul></div>
 

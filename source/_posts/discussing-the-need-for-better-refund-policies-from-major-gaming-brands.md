@@ -1,7 +1,7 @@
 ---
 title: Discussing the Need for Better Refund Policies From Major Gaming Brands
-date: 2024-08-30T14:08:00.779Z
-updated: 2024-08-31T14:08:00.779Z
+date: 2024-12-08T06:02:09.613Z
+updated: 2024-12-11T07:18:18.882Z
 tags:
   - games
   - tv
@@ -13,6 +13,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 
 ## Discussing the Need for Better Refund Policies From Major Gaming Brands
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Sony and Nintendo have outdated refund policies for digital games, lacking automatic processes seen on other platforms.
@@ -20,6 +24,10 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
 * Sony and Nintendo risk losing customers to competitors by not updating their refund policies to meet industry norms.
 
  With the world shifting from physical to digital game media, it would be nice if everyone could agree on how refunds work. Unfortunately while some companies are leading the charge in consumer friendliness, others seem to be more than a little behind the times.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##  Sony and Nintendo’s Current Refund Policies
 
@@ -40,8 +48,9 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
  Which is a polite way of saying your only option is not to buy a broken or incorrect item in the first place! All sales are final, no refunds!
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  How Other Platforms Handle Refunds
 
  The way Sony and Nintendo handle the issue of digital refunds is in stark contrast to their competition. Here's what Microsoft has to say about Xbox refunds:
@@ -55,8 +64,9 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
  On PC, digital storefronts have similarly convenient refund policies. Steam offers automatic refunds for games that have been played for less than two hours and have been purchased in the last 14 days. I have also successfully refunded games in the past that had more than two hours of playtime by explaining that it was because of trying to get the game to work or another legitimate reason to have more than two hours on the clock. However, anything outside of the eligibility window is at Valve's discretion. Also, in case you didn't know, if you bought a game shortly before it went on sale, you can ask for a refund and then re-buy the game at the new lower price! The [Epic Games Store refund policy](https://www.epicgames.com/site/en-US/store-refund-policy) is almost exactly the same, so both Steam and EGS are virtually on par when it comes to refunds.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  Why This Will Be Good for You, Sony & Nintendo
 
  I don't have any special insights into the reasons that neither Sony nor Nintendo offer similar refund policies to the rest of the industry. Perhaps they're afraid of it being abused, or maybe their dominant position in the gaming market means they don't have to care about offering consumer-friendly policies, unless compelled by local laws.
@@ -66,8 +76,9 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
  Letting players get automatic refunds using the 14 day, two-hour rule is a small price to pay if it makes it more likely that people will hit that buy button in the first place. Perhaps even more important than that, it's a simple way to generate goodwill from your customer base.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  What We Want From Your Refund Policy
 
  The good news is that other companies have paved the way, so you don't even have to reinvent the wheel. Give us a 14-day window, with a playtime limit to automatically refund unwanted purchases. Let us refund games that have just gone on sale, or have become part of a subscription service within a certain window of the purchase. Alternatively, or perhaps even better, let us trial games without having to pay for the privilege. Game trials are more likely to lead to a purchase, so it makes no sense to me why this would be a subscription value-add. It benefits both the platform and the developer, without having to develop separate demos.
@@ -82,8 +93,6 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -91,4 +100,16 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-enhance-your-storytelling-mastering-the-green-screen-on-instagram-for-2024/"><u>[New] Enhance Your Storytelling Mastering the Green Screen on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-tips-for-retro-revival-using-instagram-filters-on-previous-imagesvideos/"><u>2024 Approved Tips for Retro Revival Using Instagram Filters on Previous Images/Videos</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-tecno-camon-20-is-unlocked-by-drfone-android/"><u>How To Check if Your Tecno Camon 20 Is Unlocked</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/solving-the-propsysdll-file-couldnt-be-located-issue/"><u>Solving the PropSys.dll File Couldn't Be Located Issue</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultra-lightweight-and-trendy-acer-chromebook-r-11-review/"><u>Ultra-Lightweight and Trendy Acer Chromebook R 11 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-future-of-ultrathin-laptops-the-razer-blade-stealth-13-redefines-portable-brilliance/"><u>Unboxing the Future of Ultrathin Laptops: The Razer Blade Stealth 13 Redefines Portable Brilliance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/understanding-the-value-of-chatgpt-plus-essential-reasons-to-subscribe/"><u>Understanding the Value of ChatGPT Plus - Essential Reasons to Subscribe</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-ampaque-andes-1500-an-in-depth-look-at-this-portable-energy-marvel/"><u>Unveiling the Ampaque Andes 1500: An In-Depth Look at This Portable Energy Marvel</u></a></li>
+</ul></div>
 
