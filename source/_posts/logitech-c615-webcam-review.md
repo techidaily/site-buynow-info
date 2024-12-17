@@ -1,7 +1,7 @@
 ---
 title: Logitech C615 Webcam Review
-date: 2024-12-08T20:57:45.534Z
-updated: 2024-12-10T20:37:54.199Z
+date: 2024-12-13T11:55:03.889Z
+updated: 2024-12-17T12:40:30.350Z
 categories:
   - BestProducts
 description: This Article Describes Logitech C615 Webcam Review
@@ -17,6 +17,10 @@ thumbnail: https://www.lifewire.com/thmb/JYB77B4O-8sjMk3jYEtqv6y6tMI=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Antop AT-127
 
@@ -43,12 +47,16 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -82,7 +90,7 @@ Lifewire / Erika Rawes
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -105,10 +113,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Range: Could be better**
 
  My test home is in a rural area, and there’s a lot of tree cover on the property. The omnidirectional Antop AT-127 has a 40-mile range, which was enough to pick up local channels from neighboring cities.
@@ -117,21 +121,17 @@ Lifewire / Erika Rawes
 
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -174,14 +174,19 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-dissecting-the-capabilities-of-magixs-photo-manager/"><u>[New] In 2024, Dissecting the Capabilities of MAGIX's Photo Manager</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-highlighted-visions-is-intensified-lighting-the-future-of-hd-in-hdr/"><u>2024 Approved Highlighted Visions Is Intensified Lighting the Future of HD in HDR?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comparing-ipad-pro-and-macbook-pro-key-features-and-benefits/"><u>Comparing iPad Pro and MacBook Pro: Key Features & Benefits</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-asus-rog-gt-cdn5300-the-ideal-choice-for-gaming-and-tech-enthusiasts/"><u>Comprehensive Guide to Asus ROG GT-CDN5300: The Ideal Choice for Gaming and Tech Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elevating-your-senses-with-huawei-mediapad-m5-an-unmatched-audio-visual-delight/"><u>Elevating Your Senses with Huawei MediaPad M5 – An Unmatched Audio-Visual Delight</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-apples-latest-innovation-the-series-6-an-enhancement-that-maintains-leadership/"><u>Evaluating Apple's Latest Innovation: The Series 6 - An Enhancement That Maintains Leadership</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-obtain-pristine-photo-sets-for-free-use/"><u>In 2024, Obtain Pristine Photo Sets for Free Use</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-quick-video-value-calculation-tools/"><u>In 2024, Quick Video Value Calculation Tools</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/unparalleled-photo-restoration-app/"><u>Unparalleled Photo Restoration App</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-hours-of-content-convert-to-gb-figure/"><u>[New] Hours of Content Convert to GB Figure</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-high-quality-video-communication-ranking-the-top-10-mobile-apps/"><u>[Updated] High-Quality Video Communication Ranking the Top 10 Mobile Apps</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-vivo-y100t-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Vivo Y100t</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-midland-lxt500vp3-radio-a-wealth-of-features-yet-falls-short-in-performance/"><u>Comprehensive Analysis of Midland LXT500VP3 Radio: A Wealth of Features, Yet Falls Short in Performance</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/effortless-tips-on-how-to-reset-and-wipe-out-information-on-an-iphone-device/"><u>Effortless Tips on How to Reset and Wipe Out Information on an iPhone Device</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-oppo-a78-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Oppo A78 FRP Without Computer</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-taking-charge-stop-instagram-suggested-posts/"><u>In 2024, Taking Charge Stop Instagram Suggested Posts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-kobo-clara-color-e-reader-analysis/"><u>In-Depth Kobo Clara Color E-Reader Analysis</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/m1s-impact-on-video-editing-software-performance-for-2024/"><u>M1's Impact on Video Editing Software Performance for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/runners-choice-in-depth-garmin-forerunner/"><u>Runner's Choice: In-Depth Garmin Forerunner</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/slideshow-magic-with-final-cut-pro-tips-tricks-and-techniques-for-2024/"><u>Slideshow Magic with Final Cut Pro Tips, Tricks, and Techniques for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-amazfit-helio-ring-unveiled-insights-into-price-points-release-info-and-device-specs/"><u>The Amazfit Helio Ring Unveiled: Insights Into Price Points, Release Info & Device Specs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-the-rca-video-doorbell-a-detailed-product-review/"><u>Unboxing & Testing the RCA Video Doorbell - A Detailed Product Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-lamicall-s-tablet-stand-a-synergy-of-style-and-functionality/"><u>Unveiling Lamicall S Tablet Stand: A Synergy of Style and Functionality</u></a></li>
 </ul></div>
 

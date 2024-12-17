@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Evaluation of the Portable Lenovo Ideapad ^320 - Featuring Lenovo’s Signature Keyboard Experience
-date: 2024-12-10T06:51:06.204Z
-updated: 2024-12-10T21:52:49.108Z
+date: 2024-12-10T10:54:49.735Z
+updated: 2024-12-17T00:05:23.231Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Evaluation of the Portable Lenovo Ideapad ^320 - Featuring Lenovo’s Signature Keyboard Experience
@@ -18,13 +18,13 @@ thumbnail: https://www.lifewire.com/thmb/G1oG26gp57YAB7fy1gGV5fHuw8Q=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -50,10 +50,6 @@ Lifewire / Todd Braylor
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Todd Braylor
 
 [View On Amazon $280](https://www.amazon.com/dp/B019HF60EI/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7CB019HF60EI) [View On Walmart $140](https://www.walmart.com/ip/Escort-Passport-S55-High-Performance-Pro-Radar-and-Laser-Detector-w-DSP/49140972)
@@ -75,6 +71,10 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -86,7 +86,7 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easy installation**
@@ -96,7 +96,7 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Range: Impressive detection**
@@ -113,15 +113,15 @@ Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
@@ -164,24 +164,15 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-invisible-spectator-of-fb-tales/"><u>[Updated] 2024 Approved Invisible Spectator of FB Tales</u></a></li>
-<li><a href="https://win-extraordinary.techidaily.com/kingston-ssd/"><u>如何選擇最佳的Kingston SSD 無償克隆與遷移工具</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/cannot-play-mkv-files-on-14-ultra-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Cannot play MKV files on 14 Ultra</u></a></li>
-<li><a href="https://program-issues.techidaily.com/conquer-multiversus-stability-issues-with-our-top-8-fixing-techniques/"><u>Conquer MultiVersus Stability Issues with Our Top 8 Fixing Techniques</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fixing-the-corsair-icue-interface-malfunction-on-windows-11-systems/"><u>Fixing the Corsair iCUE Interface Malfunction on Windows 11 Systems</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-from-iphone-6-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code From iPhone 6 in the Best Ways</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-an-airtag-from-your-apple-id-account-from-iphone-15-by-drfone-ios/"><u>In 2024, How to Remove an AirTag from Your Apple ID Account From iPhone 15?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-xiaomi-14-pro-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Xiaomi 14 Pro to iPod | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-yokus-island-express-where-great-odysseys-begin/"><u>In-Depth Look at Yoku's Island Express: Where Great Odysseys Begin</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ipad-kindle-and-nook-face-off-determining-your-best-electronic-companer/"><u>IPad, Kindle & Nook Face-Off: Determining Your Best Electronic Companer</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-the-netgear-c3000-modemrouter-a-relic-comparing-its-capabilities-to-modern-network-gear/"><u>Is The Netgear C3000 Modem/Router a Relic? Comparing Its Capabilities to Modern Network Gear</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/logitechs-surround-sound-revolution-pro-xs-game-changer/"><u>Logitech's Surround Sound Revolution: Pro X’s Game Changer</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mighty-performance-of-the-beatit-bt-d11-portable-power-station/"><u>Mighty Performance of the Beatit BT-D11 Portable Power Station</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/must-know-checkpoints-before-buying-revamped-laptops/"><u>Must-Know Checkpoints Before Buying Revamped Laptops</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/premium-portable-nikon-sb-700-light-review/"><u>Premium Portable Nikon SB-700 Light Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ps5s-godfall-when-anticipation-meets-an-underwhelming-gaming-experience/"><u>PS5's Godfall: When Anticipation Meets an Underwhelming Gaming Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-microsofts-flight-simulator-x-gold-edition-an-unrivaled-journey-through-the-skies/"><u>Review of Microsoft's Flight Simulator X: Gold Edition – An Unrivaled Journey Through the Skies</u></a></li>
-<li><a href="https://os-tips.techidaily.com/step-by-step-guide-erasing-your-whatsapp-presence-on-ios-devices/"><u>Step-by-Step Guide: Erasing Your WhatsApp Presence on iOS Devices</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210850094-9781504085694-the-sorcerers-handbook/"><u>The Sorcerer's Handbook | Free Book</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-mastering-insta-reels-with-tiktok-techniques-for-massive-shares/"><u>[New] Mastering Insta Reels with TikTok Techniques for Massive Shares</u></a></li>
+<li><a href="https://fox-search.techidaily.com/datei-ruckgewinnung-unter-windows-10-schnell-und-effizient/"><u>Datei-Rückgewinnung Unter Windows 10: Schnell Und Effizient</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-microsoftcu-portable-cost-effective-solution-with-the-new-laptop-go-our-comprehensive-review/"><u>Discover Microsoft'cu Portable, Cost-Effective Solution with the New Laptop Go - Our Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/empower-your-devices-anywhere-with-zmi-powerpack-20k-an-authoritative-product-review/"><u>Empower Your Devices Anywhere with ZMI PowerPack 20K – An Authoritative Product Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-power-of-apple-m4-microchip-insight-into-its-imminent-release-and-technical-data-sheet/"><u>Explore the Power of Apple M4 Microchip - Insight Into Its Imminent Release & Technical Data Sheet</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/guide-to-moving-videos-effortlessly-from-ios-to-android-galaxy-smartphones/"><u>Guide to Moving Videos Effortlessly From iOS to Android Galaxy Smartphones</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-modern-computing-a-deep-dive-into-toms-hardware-insights/"><u>Mastering Modern Computing: A Deep Dive Into Tom's Hardware Insights</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/optimal-techniques-for-capturing-high-quality-voip-conversations/"><u>Optimal Techniques for Capturing High-Quality VoIP Conversations</u></a></li>
+<li><a href="https://facebook.techidaily.com/tethered-to-trust-a-dive-into-cryptocurrency-stability-coins/"><u>Tethered to Trust: A Dive Into Cryptocurrency Stability Coins</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-8-must-play-mobile-games/"><u>Top 8 Must-Play Mobile Games</u></a></li>
 </ul></div>
 

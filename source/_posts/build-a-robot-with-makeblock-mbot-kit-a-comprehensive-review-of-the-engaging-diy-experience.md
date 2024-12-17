@@ -1,7 +1,7 @@
 ---
 title: "Build-a-Robot with Makeblock mBot Kit: A Comprehensive Review of the Engaging DIY Experience"
-date: 2024-12-09T06:25:26.009Z
-updated: 2024-12-11T07:52:47.589Z
+date: 2024-12-16T04:10:13.228Z
+updated: 2024-12-16T23:30:01.119Z
 categories:
   - BestProducts
 description: "This Article Describes Build-a-Robot with Makeblock mBot Kit: A Comprehensive Review of the Engaging DIY Experience"
@@ -45,6 +45,10 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/0gXsFyigpZzsnNAEj3tIrKImB8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Jonno Hill
 
 [View On Amazon $35](https://www.amazon.com/dp/B01HQ4BRIG/?tag=lifewire-onsite-prod-20&ascsubtag=4843098%7Cnd0143d72158b4d609e6ef9a213c7445e18%7CB01HQ4BRIG) [View On Walmart $33](https://www.walmart.com/ip/Antennas-Direct-ECL-Clear-Stream-Eclipse-Sure-Grip-Indoor-HDTV-Antenna/146091443?slfpid=3)
@@ -68,19 +72,15 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/AbdriPZwiRfd8iHxT9N5E6Ae2hk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_03-d434cf7b4c5f4f73b08c8c220fd0d43e.jpg)
 
- Lifewire / Jonno Hill
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Jonno Hill
 
 ## **Design: Inoffensive but unexceptional**
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup: Simple and easy**
 
@@ -91,12 +91,16 @@ Lifewire / Jonno Hill
  Luckily the ClearStream Eclipse Antenna comes with a 12ft coaxial cable, so next simply attach the cable to both the antenna and your TV. Make sure to run a channel scan first for best results.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Above average**
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Range: Fair to middling**
 
@@ -104,11 +108,11 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Not bad for the performance**
 
@@ -123,10 +127,6 @@ Lifewire / Jonno Hill
 **The best unpowered indoor antenna.**
 
  The ClearStream Eclipse is one of the best options for buyers looking for a new indoor antenna. It performed better than a lot of the competition, despite being far simpler. Budget shoppers have other cheaper options to consider, but this one is perhaps the best combination of price, performance, and ease-of-use.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -155,24 +155,24 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-how-to-choose-between-filmora-and-democreator-in-2024/"><u>[New] How to Choose Between Filmora and Democreator, In 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-achieve-stunning-visual-impact-top-color-grading-tutorials/"><u>[New] In 2024, Achieve Stunning Visual Impact - Top Color Grading Tutorials</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-state-of-the-art-gametime-documentation-tools/"><u>[Updated] 2024 Approved State-of-the-Art Gametime Documentation Tools</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-respond-to-a-youtube-copyright-claim-best-practices/"><u>[Updated] In 2024, How to Respond to a YouTube Copyright Claim Best Practices</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-navigating-through-time-with-historical-fb-features-device-guide/"><u>2024 Approved Navigating Through Time with Historical FB Features Device Guide</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-overcoming-obs-blank-screens-in-gaming-recording/"><u>2024 Approved Overcoming OBS Blank Screens in Gaming Recording</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-finest-retailers-for-purchasing-your-next-laptop/"><u>Discover the Finest Retailers for Purchasing Your Next Laptop</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-ultimate-6-organizers-leading-journal-apps-reviewed/"><u>Discover the Ultimate 6 Organizers: Leading Journal Apps Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/enhancing-gaming-experience-strategic-placement-of-your-playstation-4-webcam/"><u>Enhancing Gaming Experience: Strategic Placement of Your PlayStation 4 Webcam</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-the-future-with-a-netatmo-weather-station-an-ultimate-guide-for-smartphone-users/"><u>Experience the Future with a Netatmo Weather Station – An Ultimate Guide for Smartphone Users</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-about-infinix-note-30-pro-frp-bypass-by-drfone-android/"><u>In 2024, About Infinix Note 30 Pro FRP Bypass</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-luminous-iphone-videos-three-quick-tips/"><u>In 2024, Luminous iPhone Videos Three Quick Tips</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-michael-kors-elegant-gen-5e-mkgo-watch-merging-traditional-luxury-with-modern-smarts/"><u>In-Depth Analysis of Michael Kors' Elegant Gen 5E MKGO Watch – Merging Traditional Luxury with Modern Smarts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/lenovos-ideapad-130s-in-depth-review-modest-power-with-unexpected-user-experience/"><u>Lenovo's IdeaPad 130S In-Depth Review: Modest Power with Unexpected User Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/marvels-spider-man-sequel-review-a-deeper-dive-with-miles-morales/"><u>Marvel's Spider-Man Sequel Review: A Deeper Dive with Miles Morales</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-your-amazon-prime-experience-with-toshibas-55lf711u20-fire-tv-reviewed/"><u>Maximizing Your Amazon Prime Experience with Toshiba's 55LF711U20 Fire TV Reviewed!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-the-performance-peaks-and-valleys-a-detailed-guide-to-seatechs-portable-external-blu-ray-writer/"><u>Navigating the Performance Peaks and Valleys: A Detailed Guide to SeaTech's Portable External Blu-Ray Writer</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/question-format/"><u>Question Format</u></a></li>
-<li><a href="https://windows11.techidaily.com/unlocking-memory-integrity-on-windows-11-methods-77/"><u>Unlocking Memory Integrity on Windows 11: Methods 7/7</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-integrating-multimedia-elements-for-engaging-facebook-slideshows/"><u>[New] In 2024, Integrating Multimedia Elements for Engaging Facebook Slideshows</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-rotating-the-ripple-effect-mastering-instagrams-video-manipulation-art/"><u>[New] In 2024, Rotating the Ripple Effect Mastering Instagram's Video Manipulation Art</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-phones-speed-up-sound-essential-app-listing/"><u>[New] Phones’ Speed Up Sound Essential App Listing</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-action-cam-aesthetics-top-15-high-impact-gopro-lut-choices/"><u>[Updated] Action Cam Aesthetics Top 15 High-Impact GOPRO LUT Choices</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-best-tools-for-animating-with-3d-models-for-2024/"><u>[Updated] Best Tools for Animating with 3D Models for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-video-doorbells-under-50-iseebell-review/"><u>Affordable Video Doorbells Under $50 - ISeeBell Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-conscious-pets-top-reviews-on-smart-cameras/"><u>Budget-Conscious Pets: Top Reviews on Smart Cameras</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-oculus-quest-2-accessory-guide-featuring-the-elite-strap-with-built-in-battery-and-durable-carry-case/"><u>Comprehensive Oculus Quest 2 Accessory Guide: Featuring the Elite Strap with Built-In Battery & Durable Carry Case</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-practical-uses-for-the-innovative-ampasys-andes-1500-compact-generator/"><u>Discovering Practical Uses for the Innovative Ampasys Andes 1500 Compact Generator</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-seamless-ride-of-mods-newest-compact-and-portable-escooter/"><u>Exploring the Seamless Ride of Mod's Newest Compact and Portable eScooter</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1726027506252-gopro/"><u>GoProビデオ解像度調整の徹底ガイド</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Realme C55? | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-the-ez-grabber-user-manual-in-a-nutshell/"><u>In 2024, The EZ Grabber User Manual in a Nutshell</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-usb-wi-fi-dongles-for-seamless-internet-connectivity/"><u>Leading USB Wi-Fi Dongles for Seamless Internet Connectivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rev-up-your-playtime-in-depth-look-at-holy-stones-cartoon-rc-race-car-for-the-whole-family/"><u>Rev Up Your Playtime: In-Depth Look at Holy Stone's Cartoon RC Race Car for the Whole Family</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-intricate-tale-of-nixplays-photo-frames-highlights-and-hindrances/"><u>The Intricate Tale of Nixplay's Photo Frames: Highlights and Hindrances</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/transform-your-images-on-os-x-and-linux-using-this-gratis-darkroom-suite-darktable/"><u>Transform Your Images on OS X and Linux Using This Gratis Darkroom Suite - Darktable</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/transition-from-phone-videos-to-televisual-viewing-for-2024/"><u>Transition From Phone Videos to Televisual Viewing for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unexpected-joy-in-off-world-construction-how-mars-urban-missteps-became-a-vortex-of-vibrance/"><u>Unexpected Joy in Off-World Construction: How Mars' Urban Missteps Became a Vortex of Vibrance</u></a></li>
 </ul></div>
 

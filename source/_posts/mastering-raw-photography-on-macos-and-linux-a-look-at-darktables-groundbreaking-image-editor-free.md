@@ -1,7 +1,7 @@
 ---
 title: "Mastering Raw Photography on macOS & Linux: A Look at Darktable's Groundbreaking Image Editor (Free)"
-date: 2024-12-07T19:10:07.620Z
-updated: 2024-12-10T21:52:22.330Z
+date: 2024-12-12T02:45:51.861Z
+updated: 2024-12-17T02:14:52.794Z
 categories:
   - BestProducts
 description: "This Article Describes Mastering Raw Photography on macOS & Linux: A Look at Darktable's Groundbreaking Image Editor (Free)"
@@ -40,10 +40,6 @@ Lifewire / Gannon Burgett
 
 3.5
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## SunBriteTV Weatherproof Outdoor 55-Inch Veranda (2nd Gen)
 
 ![SunBriteTV 55-Inch Veranda 4K TV](https://www.lifewire.com/thmb/srDs47vmZPXcVAqFGXrMcO_CJi8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SunBrite_55inch_OutdoorTV_2LW4154865_HERO_Square-c68f638988064b98b6d844f1c9b06c47.jpg)
@@ -70,7 +66,7 @@ Lifewire / Gannon Burgett
  For this review, I put SunBrite’s 55-inch Veranda 4K TV to the test to see how well it would hold up to in the chilliest of environments. Over the course of 30 hours of on-and-off use throughout the month of January, I took notes of the TV’s strengths and weaknesses and have summarized my thoughts below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Bulky, but durable**
@@ -85,11 +81,11 @@ Lifewire / Gannon Burgett
 
 ![SunBriteTV 55-Inch Veranda 4K TV](https://www.lifewire.com/thmb/rdbdKiGTwmhltgpXlFZprX8UxRo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SunBrite_55inch_OutdoorTV_2LW4154865_06_Horiz-077a34626106476491659d025e498885.jpg)
 
+ Lifewire / Gannon Burgett
+
 <!-- affiliate ads begin -->
 <iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
- Lifewire / Gannon Burgett
 
 ## **Durability: Come hell or high water**
 
@@ -130,13 +126,13 @@ Lifewire / Gannon Burgett
 ![SunBriteTV 55-Inch Veranda 4K TV](https://www.lifewire.com/thmb/gWc18UfkuRaLKxubOAFv0zceMlU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SunBrite_55inch_OutdoorTV_2LW4154865_17_Horiz-e1118b39b8ae43f5a135c249d3d6f741.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Not cheap, but worth it**
@@ -158,6 +154,10 @@ Lifewire / Gannon Burgett
  **A great outdoor TV for durability, but not the best image quality.**
 
  Overall, the SunBrite 55 Veranda is a fantastic outdoor TV that seems to withstand nearly anything you can throw at it (both literally and metaphorically). Sure, the price is absurd compared to a standard 4K HDR TV, but an outdoor TV takes extra work to prepare for the elements and that extra time and material comes with a cost.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -190,24 +190,15 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-top-choice-microphones-for-youtube-creators/"><u>[New] 2024 Approved Top Choice Microphones for YouTube Creators</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-elevate-your-earnings-on-social-media-youtube-mastery-on-the-networking-powerhouse/"><u>[New] Elevate Your Earnings on Social Media YouTube Mastery on the Networking Powerhouse</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-essential-top-6-digital-engagement-channels-for-companies-for-2024/"><u>[New] Essential Top 6 Digital Engagement Channels for Companies for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-unlink-from-youtube-shorts-follow-this-plan/"><u>[New] Unlink From YouTube Shorts - Follow This Plan</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-ensuring-clear-sound-with-proper-obs-configurations-for-2024/"><u>[Updated] Ensuring Clear Sound with Proper OBS Configurations for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-high-definition-pet-cam-a-closer-look-at-petcube/"><u>Affordable High Definition Pet Cam: A Closer Look at Petcube</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/budget-friendly-and-compact-the-ultimate-samsung-galaxy-s10e-assessment/"><u>Budget-Friendly and Compact: The Ultimate Samsung Galaxy S10e Assessment</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-samsung-galaxy-a05s-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Samsung Galaxy A05s | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-breaking-into-livestrances-a-gamers-guide-to-youtube-success/"><u>In 2024, Breaking Into Livestrances A Gamers' Guide to YouTube Success</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-vivo-v27e-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Vivo V27e? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-messages-from-moto-g14-by-fonelab-android-recover-messages/"><u>Possible solutions to restore deleted messages from Moto G14</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/travel-friendly-raspberry-pi-gaming-stations-for-event-goers/"><u>Travel-Friendly Raspberry Pi Gaming Stations for Event Goers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-amazonbasics-7-port-usb-30-hub-top-reviews-and-features/"><u>Ultimate Guide to AmazonBasics 7-Port USB 3.0 Hub - Top Reviews & Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-samsung-cf591-gaming-performance-and-value-assessment/"><u>Ultimate Guide: Samsung CF591 Gaming Performance and Value Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-the-third-generation-apple-tv-4k-streamer/"><u>Unboxing and Testing the Third Generation Apple TV 4K Streamer</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unfolding-the-potential-and-pitfalls-of-the-new-lenovo-thinkpad-x1-fold-laptop/"><u>Unfolding the Potential and Pitfalls of the New Lenovo ThinkPad X1 Fold Laptop</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-cinema-magic-explore-the-best-websites-for-movie-trailers/"><u>Unveiling Cinema Magic: Explore the Best Websites for Movie Trailers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-visual-brilliance-of-the-49-inch-sony-xbr49x900f-4k-led-smart-television-expert-review/"><u>Unveiling the Visual Brilliance of the 49-Inch Sony XBR49X900F 4K LED Smart Television: Expert Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722641134533-xiaomi-mi-smart-band-4-the-ultimate-budget-fitness-tracker-review-why-its-my-choice/"><u>Xiaomi Mi Smart Band 4: The Ultimate Budget Fitness Tracker Review – Why It's My Choice</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-advanced-sticker-solutions-for-digital-videographers-on-tiktok/"><u>[New] Advanced Sticker Solutions for Digital Videographers on TikTok</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-breaking-boundaries-with-eizos-spectaculous-cg318-4k/"><u>[New] In 2024, Breaking Boundaries with EIZO's Spectaculous CG318-4K</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-a-closer-look-at-instagram-stories-beyond-the-screen/"><u>[Updated] 2024 Approved A Closer Look at Instagram Stories Beyond the Screen</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-enjoying-the-journey-discovering-pexels-treasures-for-2024/"><u>[Updated] Enjoying the Journey Discovering Pexels' Treasures for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-essential-fb-video-loader-apps-ranked-5/"><u>[Updated] In 2024, Essential FB Video Loader Apps Ranked #5</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/breaking-down-the-efficacy-of-mohus-blade-antenna-a-closer-review-on-its-stylish-appearance-and-superior-indoor-signal-quality/"><u>Breaking Down The Efficacy of Mohu's Blade Antenna - A Closer Review on Its Stylish Appearance & Superior Indoor Signal Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/high-end-wifi-weather-observer-ws-1e1002-review-superior-quality-expensive-investment/"><u>High-End WiFi Weather Observer WS-1e1002 Review: Superior Quality, Expensive Investment</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/ideal-tags-elevating-your-contents-discovery-potential-for-2024/"><u>Ideal Tags Elevating Your Content's Discovery Potential for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-5-advantages-is-subscribing-to-youtube-tv-a-smart-move/"><u>Top 5 Advantages: Is Subscribing to YouTube TV a Smart Move?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-weather-monitoring-applications-in-2e24/"><u>Top-Rated Weather Monitoring Applications in 2E24</u></a></li>
 </ul></div>
 

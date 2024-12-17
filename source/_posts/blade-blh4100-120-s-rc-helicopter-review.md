@@ -1,7 +1,7 @@
 ---
 title: Blade BLH4100 120 S RC Helicopter Review
-date: 2024-12-05T01:02:41.114Z
-updated: 2024-12-10T19:16:18.690Z
+date: 2024-12-14T04:37:05.835Z
+updated: 2024-12-16T20:39:09.476Z
 categories:
   - BestProducts
 description: This Article Describes Blade BLH4100 120 S RC Helicopter Review
@@ -18,16 +18,12 @@ thumbnail: https://www.lifewire.com/thmb/0k72WSI9zpSx_0NVgOzieZdbYDg=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Omni 20+ Wireless Power Bank
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/0PqspYn0Ny1UT0fFzdIhza4naCk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-HERO-SQ-e459d44e1a2c432f80fec058b858ccfe.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -53,9 +49,17 @@ Lifewire / Jeremy Laukkonen
 
 4.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Omni 20+ Wireless Power Bank
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/_EV0MTLRfFPHdqFJ2gKyMJff5YY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-HERO-SQ-e459d44e1a2c432f80fec058b858ccfe.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -85,10 +89,6 @@ Lifewire / Jeremy Laukkonen
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/lFGiT6009F_OKGOJ-sLcNKNylt0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-2-9a3217b3ee154a3ebcb38e61aac3be52.jpg)
 
  Lifewire / Jeremy Laukkonen
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Design: Slick all-black appearance that’s dulled a bit by soft-touch rubber**
 
@@ -120,11 +120,19 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Display: Crisp and easy to read, but confusing**
 
  The display is small, but it’s quite bright and easy to read. The only issue is that it isn’t particularly easy to figure out what the individual icons mean, or how to use the display to change input and output settings, without referring to an instruction manual that isn’t included in the box.
 
  I’ve already covered the issue with the manual in the previous section, so suffice it to say I recommend avoiding frustration and just downloading the manual from the Omnicharge website rather than trying to figure out the display and controls on your own.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Sockets and Ports: Excellent array, including wireless**
 
@@ -156,15 +164,7 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/aZDfINCcUg9uIHRuhVr2k3wmX94=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-1-815fe3c777eb4f46a77cb00127bd88c2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Charging Speed: True fast charging available for some USB-C devices**
 
@@ -181,7 +181,7 @@ Lifewire / Jeremy Laukkonen
  The built-in Qi charger is capable of putting out 10 watts, and I found it to work just as well as other 10 watt Qi chargers I’ve used. It is a bit touchy in terms of positioning, but I was able to get the hang of it pretty fast.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: High end**
@@ -230,18 +230,16 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-capturing-life-in-high-res-chromatic-shades-with-4k/"><u>2024 Approved Capturing Life in High-Res Chromatic Shades with 4K</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-reignite-drive-the-ultimate-inspiration-list/"><u>2024 Approved Reignite Drive The Ultimate Inspiration List</u></a></li>
-<li><a href="https://extra-information.techidaily.com/balancing-visual-elements-with-ideal-video-ratios-for-2024/"><u>Balancing Visual Elements with Ideal Video Ratios for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-j5-pro-a-miniaturized-indestructible-night-vision-tool-reviewed-for-ultimate-brightness-and-portability/"><u>Exploring the J5 Pro: A Miniaturized, Indestructible Night Vision Tool Reviewed for Ultimate Brightness & Portability</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-next-level-of-e-reading-with-amazons-kindle-oasis-2019/"><u>Exploring the Next Level of E-Reading with Amazon's Kindle Oasis (2019)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-performance-of-netgears-nighthawk-c7000-a-superior-modem-reviewed/"><u>Exploring the Performance of Netgear's Nighthawk C7000: A Superior Modem Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/hitman-3-evaluation-the-ultimate-conclusion-of-the-iconic-series/"><u>Hitman 3 Evaluation: The Ultimate Conclusion of the Iconic Series</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-nokia-72-outshining-competitors-among-mid-range-devices/"><u>In Depth Look at Nokia 7.2: Outshining Competitors Among Mid-Range Devices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-ring-video-doorbell-pro-the-intelligent-home-security-choice/"><u>In-Depth Analysis of Ring Video Doorbell Pro: The Intelligent Home Security Choice</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-the-ultimate-list-of-mac-video-metadata-editors-top-picks-for-2024/"><u>New The Ultimate List of Mac Video Metadata Editors Top Picks for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/passfab-apple-iphone-xs-max-backup-unlocker-top-4-alternatives-by-drfone-ios/"><u>PassFab Apple iPhone XS Max Backup Unlocker Top 4 Alternatives</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/private-chronicles-in-snapchat-an-essential-guide/"><u>Private Chronicles in Snapchat An Essential Guide</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-rated-magsafe-chargers-comprehensive-reviews-by-tech-experts-zdnet/"><u>Top-Rated MagSafe Chargers : Comprehensive Reviews by Tech Experts | ZDNet</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-launch-free-youtube-events-a-step-by-step-guide/"><u>[New] Launch Free Youtube Events A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-elevate-your-gaming-experience-with-unique-sound-alteration-techniques-for-a-competitive-edge-no-cost/"><u>2024 Approved Elevate Your Gaming Experience with Unique Sound Alteration Techniques for a Competitive Edge (No Cost!)</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exclusive-roundup-the-top-5-iphone-compatible-podcasts/"><u>2024 Approved Exclusive Roundup The Top 5 iPhone-Compatible Podcasts</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-professional-touch-applying-filters-to-pcmobile-videos/"><u>In 2024, Professional Touch Applying Filters to PC/Mobile Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-and-insights-on-the-large-screen-nook-ereader-by-barnes-and-noble/"><u>In-Depth Analysis and Insights on the Large-Screen Nook eReader by Barnes & Noble</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-the-premium-18000mah-m-mock-1000a-vehicle-jump-starter-unrivaled-option-for-drivers/"><u>In-Depth Review of the Premium 18000mAh M MOCK 1000A Vehicle Jump Starter: Unrivaled Option for Drivers</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/investigating-aol-mail-problems-how-to-tell-if-its-a-general-downtvein-or-personal-internet-concern/"><u>Investigating AOL Mail Problems: How to Tell If It's a General Downtvein or Personal Internet Concern.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovo-tab-m10-fhd-plus-2020-review-big-beautiful-display-on-a-budget/"><u>Lenovo Tab M10 FHD Plus (2020) Review: Big, Beautiful Display On a Budget</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/revealing-10-mixer-marvels-perfected-for-professional-podcasting-for-2024/"><u>Revealing 10 Mixer Marvels, Perfected For Professional Podcasting for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/score-the-hp-victus-15-gaming-laptop-at-an-unbeatable-price-just-515-during-best-buys-prime-day-special-find-out-why-on-zdnet/"><u>Score the HP Victus 15 Gaming Laptop at an Unbeatable Price: Just $515 During Best Buy's Prime Day Special – Find Out Why on ZDNet!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-amazfit-gts-unveiled-assessing-fashion-forward-features-in-athletic-wearables/"><u>The Amazfit GTS Unveiled: Assessing Fashion-Forward Features in Athletic Wearables</u></a></li>
 </ul></div>
 

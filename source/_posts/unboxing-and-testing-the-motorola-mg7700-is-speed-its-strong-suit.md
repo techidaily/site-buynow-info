@@ -1,7 +1,7 @@
 ---
 title: "Unboxing and Testing the Motorola MG7700: Is Speed Its Strong Suit?"
-date: 2024-12-08T00:03:19.808Z
-updated: 2024-12-11T06:29:52.097Z
+date: 2024-12-14T04:16:56.356Z
+updated: 2024-12-17T02:18:09.511Z
 categories:
   - BestProducts
 description: "This Article Describes Unboxing and Testing the Motorola MG7700: Is Speed Its Strong Suit?"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/b595b9543db0254b21054bd69b8ec2973757e8ec7
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/AjVVBONBD_MfQeA3voTlfDA2Jrc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -52,7 +48,7 @@ thumbnail: https://thmb.techidaily.com/b595b9543db0254b21054bd69b8ec2973757e8ec7
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -74,10 +70,6 @@ thumbnail: https://thmb.techidaily.com/b595b9543db0254b21054bd69b8ec2973757e8ec7
 
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -87,6 +79,10 @@ thumbnail: https://thmb.techidaily.com/b595b9543db0254b21054bd69b8ec2973757e8ec7
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Humans have never been so annoying**
 
@@ -101,6 +97,10 @@ thumbnail: https://thmb.techidaily.com/b595b9543db0254b21054bd69b8ec2973757e8ec7
  In over twenty hours of gameplay, I learned the hard way that humans in this game are not only picky, but they demand the life of luxury the second they step off the rocket and into the dome. It didn’t matter that only twelve called a single dome home. It didn’t matter that there was barely enough of them to cover operating the grocery store and space bar. A lack of space for these amenities fell upon deaf ears. They wanted access to their art stores, electronics, and fine dining immediately. In that regard, I’m a little conflicted; as much as I wanted more shopping options for Mars, I realized not long after humans arrived that Haemimont Games, in reality, gave me a blessing by keeping a bland palate. Plus, more buildings and items become available as research, funding, and planetary discoveries allow.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -120,6 +120,10 @@ thumbnail: https://thmb.techidaily.com/b595b9543db0254b21054bd69b8ec2973757e8ec7
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
@@ -127,7 +131,7 @@ thumbnail: https://thmb.techidaily.com/b595b9543db0254b21054bd69b8ec2973757e8ec7
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -143,10 +147,6 @@ thumbnail: https://thmb.techidaily.com/b595b9543db0254b21054bd69b8ec2973757e8ec7
  **A interesting new take on city-builders, if you can stomach the micromanagement.**
 
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -175,20 +175,18 @@ thumbnail: https://thmb.techidaily.com/b595b9543db0254b21054bd69b8ec2973757e8ec7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-ideal-choice-12-superior-clicking-adventures-on-your-pc/"><u>[New] Ideal Choice 12 Superior Clicking Adventures on Your PC</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-perfect-patches-backgrounds-for-online-streaming/"><u>2024 Approved Perfect Patches Backgrounds for Online Streaming</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-realme-10t-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Realme 10T 5G Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/a-week-with-an-ergonomic-split-keyboard-how-it-transformed-my-pc-setup-techradar/"><u>A Week with an Ergonomic Split Keyboard – How It Transformed My PC Setup | TechRadar</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-18-quick-and-inspiring-ideas-to-try-in-your-vlog/"><u>In 2024, 18 Quick and Inspiring Ideas to Try in Your Vlog</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-different-methods-to-unlock-your-apple-iphone-xs-max-by-drfone-ios/"><u>In 2024, Different Methods To Unlock Your Apple iPhone XS Max</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-vivo-y100-5g-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Vivo Y100 5G FRP</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-5-vpn-services-ideal-for-enhanced-privacy-on-youtube/"><u>Top 5 VPN Services Ideal for Enhanced Privacy on YouTube</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-six-e-commerce-sites-where-youll-find-the-ideal-televisions/"><u>Top Six E-Commerce Sites Where You'll Find the Ideal Televisions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-asus-vivobook-flip-11-e510t-the-perfect-blend-of-style-performance-and-battery-life/"><u>Unboxing Asus VivoBook Flip 11 E510T - The Perfect Blend of Style, Performance & Battery Life</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-the-huawei-p286-pro-review-superior-photography-on-above-average-phone/"><u>Unboxing the Huawei P2#86-Pro Review – Superior Photography on Above-Average Phone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/unlock-youtube-star-status-becoming-a-self-assured-vlogger-for-2024/"><u>Unlock YouTube Star Status Becoming a Self-Assured Vlogger for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlocking-joy-with-pokemon-shining-pearl-a-gamers-guide-to-pleasure/"><u>Unlocking Joy with 'Pokémon Shining Pearl': A Gamer’s Guide to Pleasure</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-comfort-and-style-in-depth-analysis-of-the-x-chair-x4-executive-seat/"><u>Unveiling the Power of Comfort & Style: In-Depth Analysis of the X-Chair X4 Executive Seat</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-secrets-comprehensive-tutorial-on-using-preview-as-an-image-editor-on-macos/"><u>Unveiling the Secrets: Comprehensive Tutorial on Using Preview as an Image Editor on macOS</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-monetize-youtube-video-the-ultimate-guide-to-ad-revenue/"><u>[Updated] 2024 Approved Monetize YouTube Video | The Ultimate Guide to Ad Revenue</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-complete-checklist-for-youtube-metrics-mastery-views-and-dollars/"><u>[Updated] 2024 Approved The Complete Checklist for YouTube Metrics Mastery Views & Dollars</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-enhance-your-online-skills-a-guide-to-youtube-editing-via-sony-vegas/"><u>[Updated] Enhance Your Online Skills A Guide to YouTube Editing via Sony Vegas</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1-master-the-art-of-3d-printing-with-hairspray-a-must-have-technique-unveiled/"><u>1. Master the Art of 3D Printing with Hairspray: A Must-Have Technique Unveiled</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-unlocking-creative-potential-in-lyric-videos-with-lyric-video-maker/"><u>2024 Approved Unlocking Creative Potential in Lyric Videos with Lyric Video Maker</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/advantages-and-disadvantages-why-gamers-should-consider-vpn-use/"><u>Advantages & Disadvantages: Why Gamers Should Consider VPN Use</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-music-services-explained-contrasting-prime-vs-unlimited-offerings-for-streamers/"><u>Amazon Music Services Explained: Contrasting Prime Vs. Unlimited Offerings for Streamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/are-you-prepared-recognizing-the-signals-to-move-beyond-mobile-gaming-with-advanced-handheld-systems/"><u>Are You Prepared? Recognizing the Signals to Move Beyond Mobile Gaming with Advanced Handheld Systems</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-mastering-the-art-of-youtube-micro-clips/"><u>In 2024, Mastering the Art of YouTube Micro Clips</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximizing-stability-and-efficiency-an-expert-overview-of-advanced-power-protection-for-gamers-with-the-apg-unit/"><u>Maximizing Stability and Efficiency: An Expert Overview of Advanced Power Protection for Gamers with the APG Unit</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/microsoft-decides-against-adding-sudo-feature-in-windows-server-2025-insights-from-zdnet/"><u>Microsoft Decides Against Adding Sudo Feature in Windows Server 2025: Insights From ZDNet</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-guide-installing-the-samsung-nvme-controller-for-960-evo-on-windows-systems/"><u>Step-by-Step Guide: Installing the Samsung Nvme Controller for 960 EVO on Windows Systems</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/will-smart-bots-unsettle-seo-industry/"><u>Will Smart Bots Unsettle SEO Industry?</u></a></li>
 </ul></div>
 

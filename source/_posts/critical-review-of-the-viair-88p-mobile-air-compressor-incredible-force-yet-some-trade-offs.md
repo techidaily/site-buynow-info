@@ -1,7 +1,7 @@
 ---
 title: Critical Review of the Viair 88P Mobile Air Compressor - Incredible Force, Yet Some Trade-Offs
-date: 2024-12-03T22:13:09.971Z
-updated: 2024-12-11T05:05:53.282Z
+date: 2024-12-16T04:52:36.059Z
+updated: 2024-12-17T05:39:06.406Z
 categories:
   - BestProducts
 description: This Article Describes Critical Review of the Viair 88P Mobile Air Compressor - Incredible Force, Yet Some Trade-Offs
@@ -21,6 +21,10 @@ thumbnail: https://www.lifewire.com/thmb/ZevQObLlQ-0zecghfgF1_QfuuRw=/400x300/fi
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -42,13 +46,13 @@ Lifewire / Todd Braylor
 
 3.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -82,7 +86,7 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easy installation**
@@ -91,10 +95,6 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Range: Impressive detection**
 
  The Passport S55 features Enhanced Radar Protection that delivers long-distance range for laser and radar bands, including K and Ka bands, widely used microwave frequencies for police radar guns. It reliably delivers on its promise of long-distance sensitivity. While testing the S55 in Highway mode I received Ka-band alerts over a mile and a half out from where I approached a highway patrol parked on the median of the interstate. This range was on par with much more expensive models.
@@ -102,7 +102,7 @@ Lifewire / Todd Braylor
  It reliably delivers on its promise of long-distance sensitivity.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
@@ -113,15 +113,15 @@ Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
@@ -164,16 +164,24 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-how-to-block-facebook-video-ads/"><u>[New] How to Block Facebook Video Ads?</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-the-quintessential-selection-5-must-have-mac-snipers/"><u>[New] In 2024, The Quintessential Selection 5 Must-Have Mac Snipers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-quash-unwanted-youtube-suggested-videos/"><u>[Updated] Quash Unwanted YouTube Suggested Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-blocking-the-buzz-no-more-fb-video-ads/"><u>2024 Approved Blocking the Buzz No More FB Video Ads</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-nubia-red-magic-9-pro-drfone-by-drfone-android/"><u>How to Screen Mirroring Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/in-the-realm-of-ramblings-mistral-versus-gpt-3/"><u>In the Realm of Ramblings: Mistral Versus GPT-3</u></a></li>
-<li><a href="https://games-able.techidaily.com/1719168257558-step-into-the-fun-zone-engage-with-these-6-chatgpt-games/"><u>Step Into the Fun Zone: Engage With These 6 ChatGPT Games</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/test-drive-the-new-samsung-galaxy-buds-plus-in-depth-review-and-impressions/"><u>Test Drive the New Samsung Galaxy Buds Plus: In-Depth Review and Impressions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-alluring-world-of-affordable-dashcams-a-thorough-review-of-the-z-edge-z3-plus/"><u>The Alluring World of Affordable Dashcams - A Thorough Review of the Z-Edge Z3 Plus</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-dell-inspiron-3671-a-middle-of-the-road-desktop-examined-for-budget-conscious-users/"><u>The Dell Inspiron 3671: A Middle-of-the-Road Desktop Examined for Budget-Conscious Users</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-latest-microsoft-surface-pro-7-assessed-steady-performance-with-minor-updates/"><u>The Latest Microsoft Surface Pro 7 Assessed: Steady Performance with Minor Updates</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-payment-structure-behind-item-assessment-videos/"><u>[New] Payment Structure Behind Item Assessment Videos?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-pro-tips-for-capturing-stunning-close-up-footage/"><u>[Updated] In 2024, Pro Tips for Capturing Stunning Close-Up Footage</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-straightforward-guide-switch-video-direction-in-vlc/"><u>[Updated] In 2024, Straightforward Guide Switch Video Direction in VLC</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-unveiling-the-new-apeaksoft-screenscape-capture-for-2024/"><u>[Updated] Unveiling the New Apeaksoft Screenscape Capture for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/comprehensive-fixes-for-unresponsive-moments-during-a-session-of-fall-guys-on-desktop/"><u>Comprehensive Fixes for Unresponsive Moments During a Session of Fall Guys on Desktop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-overview-of-the-dell-inspiron-3671-desktop-a-balanced-standard-computing-solution/"><u>Comprehensive Overview of the Dell Inspiron 3671 Desktop - A Balanced, Standard Computing Solution</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Vivo V30? | Dr.fone</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/effiziente-losungsansatze-fur-festplattenpartitionen-in-windows-10/"><u>Effiziente Lösungsansätze Für Festplattenpartitionen in Windows 10</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-notes-from-iphone-15-pro-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Notes from iPhone 15 Pro? | Stellar</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expand-your-video-editing-toolkit-beyond-inshot/"><u>In 2024, Expand Your Video Editing Toolkit Beyond Inshot</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-vivo-y77t-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Vivo Y77t Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/key-factors-to-evaluate-when-purchasing-an-unlockable-mobile-device/"><u>Key Factors to Evaluate When Purchasing an Unlockable Mobile Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/most-efficient-and-durable-external-bd-drives-of-the-year-insights-into-2024-models/"><u>Most Efficient & Durable External BD Drives of the Year: Insights Into 2024 Models</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reliable-petfeast-six-serve-automatic-food-dispenser-consistent-nutrition/"><u>Reliable PetFeast Six-Serve Automatic Food Dispenser: Consistent Nutrition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sharing-is-caring-how-to-swap-games-with-friends-using-xbox-live-services/"><u>Sharing Is Caring - How to Swap Games With Friends Using Xbox Live Services</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/singing-machines-easy-to-use-and-vibrant-sml385btbk-the-best-plug-and-play-karaoke-system-on-the-market/"><u>Singing Machine's Easy-to-Use and Vibrant SML385BTBK: The Best Plug-and-Play Karaoke System on the Market</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-rise-of-chromecast-with-google-tv-is-it-time-for-firetv-users-to-switch/"><u>The Rise of Chromecast with Google TV - Is It Time for FireTV Users to Switch?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-picks-fujitsu-scansnap-ix1400-scanner-uncovered-essential-gadget-for-small-businesses-and-home-offices/"><u>Top Picks - Fujitsu ScanSnap iX1400 Scanner Uncovered: Essential Gadget for Small Businesses and Home Offices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/worth-your-time-and-money-discover-the-5-advantages-of-chatgpt-plus/"><u>Worth Your Time & Money? Discover the 5 Advantages of ChatGPT Plus</u></a></li>
 </ul></div>
 

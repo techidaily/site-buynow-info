@@ -1,7 +1,7 @@
 ---
 title: "The Economic Speedy Flash: Introducing the Affordable & Feature-Rich YN560IV"
-date: 2024-12-07T18:14:19.692Z
-updated: 2024-12-11T08:26:19.831Z
+date: 2024-12-15T20:41:53.466Z
+updated: 2024-12-17T03:23:29.842Z
 categories:
   - BestProducts
 description: "This Article Describes The Economic Speedy Flash: Introducing the Affordable & Feature-Rich YN560IV"
@@ -18,12 +18,16 @@ thumbnail: https://thmb.techidaily.com/b522bd70ce2a83bf8e8f7f86960d2837c426a969d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Nintendo Game & Watch: Super Mario Bros
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/CbS7qDMrVVuRiuPL-4w-ip5Ked0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_HeroSquare-c0176be04bfb4d83b2f7724b1332c18b.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
@@ -47,16 +51,12 @@ Lifewire / Emily Isaacs
 
 4.5
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Nintendo Game & Watch: Super Mario Bros
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/Gqz0Wb1wB-1ecipbSoEbqeuT3EU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_HeroSquare-c0176be04bfb4d83b2f7724b1332c18b.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
@@ -81,6 +81,10 @@ Lifewire / Emily Isaacs
  While Nintendo may be one of the most popular gaming companies today, dominating the 2020 market with their[Switch](https://www.lifewire.com/nintendo-switch-review-4707563) sales, Nintendo’s origins are a bit more humble—and celebrated, with the release of the newly minted Nintendo Game & Watch: Super Mario Bros. handheld. It was in the 1980s when Nintendo truly established itself in the competitive video gaming market, solidifying their household name with the release of the Game & Watch in 1980 and later Super Mario Brothers in 1985\.
 
  What better way to celebrate both of their birthdays than by bringing both titles together for a self-contained wombo-combo celebrating their 40th and 35th anniversaries respectively? I put the handheld to the test for three weeks.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Design: Retro, bold look & feel
 
@@ -126,10 +130,6 @@ Lifewire / Emily Isaacs
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/PvTcnsQLDp7SFCPIeHreGfS-dgM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_05-01b731a5406d4cbfa37be90277c6e89b.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Emily Isaacs
 
 ## Price: Great value for the price
@@ -141,6 +141,10 @@ Lifewire / Emily Isaacs
 Lifewire / Emily Isaacs
 
  For anyone looking to bring the Game & Watch home, they should be aware that while it brings the three included classic titles to life in a fun, exciting way, the Game & Watch doesn't add anything new to the Nintendo family. It caters to long-time Nintendo lovers and collectors, more than anything else.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Nintendo Game & Watch: Super Mario Bros. vs. Nintendo Switch
 
@@ -157,7 +161,7 @@ Lifewire / Emily Isaacs
  The Nintendo Game & Watch: Super Mario Bros. is a throwback to an older, simpler era of gaming that packs a wallop of a punch, bringing the challenge of the original Super Mario games and the original Game & Watch Ball title while making them accessible to a whole new generation of players. While we do wish Nintendo had included additional titles—who doesn’t want_more_ classic options when these are so fun—it’s no showstopper for enjoying this product.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -165,10 +169,6 @@ Lifewire / Emily Isaacs
 * [Nintendo Switch Lite](https://www.lifewire.com/nintendo-switch-lite-review-4788015)
 * [Xbox One X](https://www.lifewire.com/xbox-one-x-review-4707143)
 * [PlayStation 4 Pro](https://www.lifewire.com/playstation-4-pro-review-4707193)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -201,22 +201,22 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-speeding-up-video-in-microsoft-slides/"><u>[New] Speeding Up Video in Microsoft Slides</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-best-companions-for-podcast-lovers-activities-and-tasks/"><u>[Updated] Best Companions for Podcast Lovers Activities and Tasks</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-a-comprehenensive-guide-to-youtube-studios-editing-features/"><u>2024 Approved A Comprehenensive Guide to YouTube Studio's Editing Features</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/2024-approved-canine-howl-amalgam-sounds-and-effects-compilation/"><u>2024 Approved Canine Howl Amalgam Sounds & Effects Compilation</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-poco-c65-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Poco C65 FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/investigating-truthgpt-coin-how-to-tell-if-its-a-scam-or-not/"><u>Investigating TruthGPT Coin - How to Tell If It's A Scam Or Not</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/lightroom-classic-learning-hub-for-2024/"><u>Lightroom Classic Learning Hub for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/movavi-wijsheid-in-het-kader-van-gratuite-audio-conversie-van-m4a-naar-flv-online/"><u>Movavi: Wijsheid in Het Kader Van Gratuite Audio-Conversie Van M4A Naar FLV Online</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/smart-home-savings-alert-exploring-under-100-video-doorbells-and-the-remobell-evaluation/"><u>Smart Home Savings Alert: Exploring Under-$100 Video Doorbells and The RemoBell Evaluation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-screen-for-amazon-prime-fans-a-detailed-review-of-toshibas-55lf711u20-fire-tv-smart-tv/"><u>The Best Screen for Amazon Prime Fans? A Detailed Review of Toshiba's 55LF711U20 Fire TV Smart TV</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-lenovo-thinkpad-x1n-tablet-reimagined-a-well-executed-2-in-1-with-an-impressive-keyboard-feature/"><u>The Lenovo ThinkPad X1n Tablet Reimagined: A Well-Executed 2-in-1 with an Impressive Keyboard Feature</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-vivo-s17t-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Vivo S17t Device</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-lensdirect-glasses-that-combat-blue-light-while-accommodating-prescription-needs/"><u>The Ultimate Guide to Choosing LensDirect Glasses that Combat Blue Light While Accommodating Prescription Needs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-lenovos-budget-tablet-m10-fhd-plus-with-vibrant-screen-2020-model/"><u>The Ultimate Guide to Lenovo's Budget Tablet, M10 FHD Plus with Vibrant Screen (2020 Model)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-amazons-latest-innovation-echo-show-10-gen-3-your-companion-that-follows-you-around/"><u>The Ultimate Review of Amazon's Latest Innovation - Echo Show 10, Gen 3 - Your Companion That Follows You Around</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-showdown-google-nest-audio-against-the-apple-homepod/"><u>The Ultimate Showdown: Google Nest Audio Against the Apple HomePod</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-8-leading-pc-manufacturers-a-comprehensive-guide/"><u>Top 8 Leading PC Manufacturers : A Comprehensive Guide</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-ultimate-compilation-of-ios-compatible-ps2-games/"><u>[New] In 2024, Ultimate Compilation of iOS-Compatible PS2 Games</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-vr-adventures-with-lgs-360-headset-insights-for-2024/"><u>[New] VR Adventures with LG's 360 Headset Insights for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-airtag-review-the-best-tracker-for-iphone-users/"><u>Apple AirTag Review: The Best Tracker For iPhone Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/avid-gamers-guide-to-selecting-the-perfect-iphone-rankings-and-reviews/"><u>Avid Gamers' Guide to Selecting the Perfect iPhone: Rankings and Reviews</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-laptop-coolers-on-trial-spotlight-on-the-topmate-c3-02-model/"><u>Budget-Friendly Laptop Coolers on Trial: Spotlight on the TopMate C3 02 Model</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/direct-links-to-download-drivers-for-xbox-360-controllers-trusted-sources/"><u>Direct Links to Download Drivers for Xbox 360 Controllers (Trusted Sources)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-strengths-of-the-miniature-beast-the-unihertz-atom-xl-breakdown/"><u>Discovering the Strengths of the Miniature Beast: The Unihertz Atom Xl Breakdown</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-tips-on-correcting-opengl-problems-within-minecraft-games/"><u>Expert Tips on Correcting OpenGL Problems Within Minecraft Games</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/gratuito-conversor-de-videos-para-formato-f4v-online-do-movavi/"><u>Gratuito: Conversor De Vídeos Para Formato F4V Online Do Movavi</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-sony-xperia-10-v-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Sony Xperia 10 V to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-dynamic-youtube-follower-analyzers/"><u>In 2024, Dynamic YouTube Follower Analyzers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovating-visual-stories-mastering-photo-distortions-in-ps/"><u>In 2024, Innovating Visual Stories Mastering Photo Distortions in PS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/omoton-t1-tablet-stand-evaluation-exploring-its-durability-and-cost-efficiency/"><u>Omoton T1 Tablet Stand Evaluation: Exploring Its Durability and Cost-Efficiency</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/reverting-bios-back-to-basics-a-complete-tutorial-on-clearing-the-motherboardcumemory-storage/"><u>Reverting BIOS Back to Basics: A Complete Tutorial on Clearing the Motherboard'cu Memory Storage</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionize-your-viewing-experience-with-the-cost-effective-amazonbasics-antenna/"><u>Revolutionize Your Viewing Experience with the Cost-Effective AmazonBasics Antenna!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-complete-picture-of-w15a-frame-reality/"><u>The Complete Picture of W15A Frame Reality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/users-guide-to-the-sturdy-portable-and-effective-kensun-tire-pump-comprehensive-review/"><u>User's Guide to the Sturdy, Portable & Effective Kensun Tire Pump - Comprehensive Review</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Syma S107G RC Helicopter Review
-date: 2024-12-04T04:16:40.032Z
-updated: 2024-12-10T23:46:50.450Z
+date: 2024-12-10T01:17:05.803Z
+updated: 2024-12-17T08:10:44.243Z
 categories:
   - BestProducts
 description: This Article Describes Syma S107G RC Helicopter Review
@@ -19,7 +19,7 @@ thumbnail: https://www.lifewire.com/thmb/P-8UxsMZel3cjt1hVtk4iOKfgsw=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
@@ -51,6 +51,10 @@ Lifewire / Andy Zahn
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -96,13 +100,13 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Battery life: No worries**
 
@@ -111,7 +115,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
@@ -123,7 +127,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Autofocus: Blazing fast**
@@ -164,10 +168,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Video Quality: A mixed bag**
 
  The SX70 HS fumbles a bit when it comes to video. It’s no slouch by any means, but the footage is nothing to brag about. You can record up to 4K resolution, but unfortunately, the camera has to crop in to record at this resolution. Also, we found that footage is never especially sharp compared to other cameras.
@@ -181,10 +181,6 @@ Lifewire / Andy Zahn
  Time-lapse mode is where the SX70 HS really shines in terms of video. You can easily access this mode via the menu system, and there is a wide range of customizable options available. For those not experienced with time-lapse video, you can simply select from one of three subject-based settings. Time-lapses can be recorded at up to 4K resolution and truly excellent quality.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Software: Lots of options**
 
@@ -217,6 +213,10 @@ Lifewire / Andy Zahn
  **A tremendously fun camera that is exceedingly well-rounded if a bit pricey.**
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -258,18 +258,24 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-revealed-the-best-videos-from-facebooks-pages/"><u>[New] 2024 Approved Revealed The Best Videos From Facebook’s Pages</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/hannel-growth-hacks-the-ultimate-list-of-5-youtube-strategies-for-2024/"><u>[New] Channel Growth Hacks – The Ultimate List of 5 YouTube Strategies for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-non-google-augmented-reality-visual-aids/"><u>[Updated] 2024 Approved Non-Google Augmented Reality Visual Aids</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-from-anonymous-to-notable-the-complete-guide-to-updating-your-tiktok-handle/"><u>[Updated] From Anonymous to Notable The Complete Guide to Updating Your TikTok Handle</u></a></li>
-<li><a href="https://change-location.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-vivo-y100i-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Vivo Y100i | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-leap-forward-transition-from-windows-7-to-11/"><u>A Leap Forward: Transition From Windows 7 To 11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/all-ages-enjoyable-racing-adventure-holy-stone-cartoon-race-car-reviewed/"><u>All-Ages Enjoyable Racing Adventure: Holy Stone Cartoon Race Car Reviewed!</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-90-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on 90.</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-apple-iphone-x-to-ipod-touch-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Transfer Music from Apple iPhone X to iPod touch | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-streamline-your-podcast-with-ease/"><u>In 2024, Streamline Your Podcast With Ease</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/tunetracker-outside-of-dacast-realm/"><u>TuneTracker Outside of DaCast Realm</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/vibrant-hits-crafting-the-perfect-fitness-soundtrack/"><u>Vibrant Hits: Crafting the Perfect Fitness Soundtrack</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/x4-executive-chair-by-x-chair-the-ideal-selection-for-professional-workspaces/"><u>X4 Executive Chair by X-Chair - The Ideal Selection for Professional Workspaces</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/s55-how-a-high-definition-long-range-traffic-monitor-can-protect-your-wallet-and-safety-on-escortpassport/"><u>'S55': How a High Definition Long Range Traffic Monitor Can Protect Your Wallet and Safety on Escortpassport</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-the-ultimate-list-highest-viewed-tweets-of-2023/"><u>[New] In 2024, The Ultimate List Highest-Viewed Tweets of 2023</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-transform-your-ideas-into-actionable-steps-idevice-screenshots-for-video-sharing/"><u>[New] In 2024, Transform Your Ideas Into Actionable Steps IDevice Screenshots for Video Sharing</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-kickstart-cinematic-craft-install-xp-movie-maker/"><u>2024 Approved Kickstart Cinematic Craft Install XP Movie Maker</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-tp-link-re2n-ac750-wireless-range-expander-in-depth-analysis/"><u>Affordable TP-Link RE2n AC750 Wireless Range Expander - In-Depth Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-apeman-c450-dashcam-evaluation-and-performance-analysis/"><u>Budget-Friendly Apeman C450 Dashcam Evaluation and Performance Analysis</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723200038887-easy-fix-to-your-pc-cant-project-to-another-screen-error/"><u>Easy Fix to Your PC Can’t Project to Another Screen Error</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/experiencing-the-extraordinary-how-a-3k-dell-gaming-rig-turned-expectations-upside-down/"><u>Experiencing the Extraordinary: How a $3K Dell Gaming Rig Turned Expectations Upside Down</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-on-apple-iphone-12-pro-max-without-password-by-drfone-ios/"><u>How to Delete iCloud Account On Apple iPhone 12 Pro Max without Password?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-advanced-practices-for-capturing-iptv-visuals/"><u>In 2024, Advanced Practices for Capturing IPTV Visuals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-asus-rog-gt-ac5300-the-perfect-device-for-gamers-and-technology-aficionados/"><u>In-Depth Analysis of Asus ROG GT-AC5300 - The Perfect Device for Gamers & Technology Aficionados</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-budget-friendly-samsung-galaxy-a2-pros-and-cons-revealed/"><u>In-Depth Analysis of the Budget-Friendly Samsung Galaxy A2#: Pros & Cons Revealed!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-features-explored-a-detailed-review-of-apples-groundbreaking-iphone-12/"><u>Innovative Features Explored - A Detailed Review of Apple's Groundbreaking iPhone 12</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lgs-affordable-24lh4830-smart-tv-quality-entertainment-without-breaking-the-bank/"><u>LG's Affordable 24LH4830 Smart TV: Quality Entertainment Without Breaking the Bank</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/strategies-for-adequate-lighting-in-youtube-videos-for-2024/"><u>Strategies for Adequate Lighting in YouTube Videos for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-portable-charger-unveiled-the-dbpower-section-1-theme-question/"><u>Top Rated Portable Charger Unveiled: The DBPOWER # Section 1: Theme Question</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transforming-console-play-an-in-depth-look-at-the-playstation/"><u>Transforming Console Play: An In-Depth Look at the PlayStation</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ultimate-guide-the-7-leading-chatbot-plugins-for-visual-studio-code-enthusiasts/"><u>Ultimate Guide: The 7 Leading Chatbot Plugins for Visual Studio Code Enthusiasts</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/unique-and-engaging-ideas-for-your-tiktok-pfp/"><u>Unique and Engaging Ideas for Your TikTok PFP</u></a></li>
 </ul></div>
 

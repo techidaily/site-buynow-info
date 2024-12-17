@@ -1,7 +1,7 @@
 ---
 title: Taking Down Undead Foes with Plants in Vibrant 'Neighborville' Review!
-date: 2024-12-07T03:18:43.359Z
-updated: 2024-12-10T20:17:21.262Z
+date: 2024-12-13T01:01:15.951Z
+updated: 2024-12-17T04:14:27.129Z
 categories:
   - BestProducts
 description: This Article Describes Taking Down Undead Foes with Plants in Vibrant 'Neighborville' Review!
@@ -44,12 +44,16 @@ Lifewire / Andy Zahn
 3.8
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Marvel’s Avengers
 
 ![Marvel's Avengers](https://www.lifewire.com/thmb/bVJgMRDIRT4zQQ6dpvVtuNZuoJA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Marvels-Avengers-Game-1-56461f27b96b46f09afebe5fb2856089.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -84,6 +88,10 @@ Lifewire / Andy Zahn
 
  After a bulky 50 GB download, the game launched without issue, first from[Steam](https://www.lifewire.com/what-is-steam-4177380) to a separate launcher where I could adjust graphics and other settings. Next, I was prompted to sign up with a Square Enix account. This step isn't necessary but does unlock some exclusive content. The process of signing up and linking my account was a bit clunky and cumbersome, but I finally bulled through to the main menu.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Story: Solid, if a bit predictable**
 
  The campaign begins in a tutorial level that takes you through an “Avengers Day” fair full of easter eggs and references. This is pretty effective at introducing gameplay mechanics and characters. The story follows Kamala Khan (Ms. Marvel), a hero who fans of the comics may be familiar with but who's likely new to moviegoers. As the campaign progresses you'll recruit additional Avengers, who you can swap between as the story unfolds.
@@ -98,10 +106,6 @@ Lifewire / Andy Zahn
 
  It’s worth noting that Avengers goes to great lengths to remain age-appropriate with a Teen ESRB rating. For example, at one point a group of unsavory teenagers tries to bully a boy into drinking a bottle of Soda brand soda, and he responds by shoving it violently away. It’s pretty obvious that the soda was originally intended to be an alcoholic beverage. Also, most of the enemies in the game are robots, with the exception of a few human bad guys in costumes so outlandish they could easily be mistaken for robots. In some ways this game is even tamer than the MCU films.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Gameplay: A joy that wanes with time**
 
  Combat and navigation are competent and fun. The control scheme is very typical of third-person action games. Platforming segments are entertaining if somewhat scripted, and in general it’s fun to move around. The game does a good job of context-sensitive movement such as squeezing through a crack or taking cover behind walls in stealth sequences.
@@ -115,7 +119,7 @@ Lifewire / Andy Zahn
 ![Marvel's Avengers](https://www.lifewire.com/thmb/G2_Nr801kYuHDprTf-WW0H710pc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Marvels-Avengers-Game-5-d35733fe387046748269587329fc4c5c.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
@@ -128,17 +132,9 @@ Lifewire / Andy Zahn
 
 ![Marvel's Avengers](https://www.lifewire.com/thmb/qOCpss1qt_evo0lE6ASI-iEcgE4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Marvels-Avengers-Game-4-f72fa3ece4a24aecb6dfabf7c1ed786d.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
 
  The big problem here is that by divorcing cosmetics from gear to enable and encourage non-gameplay affecting microtransactions, Avengers takes away the fun of customizing your gear. It makes the game feel cheap and manipulative.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Collectibles: Weighed down by knick-knacks**
 
@@ -147,6 +143,10 @@ Lifewire / Andy Zahn
  The problem is that the deluge of nearly identical bits of armor quickly make opening treasure chests and finding hidden loot a chore. There’s never anything really good and it interrupts the action, but you feel like you’re missing out if you just ignore them, and they’re necessary to face higher level enemies. This means that you’re stuck time and again waiting for your character's chest opening animation to cycle through.
 
 ![Marvel's Avengers](https://www.lifewire.com/thmb/1b-tnL1lzsDoFyr0NtwNmgg9YWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Marvels-Avengers-Game-6-44776b5f2a5c4f139599edba51104a76.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -164,6 +164,10 @@ Lifewire / Andy Zahn
 
  The Avengers isn’t groundbreaking, but it’s still a great looking game.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Graphics: Pretty to look at**
 
  The Avengers isn’t groundbreaking, but it’s still a great looking game. Environments are richly detailed, action sequences are spectacular, and overall it’s very pretty to look at. Character models are remarkably well-rendered and don’t have much of that uncanny valley feel to them. However, as a fan of the films, I found it disconcerting to have familiar characters look and sound like different people. It took me out of the experience at first, though I got used to them over time.
@@ -173,22 +177,14 @@ Lifewire / Andy Zahn
 ![Marvel's Avengers](https://www.lifewire.com/thmb/nmKDhn3FkxKkZKDxc4nngV38GLg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Marvels-Avengers-Game-7-3950f99991ab4b728e133d4e48577831.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Good value, but with hidden costs**
 
  Marvel’s Avengers launched at $60 but is widely available for $50 or less at the time of this writing due to its decline in popularity. If you’re really itching to play an Avengers game and can put up with its flaws it’s not a bad value. Unfortunately, microtransactions may encourage you to spend more money.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Marvel’s Avengers vs. Destiny 2**
 
@@ -201,6 +197,10 @@ Lifewire / Andy Zahn
  **Marvel’s Avengers is a good game with some major flaws.**
 
  Marvel’s Avengers has a decent story, fun gameplay, and is by far the most complete video game experience related to this cinematic universe. However, to enjoy that you have to look past all the problems weighing it down, which is a tough ask.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -230,21 +230,18 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-fastest-on-ice-olympic-highlights-in-short-track-events/"><u>[New] Fastest on Ice Olympic Highlights in Short Track Events</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-5-top-rated-hd-webcam-conferencing-recorder-tools-for-2024/"><u>[Updated] 5 Top-Rated HD Webcam Conferencing Recorder Tools for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-free-photo-editing-tricks-unveiling-iphones-hidden-features/"><u>2024 Approved Free Photo Editing Tricks Unveiling iPhone's Hidden Features</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/complete-tutorial-snapping-pictures-from-your-xbox-one-screen/"><u>Complete Tutorial: Snapping Pictures From Your Xbox One Screen</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-asus-zenwifi-xt8-ax6600-rigorous-analysis-unleashing-maximum-home-network-potential/"><u>Comprehensive ASUS ZenWiFi XT8 (AX6600) Rigorous Analysis: Unleashing Maximum Home Network Potential</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-budget-friendly-ambient-ws-2902a-osprey-smart-weather-sensor/"><u>Comprehensive Evaluation of the Budget-Friendly Ambient WS-2902A Osprey Smart Weather Sensor</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-apples-finest-ipad-pro-11-inch-model-2018-release/"><u>Comprehensive Review of Apple's Finest: IPad Pro 11-Inch Model (2018 Release)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/conquering-playtime-a-detailed-analysis-of-xbox-one-xs-dominance-amongst-current-gaming-systems/"><u>Conquering Playtime: A Detailed Analysis of Xbox One X's Dominance Amongst Current Gaming Systems</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discovering-a-sophisticated-tech-marvel-skagen-falster-2-vs-apple-an-unbiased-review/"><u>Discovering a Sophisticated Tech Marvel: Skagen Falster 2 Vs. Apple - An Unbiased Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/embrace-morning-vitality-using-ihome-zenergy-comprehensive-sleep-solution-analysis/"><u>Embrace Morning Vitality Using IHome Zenergy - Comprehensive Sleep Solution Analysis</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/excellent-value-30-tv-antenna-top-performer-at-a-bargain/"><u>Excellent Value 30 TV Antenna: Top Performer at a Bargain</u></a></li>
-<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-realme-narzo-60-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-itel-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Itel S23+ | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Vivo Y200 | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-understanding-optimal-frames-per-second-in-cinema-slow-mo/"><u>In 2024, Understanding Optimal Frames Per Second in Cinema Slow-Mo</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/toms-tech-hub-in-depth-reviews-on-latest-gadgets-and-computer-components/"><u>Tom's Tech Hub: In-Depth Reviews on Latest Gadgets and Computer Components</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-oppo-find-n3-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Oppo Find N3 Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/aquaresonance-scan-reliable-soundproof-audio/"><u>AquaResonance Scan: Reliable Soundproof Audio</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/essential-tech-tools-to-enhance-your-sleep-experience-tonight/"><u>Essential Tech Tools to Enhance Your Sleep Experience Tonight</u></a></li>
+<li><a href="https://facebook.techidaily.com/expecting-facebooks-next-update-inclusion-of-reels-and-rooms-in-stories/"><u>Expecting Facebook's Next Update: Inclusion of Reels & Rooms in Stories</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-oppo-a2-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Oppo A2 Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/immerse-yourself-with-high-end-dell-screen-advanced-audio-isolation-headset-and-crystal-clear-webcam-solutions/"><u>Immerse Yourself with High-End Dell Screen, Advanced Audio Isolation Headset, and Crystal Clear Webcam Solutions</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-lava-storm-5g-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Lava Storm 5G to New Android? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-the-enhanced-capabilities-of-the-dji-phantom-4-pro-version-20-unveiled/"><u>In-Depth Evaluation: The Enhanced Capabilities of the DJI Phantom 4 Pro Version 2.0 Unveiled</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/secrets-to-a-professional-appearance-blur-out-distractions-during-skype-conference-call/"><u>Secrets to a Professional Appearance: Blur Out Distractions During Skype Conference Call</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-6-sources-to-shop-for-high-quality-computers-and-laptops/"><u>The Best 6 Sources to Shop for High-Quality Computers and Laptops</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-winegard-fl5500a-solid-signal-strength-meets-premium-pricing-analysis/"><u>Unboxing the Winegard FL5500A: Solid Signal Strength Meets Premium Pricing Analysis</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/understanding-the-location-unavailable-error-troubleshooting-gps-issues-on-windows-11-and-iphone-devices/"><u>Understanding the 'Location Unavailable' Error: Troubleshooting GPS Issues on Windows 11 and iPhone Devices</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-top-10-free-video-rotators-to-rotateflip-videos-for-2024/"><u>Updated Top 10 Free Video Rotators to Rotate/Flip Videos for 2024</u></a></li>
 </ul></div>
 

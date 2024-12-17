@@ -1,7 +1,7 @@
 ---
 title: Top Features of the Value-Oriented Ambient WS-2902A Osprey Weather Station Reviewed
-date: 2024-12-05T18:01:14.955Z
-updated: 2024-12-11T08:12:57.266Z
+date: 2024-12-11T02:52:41.122Z
+updated: 2024-12-17T03:18:10.873Z
 categories:
   - BestProducts
 description: This Article Describes Top Features of the Value-Oriented Ambient WS-2902A Osprey Weather Station Reviewed
@@ -19,7 +19,7 @@ thumbnail: https://www.lifewire.com/thmb/kWo7HN6oemoL0YOU54NCjKSHuJs=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Mohu Leaf 30
@@ -73,10 +73,6 @@ Lifewire / Jonno Hill
 
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
@@ -84,7 +80,7 @@ Lifewire / Jonno Hill
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup: Dead simple**
@@ -101,6 +97,10 @@ Lifewire / Jonno Hill
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Excellent for the performance**
 
  The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
@@ -108,7 +108,7 @@ Lifewire / Jonno Hill
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
@@ -151,22 +151,24 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-triumph-over-ten-common-vlogging-worries/"><u>[Updated] In 2024, Triumph Over Ten Common Vlogging Worries</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-winning-strategies-for-win-11s-crashy-photos-app/"><u>[Updated] In 2024, Winning Strategies for Win 11'S Crashy Photos App</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-lead-the-way-in-streaming-your-guide-to-youtubes-full-sphere-video-trends/"><u>[Updated] Lead the Way in Streaming Your Guide to YouTube's Full-Sphere Video Trends</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-leveraging-zoom-features-for-immersive-fb-live-views/"><u>[Updated] Leveraging Zoom Features for Immersive FB Live Views</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-professional-tips-for-perfectly-recording-your-powerpoint-sessions/"><u>2024 Approved Professional Tips for Perfectly Recording Your PowerPoint Sessions</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-the-pathway-to-stellar-visual-results-through-color-tuning/"><u>2024 Approved The Pathway to Stellar Visual Results Through Color Tuning</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-your-apple-iphone-7-apple-id-on-macbook-by-drfone-ios/"><u>In 2024, How To Change Your Apple iPhone 7 Apple ID on MacBook</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ring-thumbnails-for-maximum-youtube-impact-for-2024/"><u>Tailoring Thumbnails for Maximum YouTube Impact for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-power-inverters-of-2024/"><u>The Best Power Inverters of 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-case-for-purchasing-the-apple-vision-pro-model/"><u>The Case for Purchasing the Apple Vision Pro Model</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-standout-qualities-of-the-mohu-blade-television-antenna-exceptional-architecture-and-impressive-internal-range-explored/"><u>The Standout Qualities of the Mohu Blade Television Antenna - Exceptional Architecture and Impressive Internal Range Explored</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-large-screen-nook-glowlight-plus-from-barnes-and-noble/"><u>The Ultimate Guide to the Large-Screen Nook GlowLight Plus From Barnes & Noble.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-2024-hits-ultimate-exercise-tunes/"><u>Top 2024 Hits: Ultimate Exercise Tunes</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-reviews-for-poweradd-pilot-pro2-charging-station-boost-energy-to-devices-quickly/"><u>Top Reviews for POWERADD Pilot Pro2 Charging Station - Boost Energy to Devices Quickly</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-storm-tracking-mobile-applications-in-2-the-best-storm-tracker-apps-of-2024/"><u>Top-Rated Storm Tracking Mobile Applications in 2# - The Best Storm Tracker Apps of 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-oppo-a79-5g-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Oppo A79 5G FRP Bypass</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-why-apples-201amo-ipad-pro-11-reigns-supreme-in-tablet-land/"><u>Ultimate Guide: Why Apple's 201Amo iPad Pro (11) Reigns Supreme in Tablet Land</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-video-gathering-made-easy-top-5-no-cost-online-downloaders/"><u>[Updated] In 2024, Video Gathering Made Easy Top 5 No-Cost, Online Downloaders</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-ultimate-toolkit-for-editors-magix-video-pro-x-review/"><u>2024 Approved The Ultimate Toolkit for Editors Magix Video Pro X Review</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>3 Things You Must Know about Fake Snapchat Location On Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/9-best-phone-monitoring-apps-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>9 Best Phone Monitoring Apps for Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-excellence-unleashed-in-depth-analysis-of-the-zte-blade-a3y/"><u>Affordable Excellence Unleashed: In-Depth Analysis of the ZTE Blade A3Y</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-quality-in-every-way-comprehensive-look-at-the-oneplus-nord-n100/"><u>Affordable Quality in Every Way - Comprehensive Look at the OnePlus Nord N100</u></a></li>
+<li><a href="https://win-answers.techidaily.com/call-of-duty-enthusiasts-beware-the-newly-identified-frame-rate-stuttering-issues-in-modern-warfare-3-2024-patch-notes/"><u>Call of Duty Enthusiasts Beware! The Newly Identified Frame Rate Stuttering Issues in Modern Warfare 3 (2024 Patch Notes)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-asus-zenwifi-xt8-ax6600-wireless-router-test-and-evaluation/"><u>Comprehensive ASUS ZenWiFi XT8 AX6600 Wireless Router Test & Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-oodles-complimentary-community-advertising-platform/"><u>Discover Oodle's Complimentary Community Advertising Platform</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-examine-recorded-conversation/"><u>In 2024, Examine Recorded Conversation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-sony-xbr-49x900f-49-4k-ultra-hd-smart-led-television-assessment/"><u>In-Depth Sony XBR-49X900F 49 4K Ultra HD Smart LED Television Assessment</u></a></li>
+<li><a href="https://techtrends.techidaily.com/pepsico-embraces-digital-transformation-for-smarter-invoice-management-with-abbyy-flexicapture-solutions/"><u>PepsiCo Embraces Digital Transformation for Smarter Invoice Management with ABBYY FlexiCapture Solutions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/pros-and-cons-of-macbook-air-versus-macbook-pro/"><u>Pros and Cons of MacBook Air versus MacBook Pro</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-apex-list-best-pc-companies-to-watch/"><u>The Apex List: Best PC Companies to Watch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-athletes-companion-an-expert-review-on-garmin-forerunner-745-for-multisport-fitness-enthusiasts/"><u>The Athlete's Companion - An Expert Review on Garmin Forerunner ^745 for Multisport Fitness Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-mobile-sonos-review-immersive-audio-anywhere/"><u>The Mobile Sonos Review: Immersive Audio Anywhere</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/understanding-b550-xt-voice-interaction-silent-operation/"><u>Understanding B550-XT: Voice Interaction, Silent Operation</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/unlock-a-broader-audience-strategies-for-multistreaming-on-youtube-and-twitch-for-2024/"><u>Unlock a Broader Audience Strategies for Multistreaming on Youtube and Twitch for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-to-gif-magic-your-ultimate-guide-to-animated-images-for-2024/"><u>Youtube to Gif Magic Your Ultimate Guide to Animated Images for 2024</u></a></li>
 </ul></div>
 

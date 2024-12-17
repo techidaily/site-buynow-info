@@ -1,7 +1,7 @@
 ---
 title: "Performance and Hardiness Testing for the CAT S42 Mobile Device: Sturdy but Not Swift"
-date: 2024-12-08T19:39:29.399Z
-updated: 2024-12-10T23:53:48.711Z
+date: 2024-12-14T06:34:45.860Z
+updated: 2024-12-16T22:10:28.405Z
 categories:
   - BestProducts
 description: "This Article Describes Performance and Hardiness Testing for the CAT S42 Mobile Device: Sturdy but Not Swift"
@@ -56,10 +56,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
 **TL;DR:** Highly customizable for any situation, simple to use, and regularly updated, the Apple Watch Series 9 is the one to beat.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Why We Recommend This
 
  I’ve been using Apple Watches since they first launched in 2015\. Over the years, the format has been refined, and the Apple Watch Series 9 is easily the best yet for most people.
@@ -108,7 +104,7 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 **TL;DR:** Sleek and stylish, the Samsung Galaxy Watch 6 has some great features provided you’re an Android phone owner. Its body composition tool is a particular highlight.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Why We Recommend This
@@ -141,6 +137,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **Who else recommends it?** TechRadar, BuzzFeed, PCMag, T3, Tom’s Guide, and Digital Trends all recommend the Samsung Galaxy Watch 6\.
 * **What do buyers think?** The Samsung Galaxy Watch 6 has over 3,900 ratings on Amazon, with 88% of those rating the watch either five or four stars. The overall average rating is 4.5 out of 5.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Easiest on the Budget
 
 [Garmin Vivoactive 5](https://www.amazon.com/Garmin-v%C3%ADvoactive-Fitness-Smartwatch-Display/dp/B0CG6NR413?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CG6NR413)
@@ -154,7 +154,7 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 **TL;DR:** More affordable than most Garmin watches, the Garmin Vivoactive 5 offers all the key features while not looking too sporty.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Why We Recommend This
@@ -189,10 +189,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **Who else recommends it?** PCMag, CNET, Trusted Reviews, Tom’s Guide, and Digital Trends recommend the Garmin Vivoactive 5.
 * **What do buyers think?** The Garmin Vivoactive 5 has over 1,800 ratings on Amazon, with 76% of them rating it five or four stars. Its average rating is 4.4 out of 5.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How We Test
 
  I reviewed each smartwatch based on the following factors:
@@ -207,6 +203,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
  I used all the devices for several weeks, with some smartwatches used for months. I wore them daily while working, exercising, relaxing, and asleep.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What to Look For
 
  Buying a smartwatch involves finding the right balance between looks and practicality. Consider where you plan on wearing it, such as in the office or when walking, and plan accordingly.
@@ -220,7 +220,7 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 [The Best Fitness Trackers of 2024](https://www.lifewire.com/best-fitness-trackers-8656291)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Other Smartwatches We Reviewed
@@ -258,20 +258,24 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-essential-guide-to-best-10-gratis-srt-transformers/"><u>[New] 2024 Approved The Essential Guide to Best 10 Gratis SRT Transformers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ow-much-wealth-can-you-generate-on-youtube-using-cpm-for-2024/"><u>[New] How Much Wealth Can You Generate on YouTube Using CPM for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-auto-arcade-adventures-for-kids/"><u>[Updated] 2024 Approved Auto Arcade Adventures for Kids</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/diy-football-viewing-watch-record-cut-on-the-cheap/"><u>DIY Football Viewing Watch, Record, Cut on the Cheap</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-honor-90-gt-by-fonelab-android-recover-data/"><u>How to recover lost data from Honor 90 GT?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-vivo-y100i-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Vivo Y100i PC | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/insightful-guide-top-reasons-to-get-an-ipad-today/"><u>Insightful Guide: Top Reasons to Get An iPad Today</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ios-versus-android-finding-the-ideal-device-for-your-needs/"><u>IOS versus Android – Finding the Ideal Device for Your Needs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/jaco-smartpro-digital-tire-inflator-reviewed-portable-powerhouse-for-puncture-repairs/"><u>Jaco SmartPro Digital Tire Inflator Reviewed – Portable Powerhouse for Puncture Repairs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-budget-and-versatility-with-the-lenovo-chromebook-duet-review/"><u>Navigating Budget and Versatility with the Lenovo Chromebook Duet Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/premium-e-reader-showdown-amazon-kindle-oasis-is-the-expensive-price-worth-it/"><u>Premium E-Reader Showdown: Amazon Kindle Oasis - Is the Expensive Price Worth It?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sizzling-secrets-unveiled-the-ultimate-overcooked-2-critique/"><u>Sizzling Secrets Unveiled: The Ultimate Overcooked! 2 Critique</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/step-into-a-world-of-magic-expert-led-guide-to-snapchat-edits/"><u>Step Into a World of Magic Expert-Led Guide to Snapchat Edits</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/step-by-step-guide-offline-driver-installation-for-windows-systems/"><u>Step-by-Step Guide: Offline Driver Installation for Windows Systems</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-lenovo-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Lenovo Phone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-audiovisual-experience-elevated-mastering-audio-blending-in-audacity/"><u>[New] 2024 Approved The Audiovisual Experience Elevated Mastering Audio Blending in Audacity</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-excellence-optimizing-post-reach/"><u>[Updated] Instagram Excellence Optimizing Post Reach</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-syncopated-syntax-showcase/"><u>2024 Approved Syncopated Syntax Showcase</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-why-do-my-photoshoot-videos-grind-to-a-halt/"><u>2024 Approved Why Do My Photoshoot Videos Grind to a Halt?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/canva-guide-swiftly-erasing-image-borders-for-2024/"><u>Canva Guide Swiftly Erasing Image Borders for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/clash-of-giants-evaluating-the-differences-between-ps5-slim-and-regular-ps5/"><u>Clash of Giants: Evaluating the Differences Between PS5 Slim and Regular PS5</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/discover-the-ultimate-list-of-prime-chatgpt-dialogue-initiators-on-github/"><u>Discover the Ultimate List of Prime ChatGPT Dialogue Initiators on GitHub</u></a></li>
+<li><a href="https://techtrends.techidaily.com/effective-solutions-for-missing-libcurldll-error-fixes/"><u>Effective Solutions for Missing Libcurl.dll Error Fixes</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-6-methods-to-share-apple-iphone-6s-screen-with-pc-drfone-by-drfone-ios/"><u>In 2024, 6 Methods to Share Apple iPhone 6s Screen with PC | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/revolutionary-speaker-system-surpasses-bose-outperforms-sonos-the-hidden-gem-you-need-to-know/"><u>Revolutionary Speaker System Surpasses Bose, Outperforms Sonos: The Hidden Gem You Need to Know</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-7-engaging-word-puzzles-perfect-for-post-wordle-fun/"><u>Top 7 Engaging Word Puzzles Perfect for Post-Wordle Fun</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-budget-friendly-gaming-unlocking-free-to-play-event-opportunities/"><u>Top Budget-Friendly Gaming: Unlocking Free to Play Event Opportunities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-reasons-why-adding-a-controller-is-essential-for-any-serious-pc-gamer/"><u>Top Reasons Why Adding a Controller Is Essential for Any Serious PC Gamer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/troubleshooting-guide-eliminate-minecraft-exit-code-1-on-your-pc/"><u>Troubleshooting Guide: Eliminate Minecraft Exit Code 1 on Your PC</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/understanding-the-market-landscape-how-apple-tvplus-stands-out-among-popular-streaming-options/"><u>Understanding the Market Landscape: How Apple TV+ Stands Out Among Popular Streaming Options</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/understanding-why-the-release-of-playstation-6-in-2027-makes-more-sense/"><u>Understanding Why the Release of PlayStation 6 in 2027 Makes More Sense</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unexpected-gems-20plus-attractive-games-perfect-for-low-end-diy-potato-computers/"><u>Unexpected Gems: 20+ Attractive Games Perfect for Low-End, DIY Potato Computers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/week-in-review-atandts-data-leak-exposed-and-samsung-unveils-latest-phone-line-up/"><u>Week in Review: AT&T's Data Leak Exposed & Samsung Unveils Latest Phone Line-Up</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-spotify-outshines-all-competitors-with-its-ultimate-play-queue-feature/"><u>Why Spotify Outshines All Competitors with Its Ultimate Play Queue Feature</u></a></li>
 </ul></div>
 

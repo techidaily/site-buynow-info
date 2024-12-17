@@ -1,7 +1,7 @@
 ---
 title: Discover the Ultimate Performance of the 2018 Apple iPad Pro - 11 Display Reviewed for Tech Savvy Users
-date: 2024-12-08T06:22:45.130Z
-updated: 2024-12-11T01:43:24.603Z
+date: 2024-12-12T17:33:11.263Z
+updated: 2024-12-17T12:55:00.405Z
 categories:
   - BestProducts
 description: This Article Describes Discover the Ultimate Performance of the 2018 Apple iPad Pro - 11 Display Reviewed for Tech Savvy Users
@@ -17,6 +17,10 @@ thumbnail: https://www.lifewire.com/thmb/2IMonTcMNLQqwyEI0OoxFXzAaZA=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Apple iPad Pro 11-Inch (2018)
 
@@ -42,13 +46,13 @@ Lifewire / Jordan Provost
 
 4.9
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Apple iPad Pro 11-Inch (2018)
 
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/SgNIbLZ961-p9WD7at7-M5m8Tuk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_HeroSquare-b5f2405776244188aa59f67503531baf.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jordan Provost
 
@@ -93,10 +97,14 @@ Lifewire / Jordan Provost
 ![Ipad Pro 11-Inch](https://www.lifewire.com/thmb/TpucPEgB2OHgSplLwk2Q6sbI6Yo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_5-a6f20cf2b7b84caf8a6290fcb5e9fb5f.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Accessories: Useful for productivity**
 
@@ -110,10 +118,6 @@ Lifewire / Jordan Provost
 
  Top 3 Tablets On the Market
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Fast and easy**
 
  Setting up the 11-inch iPad Pro is quick and painless, and strikingly similar to many of Apple’s other products. Once unboxed, we took the iPad out of its case and held down on the power button which led to the setup screen.
@@ -125,7 +129,7 @@ Lifewire / Jordan Provost
  Lifewire / Jordan Provost
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Display: Rich colors and smooth motion**
@@ -133,6 +137,10 @@ Lifewire / Jordan Provost
  Apple is well known for its gorgeous screens, and the iPad Pro absolutely delivers. The display is what Apple is calling ‘Liquid Retina’, an upgraded version of the technology that drives the screen on the iPhone XR. Wonderfully rich color reproduction, crisp text can be found across all of Apple’s proprietary apps and third-party optimized software. Reading articles and watching video content on streaming services is wonderful, and it even fares well amidst glare from sunlight. It’s still an LCD screen though, so OLED tablets will still have better-looking blacks and richer, more saturated colors. Fortunately for Apple, there aren’t many of those in the market.
 
  There’s also some nifty usability features that come packed with the iPad Pro. True Tone is a feature that helps match the display to the color temperature of your surroundings, which makes the screen easier on your eyes. The 120Hz Pro Motion technology alters the refresh rate of the screen depending on your usage, which results in extremely fluid motion, from scrolling, to playing games, or watching video. It’s difficult to find a poor viewing angle, though you still can’t watch 4K video on YouTube, which is a crying shame given the power of the screen, but more of a problem between Apple and Google rather than a knock to the device itself.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Powerhouse processor**
 
@@ -147,10 +155,6 @@ Lifewire / Jordan Provost
  In our GFX Metal tests, the iPad really ran away from its competitors too. It scored 3407 frames in the Car Chase benchmark, almost double that of the Nvidia Shield, and nearly triple that of the previous iPad, running at an incredible 57 FPS (frames per second) compared to the previous iPads 23 FPS. It’s a massive, almost overkill leap considering the lack of AAA experiences available for the device, but it’s nice to have all that power in your hands.
 
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/KXfYew06x6vujxu5asiFMPptK_k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_1-a6ce9e62649048d7a20596066576c2c5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
@@ -178,10 +182,6 @@ Lifewire / Jordan Provost
 
 ![IPad- Pro 11 Inch](https://www.lifewire.com/thmb/D-1-WC_wIDqzRZLb8mDOgpjal6c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_3-e425a67865fc461fb805e648294dadf8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jordan Provost
 
 ## **Camera: A decent backup**
@@ -200,10 +200,6 @@ Lifewire / Jordan Provost
 
 ![IPad Pro 11 Inch](https://www.lifewire.com/thmb/Q4zUu4bRCg_V0xhMi5Yh7Ns7znc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_4-bef539783bbd48ae98e1becea11ce4dc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jordan Provost
 
 ## **Software: The best yet**
@@ -215,7 +211,7 @@ Lifewire / Jordan Provost
  iOS 12 is by far and away the best version of the operating system yet, but there are still some blatant compromises that eat away at the possibility of the iPad Pro being a laptop replacement.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Well worth the money if you can justify it**
@@ -225,7 +221,7 @@ Lifewire / Jordan Provost
  Luckily, the 11-inch iPad Pro is such a revolutionary upgrade on most tablets that you do truly get what you pay for here. The A12X Bionic puts it leagues ahead of the competition, making it the most powerful productivity machine for professional creatives on the market. There is nothing really competing at this price range beyond.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: Hard to beat**
@@ -239,6 +235,10 @@ Lifewire / Jordan Provost
  **The 2018 iPad Pro is a stylish device of unparalleled power.**
 
  With utterly seamless navigation and playback, fantastic speakers and world-class accessories and performance, this is a beautifully designed piece of hardware. Unfortunately, whilst the power is there, it is held back by its own operating system, forcing you into busywork or compromising missteps. It cannot replace your laptop just yet, but it may well make it redundant based on your use case.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -274,22 +274,24 @@ Lifewire / Jordan Provost
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-ensuring-your-video-shines-in-the-staff-pick-spotlight/"><u>[New] Ensuring Your Video Shines in the Staff Pick Spotlight</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ree-youtube-intros-a-comprehensive-instructional-guide/"><u>[New] Free YouTube Intros A Comprehensive Instructional Guide</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-iphone-video-mastery-from-fast-to-extremely-slow-motion-content/"><u>[New] IPhone Video Mastery From Fast to Extremely Slow Motion Content</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-how-to-upgrade-your-mac-with-macos-sierra-simplified-for-2024/"><u>[Updated] How to Upgrade Your Mac with macOS Sierra Simplified for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-mastering-sims-4-recording-techniques/"><u>[Updated] In 2024, Mastering Sims 4 Recording Techniques</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-proven-approaches-to-exceptional-android-time-lapse-photography/"><u>[Updated] Proven Approaches to Exceptional Android Time-Lapse Photography</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-android-video-enhancement-strategies/"><u>2024 Approved Android Video Enhancement Strategies</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/all-about-apple-homepod-mini-detailed-assessment-of-music-quality-and-smart-voice-assistant-functions/"><u>All About Apple HomePod Mini: Detailed Assessment of Music Quality & Smart Voice Assistant Functions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/approach-define-bisphosphonates-and-explain-their-mechanism-of-action-in-relation-to-bone-turnover/"><u>Approach: Define Bisphosphonates and Explain Their Mechanism of Action in Relation to Bone Turnover</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/budget-friendly-amazon-basics-6-sheet-crosscut-paper-shredder-evaluation/"><u>Budget-Friendly Amazon Basics 6-Sheet Crosscut Paper Shredder Evaluation</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-your-free-geforce-rtx-3080-drivers-today-supports-windows-10-8-and-7/"><u>Download Your Free GeForce RTX 3080 Drivers Today: Supports Windows 10, 8 & 7!</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/top-10-free-youtube-subtitle-extractors-and-downloaders/"><u>Top 10 Free YouTube Subtitle Extractors & Downloaders</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-list-leading-sound-card-picks-for-your-computer/"><u>Ultimate List: Leading Sound Card Picks for Your Computer</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unleashing-power-and-efficiency-an-in-depth-look-at-an-ibuypower-custom-pc-for-gamers/"><u>Unleashing Power and Efficiency: An In-Depth Look at an IBuypower Custom PC for Gamers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unleashing-ultra-fast-wireless-internet-with-asuss-rt-ac68u-a-comprehensive-review/"><u>Unleashing Ultra-Fast Wireless Internet with Asus's RT-AC68U - A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-apple-iphone-xs-max-superior-quality-with-a-hefty-premium/"><u>Unveiling the Apple iPhone XS Max - Superior Quality with a Hefty Premium</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-perks-of-the-xiaomi-mi-smart-band-4-a-budget-friendly-tracker-reviewed/"><u>Unveiling the Perks of the Xiaomi Mi Smart Band 4: A Budget-Friendly Tracker Reviewed</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-gadget-guidance-getting-into-googles-video-conference-for-2024/"><u>[Updated] Gadget Guidance Getting Into Google's Video Conference for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-compreran-list-efficient-platforms-for-downloading-your-favorite-tones/"><u>2024 Approved Compreran List Efficient Platforms for Downloading Your Favorite Tones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-google-nest-wifi-system-the-perfect-solution-for-seamless-wi-fi-coverage/"><u>Comprehensive Analysis of the Google Nest Wifi System: The Perfect Solution for Seamless Wi-Fi Coverage</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dissecting-the-qc35-ii-the-headphones-that-hush-you-down/"><u>Dissecting the QC35 II: The Headphones That Hush You Down</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/effiziente-methode-fur-die-konfiguration-von-datensicherung-in-echtzeit-unter-windows-7-8-und-10/"><u>Effiziente Methode Für Die Konfiguration Von Datensicherung in Echtzeit Unter Windows 7, 8 Und 10</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/global-nomads-must-haves-leading-wireless-connectivity-gear/"><u>Global Nomads' Must-Haves: Leading Wireless Connectivity Gear</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-messages-files-from-samsung-galaxy-f14-5g-by-fonelab-android-recover-messages/"><u>How To Restore Missing Messages Files from Samsung Galaxy F14 5G</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-nokia-c02-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Nokia C02 Phone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-iphone-picture-perfection-mastering-resolution-shifts/"><u>In 2024, IPhone Picture Perfection Mastering Resolution Shifts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-the-impressive-capabilities-of-the-xbox-series-x-in-ultra-hd/"><u>In-Depth Analysis: The Impressive Capabilities of the Xbox Series X in Ultra HD</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-the-samsung-qn55q60rafxza-the-ultimate-4k-hdr10plus-television-experience/"><u>In-Depth Evaluation of the Samsung QN55Q60RAFXZA - The Ultimate 4K HDR10+ Television Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insta360-one-x2-review/"><u>Insta360 One X2 Review</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/luminous-layers-the-graders-path-to-perfection/"><u>Luminous Layers The Grader's Path to Perfection</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-fun-with-games-delving-into-the-world-of-pokemon-black-version-2-and-white-version-2/"><u>Maximizing Fun with Games: Delving Into the World of Pokemon Black Version 2 & White Version 2</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/rapid-video-conversion-with-winx-pro-dvd-rip-securely-tranform-your-dvds-into-hd-h264hevc-mp4-files-in-half-an-hour/"><u>Rapid Video Conversion with WinX Pro DVD Rip: Securely Tranform Your DVDs Into HD H.264/HEVC MP4 Files in Half an Hour</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-rankings-of-mouse-controllers-for-tablet-users/"><u>The Definitive Rankings of Mouse Controllers for Tablet Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-microsoft-surface-laptop-go-breakdown-a-compact-powerhouse-for-everyday-use/"><u>The Microsoft Surface Laptop Go Breakdown - A Compact Powerhouse for Everyday Use</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unleashing-the-full-power-of-the-m4-ipad-pro-how-ai-innovations-at-apples-worldwide-developers-conference-will-shape-its-future/"><u>Unleashing the Full Power of the M4 iPad Pro: How AI Innovations at Apple's Worldwide Developers Conference Will Shape Its Future</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1726223693216-rmvb-movavi/"><u>レムヴィーエーで簡単に無料のオンラインRMVB変換 - Movavi</u></a></li>
 </ul></div>
 

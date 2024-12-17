@@ -1,7 +1,7 @@
 ---
 title: "Review: The Impressive Features and Capabilities of the Stanley J5C09 Workbench"
-date: 2024-12-03T17:00:30.695Z
-updated: 2024-12-11T01:12:11.093Z
+date: 2024-12-09T16:41:25.478Z
+updated: 2024-12-17T13:41:38.993Z
 categories:
   - BestProducts
 description: "This Article Describes Review: The Impressive Features and Capabilities of the Stanley J5C09 Workbench"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/e51e623bbd7f87e2ff660a6fc070fca8d466d4d3f
 ## M MOOCK Car Jump Starter
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/KCvyWCCSvwCtAvcRekce_ETLqRE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -43,10 +47,6 @@ thumbnail: https://thmb.techidaily.com/e51e623bbd7f87e2ff660a6fc070fca8d466d4d3f
 [View On Amazon](https://www.amazon.com/dp/B01J5G8PF6?tag=lifewire-onsite-prod-20&ascsubtag=4784187%7Cn5b3e21016e6a46bd90a6c5a5191206c707%7C)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## M MOOCK Car Jump Starter
 
@@ -78,7 +78,7 @@ thumbnail: https://thmb.techidaily.com/e51e623bbd7f87e2ff660a6fc070fca8d466d4d3f
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: A rugged unit, a generous accessory kit, and a sturdy case to keep it all in**
@@ -99,10 +99,6 @@ thumbnail: https://thmb.techidaily.com/e51e623bbd7f87e2ff660a6fc070fca8d466d4d3f
 
  To charge other devices there’s a lot less fuss involved. You simply need to plug the device into the USB or DC power port and turn the unit on. A Micro USB cable is provided, so if you have a device that uses a more modern charging port, you'll want to put an extra cable for it in the MOOCK case as well.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: A nice jolt of power to start even the most drained of vehicles**
 
  Assuming you’ve carefully placed the M MOOCK in a spot where it can securely clamp onto the battery yet not fall out of the engine bay, you’ll find that the unit does a good job of jump starting a car. The test vehicle had a battery depleted down to 10V, and while the vehicle did momentarily struggle to start initially, it started just fine after double-checking the connections. It’s hard to say if that initial struggle was due to the unit’s relatively lower start and peak output currents, or if it truly just boiled down to a connectivity issue.
@@ -112,6 +108,10 @@ An inexpensive option considering what it can do.
  Plug a phone into the 5V/2A USB port and you’ll find that it delivers a charge rate of 1,200mAh, fast enough to rapidly top off even the thirstiest phones. For example, the Samsung Galaxy S10 would charge it from fully depleted to full in just over three hours. With the unit’s 18,000mAh capacity you could, in theory, do that repeatedly, but it's recommended to leave at least 50 percent of the unit’s battery for jump starts.
 
 Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Key Features: A bright flashlight, but in a decidedly narrow band**
 
@@ -124,7 +124,7 @@ Lifewire / Tony Mitera
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: A good showing against close competition**
@@ -146,7 +146,7 @@ A good choice with just a few nagging flaws.
  The M Moock 1000A Peak 18000mAh Car Jump Starter is a surprisingly solid choice in jump starters. It has few glaring flaws, and the ones that it does have (like the short cables) just make it marginally more difficult to use, as opposed to being true deal breakers. That said, there are other units available on the market that share some or all the same features but have fewer drawbacks. Overall, the unit's successful but flawed, yet very reliable when you need it most.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -179,18 +179,24 @@ A good choice with just a few nagging flaws.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-vrecorder-basics-seamless-installation-for-2024/"><u>[New] VRecorder Basics Seamless Installation for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-mastering-the-art-of-import-in-windows-10-photo-space-for-2024/"><u>[Updated] Mastering the Art of Import in Windows 10 Photo Space for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-honor-x50iplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Honor X50i+ | Dr.fone</u></a></li>
-<li><a href="https://network-issues.techidaily.com/eliminating-hp-lcd-flashes/"><u>Eliminating HP LCD Flashes</u></a></li>
-<li><a href="https://win-dash.techidaily.com/enhance-audio-quality-with-updated-sound-card-drivers-for-windows-users/"><u>Enhance Audio Quality with Updated Sound Card Drivers for Windows Users</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-choose-the-best-pc-build-for-gamers-important-considerations-and-options/"><u>How to Choose the Best PC Build for Gamers: Important Considerations and Options</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-itel-a60-phone-forgot-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Itel A60 Phone Forgot Password</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Vivo X Flip? | Dr.fone</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-in-2024-create-video-with-music-for-free/"><u>New In 2024, Create Video with Music for FREE</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-leading-wireless-mice-ranked/"><u>Ultimate Guide: Leading Wireless Mice Ranked</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unpacking-the-design-and-functionality-of-aukeys-streamlined-usb-30-multi-port-adapter/"><u>Unpacking the Design & Functionality of Aukey's Streamlined USB 3.0 Multi-Port Adapter</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unpacking-the-features-of-the-large-yet-competent-stanley-j5c09-model/"><u>Unpacking the Features of the Large yet Competent Stanley J5C09 Model</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-fongos-features-and-performance-for-voip-services-across-canada/"><u>Unveiling Fongo's Features and Performance for VoIP Services Across Canada</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unbeatable-lg-gram-156-inch-notebook-201-a-perfect-blend-of-portability-endurance-and-efficiency/"><u>'Unbeatable' LG Gram 15.6 Inch Notebook (201#: A Perfect Blend of Portability, Endurance and Efficiency</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-number-1-in-the-elite-8-virtual-composite-maker/"><u>[Updated] 2024 Approved Number 1 in the Elite 8 Virtual Composite Maker</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-sony-bdp-s3700-review-latest-update-summary-for-2024/"><u>[Updated] Sony BDP-S3700 Review Latest Update Summary for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cutting-edge-creativity-at-a-cost-reviewing-the-pros-and-cons-of-the-microsoft-surface-studio-2/"><u>Cutting-Edge Creativity at a Cost: Reviewing The Pros & Cons of the Microsoft Surface Studio #2</u></a></li>
+<li><a href="https://article-files.techidaily.com/dji-flight-setups-starter-package-advanced-configs-4k-professional-edition-for-2024/"><u>DJI Flight Setups Starter Package, Advanced Configs, 4K Professional Edition for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/everything-to-know-about-apple-id-password-requirements-for-iphone-14-plus-by-drfone-ios/"><u>Everything To Know About Apple ID Password Requirements For iPhone 14 Plus</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-new-apple-silicon-unveiling-the-m4-chips-features-and-arrival-timeline/"><u>Explore the New Apple Silicon: Unveiling the M4 Chip's Features and Arrival Timeline</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/from-kitchen-to-screen-unveiling-the-top-7-cooking-film-tricks-for-2024/"><u>From Kitchen to Screen Unveiling the Top 7 Cooking Film Tricks for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-tutorial-to-bypass-your-tecno-spark-20c-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Tecno Spark 20C Face Lock?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-successfully-cancel-and-retrieve-funds-for-steam-games-bought/"><u>How To Successfully Cancel and Retrieve Funds for Steam Games Bought</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-motorola-moto-g14-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Motorola Moto G14 Location by Number | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-samsungs-qn55q6f-navigating-its-4k-hdr-capabilities-in-a-smart-television-review/"><u>In-Depth Look at Samsung's QN55Q6F: Navigating Its 4K, HDR Capabilities in a Smart Television Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-testing-and-verdict-on-the-exceptional-netgear-nighthawk-c7000-range-extender/"><u>In-Depth Testing and Verdict on the Exceptional Netgear Nighthawk C7000 Range Extender</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/is-intel-headed-towards-a-fate-similar-to-nokias-decline/"><u>Is Intel Headed Towards a Fate Similar to Nokia's Decline?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/propella-7s-40-unveiled-a-comprehensive-review-for-lightweight-and-economical-devices/"><u>Propella 7S 4.0 Unveiled: A Comprehensive Review for Lightweight and Economical Devices.</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-nokia-c300-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Nokia C300 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-usb-wi-fi-navigators/"><u>Top Rated USB Wi-Fi Navigators</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-2020-lenovo-tab-m10-hd-affordable-quality-browsing-and-entertainment-experience/"><u>Ultimate Guide to the 2020 Lenovo Tab M10 HD - Affordable, Quality Browsing & Entertainment Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-powerhouse-a-detailed-analysis-of-the-galaxy-ford-f-15andrctruck-giant/"><u>Unveiling the Powerhouse: A Detailed Analysis of the Galaxy Ford F-15^&^RCTruck Giant</u></a></li>
 </ul></div>
 

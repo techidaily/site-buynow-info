@@ -1,7 +1,7 @@
 ---
 title: Unboxing and Evaluating the Campfire Narratives Skins Add-On for Minecraft
-date: 2024-12-05T07:30:50.516Z
-updated: 2024-12-11T00:01:46.531Z
+date: 2024-12-11T17:26:25.244Z
+updated: 2024-12-17T10:05:07.232Z
 categories:
   - BestProducts
 description: This Article Describes Unboxing and Evaluating the Campfire Narratives Skins Add-On for Minecraft
@@ -17,10 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/P6B6uZRj504uMlfNOIao87aqwgc=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Samsung UN65NU8000FXZA
 
@@ -47,10 +43,6 @@ Lifewire / Andy Zahn
 [View On Amazon](https://www.amazon.com/dp/B079NT94BQ/?tag=lifewire-onsite-prod-20&ascsubtag=4777301%7Cn6fc652b61ad7488a86de45c37d729ac101%7CB079NT94BQ) [View On Walmart $2,000](https://www.walmart.com/ip/Samsung-8000-UN65NU8000F-64-5-2160p-Smart-LED-LCD-TV-16-9-4K-UHDTV-Eclipse-Silver-Black-Slate-un65nu8000fxza-b/597549840) [View On Samsung $1,699](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fus%2Ftelevisions-home-theater%2Ftvs%2Fpremium-uhd-tvs%2F65-class-nu8000-smart-4k-uhd-tv-un65nu8000fxza%2F)
 
 2.9
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Samsung UN65NU8000FXZA
 
@@ -81,10 +73,14 @@ Lifewire / Andy Zahn
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/_yzFIL-bClIpQ2-BreG8tli1L2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-4-a802a799a7c34067905c9ff965feea8e.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Big and tough**
 
@@ -102,10 +98,6 @@ Lifewire / Andy Zahn
 
  We did encounter one troublesome bug where the remote partially de-synced from the display so that only the power button functioned properly. This is obviously a known issue, as on-screen instructions immediately appeared to reset the remote and re-establish the connection, and we found these instructions repeated inside the battery compartment of the remote. We also missed having dedicated buttons for popular streaming services such as Netflix and Hulu.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Some assembly required**
 
  The sturdiness of the NU8000’s stand comes at a small price in terms of ease of setup. The back panel of the pillar must be popped off to screw the stand together. The assembled base is then attached to the screen via a plate that slides into place and is then secured by more screws. The caveat is that unless you have a large table available for this process then it's very difficult and requires the cooperation of at least two other people. Once this is complete, insert the batteries into the remote, attach the power cord and any other wired connections, and you’re ready to go.
@@ -115,10 +107,6 @@ Lifewire / Andy Zahn
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/bOGvBL3-atPnw9kBu9ugoXGE9ag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-3-44ef4614305946739623813ea1476c2b.jpg)
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Image Quality: A real letdown**
 
@@ -141,7 +129,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Audio Quality: Surprisingly good**
@@ -151,6 +139,10 @@ Lifewire / Andy Zahn
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/AXYnUtoRwLv0QLo0Xm0_W28X-zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-5-531f7de77d9746ba993c9966f10920be.jpg)
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: A little slow**
 
@@ -163,6 +155,10 @@ Lifewire / Andy Zahn
 ## **Price: Expensive at MSRP**
 
  With an MSRP of $999 the NU8000 is certainly no bargain, especially considering that superior displays are available for the same cost. However, as this is an older TV it may be possible to find steep discounts that make up for its deficiencies.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: NU8000 vs RU8000**
 
@@ -177,6 +173,10 @@ Lifewire / Andy Zahn
 **Hard to recommend.**
 
  The Samsung UN65NU8000FXZ is capable, provides high resolution, and has excellent, flexible software with a good selection of apps. It's also exceptionally thin with a screen that's almost bezel-less, but unless the extremely sturdy stand is the most important feature to you, then RU8000 is just a better display at the exact same MSRP.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -206,20 +206,22 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-smooth-transition-from-iphones-jpegpng-files-to-pdf-format/"><u>[Updated] In 2024, Smooth Transition From iPhone's JPEG/PNG Files to PDF Format</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-who-skipped-my-story-unfollowers-scan-for-2024/"><u>[Updated] Who Skipped My Story? Unfollowers Scan for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-navigating-facebook-sharing-twitter-video-integration/"><u>2024 Approved Navigating Facebook Sharing Twitter Video Integration</u></a></li>
-<li><a href="https://games-able.techidaily.com/can-am08-pro-offer-true-gaming-in-acemagic/"><u>Can AM08 Pro Offer True Gaming in AceMagic?</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/converting-camcorder-footage-to-mov-format-for-seamless-quicktime-viewing/"><u>Converting Camcorder Footage to MOV Format for Seamless QuickTime Viewing</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-nokia-105-classic-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Nokia 105 Classic to New Android Phone? | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/new-intel-core-i7-ultra-series-featuring-lunar-lake-cpus-set-for-release-in-sept/"><u>New Intel Core I7-Ultra Series Featuring Lunar Lake CPUs Set for Release in Sept</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/reset-itunes-backup-password-of-iphone-13-pro-max-prevention-and-solution-by-drfone-ios/"><u>Reset iTunes Backup Password Of iPhone 13 Pro Max Prevention & Solution</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-controversial-design-of-sony-walkman-ws623-reviewed/"><u>The Controversial Design of Sony Walkman WS623 Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-analysis-reading-experience-with-the-nook-glowlight-4/"><u>The Ultimate Analysis: Reading Experience with the Nook GlowLight 4</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-dji-mavic-curolf-review-a-top-tier-selection-for-professional-use/"><u>The Ultimate Guide to DJI Mavic Curolf Review – A Top-Tier Selection for Professional Use</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-keyboard-cushions-the-ultimate-guide-for-2n4/"><u>Top-Rated Keyboard Cushions: The Ultimate Guide for 2N4</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tp-link-deco-p9-simplifying-mesh-networking-with-a-user-friendly-design/"><u>TP-Link Deco P9: Simplifying Mesh Networking with a User-Friendly Design</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/travel-in-timeless-style-a-comprehensive-review-of-powershot-g9x-mark-ii-camera/"><u>Travel in Timeless Style: A Comprehensive Review of PowerShot G9X Mark II Camera</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-m-mock-1000a-portable-jump-starter-18000mah-review-and-buyers-pick/"><u>Ultimate Guide to M MOCK 1000A Portable Jump Starter - 18,000mAh Review & Buyer's Pick</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-chrome-os-native-screen-recorder/"><u>[New] 2024 Approved Chrome OS Native Screen Recorder</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-melodic-masterpieces-top-sites-for-legal-skype-files/"><u>[Updated] In 2024, Melodic Masterpieces Top Sites for Legal Skype Files</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-creating-the-ultimate-home-pc-for-professional-video-editors/"><u>2024 Approved Creating the Ultimate Home PC for Professional Video Editors</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-missing-link-prime-free-speech-to-text-on-macos/"><u>2024 Approved Missing Link Prime Free Speech to Text on macOS</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-uncovered-the-hidden-youtube-shorts-fix/"><u>2024 Approved Uncovered The Hidden YouTube Shorts Fix</u></a></li>
+<li><a href="https://windows11.techidaily.com/5-steps-to-reclaim-your-windows-daylight-look/"><u>5 Steps to Reclaim Your Windows' Daylight Look</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/gotomeeting-precision-capture-across-all-platforms/"><u>GoToMeeting Precision Capture Across All Platforms</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-enriching-zoom-video-clarity-comprehensible-advice/"><u>In 2024, Enriching Zoom Video Clarity Comprehensible Advice</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/introducing-nvidias-new-all-in-one-application-the-evolution-from-control-panel-and-geforce-experience/"><u>Introducing Nvidia’s New All-in-One Application: The Evolution From Control Panel & GeForce Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ipad-enhances-gaming-experience-introducing-delta-emulators-new-screen-management-for-ds-titles/"><u>IPad Enhances Gaming Experience: Introducing Delta Emulator's New Screen Management for DS Titles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-mirrorless-photography-lenses-for-2astof-the-year-expert-picks/"><u>Leading Mirrorless Photography Lenses for 2Astof the Year: Expert Picks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-gaming-performance-on-windows-11-a-step-by-step-optimization-strategy/"><u>Maximizing Gaming Performance on Windows 11: A Step-by-Step Optimization Strategy</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-your-playstation-5-experience-tips-and-tricks-for-enhanced-performance/"><u>Maximizing Your PlayStation 5 Experience: Tips & Tricks for Enhanced Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/my-experience-with-3d-printing-lego-blocks-the-unexpected-results/"><u>My Experience with 3D Printing LEGO Blocks: The Unexpected Results</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-slow-down-videos-on-instagram-with-perfection-a-guide/"><u>New In 2024, Slow Down Videos on Instagram With Perfection A Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/requesting-a-silent-interlude-from-spotify-exploring-song-hiatus-options/"><u>Requesting a Silent Interlude From Spotify: Exploring Song Hiatus Options</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/safe-methods-for-increasing-performance-of-your-nvidia-graphics-card-maintaining-warranty-security/"><u>Safe Methods for Increasing Performance of Your NVIDIA Graphics Card: Maintaining Warranty Security</u></a></li>
 </ul></div>
 

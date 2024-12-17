@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Budget Champion in Gaming PCs: A Comprehensive Dell G5 5090 Evaluation"
-date: 2024-08-26T06:37:22.740Z
-updated: 2024-08-27T06:37:22.740Z
+date: 2024-12-12T20:03:01.215Z
+updated: 2024-12-17T00:07:40.139Z
 categories:
   - BestProducts
 description: "This Article Describes Unveiling the Budget Champion in Gaming PCs: A Comprehensive Dell G5 5090 Evaluation"
@@ -44,6 +44,10 @@ Alice Newcome-Beill / Lifewire
 
 ![iBUYPOWER Custom Gaming Computer](https://www.lifewire.com/thmb/zGBwMEee1S55WR87btZ_tU8wl7c=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Gygabyte_GEFORCE_RTX_HeroHoriz-db8d12900c4449e9b8aab6999b42372c.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Alice Newcome-Beill / Lifewire
 
 [View On Ibuypower.com](https://www.ibuypower.com/gaming-pcs/pc-builder)
@@ -72,8 +76,9 @@ Alice Newcome-Beill / Lifewire
 Alice Newcome-Beill / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Purchase and Setup Process: The personal touch
 
  Builders like iBuyPower can provide you with tech support when you need it, a warranty for replacement parts, access to hardware that might otherwise be unavailable, and having someone handle the more tedious aspects of building a system like cable management. All of these services really add up, especially for anyone that may be buying a system as a gift or doesn’t have the necessary skills to troubleshoot one themselves.
@@ -87,8 +92,9 @@ Alice Newcome-Beill / Lifewire
  iBuypower, when compared with other ISBs has the most impressive selection of hardware I’ve seen, with a broad range of proprietary and name-brand hardware to choose from allowing you to mix and match to your heart’s content.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Support Experience: Patience is a virtue
 
  While it would be easy to review the individual components in our system, I’m instead going to be focusing on the performance and aesthetics of the system as a whole as well as the overall service I received from iBuypower.
@@ -97,9 +103,6 @@ Alice Newcome-Beill / Lifewire
 
 ![iBUYPOWER Custom Gaming Computer](https://www.lifewire.com/thmb/a_jBkcPEBjyyGVwoIDCwmSWQgdI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Gygabyte_GEFORCE_RTX_03-efdbffee4fd8432e9bec6bbbb704b7b0.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Alice Newcome-Beill / Lifewire
 
  Using the iBuypower Discord technical support channel, I mentioned that our display wouldn't turn on (the display cable was plugged into the wrong outlet). Thankfully, their support ran us through a quick troubleshoot of our problem and were able to resolve the issue quickly without the need to return our system. Being able to quickly discern simple problems pay real dividends when purchasing these systems for anyone that doesn't necessarily have a technical aptitude for PCs.
@@ -125,8 +128,9 @@ Alice Newcome-Beill / Lifewire
 ![iBUYPOWER Custom Gaming Computer](https://www.lifewire.com/thmb/-qQXXO0Uc5XYVpt1sO3ttNAdVJE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Gygabyte_GEFORCE_RTX_04-fd15f80f7470451ab0d982aa7cb271c6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Alice Newcome-Beill / Lifewire
 
 ## Performance: UFOs and Big Rigs
@@ -195,11 +199,16 @@ Alice Newcome-Beill / Lifewire
 
 ![iBUYPOWER Custom Gaming Computer](https://www.lifewire.com/thmb/XsZgaXVB9SDRHMcbxxsp6J7gXf4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Gygabyte_GEFORCE_RTX_06-9155c02250094bd1b2655f035149ab8e.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Alice Newcome-Beill / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## iBuypower vs. Dell Alienware Aurora R11
 
  For comparison, I’m stacking this build up against one of our top picks for gaming PCs, the Dell Alienware R11\. The R11, costs about $1,000 less, and you likely won't need several weeks of lead time to have your system shipped, and you can typically buy multiple models right off the shelf. Perhaps more importantly, Alienware has updated the GPUs on all its current configurations to include Nvidia 30-series GPUs. So if that's all you're after, an Alienware R11 configuration likely represents a smarter investment.
@@ -214,9 +223,6 @@ Alice Newcome-Beill / Lifewire
 
  While many configurations from iBuypower are going to cost slightly more than other pre-fab PCs, they still offer an excellent value especially once you factor in labor and warranty. If you're buying a one-off PC that you're planning to upgrade down the line, iBuypower is easily one of your best options unless you're really looking to pinch pennies, or you need several off the shelf PCs delivered quickly, in which case you may be better served by a pre-fab option from Alienware or CLX.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Custom Gaming PC
@@ -237,14 +243,11 @@ Alice Newcome-Beill / Lifewire
 * Video Card Memory  24GB
 * WiFi  Yes
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -253,4 +256,24 @@ Alice Newcome-Beill / Lifewire
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-tailoring-web-clarity-with-advanced-zoom-tools/"><u>[New] 2024 Approved Tailoring Web Clarity with Advanced Zoom Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-simplified-steps-for-posting-tweets-on-facebook/"><u>[New] In 2024, Simplified Steps for Posting Tweets on Facebook</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-redefining-wanderlust-with-virtual-reality-tours/"><u>[New] Redefining Wanderlust with Virtual Reality Tours</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-supreme-mac-video-encoder/"><u>[New] Supreme Mac Video Encoder</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-boosting-skypes-performance-with-advanced-zoom-functionalities/"><u>[Updated] Boosting Skype's Performance with Advanced Zoom Functionalities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ergohead-revolutionizing-office-comfort-one-mat-at-a-time-a-product-review/"><u>Ergohead: Revolutionizing Office Comfort, One Mat at a Time - A Product Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-rings-battery-powered-smart-video-doorbell/"><u>Expert Insights on Ring's Battery-Powered Smart Video Doorbell</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/expert-tips-for-configuring-access-privileges-in-windows-via-control-panel-by-yl-software-professionals/"><u>Expert Tips for Configuring Access Privileges in Windows via Control Panel by YL Software Professionals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-open-source-gimp-for-cross-platform-photo-manipulation/"><u>In-Depth Analysis of the Open-Source GIMP for Cross-Platform Photo Manipulation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/key-insights-before-investing-in-your-new-activity-tracker-what-matters-most/"><u>Key Insights Before Investing in Your New Activity Tracker - What Matters Most?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/passfab-apple-iphone-6s-backup-unlocker-top-4-alternatives-drfone-by-drfone-ios/"><u>PassFab Apple iPhone 6s Backup Unlocker Top 4 Alternatives | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/safe-and-sound-securing-your-fb-live-conversations-on-screen/"><u>Safe & Sound Securing Your FB Live Conversations on Screen</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/securely-restore-your-valuable-iphone-files-on-a-mac-the-best-software-to-bring-back-deleted-media/"><u>Securely Restore Your Valuable iPhone Files on a Mac: The Best Software to Bring Back Deleted Media</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-professionals-choice-in-drones-unpacking-the-superiority-of-the-dji-mavic-2-pro/"><u>The Professional's Choice in Drones: Unpacking the Superiority of the DJI Mavic 2 Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-alternative-productivity-tools/"><u>The Ultimate Guide to Alternative Productivity Tools</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-selection-of-high-quality-server-raise-and-enclosures/"><u>The Ultimate Selection of High-Quality Server Raise and Enclosures</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-the-hp-chromebook-11-perfect-balance-for-learning-working-and-leisure/"><u>The Ultimate Verdict on the HP Chromebook 11: Perfect Balance for Learning, Working, and Leisure</u></a></li>
+</ul></div>
 

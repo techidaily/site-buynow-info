@@ -1,7 +1,7 @@
 ---
 title: Exploring the Moto G Play – Superior Endurance Meets Quality Functionality
-date: 2024-12-10T00:17:27.197Z
-updated: 2024-12-10T16:17:02.291Z
+date: 2024-12-16T07:58:13.311Z
+updated: 2024-12-16T19:08:18.449Z
 categories:
   - BestProducts
 description: This Article Describes Exploring the Moto G Play – Superior Endurance Meets Quality Functionality
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/HEdY5z0upwUmisddzAWTi0WyYpQ=/400x300/fi
 ## Amazon Halo
 
 ![Amazon Halo](https://www.lifewire.com/thmb/KDrlBicwDSsm8oahXwLC9cx5FSs=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_HeroSquare-2e5c3941b8fe49afbd7464f382164976.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -53,7 +49,7 @@ Lifewire / Yoona Wagener
 ![Amazon Halo](https://www.lifewire.com/thmb/3Kfyp4XgBEtCuXPHAVw99RFqQs8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_HeroSquare-2e5c3941b8fe49afbd7464f382164976.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
@@ -83,7 +79,7 @@ Lifewire / Yoona Wagener
 ![Amazon Halo](https://www.lifewire.com/thmb/W0-czfRzA-7ixa5VS8Cb4sBcaqM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_02-b2292f1ee1b54f4e9990c92e582c5a4b.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
@@ -96,14 +92,10 @@ Lifewire / Yoona Wagener
 
 ![Amazon Halo](https://www.lifewire.com/thmb/QHImxX0EsYwunnnS2aNtTX9j80s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_03-66da73beea854cd39f6c35c06975ef4e.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Comfort: Streamlined but not immune to typical fit issues
@@ -116,6 +108,10 @@ Lifewire / Yoona Wagener
 
  As for water resistance, I didn’t test the 50-meter swimproof rating of the Halo in a pool, but I did shower with the device for three days. Despite the band’s moisture-wicking band material, it remained damp far longer than was comfortable and compared to a fast-drying silicone band. If you’re an avid swimmer or prefer not to remove your wearable while showering, the sport band option will most likely be the more desirable option.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Performance: Constantly monitoring movement, not performance
 
  While this streamlined device doesn’t log detailed workout metrics, the Halo has the upper hand when it comes to continuously monitoring movement—and sedentary stints throughout the day. Whether you’re sitting at a desk or venture out for an errand, the Halo will capture that and pretty accurately categorize it. It consistently registered walking and running activities, though the readout wasn’t very accurate for the latter. Truthfully, I don’t get the impression that that’s the point of the Halo.
@@ -123,6 +119,10 @@ Lifewire / Yoona Wagener
  Instead, the Halo presents all activity data through a convenient point-tracking system. The weekly goal is 150, which converts to 150 minutes of cardiovascular activity, as recommended by the American Heart Association. Periods of movement and exercise count toward this point goal, while periods of non-movement subtract from points earned. It’s a digestible system that offers a new twist on the steps or movement alert functions you’ll find in fitness trackers and[smartwatches](https://www.lifewire.com/an-introduction-to-smart-watches-3441381) from Samsung, Garmin, Fitbit, and others. This system was an encouraging reset from those reminders that sometimes feel more annoying than motivating.
 
 ![Amazon Halo](https://www.lifewire.com/thmb/FjdFyV6Y4mTXNsqccZ4aEBJNpV0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Halo_05-e671ee9f77cc4cee8e2580a2dba449d5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener.
 
@@ -154,6 +154,10 @@ Lifewire / Yoona Wagener
 
 Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Price: A reasonable price for the feature set
 
  Retailing for just about $100, the Amazon Halo band certainly won’t break the bank for budget-minded shoppers. While the lack of display could be a deterrent, the solid mobile app provides convenient access to the detailed sleep, automatic activity tracking, and specialized tone of voice and body fat analysis the Halo provides.
@@ -175,10 +179,6 @@ Lifewire / Yoona Wagener
 * [Apple Watch Series 5](https://www.lifewire.com/apple-watch-series-6-review-5087552)
 * [Fitbit Sense](https://www.lifewire.com/fitbit-sense-review-5085832)
 * [Ticwatch Pro](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -211,24 +211,19 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-make-every-gaming-moment-count-top-5-ways-to-record-in-minecraft-on-a-mac/"><u>[Updated] Make Every Gaming Moment Count Top 5 Ways to Record in Minecraft on a Mac</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-infinix-smart-8-pro-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Infinix Smart 8 Pro Phone Using PC | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-open-your-apple-iphone-x-without-a-home-button-drfone-by-drfone-ios/"><u>How To Open Your Apple iPhone X Without a Home Button | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On HTC U23 | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-the-best-tricks-to-make-your-silent-facebook-vids-sing-discover-12-steps/"><u>In 2024, The Best Tricks to Make Your Silent Facebook Vids Sing – Discover 12 Steps</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-unlock-insightful-revelations-instagram-snapshot-audiences/"><u>In 2024, Unlock Insightful Revelations Instagram Snapshot Audiences</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-the-asus-rog-zephyrus-g14-the-ultimate-gamers-choice/"><u>In-Depth Evaluation of the Asus ROG Zephyrus G14: The Ultimate Gamer's Choice</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-linkedin-premium-a-smart-move-for-professionals-heres-why/"><u>Is LinkedIn Premium a Smart Move for Professionals? Here’s Why</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-the-samsung-galaxy-tab-s3-a-solid-choice-expert-review-inside/"><u>Is the Samsung Galaxy Tab S3 a Solid Choice ? Expert Review Inside!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-external-dvdcd-drives-reviewed-find-the-ideal-device-today/"><u>Leading External DVD/CD Drives Reviewed : Find the Ideal Device Today</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/masterclass-of-strategy-rpgs-expert-opinion-on-the-wasteland-ii-directors-version/"><u>Masterclass of Strategy RPGs: Expert Opinion on The Wasteland II Director's Version</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/modernizing-a-classic-the-revamped-demons-souls-with-impressive-graphical-fidelity/"><u>Modernizing a Classic: The Revamped Demon's Souls with Impressive Graphical Fidelity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mohu-blade-antenna-assessment-distinctive-style-and-effective-in-home-reception/"><u>Mohu Blade Antenna Assessment: Distinctive Style & Effective In-Home Reception</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigate-the-world-of-tablets-with-confidence-sizing-and-weight-matters-explored/"><u>Navigate the World of Tablets with Confidence: Sizing & Weight Matters Explored</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/osprey-ambient-weather-station-ws-2902a-high-quality-features-without-breaking-the-bank-our-detailed-review/"><u>Osprey Ambient Weather Station (WS-2902A): High-Quality Features Without Breaking the Bank – Our Detailed Review</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pearson-upgrades-gsl-embraces-mondly-for-perfection/"><u>Pearson Upgrades GSL, Embraces Mondly for Perfection</u></a></li>
-<li><a href="https://win-blog.techidaily.com/resolved-overcome-streaming-and-recording-lags-in-obs/"><u>Resolved: Overcome Streaming & Recording Lags in OBS</u></a></li>
-<li><a href="https://win-answers.techidaily.com/ultimate-troubleshooting-tips-to-prevent-rainbow-six-siege-from-stopping-mid-game-pc/"><u>Ultimate Troubleshooting Tips to Prevent Rainbow Six Siege From Stopping Mid-Game (PC)</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/unveiling-your-individual-playlist-paradise-on-youtube-for-2024/"><u>Unveiling Your Individual Playlist Paradise on YouTube for 2024</u></a></li>
+<li><a href="https://win-info.techidaily.com/easy-guide-to-file-compression-on-windows-tips-from-yl-software/"><u>Easy Guide to File Compression on Windows - Tips From YL Software</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-to-oneplus-ace-2-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to OnePlus Ace 2 FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-youtube-beats-now-at-your-fingertips-in-imovie-editing/"><u>In 2024, YouTube Beats, Now at Your Fingertips in iMovie Editing</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-best-zero-cost-flv-video-editors-you-need/"><u>New Best Zero-Cost FLV Video Editors You Need</u></a></li>
+<li><a href="https://win-blog.techidaily.com/no-more-wow-disruptions-easy-solutions-to-game-crashing-issues/"><u>No More WoW Disruptions: Easy Solutions to Game Crashing Issues!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-spectrum-your-gateway-to-gameplay/"><u>Screen Spectrum Your Gateway to Gameplay</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-3-essential-software-tools-to-track-and-boost-your-pc-gaming-skills/"><u>Top 3 Essential Software Tools to Track and Boost Your PC Gaming Skills</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-8-best-laptop-games-playable-on-touchpads-a-comprehensive-guide/"><u>Top 8 Best Laptop Games Playable on Touchpads: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-photography-gadgets-the-must-have-camera-add-ons-of-2024/"><u>Top-Rated Photography Gadgets: The Must-Have Camera Add-Ons of 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-resolving-steam-cloud-sync-issues-and-securing-game-progress/"><u>Ultimate Guide to Resolving Steam Cloud Sync Issues and Securing Game Progress</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-selection-of-controller-options-for-enhanced-mobile-gaming-performance/"><u>Ultimate Selection of Controller Options for Enhanced Mobile Gaming Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/uncover-hidden-gems-expert-tips-on-snagging-awesome-geeky-items-at-thrift-stores/"><u>Uncover Hidden Gems: Expert Tips on Snagging Awesome Geeky Items at Thrift Stores</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/what-to-do-if-microsoft-outlook-only-opens-in-safe-mode-on-windows/"><u>What to Do if Microsoft Outlook Only Opens in Safe Mode on Windows</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Inexpensive Yet Robust - Meet the Coolpix W100
-date: 2024-12-08T18:21:14.766Z
-updated: 2024-12-10T21:46:19.798Z
+date: 2024-12-16T12:25:24.907Z
+updated: 2024-12-17T00:04:23.418Z
 categories:
   - BestProducts
 description: This Article Describes Inexpensive Yet Robust - Meet the Coolpix W100
@@ -18,16 +18,12 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## TP-Link RE200 AC750 Wi-Fi Range Extender
 
 ![TPLInk Network Extender RE200](https://www.lifewire.com/thmb/YhW6wEcN1-qJeUTqIMVwHkGr5cI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_HeroSquare-307b31f9d0a4494d8a3d563c761542d5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -55,10 +51,6 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 ![TPLInk Network Extender RE200](https://www.lifewire.com/thmb/kJVLlJFDWoRIQXYy8IO30U8ybaE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_HeroSquare-307b31f9d0a4494d8a3d563c761542d5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 [View On Amazon $30](https://www.amazon.com/dp/B00NR2VMNC?tag=lifewire-onsite-prod-20&%2F=&ascsubtag=4846136%7Cn81cb5d49c23640658f86ff160e2903a300%7CB00NR2VMNC) [View On Walmart $28](https://www.walmart.com/ip/TP-Link-RE200-AC750-Dual-Band-Wireless-Wall-plugged-Range-Extender-works-with-any-router-or-WiFi-system/42300087) [View On B&H Photo Video $25](https://www.bhphotovideo.com/c/product/1113036-REG/tp%5Flink%5Fre200%5Fac750%5Fwifi%5Frange%5Fextender.html/?ap=y&ap=y&smp=y&smp=y&lsft=BI%3A514&gclid=EAIaIQobChMIhKjIlrbS6QIVE4rICh0N3wFcEAQYASABEgITKfD%5FBwE)
@@ -83,6 +75,10 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
  Still, if you have a smaller home and/or modest internet speeds, this easy-to-use $30 device could do the trick. I tested the TP-Link RE200 AC750 in my house for several days, streaming media, playing online games, and testing the speeds from various distances.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Small and sleek**
 
  Some Wi-Fi extenders are as large as the[typical router 404](https://www.lifewire.com/best-wireless-routers-4038590) , or even larger—but not the TP-Link RE200\. This sleek little plug-in model is just 4 inches tall and about 2.5 inches across, with a curvy design that has an attractive textured finish.
@@ -103,11 +99,11 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 ![TP-Link AV1300 Powerline](https://www.lifewire.com/thmb/04F8fDpm18B1nKg67KGE62zSjHI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_02-66c2a71ae40f45de8466ab23b5f96c09.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Connectivity: Solid performance**
 
@@ -116,10 +112,6 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
  I primarily tested the TP-Link RE200 in my office in my house, where I routinely see slower and sometimes inconsistent Wi-Fi speeds than when in closer proximity to my router. The RE200 clearly had an impact on both the speed and steadiness of the connection, with both my 2.4GHz and 5GHz networks showing full bars and typically delivering up to double the speed or more compared to my router’s own networks.
 
 ![TP-Link AV1300 Powerline](https://www.lifewire.com/thmb/frUD2wVjOiQ6xyicmibzSTBMRNY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_04-97804e236e3642ca87cfaf2bd29d69c6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -147,6 +139,10 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
  At just $30, this compact, easy-to-use adapter sets up easily and works as advertised, extending Wi-Fi access into dead zones in your home.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **TP-Link RE200 vs. Netgear Nighthawk X4**
 
  There’s a $100 difference in price between these plug-in extenders—and given that the price on this device is just $30, that’s a pretty significant multiplier. No doubt, the Netgear Nighthawk X4 (see on[Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-nighthawk-x4-ac2200-dual-band-wi-fi-range-extender-white%2F5113100.p%3FskuId%3D5113100%26irclickid%3D3MGRR-yjYxyOWZT05-R4sULoUki0ZwQRo2SFSU0%26irgwc%3D1%26ref%3D198%26loc%3D3MGRR-yjYxyOWZT05-R4sULoUki0ZwQRo2SFSU0%26acampID%3D614286%26mpid%3D10078) ) has some major advantages, ranging from higher overall speed capabilities to steadier 5GHz performance and seamless mesh networking. Is it worth the extra $100? Absolutely. But if your internet needs are modest and you don’t want to shell out major cash to stretch your Wi-Fi a little bit further, then TP-Link’s cheap RE200 can get the core job done.
@@ -156,6 +152,10 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
  **Small, cheap, and potentially good enough to get the job done.**
 
  If you have modest broadband speeds and just need a little help to stretch your Wi-Fi network into certain spaces, then the TP-Link RE200 AC750 Wi-Fi Range Extender may be an appealing option. It’s definitely_less_ appealing if you can’t take advantage of TP-Link’s OneMesh hardware platform, and it won’t be able to replicate the full extent of a very high-speed broadband connection. Still, for a lot of people, this cheap, simple extender could be enough.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -183,20 +183,24 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-quick-start-guide-to-arranging-engaging-google-sessions-for-2024/"><u>[New] Quick Start Guide to Arranging Engaging Google Sessions for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-youtubes-payment-cycle-a-detailed-look/"><u>[New] YouTube’s Payment Cycle A Detailed Look</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-make-fortnite-thumbnail-in-30-seconds/"><u>[Updated] 2024 Approved How to Make Fortnite Thumbnail in 30 Seconds</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-inaugural-directors-shorts/"><u>[Updated] Inaugural Director's Shorts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-jake-pauls-youtube-success-story/"><u>[Updated] Jake Paul's YouTube Success Story</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/abbyy-annonce-deux-nouvelles-additions-au-sein-de-son-comite-executif/"><u>ABBYY Annonce Deux Nouvelles Additions Au Sein De Son Comité Exécutif</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/comprehensive-guide-to-restoring-d3dx924dll-file-on-windows/"><u>Comprehensive Guide to Restoring d3dx9_24.dll File on Windows</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/enhance-your-play-cut-down-on-latency-for-seamless-gaming-in-202c/"><u>Enhance Your Play: Cut Down on Latency for Seamless Gaming in 202C</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-integrated-activity-evaluation-guide/"><u>In 2024, Integrated Activity Evaluation Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/should-you-dive-into-the-world-of-amazon-prime/"><u>Should You Dive Into the World of Amazon Prime?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/silent-weapons-loud-fun-plants-vs-zombies-battle-for-neighborville-reviewed/"><u>Silent Weapons, Loud Fun: Plants Vs. Zombies Battle for Neighborville Reviewed!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-dreame-bot-l10-pro-unveiled-revolutionizing-home-cleaning-with-advanced-lidar-sensors/"><u>The Dreame Bot L10 Pro Unveiled: Revolutionizing Home Cleaning with Advanced LiDAR Sensors</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-moto-g-power-assessment-exceptional-operation-and-stellar-battery-longevity-reviewed/"><u>The Moto G Power Assessment: Exceptional Operation & Stellar Battery Longevity Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-construct-and-code-your-own-bot-with-the-makeblock-mbot-creator-pack/"><u>The Ultimate Guide to Construct and Code Your Own Bot with the Makeblock mBot Creator Pack</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-googles-pixel-4a-5g-an-expert-opinion-on-a-sleek-economical-android-device/"><u>The Ultimate Guide to Google's Pixel 4a 5G - An Expert Opinion on a Sleek, Economical Android Device</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-full-guide-mastery-of-adobe-cloud-services-with-alternatives-analysis/"><u>[New] Full Guide Mastery of Adobe Cloud Services with Alternatives Analysis</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-boundless-creativity-celebrating-our-top-10-female-youtubers/"><u>[New] In 2024, Boundless Creativity Celebrating Our Top 10 Female YouTubers</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-the-ultimate-tiktok-unboxers-playbook-for-likes/"><u>[New] In 2024, The Ultimate TikTok Unboxer's Playbook for Likes</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-top-10-gloves-revolutionizing-vr-interaction/"><u>[New] Top 10 Gloves Revolutionizing VR Interaction</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-essential-av-producers-roundup-online/"><u>2024 Approved Essential AV Producers' Roundup Online</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/chill-peaks-2022-winter-games-moments/"><u>Chill Peaks 2022 Winter Games Moments</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/determining-if-windows-11-offers-enough-improvements/"><u>Determining If Windows 11 Offers Enough Improvements</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-power-of-lightzone-no-cost-editing-on-any-platform/"><u>Discover the Power of Lightzone: No-Cost Editing on Any Platform</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-tp-link-archer-a6-ac1200-network-appliance-high-quality-at-low-cost/"><u>Evaluating the TP-Link Archer A6 AC1200 Network Appliance - High Quality at Low Cost</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722982443194-how-to-get-your-hp-screen-up-and-running-again-solutions-inside/"><u>How To Get Your HP Screen Up And Running Again – Solutions Inside</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-track-apple-iphone-11-pro-location-without-installing-software-drfone-by-drfone-virtual-ios/"><u>How to Track Apple iPhone 11 Pro Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-expert-picks-for-drone-pilots-vr-eyewear/"><u>In 2024, Expert Picks for Drone Pilots’ VR Eyewear</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-income-through-effective-blog-ads-on-buyselladscom-platform/"><u>Maximizing Income Through Effective Blog Ads on BuySellAds.com Platform</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-your-wireless-coverage-with-the-tp-link-re305-range-extender-our-in-depth-review/"><u>Maximizing Your Wireless Coverage with the TP-Link RE305 Range Extender – Our In-Depth Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/potential-pitfalls-of-purchasing-a-dvr-consider-these/"><u>Potential Pitfalls of Purchasing a DVR? Consider These</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-omoton-t1-pro-stand-combining-cost-efficiency-with-strong-performance/"><u>Reviewing the Omoton T1 Pro-Stand: Combining Cost Efficiency with Strong Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stay-current-with-every-new-iphone-release/"><u>Stay Current with Every New iPhone Release</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/swagboard-t1-by-swagtron-a-review-on-its-quick-movements-and-premium-pricing/"><u>Swagboard T1 by Swagtron: A Review on Its Quick Movements and Premium Pricing</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/what-lies-ahead-for-artificial-intelligence-the-evolution-beyond-chatgpt-in-natural-language-processing/"><u>What Lies Ahead for Artificial Intelligence? The Evolution Beyond ChatGPT in Natural Language Processing</u></a></li>
 </ul></div>
 

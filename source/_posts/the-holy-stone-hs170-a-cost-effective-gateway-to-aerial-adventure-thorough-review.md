@@ -1,7 +1,7 @@
 ---
 title: "The Holy Stone HS170: A Cost-Effective Gateway to Aerial Adventure - Thorough Review"
-date: 2024-12-04T05:39:07.781Z
-updated: 2024-12-11T06:21:23.184Z
+date: 2024-12-12T21:33:10.303Z
+updated: 2024-12-16T16:13:12.129Z
 categories:
   - BestProducts
 description: "This Article Describes The Holy Stone HS170: A Cost-Effective Gateway to Aerial Adventure - Thorough Review"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/e788f79a8684ff135a50b06576e0943a8c2779cab
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Nintendo Switch Lite
 
@@ -41,10 +45,6 @@ Lifewire / Zach Sweat
 [View On Walmart $165](https://www.walmart.com/ip/Nintendo-Switch-Lite-Console-Turquoise/306029956) [View On Best Buy $200](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnintendo-switch-32gb-lite-turquoise%2F6257139.p%3FskuId%3D6257139) [View On Macy's $240](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.macys.com%2Fshop%2Fproduct%2Fswitch-gaming-console-32gb-lite%3FID%3D10316544%26pla%255Fcountry%3DUS%26CAGPSPN%3Dpla%26slpfid%3D3)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Nintendo Switch Lite
 
@@ -75,6 +75,10 @@ Lifewire / Zach Sweat
  Although I appreciate what Nintendo has done here with the Lite, a few key missing features might not make it the optimal choice for everyone.
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/EUqklfDyxuB1ye8-DBboDrjzkUw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-2-225f5107c7b74f159afecba8c3f6174a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -135,7 +139,7 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Decent for mobile gaming, but no FHD**
@@ -174,11 +178,11 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/KxMaFgooi4rm3qbImmLKatuUtVI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-4-ef84dbbbde3d48ff97515e5c6b9981a4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Still a bit drab, but smooth and snappy**
 
@@ -196,14 +200,10 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/eFyBn6jL7cdHOO4q7zc6pALdQzw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-6-42a5bc5ea4e544bdb6d3fbbd074583c2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Battery Life: Slightly better, but not the best**
@@ -220,6 +220,10 @@ Lifewire / Zach Sweat
 
  Lastly, the battery is internal, so you can't easily pop in a new one when it starts to degrade. While I haven't seen any degradation with mine, it'll happen at some point. When it does, sending it to Nintendo for repair is the only real option.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Inexpensive console gaming in your hands**
 
  It’s no surprise that since Nintendo removed many features from the Switch to create the Lite model, the price has also decreased considerably. The Switch is already at a pretty sweet price of $300, so how does the Lite stack up?
@@ -228,14 +232,10 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7XA6hgAK2B4hDSlWdmB8VQddrjw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-7-Comparison-44dcf88ec51247a2b0756445a3c7884d.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Nintendo Switch Lite vs. Nintendo Switch**
@@ -300,24 +300,22 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-premier-mac-tools-beyond-bandicam-for-2024/"><u>[New] Premier Mac Tools Beyond Bandicam for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-premier-10-creative-filters-elevating-your-social-media-game/"><u>[Updated] In 2024, Premier 10 Creative Filters Elevating Your Social Media Game</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-masterclass-in-design-upgrading-igtv-backgrounds/"><u>[Updated] Masterclass in Design Upgrading IGTV Backgrounds</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-stellar-visuals-enhancing-google-meet-collaboration/"><u>2024 Approved Stellar Visuals Enhancing Google Meet Collaboration</u></a></li>
-<li><a href="https://win-able.techidaily.com/1726030397578-jpgjpegmp44/"><u>動画編集の基本: JPG/JPEGフォーマットがMP4になるための最適解決策4つ</u></a></li>
-<li><a href="https://win11.techidaily.com/get-the-xbox-app-working-again-on-your-windows-laptop/"><u>Get the Xbox App Working Again on Your Windows Laptop</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/madden-nfl-19-analysis-outstanding-features-amidst-growing-familiarity/"><u>Madden NFL 19 Analysis: Outstanding Features Amidst Growing Familiarity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-the-oculus-quist-2-premium-vr-adventures-for-a-fantastic-deal/"><u>Mastering the Oculus Quist 2: Premium VR Adventures for a Fantastic Deal!</u></a></li>
-<li><a href="https://blog-min.techidaily.com/mkv-video-in-reihe-umwandeln-schneller-und-einfach-mit-dem-kostenlosen-macx-mkv-codec-umwandler/"><u>MKV-Video in Reihe Umwandeln: Schneller Und Einfach Mit Dem Kostenlosen MacX MKV-Codec-Umwandler</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/most-recommended-netgear-routers-for-the-year-2024/"><u>Most Recommended Netgear Routers for the Year 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/next-level-voice-assistant-experience-with-the-new-4th-gen-echo-show/"><u>Next-Level Voice Assistant Experience with the New 4Th Gen Echo Show</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sabrent-portable-mouse-with-precise-tracking-and-durable-cord-perfect-for-travel-enthusiasts/"><u>Sabrent Portable Mouse with Precise Tracking & Durable Cord – Perfect for Travel Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-nexus-of-nature-and-neatness-designing-island-homes/"><u>The Nexus of Nature and Neatness: Designing Island Homes</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-powerful-performance-of-asuss-rt-ac6-revealed-a-deep-dive-into-its-5g-wifi-capabilities/"><u>The Powerful Performance of Asus's RT-AC6# Revealed: A Deep Dive Into Its 5G WiFi Capabilities</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-ultimate-list-of-top-sd-cards-for-gopro-hero-78/"><u>The Ultimate List of Top SD Cards for GoPro HERO 7/8</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-performance-for-less-grab-the-cyberpower-deal-rtx-4060-and-i5-cpu-for-just-999/"><u>Top Performance for Less - Grab the CyberPower Deal: RTX 4060 & I5 CPU for Just $999</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-race-rc-rock-crawler-review-an-all-terrain-vehicle/"><u>Top Race RC Rock Crawler Review: An All-Terrain Vehicle</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-aeony-solar-generator-with-pure-wave-inverter-perfect-match-for-delicate-medical-devices-review/"><u>Top Rated AeonY Solar Generator with Pure Wave Inverter - Perfect Match for Delicate Medical Devices Review</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/unveiling-secrets-how-to-dominate-fb-searches-with-these-10-hacks/"><u>Unveiling Secrets How to Dominate FB Searches with These 10 Hacks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-explore-google-chromes-advanced-multiscreen-capabilities/"><u>[Updated] 2024 Approved Explore Google Chrome's Advanced Multiscreen Capabilities</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-high-end-camcorders-for-impeccable-4k-quality-top-18-for-2024/"><u>[Updated] High-End Camcorders for Impeccable 4K Quality (Top 18) for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-budget-video-editing-made-simple-with-vimeo-free-service/"><u>2024 Approved Budget Video Editing Made Simple with Vimeo Free Service</u></a></li>
+<li><a href="https://tools.techidaily.com/aiseesoft/ai-photo-editor/"><u>AI Photo Editor</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/anonymity-in-action-insta-stories-guide/"><u>Anonymity in Action Insta Stories Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apples-m4-chip-released-a-closer-look-at-news-date-of-launch-and-full-specs/"><u>Apple's M4 Chip Released: A Closer Look at News, Date of Launch, and Full Specs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ar-5-glasses-evaluation-top-quality-augmented-reality-experience-for-less/"><u>AR-5 Glasses Evaluation - Top-Quality Augmented Reality Experience for Less!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevating-gaming-and-streaming-with-nvidia-shield-tv-pro-in-depth-performance-breakdown/"><u>Elevating Gaming and Streaming with Nvidia Shield TV Pro: In-Depth Performance Breakdown</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevating-your-experience-embracing-enjoyment-in-pokemon-shining-pearl/"><u>Elevating Your Experience: Embracing Enjoyment in 'Pokemon Shining Pearl'</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ensuring-optimal-pet-health-an-in-depth-look-at-petsafes-automatic-weight-control-feeder/"><u>Ensuring Optimal Pet Health: An In-Depth Look at PetSafe's Automatic Weight Control Feeder</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-best-of-both-worlds-with-blueears-bluetooth-enabled-fashionable-beanie-hat-audiophile-approved/"><u>Experience the Best of Both Worlds with Blueear's Bluetooth-Enabled Fashionable Beanie Hat - Audiophile Approved</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-pinnacle-of-artistry-highlighting-top-6-nft-creators/"><u>In 2024, The Pinnacle of Artistry Highlighting Top 6 NFT Creators</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/smart-savings-alert-premium-laptop-bargains-for-july-2er-2024-curated/"><u>Smart Savings Alert: Premium Laptop Bargains for July 2Er 2024 - Curated</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/streamline-media-management-with-top-10plus-free-instagram-to-mp4-converters/"><u>Streamline Media Management with Top 10+ Free Instagram-to-MP4 Converters</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-complete-review-of-mobvois-ticwatch-pro-4g-the-top-smartwatch-for-uninterrupted-internet-access/"><u>The Complete Review of Mobvoi's Ticwatch Pro 4G: The Top Smartwatch for Uninterrupted Internet Access</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-essential-review-is-the-dell-inspiron-3671-your-ideal-everyday-desktop-computer/"><u>The Essential Review: Is the Dell Inspiron 3671 Your Ideal Everyday Desktop Computer?</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-cant-watch-mlb-matches-get-free-mlb-streaming-options-now-for-2024/"><u>Updated Cant Watch MLB Matches? Get Free MLB Streaming Options Now for 2024</u></a></li>
 </ul></div>
 

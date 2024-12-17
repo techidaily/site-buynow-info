@@ -1,7 +1,7 @@
 ---
 title: Test Driving the Arlo Smart Surveillance Kit
-date: 2024-08-26T06:37:26.389Z
-updated: 2024-08-27T06:37:26.389Z
+date: 2024-12-14T00:14:50.666Z
+updated: 2024-12-17T05:41:24.483Z
 categories:
   - BestProducts
 description: This Article Describes Test Driving the Arlo Smart Surveillance Kit
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/yNl8D_tBjNGmt9uWjAG3X45TBPQ=/540x405/fi
 ## Halo Bolt Portable Charger/Jump Starter
 
 ![Halo Bolt Portable Charger/Jump Starter](https://www.lifewire.com/thmb/VanJTMWZjo_p7o3jv1uHBa1hAf8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-HeroSquare-889ebc2fc6b54573a26c09cabb34bd5c.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -38,6 +42,10 @@ Lifewire / Andrew Hayward
 [Buy on Amazon](https://www.amazon.com/dp/B079FSPRXM?tag=lifewire-onsite-prod-20&ascsubtag=5071993%7Cn35698be70c304b229c7a194255ab2d3620%7C) [Buy on QVC](https://www.qvc.com/qvc.product.E235435.html)
 
 3.7
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Halo Bolt Portable Charger/Jump Starter
 
@@ -78,8 +86,9 @@ Lifewire / Andrew Hayward
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup Process: Load it up**
 
  You’ll need to charge the brick to total capacity before using it, and the four green battery lights on the right side of the front face indicate how much capacity is currently left. The battery is fully charged when all four are illuminated when pressing any of the power buttons. Otherwise, for the AC and USB ports, the Halo Bolt is a plug-and-play charger.
@@ -88,19 +97,8 @@ Lifewire / Andrew Hayward
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/mUdXUjWxeupVqNR_y43_eFTC0ic=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-02-69b93dc934684ef5b71a40215f6162f2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Charging Speed and Battery: Not so long-lasting**
 
  The Halo Bolt has 58,830mWh of battery power within, and the official description suggests that it can provide up to several hours of additional usage for a MacBook Pro or[iPad Air](https://www.lifewire.com/apple-ipad-air-2019-review-4688969) . In my testing, the results didn’t quite match those targets.
@@ -117,17 +115,15 @@ Lifewire / Andrew Hayward
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/MNFqifirQ0sn61GPO1e-bLQ1t8s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-06-8bc3449bd35243aaaf67272c1d3774a6-bc803e0a114b4116adf3078af6a2de00.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: It’s priced right**
 
  For a jack-of-all-trades power brick that can jump-start your car and charge its battery, serve as a bright flashlight for roadside emergencies, and charge a wide array of portable devices, the $100 price seen on Amazon looks pretty reasonable. However, given that it couldn’t charge my laptop to total capacity and lacks a USB-C port, handier, higher-capacity charging bricks are available specifically for laptop and smartphone charging needs.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Halo Bolt ACDC 58830 vs. ZMI PowerPack 20000**
 
@@ -142,8 +138,9 @@ Lifewire / Andrew Hayward
  The Halo Bolt isn’t the best option for charging laptops, but it is a solid all-around device for providing backup power to a broader array of gadgets, not to mention jump-starting a car. This versatile device is smart to have around if you drive a car and are frequently mobile with your portable gadgets. I wouldn’t bring it with me on vacation, but it could prove useful before long as a backup device to keep handy.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Bolt ACDC 58830 mWh Portable Charger/Jump Starter
@@ -155,14 +152,11 @@ Lifewire / Andrew Hayward
 * Ports  2x USB-A. 1x AC, 1x Jump Start
 * Waterproof  N/A
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -171,4 +165,24 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-ultimate-tips-to-upgrade-your-rl-recording-equipment/"><u>[New] 2024 Approved Ultimate Tips to Upgrade Your RL Recording Equipment</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-carryminati-the-youtube-money-trail-of-ajey-nagar-for-2024/"><u>[New] CarryMinati The YouTube Money Trail of Ajey Nagar for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-capture-the-season-wardrobe-top-5-winter-yt-scenes/"><u>[Updated] Capture the Season' Wardrobe Top 5 Winter YT Scenes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-how-does-t-series-generate-revenue/"><u>[Updated] In 2024, How Does T-Series Generate Revenue?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/5-best-dvd-creators-for-macos-sierra-for-2024/"><u>5 Best DVD Creators for macOS Sierra for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-lenovos-budget-android-tablet-pros-and-cons/"><u>Comprehensive Review of Lenovo's Budget Android Tablet: Pros & Cons</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/crucial-considerations-for-buying-the-perfect-activity-tracker/"><u>Crucial Considerations for Buying the Perfect Activity Tracker</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/extension-headers/"><u>Extension Headers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-innovative-and-simple-18-vlogging-projects/"><u>In 2024, Innovative & Simple 18 Vlogging Projects</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/kensuns-best-in-class-portable-pneumatic-device-assessment-robust-and-convenient/"><u>Kensun's Best-in-Class Portable Pneumatic Device Assessment – Robust and Convenient</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/pre-purchase-guide-critical-considerations-for-acquiring-an-unlockable-cell-phone/"><u>Pre-Purchase Guide: Critical Considerations for Acquiring an Unlockable Cell Phone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/resolving-ram-issues-professional-advice-and-strategies-by-yl-software-experts/"><u>Resolving RAM Issues: Professional Advice and Strategies by YL Software Experts</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solution-found-pc-version-of-resident-evil-5-wont-launch-problems-resolved/"><u>Solution Found: PC Version of Resident Evil 5 Won't Launch Problems Resolved</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-deal-in-fitness-tracking-in-depth-look-at-the-budget-friendly-fitbit-versa-lite/"><u>The Best Deal in Fitness Tracking: In-Depth Look at the Budget-Friendly Fitbit Versa Lite</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-pros-and-cons-of-the-fl5500a-flatwave-by-winegard-solid-work-with-pricey-demand/"><u>The Pros and Cons of the #FL5500A FlatWave by Winegard: Solid Work with Pricey Demand</u></a></li>
+<li><a href="https://win11.techidaily.com/understanding-and-harnessing-the-strength-of-windows-11s-auto-hdr/"><u>Understanding and Harnessing the Strength of Windows 11'S Auto HDR</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-mobvoi-ticwatch-e2-value-for-money-or-just-cheaply-made/"><u>Unveiling Mobvoi TicWatch E2: Value for Money or Just Cheaply Made?</u></a></li>
+</ul></div>
 

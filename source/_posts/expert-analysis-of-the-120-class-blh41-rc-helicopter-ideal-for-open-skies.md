@@ -1,7 +1,7 @@
 ---
 title: "Expert Analysis of the 120-Class BLH41# RC Helicopter: Ideal For Open Skies"
-date: 2024-08-26T06:32:28.450Z
-updated: 2024-08-27T06:32:28.450Z
+date: 2024-12-12T04:22:59.889Z
+updated: 2024-12-17T13:27:01.094Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Analysis of the 120-Class BLH41# RC Helicopter: Ideal For Open Skies"
@@ -51,6 +51,10 @@ thumbnail: https://thmb.techidaily.com/566315d56d553ccbd049a4fe3b4211dbde8cabf2c
 
 [Jump to Review](https://www.lifewire.com/#toc-compact-alternative-asus-zendrive)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Best Overall
 
 [ASUS BW-16D1X-U Blu-ray Drive](https://www.amazon.com/dp/B071WB35MH?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB071WB35MH)
@@ -81,6 +85,10 @@ PHOTO: Amazon
 
 [Asus BW-16D1X-U Powerful Blu-ray Drive Review](https://www.lifewire.com/asus-bw-16d1x-u-blu-ray-drive-review-4774686)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Budget Buy
 
 [LG GP65NB60 External Drive](https://www.amazon.com/dp/B00ODDE33U?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB00ODDE33U)
@@ -109,8 +117,9 @@ PHOTO: Amazon
  The LG GP65NB60 needs a single USB connection for all its power and data transfer needs. Further rounding out the package, the LG GP65NB60 supports Windows and Mac, can burn archival-quality M-Disc, and comes in various colors, with black, gold, white, and silver on offer.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Most Compact
 
 [Verbatim External Slimline Blu-ray Writer](https://www.amazon.com/dp/B09PY6SC9Y?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB09PY6SC9Y)
@@ -140,8 +149,9 @@ PHOTO: Amazon
  It can write CDs at 24x, DVDs at 8x, and Blu-rays at 6x — even supporting M-Disc. It’s a CD/DVD/BD drive weighing less than half a pound. The Verbatim 70102 is a mobility champion, with power and data transfer over USB, so you’ll only need one cable.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Budget Alternative
 
 [Dell DW316 External USB Slim DVD Drive](https://www.amazon.com/dp/B00VWVZ0V0?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB00VWVZ0V0)
@@ -170,8 +180,9 @@ PHOTO: Amazon
  The Dell DW316 performs in line with what most of the competition offers. It boasts maximum read speeds of 24x for CDs and 8x for DVDs, and it can provide those same speeds for writing as well.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Compact Alternative
 
 [ASUS ZenDrive](https://www.amazon.com/dp/B01A27IUUM?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB01A27IUUM)
@@ -199,9 +210,6 @@ PHOTO: Amazon
 
  The Asus ZenDrive supports Windows and Mac, and it includes CyberLink software to help you get started storing content on physical media. The drive also comes with six months of free cloud storage from ASUS, so you can rip content from your CDs and DVDs and move it there as needed.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What to Look For
 
  For people who own and consume lots of media, an indispensable external optical drive is one of your best bets. External optical drives allow you to store massive amounts of data, including photos, videos, and software from CDs and DVDs, with easy access whenever and wherever you need it.
@@ -269,8 +277,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -278,4 +284,18 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitters-most-popular-amazon-originals-in-2e23/"><u>[New] In 2024, Twitter's Most Popular Amazon Originals in 2E'23</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-cut-costs-on-downloads-with-this-list-of-20-free-youtube-sound-rippers/"><u>[Updated] Cut Costs on Downloads with This List of 20 Free YouTube Sound Rippers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-enabling-youtube-and-facebook-on-apple-tv/"><u>[Updated] Enabling YouTube and Facebook on Apple TV</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mirrorless-challenge-to-dslr-who-wins-in-video-for-2024/"><u>[Updated] Mirrorless Challenge to DSLR Who Wins in Video for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-top-vlog-concepts-for-daily-engagement/"><u>[Updated] Top Vlog Concepts for Daily Engagement</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dji-robomaster-s1-unveiled-a-thrilling-combination-of-play-coding-and-battle-royale/"><u>DJI RoboMaster S1 Unveiled – A Thrilling Combination of Play, Coding, and Battle Royale!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/garmins-stylish-vivomove-hr-the-daily-wrist-companion-for-fitness-enthusiasts/"><u>Garmin's Stylish Vivomove HR: The Daily Wrist Companion for Fitness Enthusiasts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-premier-select-affordable-youtube-sbs-extraction/"><u>In 2024, Premier Select Affordable YouTube SBS Extraction</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-best-external-storage-solutions-optical-drive-edition-2024/"><u>Navigating the Best External Storage Solutions - Optical Drive Edition, 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stylish-stride-meets-exercise-endurance-in-our-amazfit-gts-assessment/"><u>Stylish Stride Meets Exercise Endurance in Our Amazfit GTS Assessment</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-guide-how-to-correctly-handle-shell32dll-missing-error/"><u>Troubleshooting Guide: How To Correctly Handle Shell32.dll Missing Error</u></a></li>
+</ul></div>
 

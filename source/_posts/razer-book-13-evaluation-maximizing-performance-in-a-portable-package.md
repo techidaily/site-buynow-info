@@ -1,7 +1,7 @@
 ---
 title: "Razer Book 13 Evaluation: Maximizing Performance in a Portable Package"
-date: 2024-12-03T19:03:04.005Z
-updated: 2024-12-11T03:29:43.655Z
+date: 2024-12-14T21:57:26.832Z
+updated: 2024-12-17T13:42:43.603Z
 categories:
   - BestProducts
 description: "This Article Describes Razer Book 13 Evaluation: Maximizing Performance in a Portable Package"
@@ -18,13 +18,13 @@ thumbnail: https://thmb.techidaily.com/8398659134dc24374c71d0ed649ae9e802ceefac0
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Halo Bolt Portable Charger/Jump Starter
 
 ![Halo Bolt Portable Charger/Jump Starter](https://www.lifewire.com/thmb/VanJTMWZjo_p7o3jv1uHBa1hAf8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-HeroSquare-889ebc2fc6b54573a26c09cabb34bd5c.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -52,6 +52,10 @@ Lifewire / Andrew Hayward
 
 ![Halo Bolt Portable Charger/Jump Starter](https://www.lifewire.com/thmb/wNeN4Rq5GyM9MuDOzyg5QlRT-U4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-HeroSquare-889ebc2fc6b54573a26c09cabb34bd5c.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
  in this article
@@ -70,10 +74,6 @@ Lifewire / Andrew Hayward
 
  Granted, it doesn’t pack as much power as some dedicated laptop chargers, which may be a better option for that need. Still, the added versatility gives the Halo Bolt a unique edge in the market. I tested the Halo Bolt for a week with multiple devices, including laptops and smartphones.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: The shiny brick**
 
  While certainly portable, the Halo Bolt isn’t designed to be pocket-friendly. This big brick of a battery pack comes in at 7.2 x 1.6 x 3.8 inches (HWD) with a weight of more than 1.5 pounds. Smaller, cheaper battery packs are available for smartphones, but this beast is made for heavier-duty needs and is designed accordingly.
@@ -91,7 +91,7 @@ Lifewire / Andrew Hayward
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Load it up**
@@ -101,10 +101,6 @@ Lifewire / Andrew Hayward
  The whole process for jump-starting a car is detailed in the included instructions. The Halo Bolt has built-in safety features that ensure you have correctly aligned the jumper cables before starting the connected car, boat, lawnmower, or other vehicles.
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/mUdXUjWxeupVqNR_y43_eFTC0ic=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-02-69b93dc934684ef5b71a40215f6162f2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -126,12 +122,16 @@ Lifewire / Andrew Hayward
 
 Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: It’s priced right**
 
  For a jack-of-all-trades power brick that can jump-start your car and charge its battery, serve as a bright flashlight for roadside emergencies, and charge a wide array of portable devices, the $100 price seen on Amazon looks pretty reasonable. However, given that it couldn’t charge my laptop to total capacity and lacks a USB-C port, handier, higher-capacity charging bricks are available specifically for laptop and smartphone charging needs.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Halo Bolt ACDC 58830 vs. ZMI PowerPack 20000**
@@ -172,24 +172,22 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-navigating-the-path-to-wealthy-video-creators-via-vimeos-revenue-streams/"><u>[New] In 2024, Navigating the Path to Wealthy Video Creators via Vimeo's Revenue Streams</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-ultimate-ice-cream-viewer-tech-overview/"><u>[New] In 2024, Ultimate Ice Cream Viewer Tech Overview</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-ultimate-10-royale-showdowns/"><u>[New] Ultimate 10 Royale Showdowns</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-essentialtips-for-easycamwebrecorderuse/"><u>[Updated] EssentialTips for EasyCamWebRecorderUse</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-identifying-and-accessing-your-music-picks-on-youtube-for-2024/"><u>[Updated] Identifying and Accessing Your Music Picks on Youtube for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-premium-multi-device-video-talks-solutions/"><u>[Updated] Premium Multi-Device Video Talks Solutions</u></a></li>
-<li><a href="https://win-advanced.techidaily.com/alternativer-weg-nach-der-akronis-entwicklung-mit-problemen-bei-crucial-ssds-erkenntnisse-und-losungen/"><u>Alternativer Weg Nach Der Akronis-Entwicklung Mit Problemen Bei Crucial SSDs – Erkenntnisse Und Lösungen</u></a></li>
-<li><a href="https://program-issues.techidaily.com/improve-your-play-experience-by-accelerating-ubisoft-connect-downloads/"><u>Improve Your Play Experience by Accelerating Ubisoft Connect Downloads</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-vivo-y17s-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Vivo Y17s | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/madden-nfl-19-assessment-engaging-features-overshadowed-by-familiarity/"><u>Madden NFL 19 Assessment: Engaging Features Overshadowed by Familiarity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-the-field-fifa-19-game-analysis-the-pinnacle-of-sports-simulation/"><u>Mastering the Field: FIFA 19 Game Analysis - The Pinnacle of Sports Simulation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/motorola-one-hyper-assessment-an-impressive-mid-tier-device-with-a-dynamic-appeal/"><u>Motorola One Hyper Assessment: An Impressive Mid-Tier Device with a Dynamic Appeal</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-through-history-in-assassins-creed-valhalla-a-viking-adventure-reviewed/"><u>Navigating Through History in Assassin's Creed: Valhalla - A Viking Adventure Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/razer-blade-pro-17-review-portable-powerhouse/"><u>Razer Blade Pro 17 Review: Portable Powerhouse</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sweat-free-sessions-with-topmate-c3-cups-a-cost-efficient-laptop-chiller-unveiled/"><u>Sweat-Free Sessions with TopMate C3 Cups: A Cost-Efficient Laptop Chiller Unveiled</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-leading-small-form-factor-gaming-desktops/"><u>The Leading Small Form Factor Gaming Desktops</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-tp-links-deco-p9-mesh-wifi-adapter-for-effortless-setup/"><u>The Ultimate Review of TP-Link's Deco P9 Mesh WiFi Adapter for Effortless Setup</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-on-ion-audio-tailgaterplus-for-continuous-powerful-bass-music-blasting-functionality/"><u>The Ultimate Review on ION Audio Tailgater+ for Continuous, Powerful Bass Music Blasting Functionality</u></a></li>
-<li><a href="https://techidaily.com/unlock-android-phone-if-you-forget-the-zte-blade-a73-5g-password-or-pattern-lock-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you forget the ZTE Blade A73 5G password or pattern lock</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-ultimate-10-volume-uplifters-for-windowsios-devices/"><u>[New] 2024 Approved Ultimate 10 Volume Uplifters for Windows/iOS Devices</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-virtual-reality-movies-in-the-cinema/"><u>[New] In 2024, The Virtual Reality Movies in the Cinema</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-excellent-sound-devices-for-video-blogs/"><u>[Updated] Excellent Sound Devices for Video Blogs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bestvaluechromebook-unpacking-the-features-of-the-asus-chromebook-flip-c3ca/"><u>BestValueChromeBook: Unpacking the Features of the Asus Chromebook Flip C3#CA</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/buyers-guide-to-the-superior-netgear-orbi-a-detailed-review-of-the-market-leader-in-mesh-routers/"><u>Buyers' Guide to the Superior Netgear Orbi: A Detailed Review of the Market Leader in Mesh Routers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-lenovo-thinkpad-x12-exceptional-hybrid-laptop-with-superior-keyboard-quality/"><u>Comprehensive Analysis of the Lenovo ThinkPad X12: Exceptional Hybrid Laptop with Superior Keyboard Quality</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/comprehensive-guide-to-understanding-how-biometrics-work/"><u>Comprehensive Guide to Understanding How Biometrics Work</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/conversational-excellence-crafting-customized-ai-solutions/"><u>Conversational Excellence: Crafting Customized AI Solutions</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/dealing-with-the-ac1st16dll-not-found-bug-easy-repair-strategies/"><u>Dealing with the Ac1st16.dll Not Found Bug - Easy Repair Strategies</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-skagen-falster-3-stylish-and-advanced-technology-in-one-smartwatch/"><u>Expert Analysis of the Skagen Falster 3 - Stylish and Advanced Technology in One Smartwatch</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/forgotten-the-voicemail-password-of-samsung-galaxy-m34-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Samsung Galaxy M34? Try These Fixes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-illuminating-interactions-mastering-animate-texts-in-stories/"><u>In 2024, Illuminating Interactions Mastering Animate Texts in Stories</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-amplifi-hd-mesh-networking-solutions-eliminate-your-homes-wi-fi-coverage-gaps/"><u>Review of Amplifi HD Mesh Networking Solutions: Eliminate Your Home's Wi-Fi Coverage Gaps</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-how-stanleys-j5c09-stands-out-with-sizeable-potential/"><u>Review: How Stanley's J5C09 Stands Out with Sizeable Potential</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rotiboxs-bluetooth-enabled-earmuff-hat-review-where-coziness-meets-exceptional-acoustic-experience/"><u>Rotibox's Bluetooth-Enabled Earmuff Hat Review - Where Coziness Meets Exceptional Acoustic Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-review-on-samsungs-55-inch-ru7300-the-ultimate-guide-to-its-4k-brilliance-and-smart-capabilities/"><u>Top Review on Samsung's 55-Inch RU7300 - The Ultimate Guide to Its 4K Brilliance and Smart Capabilities</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/voice-memo-mastery-for-ios-users-step-by-step-for-2024/"><u>Voice Memo Mastery for iOS Users Step-by-Step for 2024</u></a></li>
 </ul></div>
 

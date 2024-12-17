@@ -1,7 +1,7 @@
 ---
 title: "Inside Status BT's Rating: Tight Wallet, Slightly Off Track"
-date: 2024-08-26T06:33:55.351Z
-updated: 2024-08-27T06:33:55.351Z
+date: 2024-12-14T10:27:17.462Z
+updated: 2024-12-17T08:18:46.302Z
 categories:
   - BestProducts
 description: "This Article Describes Inside Status BT's Rating: Tight Wallet, Slightly Off Track"
@@ -61,6 +61,10 @@ thumbnail: https://thmb.techidaily.com/a61ebba6dd861c81a2aafc9ac2f5e19d276c2c984
 
 [Jump to Review](https://www.lifewire.com/#toc-basic-option-netgear-cm500-docsis-30-16x4-cable-modem)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Best Overall
 
 [Arris Surfboard SB6190](https://www.amazon.com/dp/B016PE1X5K/?tag=lifewire-onsite-prod-20&ascsubtag=4082523%7Cnf5214e1caebb46e4825c05bae32bf72217%7CB016PE1X5K)
@@ -86,6 +90,10 @@ PHOTO: Amazon
  It's small enough to be tucked away just about anywhere. It is also certified by all the major cable providers, so you shouldn't have a problem running it with your internet service provider.
 
 **DOCSIS Standard:** 3.0 |**Channels:** 32x8 |**Speed:** 1.2Gbps / 216Mbps |**Voice Support:** No |**MOCA:** No |**Wired Ports:** 1
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Best Performance
 
@@ -115,10 +123,6 @@ PHOTO: Amazon
 
 [5 Things to Consider Before Buying a Wireless Router](https://www.lifewire.com/best-wi-fi-6-routers-5181486)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## Best for Multi-Gigabit Internet
 
 [Motorola MB8611](https://www.walmart.com/ip/528073648)
@@ -146,6 +150,10 @@ PHOTO: Amazon
  Now, the same caveats apply: You need a fast connection and a router capable of sending that fast connection to the devices on your network.
 
 **DOCSIS Standard:** 3.1 |**Channels:** 2x2 / 32x8 |**Speed:** 2.5Gbps / 800Mbps |**Voice Support:** No |**MOCA:** No |**Wired Ports:** 1 (2.5Gbps Ethernet)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Best Design
 
@@ -176,6 +184,10 @@ PHOTO: Amazon
 
 [The Best Long-Range Routers of 2024](https://www.lifewire.com/best-wireless-routers-4038590)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Best Value
 
 [Arris Surfboard SB8200](https://www.amazon.com/dp/B07DY16W2Z/?tag=lifewire-onsite-prod-20&ascsubtag=4082523%7Cnf5214e1caebb46e4825c05bae32bf72217%7CB07DY16W2Z)
@@ -203,9 +215,6 @@ PHOTO: Amazon
 
 **DOCSIS Standard:** 3.1 |**Channels:** 2x2 / 32x8 |**Speed:** 2Gbps / 800Mbps |**Voice Support:** No |**MOCA:** No |**Wired Ports:** 2
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Basic Option
 
 [Netgear CM500](https://www.amazon.com/dp/B06XH46MWW?tag=lifewire-onsite-prod-20&ascsubtag=4082523%7Cnf5214e1caebb46e4825c05bae32bf72217%7CB06XH46MWW)
@@ -230,6 +239,10 @@ PHOTO: Amazon
 
  It does not, however, work with bundled voice services that some people still use with cable bundles. When it comes to raw functionality, the CM500 can support 16 downloads and four uploads simultaneously. It can support HD and 4K video streaming, too. And all of this comes in at an affordable price that will save you money on a monthly rental.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What to Look For in a Cable Modem
 
  The world is becoming increasingly connected, and ensuring you have a decent connection in your home is more important than ever. Not only does that mean ensuring you’re subscribed to a fast internet service, but you also have the proper hardware to provide a fast and stable connection whenever needed.
@@ -242,27 +255,18 @@ PHOTO: Amazon
 
 ![Motorola MG7700](https://www.lifewire.com/thmb/1SZf8UwoZuAHJOglWXBzaJfrml8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-2-5bacf868c9e77c002c9555f3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### When Should You Rent Your Cable Modem?
 
  Before diving into the features to consider when buying a modem, it’s worth considering the possibility of renting one from your ISP. The modems on offer by ISPs are generally decent in quality (though not as good as the modems you can buy), plus going with a rental saves you from doing the legwork of finding one on your own. Further, if anything goes wrong with your cable modem, your ISP will take responsibility for fixing or replacing it, often even sending a technician to your home to take care of everything for you.
 
 ![Netgear-Nighthawk C7000](https://www.lifewire.com/thmb/9DXQaEhGunRAssafYX-TGybEsSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear-Nighthawk-C7000-5x4-465340ea47c74a319d9e8ae148401aeb.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Generally, though, we recommend against renting a modem from your ISP. Since the rental often comes out to between $10 and $15 per month, you can save a lot of money by purchasing your own. For example, buying a modem/router combo for just $75 can quickly recoup your costs in less than a year.
 
  That doesn’t mean that there aren’t situations in which you should rent a modem. For starters, if you’re not very tech-savvy or don’t like troubleshooting problems, renting a modem may be the way to go, as you’ll often get complete repair services from your ISP.
 
  For most, we recommend buying your modem. You’ll get much more control over your home network, and after a few years, you’ll have recouped the cost of the devices you would have otherwise had to rent. There's no need to worry about hardware problems either since they are rare among the more well-known brands, and all come with a standard warranty.  
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Compatibility with Your ISP
 
  There are other advantages to buying your modem. For starters, the modems you can rent from your ISP are usually on the older side and may not offer as fast or stable of a connection as you could get with something more modern. Most of the time, ISP modems lack features, preventing you from getting much control over your home network, which might be vital if you want to tweak your network’s settings.
@@ -273,9 +277,6 @@ PHOTO: Amazon
 
 ![Motorola MG7700 combo](https://www.lifewire.com/thmb/mczhPmklHisJ3nV93MiYFCIrGPA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-3-4-5bacf875c9e77c0025819a90.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
  FAQ
 
 * What’s the difference between DOCSIS 3.0 and DOCSIS 3.1?  
@@ -305,8 +306,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -314,4 +313,19 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/updated-easy-steps-capture-screen-with-macos-tools-and-software-for-2024/"><u>[Updated] Easy Steps Capture Screen with macOS Tools & Software for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-the-ultimate-guide-for-ppt-screen-capture-2023-style/"><u>[Updated] In 2024, The Ultimate Guide for PPT Screen Capture, 2023 Style</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-navigating-through-5-premium-stream-ready-webcams-for-2024/"><u>[Updated] Navigating Through 5 Premium Stream-Ready Webcams for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-elevate-visual-content-with-free-animation-text/"><u>2024 Approved Elevate Visual Content with FREE Animation Text</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-prosperous-gaming-vids-through-smart-hash-implementation/"><u>2024 Approved Prosperous Gaming Vids Through Smart Hash Implementation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-hearing-aid-the-in-depth-look-at-life-q30-anc-headphones/"><u>Affordable Hearing Aid: The In-Depth Look at Life Q30 ANC Headphones</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/best-legal-sources-for-downloading-full-length-unedited-anime-series/"><u>Best Legal Sources for Downloading Full-Length, Unedited Anime Series</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-viewing-the-ultimate-review-of-hisenses-40h5eus-40-tv/"><u>Budget-Friendly Viewing: The Ultimate Review of Hisense's 40H5eus 40 TV</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-dell-g5-5090-assessment-unbeatable-value-and-versatility-for-gamers/"><u>Comprehensive Dell G5 5090 Assessment: Unbeatable Value and Versatility for Gamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dissecting-the-oneplus-9-a-critical-performance-assessment/"><u>Dissecting the OnePlus 9: A Critical Performance Assessment</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-x100-pro-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Vivo X100 Pro Phone without Any Data Loss</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/tech-savvy-users-top-picks-android-and-iphones-best-ai-apps/"><u>Tech-Savvy Users' Top Picks: Android & iPhone's Best AI Apps</u></a></li>
+</ul></div>
 

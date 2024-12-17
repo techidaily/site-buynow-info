@@ -1,7 +1,7 @@
 ---
 title: "Definitive Assessment of the Xbox One Elite Wireless Controller Series 2: Gaming's Best Pick Ever"
-date: 2024-12-07T00:03:58.838Z
-updated: 2024-12-11T01:29:42.177Z
+date: 2024-12-16T13:19:59.733Z
+updated: 2024-12-17T13:39:16.045Z
 categories:
   - BestProducts
 description: "This Article Describes Definitive Assessment of the Xbox One Elite Wireless Controller Series 2: Gaming's Best Pick Ever"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/f242798f01f6eb6860b3f63a7fdce4b4bcb3c643f
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/425lsqo6i1_7Vzb3ebrBxtVPgfM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -42,16 +46,12 @@ Lifewire / Zach Sweat
 
 4.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/JA4MI_SE7Alxl0MLR7rMoIVzKgI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
@@ -109,6 +109,10 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Comfort: Hefty, but darn comfy**
 
  The original Elite was perhaps the most comfortable controller I’ve ever used, so with the Series 2, I had high hopes in this department. Thanks to some clever but subtle changes by the Microsoft team, this controller is even better.
@@ -124,7 +128,7 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/cS5fpyPSlqvyETs-nGxTtAB3vXU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-4-070b6c59b206457ba1068704bbe7bca9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -174,7 +178,7 @@ Lifewire / Zach Sweat
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Like buying a brand new console**
@@ -188,7 +192,7 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/6VfCJGOyjLkAkE_mjiHr7rz8Gyw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-6-0c1d7a2ae4e8443ea5b69f559e52bd12.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -206,10 +210,6 @@ Lifewire / Zach Sweat
  **A truly awesome controller with a steep price point.**
 
  Everything we disliked about the original Elite controller has been improved with the second iteration, making it the best first-party controller you can get for XB1 or PC. However, the steep price point might be a hard pill to swallow for users who don’t like to splurge.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -243,22 +243,21 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-recovering-lost-live-footage-strategies-for-uninterrupted-streams-for-2024/"><u>[New] Recovering Lost Live Footage Strategies for Uninterrupted Streams for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/afe-and-sound-sending-your-private-youtube-videos-online-for-2024/"><u>[New] Safe and Sound Sending Your Private YouTube Videos Online for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-techniques-for-streamlining-video-addition-to-youtube-playlists/"><u>[New] Techniques for Streamlining Video Addition to YouTube Playlists</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-10-basic-blocks-house-concepts-for-mc-players/"><u>[Updated] 10 Basic Blocks House Concepts for MC Players</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-boost-your-projects-quality-rankings-of-the-best-free-editing-apps-top-9/"><u>[Updated] 2024 Approved Boost Your Projects' Quality Rankings of the Best Free Editing Apps (Top 9)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-perfect-your-editing-full-mastery-of-fcp/"><u>[Updated] Perfect Your Editing Full Mastery of FCP</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/bring-it-all-together-elevate-your-fb-video-experience-for-2024/"><u>Bring It All Together Elevate Your FB Video Experience for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/from-s10plus-to-s20-unveiling-key-features-that-set-samsungs-latest-phones-apart/"><u>From S10+ to S20: Unveiling Key Features That Set Samsung's Latest Phones Apart</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/gaomon-pd1560-pen-display-critique-a-review-for-artists-and-designers/"><u>Gaomon PD1560 Pen Display Critique - A Review for Artists and Designers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/headphonespeaker-purchase-tips-5-important-traits/"><u>Headphone/Speaker Purchase Tips: 5 Important Traits</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-harnessing-gopros-power-for-compelling-time-lapse-clips/"><u>In 2024, Harnessing GoPro's Power for Compelling Time-Lapse Clips</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/insight-5-compelling-arguments-for-getting-an-ipad/"><u>Insight: 5 Compelling Arguments for Getting An iPad</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-it-worthwhile-for-iphoneipod-batteries-to-be-charged-again/"><u>Is It Worthwhile for iPhone/iPod Batteries to Be Charged Again?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/nixplay-w15a-snapshot-a-detailed-examination/"><u>Nixplay W15A Snapshot: A Detailed Examination</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/propella-7s-40-user-reviews-combining-economy-with-unmatched-nimbleness-for-urban-riding/"><u>Propella 7S 4.0 User Reviews: Combining Economy with Unmatched Nimbleness for Urban Riding</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reach-new-peaks-in-photography-with-nixplays-elegant-cloud-solution/"><u>Reach New Peaks in Photography with Nixplay's Elegant Cloud Solution</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/understanding-the-page-not-found-mistake-http-error-404/"><u>Understanding the 'Page Not Found' Mistake (HTTP Error 404)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-crossos-virtual-maestro-mixer/"><u>[Updated] 2024 Approved CrossOS Virtual Maestro Mixer</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-eliminate-jitters-stabilizing-techniques-for-gopro-video/"><u>[Updated] 2024 Approved Eliminate Jitters Stabilizing Techniques for GoPro Video</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/compare-and-conquer-why-ios-chatgpt-wins-over-web/"><u>Compare & Conquer: Why iOS ChatGPT Wins Over Web</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-lenovo-t430-drivers-compatible-with-windows-10-8-and-7-easy-guide/"><u>Download Lenovo T430 Drivers: Compatible with Windows 10, 8 & 7 - Easy Guide</u></a></li>
+<li><a href="https://common-error.techidaily.com/effortless-solutions-how-to-charge-your-laptop-battery-faster-and-easier/"><u>Effortless Solutions: How to Charge Your Laptop Battery Faster and Easier!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-ultimate-power-the-incredible-capabilities-of-the-beatit-bt-d11-reviewed/"><u>Experience Ultimate Power: The Incredible Capabilities of the Beatit BT-D11 Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-how-does-the-midland-lxt500vp3s-array-of-functions-stack-up-against-actual-usability/"><u>Expert Review: How Does the Midland LXT500VP3's Array of Functions Stack Up Against Actual Usability?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-share-your-xbox-one-games-with-family-and-friends-seamlessly/"><u>How to Share Your Xbox One Games with Family and Friends Seamlessly</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-infinix-smart-7-hd-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Infinix Smart 7 HD to Another | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-unboxing-the-apple-books-experience/"><u>In-Depth Review: Unboxing the Apple Books Experience</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-a54-5gfrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy A54 5GFRP Lock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-future-the-premier-drawing-tech-for-creatives-2024-edition/"><u>Navigating the Future: The Premier Drawing Tech for Creatives, 2024 Edition</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/step-by-step-guide-to-moving-your-applications-from-an-old-phone-to-the-latest-iphone-15/"><u>Step-by-Step Guide to Moving Your Applications From an Old Phone to the Latest iPhone 15</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-recommended-key-tracking-devices/"><u>Top Recommended Key Tracking Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-excellence-of-linksys-wrt3200acm-a-benchmark-for-open-source-router-technology/"><u>Unveiling the Excellence of Linksys WRT3200ACM: A Benchmark for Open Source Router Technology</u></a></li>
 </ul></div>
 

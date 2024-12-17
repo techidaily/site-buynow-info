@@ -1,7 +1,7 @@
 ---
 title: "Inside the Nokia 7.2: Excelling in a Competitive Mid-Tier Smartphone Market"
-date: 2024-08-26T06:33:37.469Z
-updated: 2024-08-27T06:33:37.469Z
+date: 2024-12-10T16:47:16.161Z
+updated: 2024-12-17T06:15:38.521Z
 categories:
   - BestProducts
 description: "This Article Describes Inside the Nokia 7.2: Excelling in a Competitive Mid-Tier Smartphone Market"
@@ -72,6 +72,10 @@ PHOTO: Amazon
 
 **Resolution** : 5MP | **Video Resolution** : 480p, 1304x1296 | **Waterproof** : IP65 | **Zoom** : 16x | **Connectivity** : Cable
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Best Resolution
 
 [AKASO EK7000](https://www.amazon.com/dp/B07JR1XZ78?tag=lifewire-onsite-prod-20&ascsubtag=4172333%7Cn1952ce80f5e14eb3ba5c12a65b99aa4805%7CB07JR1XZ78)
@@ -101,6 +105,10 @@ PHOTO: Amazon
 
 ![AKASO EK7000 Pro 4K Action Camera](https://www.lifewire.com/thmb/buQaYLCiMIbvPnLZbQDsNe_Mwfk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW3897833-4-e64bb4c0f11047a198dc1b16705139c9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Scott Gercken
 
  The EK7000 also has electronic image stabilization built-in, and it can still shoot while submerged up to 131 feet underwater, meaning it doesn't have to be relegated to landscapes.
@@ -114,9 +122,9 @@ Lifewire / Scott Gercken
 [AKASO EK7000 Pro 4K Action Camera](https://www.lifewire.com/akaso-ek7000-pro-4k-action-camera-review-4770265)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Best for Law Enforcement
 
 [Rexing P1](https://www.amazon.com/dp/B084T9CP9D/?tag=lifewire-onsite-prod-20&ascsubtag=4172333%7Cn1952ce80f5e14eb3ba5c12a65b99aa4805%7CB084T9CP9D)
@@ -149,29 +157,25 @@ PHOTO: Amazon
 **Resolution** : N/A | **Video Resolution** : 1080p | **Waterproof** : IP67 | **Zoom** : 21x | **Connectivity** : Cable
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What to Look For in Body Cams
 
  The best body cam should have a durable, compact design, good video resolution, and long battery life, so it doesn't need to be frequently recharged. Since body cameras are commonly used by outdoor adventurers, sports enthusiasts, and law enforcement, durability and a waterproof and shock resistance rating are essential to consider.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ### Resolution & Video Quality
 
  The key things you'll want to have in a body cam are a resolution and video quality that's crisp and smooth. The most standard resolution is 1080p at 30fps, which should give you smooth recording without breaking the budget. You can step up to 60fps if you want smoother recording (or slow down to 24fps for slow-motion effects). Above that, you get 4K, usually at 30fps, which is much sharper, resulting in a corresponding price increase.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Durability & Waterproofing
 
  As with anything that gets worn and carried around with you all the time, durability is hugely important for a body cam. If you're in law enforcement, you'll want MIL-STD 810G, a certification that promises lab-tested shock resistance, drop resistance, and more. A waterproof rating is also essential, with IP65 meaning the device is protected against submersion in water up to 5m and also resistant to dust. There are higher and lower IP ratings, with IPX ratings meaning no dust resistance and just water.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Battery Life
 
  If you wear it all day, a body cam can't be easily recharged, so battery life is essential. The size of the built-in cell can vary, with 1,000mAh to 3,000mAh being standard. Ideally, you'll want a device to take you through an 8-hour workday. Most body cams likely won't be able to last 24 hours since the battery size needs to be balanced against the compact and lightweight design. One option is to get a body cam with more than one battery so you can swap them out when one runs out of juice.
@@ -201,14 +205,11 @@ Tell us why!
 
  Submit
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -217,4 +218,23 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-seamless-integration-getting-snapchat-on-macos/"><u>[New] Seamless Integration Getting Snapchat on macOS</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-dial-in-the-perfect-moment-youtube-optimal-posting/"><u>[Updated] In 2024, Dial in the Perfect Moment YouTube Optimal Posting</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/digital-identity-creation-no-number-needed-for-services/"><u>Digital Identity Creation: No Number Needed for Services</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-garmin-venu-a-breakdown-of-its-advanced-capabilities-in-247-exercise-and-wellbeeing-tracking/"><u>Evaluating Garmin Venu: A Breakdown of Its Advanced Capabilities in 24/7 Exercise & Wellbeeing Tracking</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-revolutionary-m1-chip-in-apples-latest-macbook-pro-why-it-leaves-competitors-behind/"><u>Expert Insights on the Revolutionary M1 Chip in Apple's Latest MacBook Pro - Why It Leaves Competitors Behind</u></a></li>
+<li><a href="https://blog-min.techidaily.com/gratuit-konverteren-van-3g2-naar-mov-format-professioneel-online-oplossen-met-movavi/"><u>Gratuit Konverteren Van 3G2 Naar MOV-Format: Professioneel Online Oplossen Met Movavi</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-motorola-edge-40-pro-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Motorola Edge 40 Pro to iPhone | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-tropico-6-mastering-the-art-of-managing-a-perfect-island/"><u>Inside Tropico 6 - Mastering the Art of Managing a Perfect Island</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/latest-m-audio-fast-track-driver-installation-files-for-windows-users-win-10-7-8-and-81/"><u>Latest M-Audio Fast Track Driver Installation Files for Windows Users (Win 10, 7, 8 & 8.1)</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/leveling-up-together-enhancing-your-pokemon-go-experience-by-playing-with-a-buddy/"><u>Leveling Up Together: Enhancing Your Pokémon GO Experience by Playing With a Buddy</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/microsoft-surface-laptop-4-analysis-ultimate-performance-unleashed/"><u>Microsoft Surface Laptop 4 Analysis: Ultimate Performance Unleashed</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/mold-your-own-online-giggle-piece/"><u>Mold Your Own Online Giggle Piece</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sonys-playstation-showdown-exploring-key-distinctions-of-ps5-vs-ps5-slim-variants/"><u>Sony's PlayStation Showdown: Exploring Key Distinctions of PS5 vs PS5 Slim Variants</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-iphones-for-gamers-finding-the-ultimate-mobile-gaming-device/"><u>Top iPhones for Gamers: Finding the Ultimate Mobile Gaming Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-notch-nikon-z7-review-nearly-perfect-capture-experience/"><u>Top-Notch Nikon Z7 Review: Nearly Perfect Capture Experience</u></a></li>
+</ul></div>
 

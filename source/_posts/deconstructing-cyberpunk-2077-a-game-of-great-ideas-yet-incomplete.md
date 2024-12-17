@@ -1,7 +1,7 @@
 ---
 title: "Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
-date: 2024-12-07T03:56:37.255Z
-updated: 2024-12-11T02:23:27.796Z
+date: 2024-12-13T07:58:58.029Z
+updated: 2024-12-16T17:58:29.196Z
 categories:
   - BestProducts
 description: "This Article Describes Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
@@ -43,12 +43,16 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -80,10 +84,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: Humans have never been so annoying**
 
  The game begins with a multi-hour long tutorial program, which I highly recommend you undertake before playing the game. There are so many various aspects to the game—basic needs, threats to your colony, resources to import and export—that it would be disastrous not to get caught up to speed. It took me a total of five hours to complete these tutorials, but I had to restart a couple after a couple operator error moments when I accidentally destroyed my only water vaporizer and had no idea how to rebuild it. So, it will probably take you less.
@@ -97,6 +97,10 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  In over twenty hours of gameplay, I learned the hard way that humans in this game are not only picky, but they demand the life of luxury the second they step off the rocket and into the dome. It didn’t matter that only twelve called a single dome home. It didn’t matter that there was barely enough of them to cover operating the grocery store and space bar. A lack of space for these amenities fell upon deaf ears. They wanted access to their art stores, electronics, and fine dining immediately. In that regard, I’m a little conflicted; as much as I wanted more shopping options for Mars, I realized not long after humans arrived that Haemimont Games, in reality, gave me a blessing by keeping a bland palate. Plus, more buildings and items become available as research, funding, and planetary discoveries allow.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -117,7 +121,7 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Decent for what you get**
@@ -125,10 +129,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -145,7 +145,7 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -175,24 +175,24 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-fb-top-10-crafting-engaging-songs-for-fb-videos/"><u>[New] 2024 Approved FB Top 10 Crafting Engaging Songs for FB Videos</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-art-of-visual-storytelling-top-10-ideas-for-instagram-ad-success/"><u>[New] The Art of Visual Storytelling Top 10 Ideas for Instagram Ad Success</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-types-and-designations-in-ua-world/"><u>[Updated] 2024 Approved Types & Designations in UA World</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-unveiling-8-best-tools-for-youtube-to-avi-conversion/"><u>2024 Approved Unveiling 8 Best Tools for YouTube to AVI Conversion</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-realme-narzo-60x-5g-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Realme Narzo 60x 5G to PC? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Honor Magic V2 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tablets-showdown-which-is-superior-ipad-kindle-or-nook/"><u>Tablets Showdown: Which Is Superior - iPad, Kindle or Nook?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tango-app-evaluation-unlocking-features-for-costless-messaging-and-calling/"><u>Tango App Evaluation: Unlocking Features for Costless Messaging & Calling</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/test-ride-discovering-features-of-the-latest-cycwagen-electric-cargo-bike/"><u>Test Ride: Discovering Features of the Latest CycWagen Electric Cargo Bike</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-fresh-aesthetics-an-in-depth-review-of-the-newly-redesigned-echo-dot-4th-gen/"><u>The Fresh Aesthetics: An In-Depth Review of the Newly Redesigned Echo Dot (4Th Gen)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-key-elements-that-led-to-wii-us-victory-in-gaming/"><u>The Key Elements that Led to Wii U's Victory in Gaming</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-lasting-attraction-of-the-huawei-p30-pro-an-enthusiasts-perspective/"><u>The Lasting Attraction of the Huawei P30 Pro - An Enthusiast's Perspective</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-premiere-selection-of-keys-finders-2024-edition/"><u>The Premiere Selection of Keys Finders - 2024 Edition</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/things-you-should-know-when-unlocking-total-wireless-of-apple-iphone-13-mini-by-drfone-ios/"><u>Things You Should Know When Unlocking Total Wireless Of Apple iPhone 13 mini</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-cartoon-style-rc-vehicles-from-holy-stone-comprehensive-product-review/"><u>Top-Rated Cartoon Style RC Vehicles From Holy Stone: Comprehensive Product Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-tier-performance-meets-savings-with-the-tp-link-archer-a/"><u>Top-Tier Performance Meets Savings with the TP-Link Archer A</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Honor Magic 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/unlocking-laughter-in-vr-crafting-metaverse-humor/"><u>Unlocking Laughter in VR Crafting Metaverse Humor</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/upgrade-to-mozilla-thunderbird-unveiling-version-170-build-52/"><u>Upgrade to Mozilla Thunderbird: Unveiling Version 17.0 (Build 52)</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-launch-your-filmmaking-dreams-xp-edition-preparation/"><u>[New] Launch Your Filmmaking Dreams XP Edition Preparation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/usical-mosaics-15-video-tutorials-on-collaborative-projects/"><u>[New] Musical Mosaics 15 Video Tutorials on Collaborative Projects</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-simple-guide-sharing-tweets-with-imagesvideos-directly-to-twitter/"><u>[New] Simple Guide Sharing Tweets with Images/Videos Directly to Twitter</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-first-film-experience-selecting-best-gopro-gear/"><u>[Updated] First Film Experience Selecting Best GoPro Gear</u></a></li>
+<li><a href="https://win-webster.techidaily.com/1-regang-regokan-kartu-memo-jadi-pembantu-gratis-untuk-menyimpan-data-anda/"><u>1. Regang-Regokan Kartu Memo: Jadi Pembantu Gratis Untuk Menyimpan Data Anda</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/apple-iphone-11-backup-password-never-set-but-still-asking-heres-the-fix-drfone-by-drfone-ios/"><u>Apple iPhone 11 Backup Password Never Set But Still Asking? Heres the Fix | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-leading-game-platforms-dominating-2024/"><u>Discover the Leading Game Platforms Dominating 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-new-faces-of-zombie-survival-7-days-to-die-game-review-on-monster-makeovers-and-endless-sandbox-exploration/"><u>Discover the New Faces of Zombie Survival: '7 Days to Die' Game Review on Monster Makeovers and Endless Sandbox Exploration</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-revolutionary-smart-photo-editor-by-anthropics-software-evaluation/"><u>Expert Insights on the Revolutionary Smart Photo Editor by Anthropics - Software Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fitbit-sense-unveiled-a-revolutionary-step-beyond-the-apple-watch-for-those-seeking-comprehensive-health-insights/"><u>Fitbit Sense Unveiled: A Revolutionary Step Beyond the Apple Watch for Those Seeking Comprehensive Health Insights</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-lgs-cutting-edge-gram-pro-laptops-outshine-apples-macbook-air-in-performance-portability-and-battery-life-zdnet-insights/"><u>How LG's Cutting-Edge Gram Pro Laptops Outshine Apple's MacBook Air in Performance, Portability, and Battery Life | ZDNet Insights</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-meizu-21-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Meizu 21 to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-pioneers-bdr-xd05b-blu-ray-burning-device-identifying-design-limitations/"><u>In-Depth Analysis of Pioneer's BDR-XD05B Blu-Ray Burning Device: Identifying Design Limitations</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-avs-video-editor-what-you-need-to-know-before-buying-for-2024/"><u>New AVS Video Editor What You Need to Know Before Buying for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/next-gen-console-showdown-unveiling-the-mighty-performance-of-xbox-series-x-at-4k-resolution/"><u>Next-Gen Console Showdown: Unveiling the Mighty Performance of Xbox Series X at 4K Resolution</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/seamless-guide-on-recording-music-from-youtube-for-free/"><u>Seamless Guide on Recording Music From YouTube for Free</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-real-deal-on-docoolers-12mp-usb-20-camera-exceptional-performance-or-false-promises/"><u>The Real Deal on Docooler's 12MP USB 2.0 Camera: Exceptional Performance or False Promises?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-budget-champion-an-in-depth-review-of-tp-links-archer-a6/"><u>Unveiling the Budget Champion: An In-Depth Review of TP-Link's Archer A6...</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-capabilities-a-detailed-look-at-netgears-nighthawk-x4-mesh-extender/"><u>Unveiling the Capabilities: A Detailed Look at Netgear's Nighthawk X4 Mesh Extender</u></a></li>
 </ul></div>
 

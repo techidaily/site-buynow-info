@@ -1,7 +1,7 @@
 ---
 title: TP-Link Archer A9 - Comprehensive Testing of a Powerful Sub-$100 Wireless Router
-date: 2024-12-10T01:28:05.430Z
-updated: 2024-12-11T07:36:47.242Z
+date: 2024-12-11T03:17:05.362Z
+updated: 2024-12-16T20:21:43.968Z
 categories:
   - BestProducts
 description: This Article Describes TP-Link Archer A9 - Comprehensive Testing of a Powerful Sub-$100 Wireless Router
@@ -23,7 +23,7 @@ thumbnail: https://www.lifewire.com/thmb/_dREsVYrj4hW6KtI2UvhJGoOPdk=/400x300/fi
 ![Samsung 55-inch RU7300](https://www.lifewire.com/thmb/hgPXHUQeV9E5klykKWvMW2itzH4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_CurvedTVs_RU7300_HeroSquare-361d1958f9884b29ae9c9fb72824c549.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -47,10 +47,6 @@ thumbnail: https://www.lifewire.com/thmb/_dREsVYrj4hW6KtI2UvhJGoOPdk=/400x300/fi
 [View On Amazon $1,000](https://www.amazon.com/dp/B07NC925FR?tag=lifewire-onsite-prod-20&ascsubtag=4844961%7Cnddc60352e1054c0882826904e3e9ced414%7CB07NC925FR)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Samsung UN55RU7300FXZA 55-Inch 4KUHD 7 Series
 
@@ -84,7 +80,15 @@ thumbnail: https://www.lifewire.com/thmb/_dREsVYrj4hW6KtI2UvhJGoOPdk=/400x300/fi
 
 ![Samsung 55-inch RU7300](https://www.lifewire.com/thmb/LtRcWBwD090kcd6bXSRbOUiTiLA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_CurvedTVs_RU7300_02-2035b246c96446388cc49504b68842ba.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: An appealing arc**
 
@@ -97,10 +101,6 @@ thumbnail: https://www.lifewire.com/thmb/_dREsVYrj4hW6KtI2UvhJGoOPdk=/400x300/fi
  The included remote control is compact, but filled with all of the buttons you’ll need to navigate menus, tap in channel numbers, and reach your favorite streaming services. It has dedicated buttons for Netflix, Hulu, and Amazon Prime Video right on the remote, plus there are four programmable, color-coded A-D buttons for favorite channels. The TV itself also has a small control nub underneath the Samsung logo, but it’s difficult to feel around for and use.
 
  Low input lag means that games feel responsive, making this set well-suited for gaming.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Legs or wall**
 
@@ -118,11 +118,11 @@ thumbnail: https://www.lifewire.com/thmb/_dREsVYrj4hW6KtI2UvhJGoOPdk=/400x300/fi
 
 ![Samsung 55-inch RU7300](https://www.lifewire.com/thmb/GaFmEEESPt4pM-0PAQ3JifVZPOw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_CurvedTVs_RU7300_03-e3e60b2553d84a6cb6a03c52a94073a0.jpg)
 
- Lifewire / Andrew Hayward
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Andrew Hayward
 
 ## **Audio Quality: Totally solid sound**
 
@@ -137,7 +137,7 @@ thumbnail: https://www.lifewire.com/thmb/_dREsVYrj4hW6KtI2UvhJGoOPdk=/400x300/fi
  Native 4K media looks fantastic, as expected, and lower-resolution media scales up pretty smoothly.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Curves cost extra**
@@ -185,24 +185,21 @@ thumbnail: https://www.lifewire.com/thmb/_dREsVYrj4hW6KtI2UvhJGoOPdk=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-navigating-to-facebooks-story-archives-quickly/"><u>[New] 2024 Approved Navigating to Facebook's Story Archives Quickly</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-mastering-iphone-screen-casts-with-ease/"><u>[New] In 2024, Mastering iPhone Screen Casts with Ease</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-navigating-through-time-the-finest-history-youtube-sources-for-students/"><u>[Updated] In 2024, Navigating Through Time The Finest History YouTube Sources for Students</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-comparing-videography-power-in-prohero-and-keymission/"><u>2024 Approved Comparing Videography Power in ProHero and Keymission</u></a></li>
-<li><a href="https://article-posts.techidaily.com/expertise-boost-for-editors-leveraging-story-remix-within-windows-photos-for-2024/"><u>Expertise Boost for Editors Leveraging Story Remix Within Windows Photos for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722717370818-futuristic-gaming-experience-redefined-with-dells-alienware-aurora-r9-reviewed-here/"><u>Futuristic Gaming Experience Redefined with Dell's Alienware Aurora R9 Reviewed Here!</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-xiaomi-redmi-13c-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Xiaomi Redmi 13C Phones? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-the-ultimate-guide-to-youtube-video-splitting/"><u>In 2024, The Ultimate Guide to YouTube Video Splitting</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/pocket-sized-power-boosters-car-edition-2024/"><u>Pocket-Sized Power Boosters Car Edition 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/portable-tp-link-wr902ac-travel-router-tl-wr902ac-compact-wi-fi-on-the-go/"><u>Portable TP-Link WR902AC Travel Router (TL-WR902AC): Compact Wi-Fi on the Go</u></a></li>
-<li><a href="https://techtrends.techidaily.com/quick-tips-how-to-use-the-timer-feature-in-your-iphones-camera-app/"><u>Quick Tips: How to Use the Timer Feature in Your iPhone's Camera App</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/smart-speaker-battle-pros-and-cons-of-google-nest-audio-vs-apple-homepod/"><u>Smart Speaker Battle: Pros and Cons of Google Nest Audio Vs. Apple HomePod</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/stability-meets-innovation-in-the-twelve-south-compass-pro-a-thorough-review/"><u>Stability Meets Innovation in the Twelve South Compass Pro – A Thorough Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-truth-unveiled-in-our-genius-widecam-f100-review-addressing-image-blurriness-and-echo-problems/"><u>The Truth Unveiled in Our Genius WideCam F100 Review - Addressing Image Blurriness and Echo Problems</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/toms-tech-hub-expert-reviews-and-advice/"><u>Tom's Tech Hub: Expert Reviews and Advice</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-performance-verified-chargetechs-mega-27k-mah-power-bank-unleashed-in-our-latest-review/"><u>Top Performance Verified: ChargeTech's Mega 27K mAh Power Bank Unleashed in Our Latest Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-hp-omen-obelisk-top-pick-for-gamers-seeking-performance-and-value/"><u>Ultimate Guide to the HP Omen Obelisk – Top Pick for Gamers Seeking Performance and Value</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-linksys-velop-your-ultimate-guide-to-seamless-wifi-mesh-technology/"><u>Unveiling the Power of Linksys Velop - Your Ultimate Guide to Seamless WiFi Mesh Technology</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-capture-perfection-freemacrecorder/"><u>[Updated] In 2024, Capture Perfection FreeMacRecorder</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-swiftswirl-momentmirror-recording-for-2024/"><u>[Updated] SwiftSwirl MomentMirror Recording for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-primes-true-value-revealed-in-detailed-review/"><u>Amazon Prime's True Value Revealed in Detailed Review</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-oneplus-12-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General OnePlus 12 Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/detailed-analysis-of-twelve-souths-compass-pro-brilliantly-engineered-stability-in-action/"><u>Detailed Analysis of Twelve South's Compass Pro: Brilliantly Engineered Stability in Action</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/economical-tv-reception-in-depth-look-at-amazonbasics-flat-antennas-for-cost-conscious-viewers/"><u>Economical TV Reception: In-Depth Look at AmazonBasics Flat Antennas for Cost Conscious Viewers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-tp-link-av2000-powerline-adapter-exceptional-connectivity-unremarkable-design-flaws-revealed/"><u>Evaluating TP-Link AV2000 Powerline Adapter: Exceptional Connectivity, Unremarkable Design Flaws Revealed</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/exploring-the-boundaries-of-mixed-reality-on-metas-quest-3-vr-insights-from-a-first-hand-experience-zdnet/"><u>Exploring the Boundaries of Mixed Reality on Meta's Quest 3 VR - Insights From a First-Hand Experience | ZDNET</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/from-blurred-to-bold-a-comprehensive-approach-to-buying-high-resolution-monitors-for-2024/"><u>From Blurred to Bold A Comprehensive Approach to Buying High-Resolution Monitors for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/from-bug-fixes-to-revolutionary-software-overhauls/"><u>From Bug Fixes to Revolutionary Software Overhauls</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-xs-to-mac-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone XS to Mac? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-razer-blade-stealth-13s-cutting-edge-performance-boost-in-lightweight-laptop-segment/"><u>In-Depth Analysis of Razer Blade Stealth 13'S Cutting-Edge Performance Boost in Lightweight Laptop Segment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-tp-link-re50/"><u>In-Depth Analysis of the TP-Link RE50</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/stress-management-in-the-digital-age-how-chatgpt-can-help-you-cope/"><u>Stress Management in the Digital Age: How ChatGPT Can Help You Cope</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/testez-et-evaluez-les-capacites-des-logiciels-de-graveur-dvd-confrontation-entre-winx-dvd-ripper-et-handbrake-pour-lexcellence-gratuite/"><u>Testez Et Évaluez Les Capacités Des Logiciels De Graveur DVD : Confrontation Entre WinX DVD Ripper Et HandBrake Pour L'Excellence Gratuite</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
 </ul></div>
 

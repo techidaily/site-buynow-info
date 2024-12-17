@@ -1,7 +1,7 @@
 ---
 title: In Depth Assessment of the Blade E-Flite mCX^3 Ready-To-Fly RC Helicopter Masterpiece
-date: 2024-08-26T06:39:57.360Z
-updated: 2024-08-27T06:39:57.360Z
+date: 2024-12-13T12:56:23.346Z
+updated: 2024-12-16T16:49:23.216Z
 categories:
   - BestProducts
 description: This Article Describes In Depth Assessment of the Blade E-Flite mCX^3 Ready-To-Fly RC Helicopter Masterpiece
@@ -43,6 +43,10 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/mKaiRcg5xaWaOPRj0Ph1dRjUbSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4164252-1-e8b8c3eb31dd46e8a63e8e40a5a9d04b.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
 
 [View On Amazon](https://www.amazon.com/7-Days-Die-PlayStation-4/dp/B01DPUVMNU/?tag=lifewire-onsite-prod-20&ascsubtag=4771121%7Cn6d0ad33beb4d40d5925c2a807d89db2412%7CB01DPUVMNU) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/7-days-to-die/10129841.html)
@@ -70,8 +74,9 @@ Lifewire / Rebecca Isaacs
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup Process: Easy thanks to Steam**
 
  7 Days to Die for PC can be located on Steam, making it easy to set up. It takes a little while to download, but once it boots up, you’re in. You’ll press the “New Game” button and you’ll need to create a new character, which is easy if you choose one of the preset characters from the list. If you’d like to make a unique character, it’s easy with a creation system similar to Skyrim. Everything, down to the very arch on the eyebrows, is customizable.
@@ -81,13 +86,11 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/Eq0YCIdbj82yj3lOCWEdZS7jX6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-4-341174c3997543728bd2b024c6e2a309.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Plot: Open world horror sandbox**
 
  When you first begin gameplay, it takes about 20 seconds for it to boot up, and then you’re gasping, holding your bare hands out before you, drinking in the landscape of one of five biomes: snow, forest, desert, wasteland, and burnt.
@@ -103,6 +106,10 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/U2XChOqkiQvFhP69V0cQ5mYcYME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-3-d19d9b4d19734cffb022d6e0db90382e.jpg)
 
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Gameplay: Could be better, but solid overall**
 
@@ -124,10 +131,6 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/O0do2JbbpgP_VF7azi5OhENnDpc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-5-13eba1dcdd7d45b48c0c3d07711686e6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
  Lifewire / Rebecca Isaacs
 
 ## **Graphics: Outdated, but detailed on optimal**
@@ -139,8 +142,9 @@ The ultimate burning program for all your needs!</a>
  Because the graphics are a rather mixed bag, the frames per second (fps) can vary dramatically. We experienced drops as low as 18 fps when playing. When surrounded by a horde, that can cost you your life.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Platform: It’s complicated**
 
  7 Days to Die runs on many platforms:[PC](https://www.lifewire.com/what-is-a-mac-4155662) ,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and[Xbox 360](https://www.lifewire.com/xbox-360-buyers-guide-3562451) . We played 7 Days on PC, and at the time of writing, they released a teaser for the Alpha 18 update which would roll out to the PC version of the game.
@@ -151,9 +155,6 @@ The ultimate burning program for all your needs!</a>
 
  At around $25, 7 Days isn’t the most expensive zombie game on the market. However, it is the most expensive alpha zombie game out there. Because you can purchase it on[Steam](https://www.lifewire.com/what-is-steam-4177380) or Humble Bumble, we recommend waiting for a Steam sale and getting it for a discount, especially since it’s still in progress. This way, if you decide you don’t like it in the future, you aren’t out the full price.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Competition: Other sandbox shooters**
 
  It’s hard to compare 7 Days to other sandboxes out there because of the significant focus on crafting and building.[Minecraft](https://www.minecraft.net/en-us/download/) has expansive crafting and arguably good graphics with its classic blocky appearance. Terraria also boasts zombies and crafting and building capabilities, though they’re 2D instead of 3D like in 7 Days. And all of them can guarantee hours of gameplay with fun twists and turns.
@@ -172,6 +173,10 @@ The ultimate burning program for all your needs!</a>
 * [Days Gone](https://www.lifewire.com/days-gone-review-4778364)
 * [Dying Light](https://www.lifewire.com/dying-light-review-4778324)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  7 Days to Die
@@ -184,14 +189,11 @@ The ultimate burning program for all your needs!</a>
 * Graphics  1 GB Dedicated Memory
 * Game Updates  Alpha 17.4 out; Alpha 18 Announced
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -200,4 +202,26 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-complete-preview-control-essentials-for-mac-users/"><u>[New] Complete Preview Control Essentials for Mac Users</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-leveraging-tech-for-better-facebook-live-records/"><u>[Updated] Leveraging Tech for Better Facebook Live Records</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/eliminate-unwanted-sound-a-step-by-step-guide-to-noise-reduction-in-fcpx-for-2024/"><u>Eliminate Unwanted Sound A Step-by-Step Guide to Noise Reduction in FCPX for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insight-on-amazons-premium-e-reader-the-kindle-oasis-luxury-price-tag-worth-it/"><u>Expert Insight on Amazon's Premium E-Reader: The Kindle Oasis - Luxury Price Tag Worth It?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-superior-safe-browsing-routers-for-families/"><u>Expert Picks: Superior Safe Browsing Routers for Families</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/friendly-multiplayer-madness-how-to-share-games-on-xbox-one/"><u>Friendly Multiplayer Madness: How To Share Games On Xbox One</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gaming-enthusiasts-rejoice-in-depth-analysis-of-the-nvidia-shield-tv-pros-performance/"><u>Gaming Enthusiasts Rejoice: In-Depth Analysis of the Nvidia Shield TV Pro's Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/google-nest-hub-2nd-gen-review-if-only-it-had-a-camera/"><u>Google Nest Hub 2Nd Gen Review: If Only It Had a Camera</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-icloud-on-iphone-15-smoothly-by-drfone-ios/"><u>In 2024, How To Remove iCloud On iPhone 15 Smoothly</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-mastering-game-recording-steam-edition-techniques/"><u>In 2024, Mastering Game Recording Steam Edition Techniques</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unlock-free-youtube-gallery-downloads-now/"><u>In 2024, Unlock Free YouTube Gallery Downloads Now</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-tab-s4-the-ultimate-android-device/"><u>In-Depth Analysis of the Samsung Galaxy Tab S4 - The Ultimate Android Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-apples-upgraded-masterpiece-series-4-apple-watch-redefined/"><u>In-Depth Look at Apple's Upgraded Masterpiece: Series 4 Apple Watch Redefined</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-the-dbpower-600a-with-18000mah-capacity-your-trusted-car-booster/"><u>In-Depth Review: The DBPower 600A with 18,000mAh Capacity – Your Trusted Car Booster</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-look-at-the-dell-inspiron-n3671-how-this-middle-tier-desktop-stacks-up-against-competitors/"><u>Inside Look at the Dell Inspiron N3671: How This Middle Tier Desktop Stacks Up Against Competitors</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/interacting-seamlessly-with-ai-the-new-voice-capabilities-of-chatgpt-by-openai/"><u>Interacting Seamlessly with AI: The New Voice Capabilities of ChatGPT by OpenAI</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-windows-7-sluggish-booting-problems-a-step-by-step-guide/"><u>Solving Windows 7 Sluggish Booting Problems: A Step-by-Step Guide</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/successful-conversion-of-ismv-files-to-mp4-solving-playback-problems/"><u>Successful Conversion of ISMV Files to MP4 - Solving Playback Problems</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/windows-10-fix-what-to-do-when-you-encounter-unregistered-classes/"><u>Windows 10 Fix: What to Do When You Encounter Unregistered Classes</u></a></li>
+</ul></div>
 
