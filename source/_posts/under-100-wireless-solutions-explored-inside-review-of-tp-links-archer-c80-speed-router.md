@@ -1,7 +1,7 @@
 ---
 title: Under $100 Wireless Solutions Explored - Inside Review of TP-Link's Archer C80 Speed Router
-date: 2024-08-19T16:30:08.014Z
-updated: 2024-08-20T16:30:08.014Z
+date: 2024-12-19T17:41:23.569Z
+updated: 2024-12-26T05:16:46.865Z
 categories:
   - BestProducts
 description: This Article Describes Under $100 Wireless Solutions Explored - Inside Review of TP-Link's Archer C80 Speed Router
@@ -36,6 +36,10 @@ Lifewire / Claire Cohen
 
 4.5
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Netgear Nighthawk C7000 DOCSIS 3.0 AC1900 Wi-Fi Cable Modem Router
 
 ![Netgear Nighthawk C7000](https://www.lifewire.com/thmb/OV2nfW5mduqPEhexOyXCeTMKajo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4082541-4-9cd1eee50edf4975a739591263d7f54d.jpg)
@@ -66,6 +70,10 @@ Lifewire / Claire Cohen
 
  We recently got the Netgear Nighthawk C7000 in for testing, so we can answer all of these questions and more. Let’s find out if this modem is worth the price of admission.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Design: Lightweight and low-profile
 
  For such a high-end modem, the Netgear Nighthawk C7000 is surprisingly thin and light. Compared to the Xfinity modem that we have lying around, it’s a huge improvement.
@@ -76,11 +84,11 @@ Lifewire / Claire Cohen
 
 ![Netgear Nighthawk C7000](https://www.lifewire.com/thmb/XBxyGD8RCZUzuy5c-9PSfLF4OBY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4082541-3-a9db59bb3f7a4f6aa4d7b1d852f4ee99.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
  Lifewire / Claire Cohen
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Setup: Easy for a modem
 
@@ -90,9 +98,6 @@ Lifewire / Claire Cohen
 
  For such a high-end modem, the Netgear Nighthawk C7000 is surprisingly thin and light.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ## Software: Getting the job done
 
  While the Netgear Nighthawk C7000 doesn’t have the richest software, it’s enough to effectively manage your network with little to no fuss.
@@ -103,9 +108,6 @@ Lifewire / Claire Cohen
 
  The Best Cable Modems Router Combos
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## Connectivity: Everything you’ll need
 
  As far as physical ports are concerned, you get four Gigabit Ethernet ports and a USB 2.0 port. This isn’t the richest array of ports we’ve ever seen, but it should be fine for most people— we were able to connect a few different game consoles and a desktop.
@@ -114,9 +116,6 @@ Lifewire / Claire Cohen
 
 ![Netgear Nighthawk C7000](https://www.lifewire.com/thmb/lQeMP8N7uIA0CjbxZqkH0q0LICU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4082541-2-8832c46a0891440caed03fdfb4ae3507.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
  Lifewire / Claire Cohen
 
  This is thanks to the 24x8 DOCSIS 3.0 channel bonding. This means that it has 24 channels available for downstream data and eight for upstream data. That might sound like a lot of jargon, but it means that this modem is going to be overkill for the average user’s internet needs. Netgear claims that this modem can handle up to a 960Mbps connection, and we believe it. But if you don’t need this much bandwidth, you can pick up the 16x8 or 8x4 DOCSIS 3.0 modem and save some cash.
@@ -132,6 +131,10 @@ Lifewire / Claire Cohen
  The wired performance, on the other hand, wasn’t quite as good. We were able to get a consistent 210 Mbps in most scenarios—which is more than enough for our typical usage—but even with a Cat7 Ethernet cable, we weren’t able to get our rated speeds.
 
  We should also note that the Netgear Nighthawk C7000 doesn’t support[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) or QoS capabilities, which is a disappointing omission in a device this expensive. However, we set up 6 different devices in our living room, all streaming HD video on YouTube. We then ran a speed test to see how it affected the network. We still got about 152 Mbps, even under all that stress. You won’t get full speed when everyone’s hitting the network hard, but it’ll still be serviceable.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Price: A premium that’s worth it
 
@@ -149,17 +152,14 @@ Lifewire / Claire Cohen
  The fact that this modem can pay for itself in time is really the main appeal. But with fantastic performance and good looks thrown in, the Nighthawk C7000 is a no brainer.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Netgear C3700 Cable Modem Router](https://www.lifewire.com/netgear-c3700-cable-modem-router-review-4686094)
 * [Motorola MG7700](https://www.lifewire.com/motorola-mg7700-review-4589346)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Nighthawk C7000 DOCSIS 3.0 AC1900 Wi-Fi Cable Modem Router
@@ -185,8 +185,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -194,4 +192,26 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-examining-the-limitations-of-immersive-tech/"><u>[New] Examining the Limitations of Immersive Tech</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-opening-markets-masterful-strategy-plots/"><u>[New] Opening Markets Masterful Strategy Plots</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-gopro-hero5-black-vs-yi-4k-latest-camera-showdown-for-2024/"><u>[Updated] GoPro Hero5 Black VS Yi 4K - Latest Camera Showdown for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-image-intensifiers-ranking-the-best-10-photography-lenses/"><u>[Updated] Image Intensifiers Ranking the Best 10 Photography Lenses</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-the-newbies-guide-to-av1-codec/"><u>2024 Approved The Newbie's Guide to AV1 Codec</u></a></li>
+<li><a href="https://extra-information.techidaily.com/achieve-high-quality-streams-the-top-4k-youtube-tools/"><u>Achieve High-Quality Streams The Top 4K YouTube Tools</u></a></li>
+<li><a href="https://win-community.techidaily.com/captivating-galaxy-visuals-high-resolution-orion-nebula-wallpapers-by-yl-software/"><u>Captivating Galaxy Visuals: High-Resolution Orion Nebula Wallpapers by YL Software</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-on-the-cutting-edge-features-of-apples-latest-iphone-model/"><u>Expert Review on the Cutting-Edge Features of Apple's Latest iPhone Model</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/from-novice-to-pro-leveraging-macs-built-in-application-preview-for-image-editing-mastery/"><u>From Novice to Pro: Leveraging Mac's Built-In Application, Preview, for Image Editing Mastery</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-the-rotibox-bluetooth-beanie-delivers-top-notch-comfort-and-audio-performance/"><u>How the Rotibox Bluetooth Beanie Delivers Top-Notch Comfort and Audio Performance</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-itel-s23plus-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from Itel S23+</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-style-and-functionality-comprehensive-review-of-the-taotronics-tt-dl1-6-led-lighting/"><u>Innovative Style & Functionality: Comprehensive Review of the TaoTronics TT-DL1 6 LED Lighting</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/mastering-cryptocurrency-investment-effective-strategies-from-yl-computings-expert-platform/"><u>Mastering Cryptocurrency Investment: Effective Strategies From YL Computing's Expert Platform</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-terrain-like-a-pro-a-thorough-evaluation-of-the-family-friendly-maisto-remote-controlled-rock-climber/"><u>Navigating Terrain Like a Pro: A Thorough Evaluation of the Family-Friendly Maisto Remote Controlled Rock Climber</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/prime-day-bonanza-find-your-dream-samsung-device-at-unprecedented-prices/"><u>Prime Day Bonanza: Find Your Dream Samsung Device at Unprecedented Prices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-samsung-galaxy-watch3-timeless-elegance-meets-cutting-edge-features/"><u>Review of Samsung Galaxy Watch3: Timeless Elegance Meets Cutting-Edge Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-netgear-ex3700-wifi-range-extender-ac750-features-performance-and-more/"><u>The Ultimate Guide to the Netgear EX3700 WIFI Range Extender (AC750): Features, Performance and More</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-apple-iphone-12-pro-max-when-size-matters-in-smartphones/"><u>The Ultimate Verdict on Apple iPhone 12 Pro Max: When Size Matters in Smartphones</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unlocking-speedy-streams-the-noobs-snapchat-guide/"><u>Unlocking Speedy Streams The Noob’s Snapchat Guide</u></a></li>
+</ul></div>
 

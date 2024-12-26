@@ -1,7 +1,7 @@
 ---
 title: Lenovo ThinkPad X12 Convertible Laptop - An In-Depth Examination of the Superior Keyboard and Exceptional Dual Functionality
-date: 2024-12-10T16:54:08.868Z
-updated: 2024-12-17T13:15:21.489Z
+date: 2024-12-20T01:40:18.123Z
+updated: 2024-12-25T19:11:54.172Z
 categories:
   - BestProducts
 description: This Article Describes Lenovo ThinkPad X12 Convertible Laptop - An In-Depth Examination of the Superior Keyboard and Exceptional Dual Functionality
@@ -22,6 +22,10 @@ thumbnail: https://www.lifewire.com/thmb/M7cbcf9RaLnWFD_BZCSTd_n3AbI=/400x300/fi
 
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/OL3QdFJ2E8lLE0w3IGyxR-rAD4Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Danny Chadwick
 
  What We Like
@@ -40,6 +44,10 @@ Lifewire / Danny Chadwick
 [View On Amazon](https://www.amazon.com/dp/B07DW7W51T/?tag=lifewire-onsite-prod-20&ascsubtag=4770582%7Cn71152a6f6b7242f1815da90e8e97d54a08%7CB07DW7W51T) [View On Walmart](https://www.walmart.com/ip/Z-EDGE-Z3-Plus-1440P-A12-Chipset-3-Inch-Screen-Dash-Cam/213396513)
 
 4.5
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Z-Edge Z3 Plus Dashcam
 
@@ -69,10 +77,6 @@ Lifewire / Danny Chadwick
  It has a couple of minor drawbacks, like only having one[choice for mounting](https://www.lifewire.com/best-car-gps-trackers-4158961) and a mere 20-minute battery life when not connected to power. But if you’re in the market for a dashcam, the Z3 Plus should be among the devices you’re considering.
 
  Lifewire / Danny Chadwick
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Design: Small but solid**
 
@@ -122,10 +126,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: Never failed**
 
  We tested the Z-Edge Z3 Plus on a six-hour road trip, and throughout the drive, the Z3 Plus nor the suction cup failed. So long as it was plugged into power, it functioned flawlessly.
@@ -135,7 +135,7 @@ Lifewire / Danny Chadwick
  We did experience one strange glitch at the end of our testing—a couple of minutes after we had boxed up the Z3 Plus and put it away, we noticed loud, rapid beeping coming from the box. We took the Z3 Plus back out and it was frozen on the power-up screen. We couldn’t get it to turn off (or stop beeping) until the battery died a few minutes later. The camera appeared to work fine after that and we weren’t able to replicate the problem, but it was something of an alarming glitch from such a new device.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Fair price for a fair product**
@@ -143,7 +143,7 @@ Lifewire / Danny Chadwick
  As of the time of this writing, you can pick up this dashcam from Z-Edge for between $120 and $140, which seems like a good value to us. Given its features, tools, and image quality, it’s a fair price for a useful and reliable device.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: Z-Edge Z3 Plus vs. Apeman C450 Dash Camera**
@@ -163,7 +163,7 @@ Lifewire / Danny Chadwick
  The Z-Edge Z3 Plus is easy to set up, intuitive to use, captures clear video footage for a reasonable price. We would like to have seen a second mounting option to the suction cup and a longer-lasting battery, but those are minor quibbles in light of this device’s reliable performance.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -198,17 +198,18 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-a-deep-dive-into-durecorders-full-range/"><u>[New] A Deep Dive Into DuRecorder's Full Range</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-the-ultimate-list-of-free-windows-screenshot-apps/"><u>[Updated] 2024 Approved The Ultimate List of Free Windows Screenshot Apps</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-command-and-conquer-the-pinnacle-of-strategic-sagas-in-7-total-war-games-for-2024/"><u>[Updated] Command & Conquer The Pinnacle of Strategic Sagas in 7 Total War Games for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-gopros-top-5-subaquatic-filter-choices/"><u>[Updated] In 2024, GoPro's Top 5 Subaquatic Filter Choices</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/h2eb4mp4/"><u>H.2eb4動画をMP4にする：スムーズで詳細なコンバージョンガイド</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-the-nintendo-switch-oleds-battery-boost-is-set-to-tackle-my-game-stack/"><u>How the Nintendo Switch OLED's Battery Boost Is Set to Tackle My Game Stack</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-download-the-latest-brother-scanner-drivers-compatible-with-windows/"><u>How to Download the Latest Brother Scanner Drivers Compatible with Windows</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-vivo-y36-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Vivo Y36? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/potential-deals-enjoy-complimentary-access-to-netflix-with-your-dish-network-subscription/"><u>Potential Deals: Enjoy Complimentary Access to Netflix with Your Dish Network Subscription</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/resolution-revealed-understanding-the-impact-on-image-quality-between-1080p-144-cups-and-ultra-hd-monitors/"><u>Resolution Revealed: Understanding the Impact on Image Quality Between 1080P, 144 Cups, and Ultra-HD Monitors</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revamp-your-youtube-music-suggestions-with-these-top-5-strategies/"><u>Revamp Your YouTube Music Suggestions with These Top 5 Strategies!</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-freelancers-guide-to-affordable-animation-methods/"><u>The Freelancer's Guide to Affordable Animation Methods</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/boost-your-videos-faster-on-windows-7-or-10-using-our-proven-acceleration-techniques/"><u>Boost Your Videos Faster on Windows 7 or 10 Using Our Proven Acceleration Techniques</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-macbook-models-key-distinctions-between-air-and-pro/"><u>Comparing MacBook Models: Key Distinctions Between Air and Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-top-games-to-own-on-your-steam-deck-this-year/"><u>Discover the Top Games to Own on Your Steam Deck This Year</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-value-in-miniature-unpacking-the-features-of-the-samsung-galaxy-s10e/"><u>Discovering Value in Miniature: Unpacking the Features of the Samsung Galaxy S10e</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dive-into-reading-with-confidence-using-the-kobo-libra-h2o-a-complete-review-on-its-durability-and-features/"><u>Dive Into Reading with Confidence Using the Kobo Libra H2O - A Complete Review on Its Durability and Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/echo-dot-4th-generation-unveiled-the-revamped-design-experience/"><u>Echo Dot 4Th Generation Unveiled: The Revamped Design Experience</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/exploring-new-worlds-mondly-language-app-for-oculus-quest-users/"><u>Exploring New Worlds: Mondly Language App for Oculus Quest Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenswave-proconnect-25x-review-superior-quality-at-an-extreme-price/"><u>LensWave ProConnect 25X Review: Superior Quality at an Extreme Price</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/network-nirvana-access-resurrected/"><u>Network Nirvana Access Resurrected</u></a></li>
+<li><a href="https://win-web3.techidaily.com/securely-restoring-system-defaults-in-windows-11-without-data-loss-expert-guide/"><u>Securely Restoring System Defaults in Windows 11 Without Data Loss - Expert Guide</u></a></li>
+<li><a href="https://win-able.techidaily.com/slashing-zooms-resource-demand-proven-methods-to-reduce-cpu-load-expertise/"><u>Slashing Zoom's Resource Demand - Proven Methods to Reduce CPU Load (Expertise)</u></a></li>
+<li><a href="https://win-dash.techidaily.com/someone-will-have-their-rights-violated/"><u>Someone Will Have Their Rights Violated.</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unveiling-the-top-6-head-mount-options-for-dynamic-camera-use-for-2024/"><u>Unveiling the Top 6 Head Mount Options for Dynamic Camera Use for 2024</u></a></li>
 </ul></div>
 

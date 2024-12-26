@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Guide to the Netgear Nighthawk RAX80: Experience Lightning-Fast Wi-Fi 6 Technology"
-date: 2024-12-14T11:05:27.690Z
-updated: 2024-12-17T13:36:45.318Z
+date: 2024-12-20T19:28:59.620Z
+updated: 2024-12-25T18:14:54.182Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Guide to the Netgear Nighthawk RAX80: Experience Lightning-Fast Wi-Fi 6 Technology"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
@@ -43,13 +47,13 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/AfRhNgqeOD7JfcVqpjzm5LwPSB4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -75,10 +79,6 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -86,6 +86,10 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
  With very large sides, the front is really just a small panel with light-up LED indicators showing connectivity details and which Ethernet ports are in use. There’s also a small WPS button beneath the LED panel for easy connectivity with a router. On the wider back panel are the four wired[Ethernet ports](https://www.lifewire.com/what-is-an-ethernet-port-817546) for plugging in devices such as game consoles and computers, as well as a USB 3.0 port, DC power port, and the power button itself.
 
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Avoid the app**
 
@@ -98,10 +102,6 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
  Over and over, the setup process wouldn’t complete… and then it finally did. I ran into similar issues with the other Netgear extenders, in which setup processes didn’t work as expected on the first or second time, but this was a much longer and more arduous ordeal. Finally, however, I got the Nighthawk AX8 up and running. From there, you’ll need to find a new location for the extender—roughly halfway between the router and your Wi-Fi dead zone is ideal, but play around with positioning if you’re not getting the results you seek.
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -121,10 +121,6 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -134,7 +130,7 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: More than most**
@@ -152,6 +148,10 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
  **Only for early adopters with Wi-Fi 6 routers and devices.**
 
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -179,24 +179,21 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-capturing-and-saving-your-favorite-facebook-stories-pcmobile-for-2024/"><u>[New] Capturing & Saving Your Favorite Facebook Stories (PC/Mobile) for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-integrated-video-experience-streamingplussharing-for-2024/"><u>[New] Integrated Video Experience Streaming+Sharing for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-insert-youtube-playlists-seamlessly-into-a-website/"><u>[Updated] In 2024, How to Insert YouTube Playlists Seamlessly Into a Website</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-tips-and-tricks-for-efficiently-watching-facebook-live/"><u>2024 Approved Tips and Tricks for Efficiently Watching Facebook Live</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-why-microsoft-surface-ergonomic-keyboard-stands-out-in-terms-of-excellence/"><u>Comprehensive Review: Why Microsoft Surface Ergonomic Keyboard Stands Out in Terms of Excellence</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/deciding-on-cellular-tech-upgrade-frequency/"><u>Deciding on Cellular Tech Upgrade Frequency</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-on-the-dreame-bot-l10-pro-your-next-level-mopping-and-vacuuming-solution-with-lidar-navigation/"><u>Expert Analysis on the Dreame Bot L10 Pro - Your Next-Level Mopping and Vacuuming Solution with LiDAR Navigation</u></a></li>
-<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-oppo-a1x-5g-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Oppo A1x 5G Devices | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor Magic5 Ultimate? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-samsung-galaxy-a05s-to-mac-drfone-by-drfone-android/"><u>How to Mirror Samsung Galaxy A05s to Mac? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-assessment-of-the-value-packed-oneplus-nord-n100/"><u>In-Depth Assessment of the Value-Packed OnePlus Nord N100</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/mastering-artificial-conversation-avoiding-fatal-errors/"><u>Mastering Artificial Conversation: Avoiding Fatal Errors</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/moto-g-stylus-reviewed-outstanding-functionality-combined-with-reliable-battery-life-and-innovative-stylus-experience/"><u>Moto G Stylus Reviewed: Outstanding Functionality Combined with Reliable Battery Life & Innovative Stylus Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-budget-routers-our-review-of-tp-links-high-performance-archer-a9-under-a-hundred-dollars/"><u>Navigating Budget Routers: Our Review of TP-Link's High-Performance Archer A9 Under a Hundred Dollars</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/oneplus-9-evaluation-mathematics-fall-short-once-again/"><u>OnePlus 9 Evaluation: Mathematics Fall Short Once Again</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-of-both-worlds-in-the-nokia-71-premium-camera-and-screen-quality-for-less/"><u>The Best of Both Worlds in the Nokia 7.1: Premium Camera and Screen Quality for Less</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-creme-de-la-creme-elite-karaoke-machines-to-rule-your-parties/"><u>The Crème De La Crème: Elite Karaoke Machines to Rule Your Parties !</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-powerhouse-platform-an-introduction-to-twitchs-offerings/"><u>The Powerhouse Platform: An Introduction to Twitch's Offerings</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/are-high-end-tvs-with-aurora-hdr-worth-it-analyzed/"><u>Are High-End TVs with Aurora HDR Worth It? Analyzed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-power-of-extollo-lansocket-1500-speed-and-stability-combined-with-throughput-capabilities/"><u>Discover the Power of Extollo LANSocket 1500: Speed & Stability Combined with Throughput Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experiencing-android-at-its-finest-a-detailed-look-into-google-pixel-3-xt10-review/"><u>Experiencing Android at Its Finest: A Detailed Look Into Google Pixel 3 XT^10 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/futures-soundtrack-for-future-fitness-enthusiasts/"><u>Future's Soundtrack for Future Fitness Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gopros-boldest-move-in-the-black-hero9-model/"><u>GoPro's Boldest Move in the Black HERO9 Model</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-xiaomi-redmi-k70-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Xiaomi Redmi K70 Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-infinix-smart-8-pro-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Infinix Smart 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-vivo-v30-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Vivo V30? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-recovering-lost-live-footage-strategies-for-uninterrupted-streams/"><u>In 2024, Recovering Lost Live Footage Strategies for Uninterrupted Streams</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-the-ultimate-vr-tools-compilation-10-essentials/"><u>In 2024, The Ultimate VR Tools Compilation (10 Essentials)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/power-up-your-tech-with-poweradd-pilot-pro2-in-depth-charger-pad-evaluation/"><u>Power Up Your Tech with POWERADD Pilot Pro2 - In-Depth Charger Pad Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-comprehensive-guide-to-choosing-the-right-tv-streamer-app-of-2024/"><u>The Comprehensive Guide to Choosing the Right TV Streamer App of 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210418609-9781956896282-the-game-of-lovelife/"><u>The Game of Love/Life | Free Book</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-premier-selection-of-vr-cycling-options/"><u>The Premier Selection of VR Cycling Options</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-best-features-exploring-timeless-elegance-with-cutting-edge-functionality-on-samsung-galaxy-watch6/"><u>Unveiling the Best Features: Exploring Timeless Elegance with Cutting-Edge Functionality on Samsung Galaxy Watch6</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "B550-XT Explored: Commanding Control & Quiet Output"
-date: 2024-12-12T19:59:31.475Z
-updated: 2024-12-17T13:33:34.727Z
+date: 2024-12-19T17:28:34.163Z
+updated: 2024-12-26T05:07:54.155Z
 categories:
   - BestProducts
 description: "This Article Describes B550-XT Explored: Commanding Control & Quiet Output"
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/dec6d7b37184535a38bb760c8f68a296f6e3b58dd
 ![Yongnuo YN560 IV Wireless Flash Speedlite Master](https://www.lifewire.com/thmb/uk1o4WlK-bsMCk1tgtC5d79QMNM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_3LW4072366-Yongnuo-YN560-1-33b6547cc9014731ab6e144b0613aaef.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
@@ -46,12 +46,16 @@ Lifewire / Jonno Hill
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## YONGNUO YN560 IV Wireless Flash Speedlite Master
 
 ![Yongnuo YN560 IV Wireless Flash Speedlite Master](https://www.lifewire.com/thmb/UOD6afkRh-xS-Dh1-iagOeoOSdY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_3LW4072366-Yongnuo-YN560-1-33b6547cc9014731ab6e144b0613aaef.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
@@ -75,6 +79,10 @@ Lifewire / Jonno Hill
  The Yongnuo YN560 IV Wireless Flash Speedlite Master finds an interesting balance between barebones manual flashes that sell for around half the price, and much more expensive options from big brands like[Canon](https://www.lifewire.com/best-new-canon-cameras-493499) and Nikon. The big upgrade is full radio control, letting you adjust a group of these lights in concert. Along with 24-105mm zoom support and a quick 3-second recycle time, this is a very appealing flash for off-camera use for portrait and real estate photographers.
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Punching above the price point**
 
@@ -108,10 +116,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup: A lot of reading before use**
 
  Once you unpack your flash and install the four AA batteries, you’re going to want to familiarize yourself with the buttons and menu system a little. The YN560 IV has a lot of functionality, but it doesn’t have the most intuitive interface. The front of the device contains a top row of four buttons (a Light/Music icon, Mode, a Wi-Fi icon, and Zoom). Below this is a charge indicator button marked “PILOT”, a direction pad, and an On/Off button.
@@ -132,10 +136,6 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Yongnuo YN560 IV Wireless Flash Speedlite Master vs Neewer TT560 Flash Speedlite**
 
  Photographers just starting out (or with significantly less complicated lighting ambitions) might be better served by getting a dead-simple option like the Neewer TT560 Flash Speedlite. It’s a no-fuss option with very few extraneous controls that will be a good starting point for most users, and solid for pros who don’t want more than optical trigger functionality on a flash.
@@ -151,7 +151,7 @@ Lifewire / Jonno Hill
  The Yongnuo YN560 IV Wireless Flash Speedlite Master may not be a very simple flash, but it packs enough functionality to make a very versatile platform for more aspirational photographers. Buyers that want full manual control and radio transmission without paying an arm and a leg will be more than pleased with what they get.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -192,22 +192,19 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-explore-best-10-websites-for-professional-vectors/"><u>[New] Explore Best 10 Websites for Professional Vectors</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-exploring-high-speed-action-a-top-5-game-list/"><u>[New] Exploring High-Speed Action A Top 5 Game List</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-skyrocketing-revenue-mastering-video-monetization-everywhere/"><u>[New] In 2024, Skyrocketing Revenue Mastering Video Monetization Everywhere</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-ultimate-selection-childrens-drone-choices-for-2024/"><u>[Updated] Ultimate Selection Children's Drone Choices for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/asuss-latest-masterpiece-for-gamers-the-rapture-gt-ax11000-router-a-detailed-breakdown-of-speed-and-features/"><u>ASUS's Latest Masterpiece for Gamers - The Rapture GT-AX11000 Router: A Detailed Breakdown of Speed and Features</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/canon-powershot-sx70-hs-review/"><u>Canon PowerShot SX70 HS Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/contrasting-iphone-15-pro-max-and-samsung-s2e-ultra-a-detailed-breakdown-of-their-unique-features/"><u>Contrasting iPhone 15 Pro Max and Samsung S2e Ultra - A Detailed Breakdown of Their Unique Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/demystifying-the-value-of-apples-vision-pro-investment/"><u>Demystifying the Value of Apple's Vision Pro Investment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-features-of-the-netgear-c3cable-modemrouter-duo-time-for-an-update/"><u>Exploring the Features of the Netgear C3Cable Modem/Router Duo – Time for an Update?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/game-changing-console-or-not-discover-why-the-ps5-is-worth-it/"><u>Game-Changing Console or Not? Discover Why the PS5 Is Worth It</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/has-vonage-retained-its-crown-as-the-leading-voice-over-ip-solution/"><u>Has Vonage Retained Its Crown as the Leading Voice over IP Solution?</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-advanced-techniques-for-youtube-editing-via-finalcut-pro/"><u>In 2024, Advanced Techniques for YouTube Editing via FinalCut Pro</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/insight-into-predictive-ai-working-principles-and-applications/"><u>Insight Into Predictive AI: Working Principles and Applications</u></a></li>
-<li><a href="https://win-able.techidaily.com/no-more-crashes-expert-tips-to-stabilize-the-witcher-3-on-your-pc/"><u>No More Crashes! Expert Tips to Stabilize The Witcher 3 on Your PC</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Infinix Hot 40i | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/streamlining-system-update-processes-with-catalina/"><u>Streamlining System Update Processes with Catalina</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-the-rexing-v1-dashcam-an-in-depth-look-at-its-stealthy-design-and-cost-effective-value/"><u>Unboxing the Rexing V1 Dashcam: An In-Depth Look at Its Stealthy Design and Cost-Effective Value</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-analyzing-the-frequency-of-youtube-payments/"><u>[Updated] Analyzing the Frequency of YouTube Payments</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-refining-video-aesthetics-for-impeccable-instagram-presence/"><u>[Updated] Refining Video Aesthetics for Impeccable Instagram Presence</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/diving-deep-into-sonys-premium-49-inch-led-television-a-captivating-4k-smart-tv-evaluation/"><u>Diving Deep Into Sony's Premium 49-Inch LED Television: A Captivating 4K Smart TV Evaluation</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/duality-of-light-mastering-the-art-of-hdr-in-adobe/"><u>Duality of Light Mastering the Art of HDR in Adobe</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhance-your-iphone-with-these-proven-must-buy-companions-and-gadgets/"><u>Enhance Your iPhone with These Proven Must-Buy Companions and Gadgets</u></a></li>
+<li><a href="https://win11.techidaily.com/extend-start-menus-pin-display-area/"><u>Extend Start Menu's Pin Display Area</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-acquainted-with-the-arlo-smart-surveillance-solution/"><u>Get Acquainted with the Arlo Smart Surveillance Solution</u></a></li>
+<li><a href="https://fox-http.techidaily.com/getting-started-with-windows-11s-in-built-high-dynamic-range-auto-hdr/"><u>Getting Started with Windows 11'S In-Built High Dynamic Range (Auto HDR)</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/guide-to-efficiently-convert-vimeo-videos-to-audible-files-for-2024/"><u>Guide to Efficiently Convert Vimeo Videos to Audible Files for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-14-plus-to-other-iphone-11-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 14 Plus to other iPhone 11 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Honor X9b? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-the-skies-with-dji-phantom-4-pro-v2-an-insightful-evaluation/"><u>Mastering the Skies with DJI Phantom 4 Pro v2 - An Insightful Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/netgear-nighthawk-rax120-review/"><u>Netgear Nighthawk RAX120 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/showdown-of-streamers-apple-tv-ki-versus-roku-ultra-which-reigns-supreme/"><u>Showdown of Streamers: Apple TV ˈKi versus Roku Ultra – Which Reigns Supreme?</u></a></li>
 </ul></div>
 

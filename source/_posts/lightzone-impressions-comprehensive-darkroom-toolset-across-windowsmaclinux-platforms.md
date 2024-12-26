@@ -1,7 +1,7 @@
 ---
 title: "LightZone Impressions: Comprehensive Darkroom Toolset Across Windows/Mac/Linux Platforms"
-date: 2024-12-14T12:51:06.878Z
-updated: 2024-12-17T13:35:10.858Z
+date: 2024-12-18T21:00:49.165Z
+updated: 2024-12-26T06:52:42.547Z
 categories:
   - BestProducts
 description: "This Article Describes LightZone Impressions: Comprehensive Darkroom Toolset Across Windows/Mac/Linux Platforms"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/4c2c83dc76ea031999e2259b4bcb5ed3cf0b94afc
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Microsoft Xbox Series S
 
@@ -55,7 +51,7 @@ Lifewire / Jeremy Laukkonen
 ![Xbox Series S](https://www.lifewire.com/thmb/wlG_GrSmQPVex-VRt3ap4hsTP-s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -83,11 +79,19 @@ Lifewire / Jeremy Laukkonen
 
  This console is remarkably compact and has a surprisingly low price point. Gamers looking for a[4K UHD in HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) experience will need to pay a premium for the Series X, but the Xbox Series S offers an enticing alternative if you’re looking to save some money or haven’t yet made the jump to 4K.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Sleek and compact**
 
  The Xbox Series S is small, and it's almost impossible to oversell that point. I had seen pictures and videos of the console and the spec sheet, but I was still surprised at how compact this thing was when I unboxed it. It's smaller than the Xbox One S, and Microsoft bills it as "our smallest Xbox ever." That's especially noteworthy since Microsoft and Sony went exceptionally big with their flagship consoles, the Series X and PlayStation 5.
 
 ![Xbox Series S](https://www.lifewire.com/thmb/3-mUIkkRYilM5F2tvCYMPXtW1Ew=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1-04d996bcdfbb489d84e8945e4c475713.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -127,10 +131,6 @@ Lifewire / Jeremy Laukkonen
 
  Load times were negligible in each game I played, which I expected from a super-fast NVME SSD storage system. Some games had more noticeable load times than others, but not enough to disrupt gameplay.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Games: Microsoft still has an exclusivity problem**
 
  You won't have any shortage of games to play on the Xbox Series S, especially if you're a[Game Pass](https://www.lifewire.com/xbox-game-pass-4178809) subscriber. I predicted that the Series S would be the ultimate Game Pass machine at release, and that prediction has borne fruit in my home, at least.
@@ -146,10 +146,6 @@ Lifewire / Jeremy Laukkonen
  Other consoles, like the PlayStation 5 and Nintendo Switch, have games you can't get anywhere else, while the Xbox Series X|S has timed exclusives and console exclusives. That isn't a knock against Microsoft, as the availability of Xbox exclusives on the PC is fantastic for computer gamers. Still, it does put Xbox consoles in a tough spot compared to consoles from other manufacturers.
 
  Microsoft's $7.5B purchase of Bethesda's parent company, Zenimax, brought some hope of additional exclusives appearing in Microsoft's arsenal. (Bethesda is the publisher of Fallout, DOOM, Dishonored, Skyrim, Wolfenstein, The Elder Scrolls, and more.) However, the situation is murky as the company has yet to clarify which (if any) Bethesda titles will be exclusive to Xbox.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Storage: Disappointingly shallow, so bring your USB drive**
 
@@ -185,6 +181,10 @@ Lifewire / Jeremy Laukkonen
 
  An overhaul of the dashboard is currently in the works, and we expect it to arrive in 2023.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Controller: Iteration more than innovation**
 
  The Xbox Series X|S controller is a pleasant surprise, as Microsoft also chose to stick with a winning formula. The original Xbox One controller was well-received, and its minor facelift with the release of the Xbox One made it even better. Microsoft took that design for the Xbox Series X|S and tweaked it ever so slightly.
@@ -202,10 +202,14 @@ Lifewire / Jeremy Laukkonen
 ![Xbox Series S](https://www.lifewire.com/thmb/MZdEnnFWPzhGzv_P5GO8byAY5qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3-dd9458b294e74205acad2ff6fee33913.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Jaw-droppingly low**
 
@@ -216,10 +220,6 @@ Lifewire / Jeremy Laukkonen
  One nice thing about the Xbox Series X|S is that when you buy a new console, you typically have a bunch of add-ons to worry about that drive the price up. For example, you might have to purchase several controllers to support multiplayer, which adds up to $60 or more per controller. Since the Series S supports most Xbox One peripherals, owners don’t have to worry about the added expense of buying extra controllers.
 
  One expense you may need to budget is a high-speed USB 3.1 drive. The console is perfectly usable without an external drive, but expect to uninstall games regularly to make more space if you limit yourself to the onboard storage.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Xbox Series S vs. PS5 Digital**
 
@@ -236,7 +236,7 @@ Lifewire / Jeremy Laukkonen
  The Xbox Series S might be a bit of a step back from the Xbox One X in performance, but the fact is that it’s a next-gen console that plays next-gen games with some impressive hardware and an unreal price tag. Gamers in search of the best graphics possible will want to look at the Xbox Series X instead, but gamers who haven’t yet made the 4K plunge, parents in need of an affordable console for their kids, or anyone looking to save money will all find something to like here.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -281,18 +281,21 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-rgb-basics-and-their-evolution-into-srgb-format/"><u>[New] 2024 Approved Rgb Basics and Their Evolution Into Srgb Format</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-boost-video-appeal-with-these-20-best-thumbnail-fonts/"><u>[New] Boost Video Appeal with These 20 Best Thumbnail Fonts</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-calculating-your-digital-footprint-understanding-views-and-income-from-youtube/"><u>[Updated] 2024 Approved Calculating Your Digital Footprint Understanding Views & Income From YouTube</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-tele-loop-triumph-repeat-your-favorite-video-anytime-on-tv/"><u>2024 Approved Tele-Loop Triumph Repeat Your Favorite Video Anytime on TV</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apc-back-ups-pro-1500va-a-comprehensive-guide-to-its-powerful-performance-abundant-outlets-and-user-friendly-battery-replacement-system/"><u>APC Back-UPS Pro 1500VA - A Comprehensive Guide to Its Powerful Performance, Abundant Outlets & User-Friendly Battery Replacement System</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cyberpower-cp685avrg-unit-assessed-efficient-barebones-uninterruptible-power-supply-functionality/"><u>CyberPower CP685AVRG Unit Assessed: Efficient Barebones Uninterruptible Power Supply Functionality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-evaluation-of-kooteks-superior-laptop-cooler-the-ultimate-choice/"><u>Expert Evaluation of Kootek's Superior Laptop Cooler: The Ultimate Choice</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-vyncs-link-exceptional-tracking-tool-with-bewildering-payment-plans/"><u>In-Depth Evaluation of Vyncs Link: Exceptional Tracking Tool with Bewildering Payment Plans</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-samsung-galaxy-tab-s7plus-evaluation-unleashing-the-potential-of-a-luxury-tablet/"><u>In-Depth Samsung Galaxy Tab S7+ Evaluation: Unleashing the Potential of a Luxury Tablet</u></a></li>
-<li><a href="https://win-outstanding.techidaily.com/investigating-the-reason-for-clicking-sounds-in-hard-drives-with-expert-advice-by-yl-software/"><u>Investigating the Reason for Clicking Sounds in Hard Drives with Expert Advice by YL Software</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/sichere-methoden-zur-initialisierung-von-mbrgpt-festen-laufwerken-ohne-datenerhaltung/"><u>Sichere Methoden Zur Initialisierung Von MBR/GPT-Festen Laufwerken Ohne Datenerhaltung</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unbeatable-endurance-moto-g-powers-exceptional-battery-performance-wrapped-up-nicely/"><u>Unbeatable Endurance: Moto G Power's Exceptional Battery Performance Wrapped Up Nicely</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/windows-11-fresh-start-guide-complete-reinstallation-process-explained/"><u>Windows 11 Fresh Start Guide: Complete Reinstallation Process Explained</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-perfect-audio-the-10-premier-podcast-mics/"><u>[New] 2024 Approved Perfect Audio The 10 Premier Podcast Mics</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-enhancing-zooms-visual-clarity-tips-and-tricks/"><u>[New] Enhancing Zoom's Visual Clarity Tips and Tricks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-ascending-with-aerial-artistry-9-top-editors-for-diverse-levels/"><u>[New] In 2024, Ascending with Aerial Artistry 9 Top Editors For Diverse Levels</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-crafting-success-the-premier-list-of-ai-namesmiths-for-2024/"><u>[Updated] Crafting Success The Premier List of AI Namesmiths for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-easy-way-to-change-and-upgrade-iphones-ringtones/"><u>[Updated] In 2024, The Easy Way to Change and Upgrade iPhone's Ringtones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dive-into-the-world-of-caixun-a-75-inch-4k-android-tv-review-with-a-budget-twist/"><u>Dive Into the World of Caixun: A 75-Inch, 4K Android TV Review with a Budget Twist</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-linksys-velop-mesh-wifi-system/"><u>Expert Analysis of the Linksys Velop Mesh WiFi System</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-z-edge-z3-plus-affordable-intelligence-on-the-road-captured-in-a-cam/"><u>Expert Analysis of Z-Edge Z3 Plus: Affordable Intelligence on the Road Captured in a Cam</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-avoid-and-fix-phasmophobia-game-glitches-the-2024-edition/"><u>How to Avoid and Fix Phasmophobia Game Glitches: The 2024 Edition</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-repair-an-unresponsive-fire-stick-controller-quickly-and-easily/"><u>How to Repair an Unresponsive Fire Stick Controller Quickly and Easily</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-legacy-of-memories-scanning-and-storing-vintage-photographs/"><u>In 2024, The Legacy of Memories Scanning and Storing Vintage Photographs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-is-the-ipad-pro-better-than-the-surface-pro-for-you/"><u>In-Depth Review: Is the iPad Pro Better Than the Surface Pro for You?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/movil-sin-costo-cambiar-mxf-a-formato-wav-con-gratuitidad/"><u>Móvil Sin Costo: Cambiar MXF a Formato WAV Con Gratuitidad</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/netgears-powerline-av-1200-reviewed-a-comprehensive-look-at-performance-amidst-sturdy-build/"><u>Netgear's Powerline AV 1200 Reviewed: A Comprehensive Look at Performance Amidst Sturdy Build</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlock-doorstep-convenience-with-the-budget-friendly-remobell-your-ultimate-guide/"><u>Unlock Doorstep Convenience with the Budget-Friendly RemoBell: Your Ultimate Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-a-review-on-tp-links-ac1200-wifi-extender-model-re3-305/"><u>Unveiling the Power: A Review on TP-Link's AC1200 WiFi Extender Model RE3 305</u></a></li>
 </ul></div>
 

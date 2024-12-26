@@ -1,7 +1,7 @@
 ---
 title: From Afar, Hugs and Merriment with Petcube Bites 2
-date: 2024-12-12T17:25:26.156Z
-updated: 2024-12-17T03:50:14.365Z
+date: 2024-12-22T02:52:01.792Z
+updated: 2024-12-26T04:29:42.747Z
 categories:
   - BestProducts
 description: This Article Describes From Afar, Hugs and Merriment with Petcube Bites 2
@@ -18,17 +18,9 @@ thumbnail: https://www.lifewire.com/thmb/AveEElAwsJ-yfNPFL8X7KyXcAdA=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/NltNTWtb6Y6gHFCHDQXlLsrWKTI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -51,6 +43,10 @@ Lifewire / Andy Zahn
 [View On Walmart $562](https://www.walmart.com/ip/Canon-PowerShot-SX70-HS-20-3MP-65x-Optical-Zoom-Digital-Point-Shoot-Camera/773178799?slfpid=3) [View On Adorama.com $699](https://www.adorama.com/icasx70.html) [View On B&H Photo Video $599](https://www.bhphotovideo.com/c/product/1435399-REG/canon%5F3071c001%5Fpowershot%5Fsx70%5Fhs%5Fdigital.html)
 
 4.3
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
@@ -87,6 +83,10 @@ Lifewire / Andy Zahn
  We put the PowerShot SX70 HS to the test to see if its performance justifies its premium price.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Built to last, great to use**
 
@@ -143,7 +143,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Modes: Plenty to choose from (and only some are useful)**
@@ -161,7 +161,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
@@ -178,6 +178,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -193,10 +197,6 @@ Lifewire / Andy Zahn
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
 
@@ -215,7 +215,7 @@ Lifewire / Andy Zahn
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -258,20 +258,22 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/avigating-the-seo-jungle-top-tools-for-tripling-traffic-for-2024/"><u>[New] Navigating the SEO Jungle Top Tools for Tripling Traffic for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/accelerated-learning-for-chromakey-artistry-for-2024/"><u>Accelerated Learning for Chromakey Artistry for 2024</u></a></li>
-<li><a href="https://fox-within.techidaily.com/comment-connecter-votre-adresse-gmail-a-microsoft-outlook-une-methode-simple-et-etape-par-etape/"><u>Comment Connecter Votre Adresse Gmail À Microsoft Outlook : Une Méthode Simple Et Étape Par Étape</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-ultimate-picks-top-educational-portals-for-e-learning/"><u>Discover the Ultimate Picks: Top Educational Portals for E-Learning</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-kensun-mobile-tire-pump-a-combination-of-strength-and-portability/"><u>Evaluating the Kensun Mobile Tire Pump – A Combination of Strength and Portability</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-leading-no-tangle-call-devices-your-definitive-selection-guide/"><u>Exploring Leading No-Tangle Call Devices - Your Definitive Selection Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-sonys-affordable-hd-camcorder-features/"><u>Exploring Sony's Affordable HD Camcorder Features</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-5-solutions-for-oppo-a79-5g-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Oppo A79 5G Unlock Without Password</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/incredible-lightness-meets-robust-performance-the-lg-gram-17-analysis/"><u>Incredible Lightness Meets Robust Performance - The LG Gram 17 Analysis</u></a></li>
-<li><a href="https://win-answers.techidaily.com/optimizing-performance-how-to-address-and-fix-starfields-cpu-intensive-problems/"><u>Optimizing Performance: How to Address and Fix Starfield's CPU Intensive Problems</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/revive-damaged-pictures-effortlessly-using-stellar-repair-the-definitive-guide-to-photo-recovery-on-windows/"><u>Revive Damaged Pictures Effortlessly Using Stellar Repair: The Definitive Guide to Photo Recovery on Windows</u></a></li>
-<li><a href="https://network-issues.techidaily.com/smoothing-over-flickering-win7-views/"><u>Smoothing Over Flickering Win7 Views</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sound-powered-by-logitech-g533-a-game-changer/"><u>Sound Powered by Logitech G533: A Game Changer?</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/the-definitive-how-to-on-restoring-your-iphone-like-a-pro-with-stellar-techniques/"><u>The Definitive How-To on Restoring Your iPhone Like a Pro with Stellar Techniques</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-review-of-the-halo-bolt-portable-jump-starter-and-power-bank-unleash-reliable-energy/"><u>Top Review of the Halo Bolt Portable Jump Starter & Power Bank - Unleash Reliable Energy</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-vision-to-visuals-craft-your-story-with-youtube-editor/"><u>[New] In 2024, From Vision to Visuals Craft Your Story with YouTube Editor</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-webcam-buying-simplified-the-best-10-options/"><u>[New] Webcam Buying Simplified The Best 10 Options</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-revolutionizing-patient-engagement-with-creative-fb-strategies/"><u>[Updated] Revolutionizing Patient Engagement with Creative FB Strategies</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apples-premium-sound-option-max-airpods-reviewed/"><u>Apple's Premium Sound Option: Max AirPods Reviewed</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-tecno-camon-20-premier-5g-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Tecno Camon 20 Premier 5G Fingerprint Lock</u></a></li>
+<li><a href="https://network-issues.techidaily.com/bypassing-horizontal-distortion-a-diagnostic-strategy-for-portable-screens/"><u>Bypassing Horizontal Distortion: A Diagnostic Strategy for Portable Screens</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/comment-retrouver-des-fichiers-egares-post-couper-et-coller-guide-complet-en-3-etapes/"><u>Comment Retrouver Des Fichiers Égarés Post-Couper Et Coller : Guide Complet en 3 Étapes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-unleashing-the-power-of-razers-blade-pro-17-on-your-desk-or-lap/"><u>Comprehensive Review: Unleashing the Power of Razer's Blade Pro 17 on Your Desk or Lap</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/deciding-on-your-next-speaker-a-thorough-comparison-of-google-nest-audio-and-nest-mini/"><u>Deciding on Your Next Speaker: A Thorough Comparison of Google Nest Audio and Nest Mini</u></a></li>
+<li><a href="https://win-able.techidaily.com/dual-collision-dilemma-deciphering-it-takes-two-hits-for-pc-issues/"><u>Dual Collision Dilemma: Deciphering 'It Takes Two Hits' For PC Issues</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/from-fiction-to-reality-exploring-the-gap-between-strong-ai-and-its-weaker-counterpart/"><u>From Fiction to Reality: Exploring the Gap Between Strong AI and Its Weaker Counterpart</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/grand-escapades-redefined-in-the-heartwarming-tale-of-yokus-adventure/"><u>Grand Escapades Redefined in the Heartwarming Tale of Yoku’s Adventure</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Oppo Reno 8T 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-speed-and-style-gotraxs-gxl-v2-for-daily-city-rides-unleashed/"><u>Reviewing Speed and Style: Gotrax's GXL V2 for Daily City Rides Unleashed!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-2024-ergonomic-keyboard-picks-comfort-meets-productivity/"><u>Top 2024 Ergonomic Keyboard Picks: Comfort Meets Productivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-tier-ergonomic-keyboards-for-optimal-typing/"><u>Top-Tier Ergonomic Keyboards for Optimal Typing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-lenovo-tab-4-value-for-money-and-potential-drawbacks/"><u>Unpacking the Lenovo Tab 4: Value for Money and Potential Drawbacks</u></a></li>
 </ul></div>
 

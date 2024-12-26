@@ -1,7 +1,7 @@
 ---
 title: Blade BLH4100 120 S RC Helicopter Review
-date: 2024-12-14T04:37:05.835Z
-updated: 2024-12-16T20:39:09.476Z
+date: 2024-12-20T06:33:17.106Z
+updated: 2024-12-25T18:00:37.280Z
 categories:
   - BestProducts
 description: This Article Describes Blade BLH4100 120 S RC Helicopter Review
@@ -18,13 +18,13 @@ thumbnail: https://www.lifewire.com/thmb/0k72WSI9zpSx_0NVgOzieZdbYDg=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Omni 20+ Wireless Power Bank
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/0PqspYn0Ny1UT0fFzdIhza4naCk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-HERO-SQ-e459d44e1a2c432f80fec058b858ccfe.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -50,16 +50,12 @@ Lifewire / Jeremy Laukkonen
 4.8
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Omni 20+ Wireless Power Bank
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/_EV0MTLRfFPHdqFJ2gKyMJff5YY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-HERO-SQ-e459d44e1a2c432f80fec058b858ccfe.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -121,7 +117,7 @@ Lifewire / Jeremy Laukkonen
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Display: Crisp and easy to read, but confusing**
@@ -129,10 +125,6 @@ Lifewire / Jeremy Laukkonen
  The display is small, but it’s quite bright and easy to read. The only issue is that it isn’t particularly easy to figure out what the individual icons mean, or how to use the display to change input and output settings, without referring to an instruction manual that isn’t included in the box.
 
  I’ve already covered the issue with the manual in the previous section, so suffice it to say I recommend avoiding frustration and just downloading the manual from the Omnicharge website rather than trying to figure out the display and controls on your own.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Sockets and Ports: Excellent array, including wireless**
 
@@ -164,7 +156,15 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/aZDfINCcUg9uIHRuhVr2k3wmX94=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-1-815fe3c777eb4f46a77cb00127bd88c2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Charging Speed: True fast charging available for some USB-C devices**
 
@@ -180,13 +180,13 @@ Lifewire / Jeremy Laukkonen
 
  The built-in Qi charger is capable of putting out 10 watts, and I found it to work just as well as other 10 watt Qi chargers I’ve used. It is a bit touchy in terms of positioning, but I was able to get the hang of it pretty fast.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: High end**
 
  With an MSRP of $200, Omni 20+ is a high-end battery bank with a high-end price. You get a whole lot of functionality for that price, but the device does lag behind in terms of both battery capacity and included accessories. The glaring issue is that you can find more powerful battery banks for less money, even if you won’t find one with the exact same functionality.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Omni 20+ vs. Pilot Pro 2**
 
@@ -230,16 +230,18 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-launch-free-youtube-events-a-step-by-step-guide/"><u>[New] Launch Free Youtube Events A Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-elevate-your-gaming-experience-with-unique-sound-alteration-techniques-for-a-competitive-edge-no-cost/"><u>2024 Approved Elevate Your Gaming Experience with Unique Sound Alteration Techniques for a Competitive Edge (No Cost!)</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-exclusive-roundup-the-top-5-iphone-compatible-podcasts/"><u>2024 Approved Exclusive Roundup The Top 5 iPhone-Compatible Podcasts</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-professional-touch-applying-filters-to-pcmobile-videos/"><u>In 2024, Professional Touch Applying Filters to PC/Mobile Videos</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-and-insights-on-the-large-screen-nook-ereader-by-barnes-and-noble/"><u>In-Depth Analysis and Insights on the Large-Screen Nook eReader by Barnes & Noble</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-the-premium-18000mah-m-mock-1000a-vehicle-jump-starter-unrivaled-option-for-drivers/"><u>In-Depth Review of the Premium 18000mAh M MOCK 1000A Vehicle Jump Starter: Unrivaled Option for Drivers</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/investigating-aol-mail-problems-how-to-tell-if-its-a-general-downtvein-or-personal-internet-concern/"><u>Investigating AOL Mail Problems: How to Tell If It's a General Downtvein or Personal Internet Concern.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/lenovo-tab-m10-fhd-plus-2020-review-big-beautiful-display-on-a-budget/"><u>Lenovo Tab M10 FHD Plus (2020) Review: Big, Beautiful Display On a Budget</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/revealing-10-mixer-marvels-perfected-for-professional-podcasting-for-2024/"><u>Revealing 10 Mixer Marvels, Perfected For Professional Podcasting for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/score-the-hp-victus-15-gaming-laptop-at-an-unbeatable-price-just-515-during-best-buys-prime-day-special-find-out-why-on-zdnet/"><u>Score the HP Victus 15 Gaming Laptop at an Unbeatable Price: Just $515 During Best Buy's Prime Day Special – Find Out Why on ZDNet!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-amazfit-gts-unveiled-assessing-fashion-forward-features-in-athletic-wearables/"><u>The Amazfit GTS Unveiled: Assessing Fashion-Forward Features in Athletic Wearables</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-resolve-androidios-issues-with-fb-video-playback/"><u>[New] 2024 Approved Resolve Android/iOS Issues with FB Video Playback</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-expert-techniques-for-streamlined-google-podcasts/"><u>[Updated] In 2024, Expert Techniques for Streamlined Google Podcasts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-streamline-your-shoots-top-lenses-recommended-by-professionals/"><u>2024 Approved Streamline Your Shoots Top Lenses Recommended by Professionals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-latest-apple-iphone-12-why-its-a-game-changer/"><u>Comprehensive Analysis of the Latest Apple iPhone 12 - Why It's a Game-Changer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-assessment-of-the-newly-released-google-pixel-6/"><u>Comprehensive Assessment of the Newly Released Google Pixel 6</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-netgear-nighthawk-x4-wireless-range-extender-analysis/"><u>Comprehensive Netgear Nighthawk X4 Wireless Range Extender Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/determine-your-target-audience/"><u>Determine Your Target Audience</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-xs-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone XS Without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-sony-xperia-5-v-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Sony Xperia 5 V | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-nubia-z50s-pro-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Nubia Z50S Pro Phone without PIN</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-time-travel-online-a-beginners-guide-to-using-the-wayback-machine/"><u>Mastering Time Travel Online: A Beginner’s Guide to Using the Wayback Machine</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/raspberry-pi-400-review/"><u>Raspberry Pi 400 Review</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>Which is the Best Fake GPS Joystick App On Apple iPhone XS? | Dr.fone</u></a></li>
 </ul></div>
 

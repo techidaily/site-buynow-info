@@ -1,7 +1,7 @@
 ---
 title: Unboxing and Evaluating the Campfire Narratives Skins Add-On for Minecraft
-date: 2024-12-11T17:26:25.244Z
-updated: 2024-12-17T10:05:07.232Z
+date: 2024-12-21T05:40:17.639Z
+updated: 2024-12-25T22:13:39.223Z
 categories:
   - BestProducts
 description: This Article Describes Unboxing and Evaluating the Campfire Narratives Skins Add-On for Minecraft
@@ -44,6 +44,10 @@ Lifewire / Andy Zahn
 
 2.9
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Samsung UN65NU8000FXZA
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/J81HLCswW9vG3SGkOY0nkv2_soM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-1-97ff5fdad950453785f7a3f5491bf8fd.jpg)
@@ -73,13 +77,13 @@ Lifewire / Andy Zahn
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/_yzFIL-bClIpQ2-BreG8tli1L2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-4-a802a799a7c34067905c9ff965feea8e.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Big and tough**
@@ -97,6 +101,10 @@ Lifewire / Andy Zahn
  The included remote is attractive and ergonomic, though simple in terms of its button layout. It's designed in such a way as to be able to control multiple compatible devices connected to the TV, and to navigate the interfaces of the various apps available for the NU8000\. This is an exceptionally solid device that's satisfying to hold. Buttons are tactile and easy to identify by feel with a little practice. We particularly liked the volume and channel buttons, which are not so much buttons as they are broad, horizontal toggles that are pushed forward and backward to activate.
 
  We did encounter one troublesome bug where the remote partially de-synced from the display so that only the power button functioned properly. This is obviously a known issue, as on-screen instructions immediately appeared to reset the remote and re-establish the connection, and we found these instructions repeated inside the battery compartment of the remote. We also missed having dedicated buttons for popular streaming services such as Netflix and Hulu.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Some assembly required**
 
@@ -126,11 +134,11 @@ Lifewire / Andy Zahn
 
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/0imcVI8dzYw11TAOKkt8EnXJE5k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-2-0c325c2d3f1e448d9d0b10f24152a097.jpg)
 
- Lifewire / Andy Zahn
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Andy Zahn
 
 ## **Audio Quality: Surprisingly good**
 
@@ -140,10 +148,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Software: A little slow**
 
  Samsung has built an excellent interface for its smart TVs, and the NU8000 is no exception. All your favorite apps are here, many of them pre-installed. Navigation is easy, and we had no trouble changing settings or finding our way around apps. Smart home, AI assistant, and voice integration capability allow you to configure it as a nerve center for your connected devices.
@@ -152,13 +156,13 @@ Lifewire / Andy Zahn
 
  The other software issue is that the NU8000 runs an older version of FreeSync, which means it doesn’t handle screen tearing as well as newer displays, especially when gaming on high-end hardware. However, during our testing, we didn’t notice an appreciable problem with this, though that may vary depending on your viewing and gaming habits.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Expensive at MSRP**
 
  With an MSRP of $999 the NU8000 is certainly no bargain, especially considering that superior displays are available for the same cost. However, as this is an older TV it may be possible to find steep discounts that make up for its deficiencies.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: NU8000 vs RU8000**
 
@@ -173,10 +177,6 @@ Lifewire / Andy Zahn
 **Hard to recommend.**
 
  The Samsung UN65NU8000FXZ is capable, provides high resolution, and has excellent, flexible software with a good selection of apps. It's also exceptionally thin with a screen that's almost bezel-less, but unless the extremely sturdy stand is the most important feature to you, then RU8000 is just a better display at the exact same MSRP.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -206,22 +206,18 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-chrome-os-native-screen-recorder/"><u>[New] 2024 Approved Chrome OS Native Screen Recorder</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-melodic-masterpieces-top-sites-for-legal-skype-files/"><u>[Updated] In 2024, Melodic Masterpieces Top Sites for Legal Skype Files</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-creating-the-ultimate-home-pc-for-professional-video-editors/"><u>2024 Approved Creating the Ultimate Home PC for Professional Video Editors</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-missing-link-prime-free-speech-to-text-on-macos/"><u>2024 Approved Missing Link Prime Free Speech to Text on macOS</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-uncovered-the-hidden-youtube-shorts-fix/"><u>2024 Approved Uncovered The Hidden YouTube Shorts Fix</u></a></li>
-<li><a href="https://windows11.techidaily.com/5-steps-to-reclaim-your-windows-daylight-look/"><u>5 Steps to Reclaim Your Windows' Daylight Look</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/gotomeeting-precision-capture-across-all-platforms/"><u>GoToMeeting Precision Capture Across All Platforms</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-enriching-zoom-video-clarity-comprehensible-advice/"><u>In 2024, Enriching Zoom Video Clarity Comprehensible Advice</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/introducing-nvidias-new-all-in-one-application-the-evolution-from-control-panel-and-geforce-experience/"><u>Introducing Nvidia’s New All-in-One Application: The Evolution From Control Panel & GeForce Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ipad-enhances-gaming-experience-introducing-delta-emulators-new-screen-management-for-ds-titles/"><u>IPad Enhances Gaming Experience: Introducing Delta Emulator's New Screen Management for DS Titles</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-mirrorless-photography-lenses-for-2astof-the-year-expert-picks/"><u>Leading Mirrorless Photography Lenses for 2Astof the Year: Expert Picks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-gaming-performance-on-windows-11-a-step-by-step-optimization-strategy/"><u>Maximizing Gaming Performance on Windows 11: A Step-by-Step Optimization Strategy</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-your-playstation-5-experience-tips-and-tricks-for-enhanced-performance/"><u>Maximizing Your PlayStation 5 Experience: Tips & Tricks for Enhanced Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/my-experience-with-3d-printing-lego-blocks-the-unexpected-results/"><u>My Experience with 3D Printing LEGO Blocks: The Unexpected Results</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-slow-down-videos-on-instagram-with-perfection-a-guide/"><u>New In 2024, Slow Down Videos on Instagram With Perfection A Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/requesting-a-silent-interlude-from-spotify-exploring-song-hiatus-options/"><u>Requesting a Silent Interlude From Spotify: Exploring Song Hiatus Options</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/safe-methods-for-increasing-performance-of-your-nvidia-graphics-card-maintaining-warranty-security/"><u>Safe Methods for Increasing Performance of Your NVIDIA Graphics Card: Maintaining Warranty Security</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-uploading-subtitles-a-compreenas-guide-for-all-social-media-users/"><u>[New] In 2024, Uploading Subtitles A Compreenas Guide for All Social Media Users</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-essentials-of-effective-video-narration-techniques/"><u>[New] The Essentials of Effective Video Narration Techniques</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-comprehensive-srt-format-conversion-guide/"><u>[Updated] Comprehensive SRT Format Conversion Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-premier-mobile-dev-editor-software-guide-for-2024/"><u>[Updated] Premier Mobile Dev Editor Software Guide for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/achieving-excellence-in-game-recording-techniques-windows-11-style/"><u>Achieving Excellence in Game Recording Techniques, Windows 11 Style</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-the-ultimate-guide-to-mastering-onetastic-add-in-with-microsoft-onenote/"><u>Comprehensive Evaluation: The Ultimate Guide to Mastering Onetastic Add-In with Microsoft OneNote</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-ultimate-senior-cellular-deals-of-2nce-2024/"><u>Explore the Ultimate Senior Cellular Deals of 2Nce 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-dual-capabilities-of-fitbit-versa-2-your-guide-to-health-monitoring-and-smartwatch-integration/"><u>Exploring the Dual Capabilities of Fitbit Versa 2 – Your Guide to Health Monitoring and Smartwatch Integration</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fttfw-ratio-fat-free-mass-to-total-body-water-ratio/"><u>FT:TFW Ratio = Fat-Free Mass to Total Body Water Ratio.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-the-perfect-portable-e-reader-for-avid-readers-the-new-kobo-clara-hd/"><u>Review: The Perfect Portable E-Reader for Avid Readers - The New Kobo Clara HD</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/step-by-step-guide-creating-a-pie-chart-using-microsoft-excel/"><u>Step-by-Step Guide: Creating a Pie Chart Using Microsoft Excel</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-pc-brands-dominating-2024s-technology-market/"><u>The Best PC Brands Dominating 2024'S Technology Market</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/wav-itunes/"><u>WAV形式への簡単なアップデート: ITunes音楽曲変換ガイド</u></a></li>
 </ul></div>
 

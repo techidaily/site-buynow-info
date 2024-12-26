@@ -1,7 +1,7 @@
 ---
 title: Retained Earnings (RE) = Net Earnings Kept Within the Company to Reinvest in Operations or to Pay Debt, Which Is Not Distributed as Dividends to Shareholde...
-date: 2024-08-19T16:31:12.463Z
-updated: 2024-08-20T16:31:12.463Z
+date: 2024-12-24T18:46:48.945Z
+updated: 2024-12-26T05:24:23.719Z
 categories:
   - BestProducts
 description: This Article Describes Retained Earnings (RE) = Net Earnings Kept Within the Company to Reinvest in Operations or to Pay Debt, Which Is Not Distributed as Dividends to Shareholde...
@@ -51,6 +51,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
 **TL;DR:** Highly customizable for any situation, simple to use, and regularly updated, the Apple Watch Series 9 is the one to beat.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Why We Recommend This
 
  I’ve been using Apple Watches since they first launched in 2015\. Over the years, the format has been refined, and the Apple Watch Series 9 is easily the best yet for most people.
@@ -86,9 +90,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **Who else recommends it?** Digital Trends, TechRadar, CNET, ZDNet, and PCMag all recommend the Apple Watch Series 9.
 * **What do buyers think?** The Apple Watch Series 9 has over 2,400 ratings on Amazon, with 83% of those giving the watch five stars for an average rating of 4.7 out of 5.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Best Android Smartwatch
 
 [Samsung Galaxy Watch 6](https://www.amazon.com/SAMSUNG-Bluetooth-Smartwatch-Personalized-Advanced/dp/B0C792QRW6/?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0C792QRW6)
@@ -100,6 +101,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 [$190 at Amazon](https://www.amazon.com/SAMSUNG-Bluetooth-Smartwatch-Personalized-Advanced/dp/B0C792QRW6/?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0C792QRW6) [$229 at Walmart](https://www.walmart.com/ip/Samsung-Galaxy-Watch6-Smart-Watch-40mm-Small-Bluetooth-Graphite/3074183240?slpfid=3) [$300 at Samsung](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fus%2Fwatches%2Fgalaxy-watch6%2Fbuy%2F)
 
 **TL;DR:** Sleek and stylish, the Samsung Galaxy Watch 6 has some great features provided you’re an Android phone owner. Its body composition tool is a particular highlight.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Why We Recommend This
 
@@ -132,9 +137,9 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **What do buyers think?** The Samsung Galaxy Watch 6 has over 3,900 ratings on Amazon, with 88% of those rating the watch either five or four stars. The overall average rating is 4.5 out of 5.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Easiest on the Budget
 
 [Garmin Vivoactive 5](https://www.amazon.com/Garmin-v%C3%ADvoactive-Fitness-Smartwatch-Display/dp/B0CG6NR413?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CG6NR413)
@@ -148,8 +153,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 **TL;DR:** More affordable than most Garmin watches, the Garmin Vivoactive 5 offers all the key features while not looking too sporty.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Why We Recommend This
 
  A Garmin Watch is the dream for active types, but they often cost a lot and rarely look great when fine dining. The Garmin Vivoactive 5 is an affordable option that won’t look too out of place while out to impress.
@@ -183,13 +189,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * **What do buyers think?** The Garmin Vivoactive 5 has over 1,800 ratings on Amazon, with 76% of them rating it five or four stars. Its average rating is 4.4 out of 5.
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How We Test
 
  I reviewed each smartwatch based on the following factors:
@@ -204,9 +206,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  I used all the devices for several weeks, with some smartwatches used for months. I wore them daily while working, exercising, relaxing, and asleep.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## What to Look For
 
  Buying a smartwatch involves finding the right balance between looks and practicality. Consider where you plan on wearing it, such as in the office or when walking, and plan accordingly.
@@ -219,9 +218,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 [The Best Fitness Trackers of 2024](https://www.lifewire.com/best-fitness-trackers-8656291)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Other Smartwatches We Reviewed
 
  The[Google Pixel Watch 2](https://www.amazon.com/Google-Pixel-Watch-Best-Fitbit/dp/B0CCQ7DNQL?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7C) is potentially the most beautiful smartwatch, so it can’t cope with a rugged lifestyle. It is a bit limited at times and pricey, which means it isn’t the best around, but it’s certainly eye-catching.
@@ -248,8 +244,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -257,4 +251,24 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-boosting-view-speed-for-instagram-media-content/"><u>[New] Boosting View Speed for Instagram Media Content</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-full-screen-pro-tips-and-tricks-for-editors/"><u>[New] Full Screen Pro Tips and Tricks for Editors</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nobstructed-movie-magic-erasing-youtube-borders-for-2024/"><u>[New] Unobstructed Movie Magic Erasing YouTube Borders for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-chrome-os-screen-capture-mastering-the-art-in-four-steps-for-2024/"><u>[Updated] Chrome OS Screen Capture Mastering the Art in Four Steps for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-launching-success-on-youtube-tutorial-with-two-strategies/"><u>[Updated] Launching Success on YouTube Tutorial with Two Strategies</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-motorola-edge-40-pro-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Motorola Edge 40 Pro to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/athena-smart-display-gen-4-an-in-depth-evaluation/"><u>Athena Smart Display (Gen 4): An In-Depth Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cat-s42-rugged-phone-review/"><u>CAT S42 Rugged Phone Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-elder-scrolls-v-skyrim-a-detailed-review-for-switch-gamers/"><u>Exploring The Elder Scrolls V: Skyrim - A Detailed Review for Switch Gamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-robust-capabilities-of-the-small-yet-potent-unihertxl-smartphone-review/"><u>Exploring the Robust Capabilities of the Small Yet Potent Unihert^XL Smartphone Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-shadows-in-depth-bloodborne-game-analysis/"><u>Exploring the Shadows: In-Depth Bloodborne Game Analysis</u></a></li>
+<li><a href="https://os-tips.techidaily.com/how-to-effortlessly-uninstall-ebooks-from-your-ibooks-collection-the-three-superior-strategies/"><u>How to Effortlessly Uninstall eBooks From Your iBooks Collection: The Three Superior Strategies</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-make-a-leap-in-your-macbook-pro-performance-with-an-ssd/"><u>How to Make a Leap in Your MacBook Pro Performance with an SSD</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-vivo-y100t-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Vivo Y100t | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/motorola-edgeplus-2023-messages-recovery-recover-deleted-messages-from-motorola-edgeplus-2023-by-fonelab-android-recover-messages/"><u>Motorola Edge+ (2023) Messages Recovery - Recover Deleted Messages from Motorola Edge+ (2023)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-rotibox-beanies-top-notch-audio-and-ultimate-comfort-the-best-of-both-worlds-in-a-hat/"><u>Reviewing the Rotibox Beanies: Top-Notch Audio and Ultimate Comfort - The Best of Both Worlds in a Hat!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-for-a-transparent-connected-world-exploring-the-linksys-wrt1900acs-router/"><u>The Ultimate Review for a Transparent Connected World: Exploring the Linksys WRT1900ACS Router</u></a></li>
+</ul></div>
 

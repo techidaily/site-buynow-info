@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Analysis of Fongo - Top Canadian VOIP Provider
-date: 2024-08-19T16:29:48.551Z
-updated: 2024-08-20T16:29:48.551Z
+date: 2024-12-20T02:37:58.667Z
+updated: 2024-12-26T01:04:36.577Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Analysis of Fongo - Top Canadian VOIP Provider
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/ix8RIK_HPlG7IYBPNAPch-D3SuQ=/400x300/fi
 ## Comprehensive Analysis of the Antolink Antenna AT-127 - Exceptional Picture Quality at No Cost
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Antop AT-127
 
@@ -62,9 +66,6 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -75,12 +76,12 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## **Setup: Easier than most**
 
  Setting up the antenna is relatively intuitive. You just connect the antenna to the coaxial/antenna-in connection on your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) . The antenna has an easy-push connector, instead of a connector you have to twist onto the threading. This makes for easier setup because you don’t have to struggle behind your TV with trying to screw on the[coaxial cable](https://www.lifewire.com/coaxial-vs-optical-digital-cable-3134605) .
@@ -89,9 +90,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ## **Performance: Almost two dozen channels**
 
  The Antop AT-127 supports UHF and VHF signals. Overall, it works pretty smoothly, though some channels might have look pixelated for a few seconds when you flip to them or take a second or two to fully load.
@@ -101,13 +99,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Range: Could be better**
 
  My test home is in a rural area, and there’s a lot of tree cover on the property. The omnidirectional Antop AT-127 has a 40-mile range, which was enough to pick up local channels from neighboring cities.
@@ -117,8 +113,9 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
@@ -126,6 +123,10 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
 
@@ -153,14 +154,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 * Screen Resolution  1080p
 * Connectivity Options  Quick push “E-Z connect” F connector (coaxial cable)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -169,4 +167,26 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-affordable-aaa-gaming-websites-and-streaming-services/"><u>[New] 2024 Approved Affordable AAA Gaming Websites and Streaming Services</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-detailed-insights-into-instagrams-video-time-policy/"><u>[New] 2024 Approved Detailed Insights Into Instagram’s Video Time Policy</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unveiling-how-t-series-earnings-growth-on-youtube-works/"><u>[New] Unveiling How T-Series Earnings Growth on YouTube Works</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-make-a-lasting-impression-youtubes-anime-style-subscribe-buttons-in-filmora-for-2024/"><u>[Updated] Make a Lasting Impression - YouTube's Anime-Style Subscribe Buttons in Filmora for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-the-value-is-steam-deck-a-smart-buy/"><u>Assessing the Value: Is Steam Deck a Smart Buy?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/cutting-edge-techniques-for-audience-engagement-on-twitch-for-2024/"><u>Cutting-Edge Techniques for Audience Engagement on Twitch for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/edit-like-a-pro-the-best-cross-platform-video-fixing-programs-windowsmac/"><u>Edit Like a Pro: The Best Cross-Platform Video Fixing Programs [Windows/Mac]</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/expert-guide-effective-techniques-for-safely-cleansing-your-flat-panel-display/"><u>Expert Guide: Effective Techniques for Safely Cleansing Your Flat-Panel Display</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/future-proofing-your-network-with-top-netgear-routers/"><u>Future-Proofing Your Network with Top Netgear Routers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hisenses-40-inch-smart-television-model-h5590f-reviewed-a-cost-effective-home-entertainment-solution/"><u>Hisense's 40-Inch Smart Television (Model: H5590F) Reviewed: A Cost-Effective Home Entertainment Solution</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/how-to-prepare-your-room-and-vr-ready-pc-for-oculus-rift-for-2024/"><u>How to Prepare Your Room and VR-Ready PC for Oculus Rift for 2024</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/importing-multiple-pages-into-flipbook-a-step-by-step-guide-at-flipbuildercom/"><u>Importing Multiple Pages Into FlipBook: A Step-by-Step Guide at FlipBuilder.com</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-xiaomi-redmi-note-12r-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Xiaomi Redmi Note 12R? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-mobile-workflows-how-the-202n-ipad-pro-with-m1-chip-delivers-desktop-efficiency-in-tablet-form/"><u>Mastering Mobile Workflows: How the 202N iPad Pro with M1 Chip Delivers Desktop Efficiency in Tablet Form</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-buds-pro-review-pro-android-headphones/"><u>Samsung Galaxy Buds Pro Review: Pro Android Headphones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/silly-and-fun-shooter-gameplay-in-plants-vs-zombies-battle-for-neighborhood-expert-review/"><u>Silly and Fun Shooter Gameplay in 'Plants Vs. Zombies: Battle for Neighborhood' - Expert Review!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sunbriteverandatv-experience-high-quality-55-inch-4k-hdr-durability-in-open-air-tvs/"><u>SunBriteVerandaTV: Experience High-Quality 55-Inch 4K HDR Durability in Open Air TVs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-lg-gram-156-laptop-evaluation-for-2018-exceptionally-lightweight-with-long-battery-life/"><u>Ultimate LG Gram 15.6 Laptop Evaluation for 2018 - Exceptionally Lightweight with Long Battery Life</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/voip-showdown-2023-does-vonage-reign-supreme-among-competitors/"><u>VoIP Showdown 2023: Does Vonage Reign Supreme Among Competitors?</u></a></li>
+</ul></div>
 

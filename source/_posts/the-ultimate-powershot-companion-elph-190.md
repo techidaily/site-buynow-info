@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate PowerShot Companion: ELPH 190"
-date: 2024-08-26T06:31:31.198Z
-updated: 2024-08-27T06:31:31.198Z
+date: 2024-12-24T01:35:28.858Z
+updated: 2024-12-25T20:33:34.776Z
 categories:
   - BestProducts
 description: "This Article Describes The Ultimate PowerShot Companion: ELPH 190"
@@ -40,9 +40,17 @@ Lifewire / Jeff Dojillo
 
 4.3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## GoPro HERO7 Black
 
 ![GoPro HERO7 Black](https://www.lifewire.com/thmb/GYZOA14ZRWOM3tJzi8ZbmTTASe8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4158963-1-2553e26bad2246dea19f86f8fb2c3714.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeff Dojillo
 
@@ -75,9 +83,6 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## **Design: Classic action camera design**
 
  The GoPro HERO7 Black measures in at 2.4 x 1.3 x 1.8 inches, so it’s super compact and almost a cube. The device is all black with a very nice rubber casing around the unit that makes it feel soft to the touch.
@@ -88,9 +93,6 @@ Lifewire / Jeff Dojillo
 
  While testing the GoPro HERO7 Black we noticed that the body of the device becomes very hot when used for long periods of time. We tested it for a few hours nonstop and noticed it was still very warm even when it was not recording. This can be a big concern if the device is used for long recordings in hot temperatures.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Display: Bright and visible**
 
  The back of the GoPro HERO7 Black has a two-inch touchscreen that is bright and easy to read. While testing the camera, we were able to navigate through the menus with the single touch of a finger, which are intuitive and easy to adjust. Simply tap to select.
@@ -113,9 +115,6 @@ Lifewire / Jeff Dojillo
 
  It makes your footage impressively stable even when filming handheld or while riding on rough terrain.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ## **Lens: Great for video**
 
  The fixed lens on the GoPro HERO7 Black shoots wide or in SuperView mode, the latter of which is an extra-wide field of view and can sometimes give a kind of distorted fisheye effect to your footage. This distortion can be frustrating, but there are ways to work around it during editing, including using video editing software to correct. And when shooting at a lower resolution, the camera can shoot with a linear field of view which reduces the distortion of the lens. The SuperView is not available when shooting in a 4:3 aspect ratio.
@@ -135,8 +134,9 @@ Lifewire / Jeff Dojillo
  Lifewire / Jeff Dojillo
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Photo Quality: Nothing to brag about**
 
  The photo quality on the GoPro HERO7 Black is average, though it does have the ability to create HDR (High Dynamic Range) images.
@@ -157,6 +157,10 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Connectivity: Speedy Wi-Fi and Bluetooth pairing**
 
  Wifi and Bluetooth connectivity is a breeze with the GoPro HERO7 Black. Once we installed the GoPro app on our smartphone, the camera connected instantly. The app also gave us a much larger and easier-to-read interface, plus a live view function that allowed us to use our phone to frame and compose videos and remotely control the camera.
@@ -170,8 +174,9 @@ Lifewire / Jeff Dojillo
  Another option to extend shooting time would be to connect the GoPro HERO7 Black to an external battery pack via the[USB port.](https://www.lifewire.com/what-is-a-usb-port-818166)
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Fairly priced for what you get**
 
  Retailing for $400 but often selling for less, the GoPro HERO7 Black is reasonably priced for its amazing features. 4K recording, HyperSmooth image stabilization, high frame rates, Bluetooth connectivity, a waterproof body, and live streaming features make this camera well worth the asking price.
@@ -202,9 +207,6 @@ Lifewire / Jeff Dojillo
 
  Between the amazing video quality and the enhanced HyperSmooth electronic image stabilization, the GoPro HERO7 Black is perfect for adventurers who want to record or even live-stream their most rugged expeditions. It produces beautiful videos with enhanced color and sharpness and is small enough to wear or mount somewhere without it getting in the way.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [AKASO EK7000 Pro 4K Action Camera](https://www.lifewire.com/akaso-ek7000-pro-4k-action-camera-review-4770265)
@@ -212,8 +214,9 @@ Lifewire / Jeff Dojillo
 * [Sony DSC-W800](https://www.lifewire.com/sony-dsc-w800-review-4589510)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  HERO7 Black
@@ -236,8 +239,6 @@ Lifewire / Jeff Dojillo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -245,4 +246,24 @@ Lifewire / Jeff Dojillo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-powerful-path-to-stellar-videos-top-free-intro-makers/"><u>[Updated] In 2024, The Powerful Path to Stellar Videos Top Free Intro Makers</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-visual-capture-specialists-top-10-tools/"><u>[Updated] In 2024, Visual Capture Specialists' Top 10 Tools</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-top-10-best-free-mmorpg-games-for-2024/"><u>[Updated] Top 10 Best Free MMORPG Games for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-5/"><u>2024년 제공하는 상위 5개의 무인징 비디오 녹화 소프트웨어를 찾아보세요!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-syma-107g-hobbyist-rc-helicopter-in-depth-performance-analysis/"><u>Budget-Friendly Syma 107G Hobbyist RC Helicopter - In-Depth Performance Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-motorola-mg7700-a-synopsis-on-consistent-velocity-and-reliability/"><u>Evaluating the Motorola MG7700: A Synopsis on Consistent Velocity & Reliability</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-the-unpleasant-image-malfunction-in-windows-10-and-11/"><u>Fixing the Unpleasant Image Malfunction in Windows 10 & 11</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/free-divx-video-cutting-solutions-expert-recommendations-for-2024/"><u>Free Divx Video Cutting Solutions Expert Recommendations for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instas-music-guide-essentials-for-2024/"><u>Insta's Music Guide Essentials for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-long-distance-wifi-routers-the-2024-guide-to-enhanced-connectivity/"><u>Leading Long-Distance WiFi Routers: The 2024 Guide to Enhanced Connectivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/manfrotto-befree-advanced-advanced-aluminum-travel-tripod-high-quality/"><u>Manfrotto Befree Advanced Advanced Aluminum Travel Tripod: High Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/onetastic-upgrade-guide-elevating-your-productivity-with-microsoft-onenote-plugin/"><u>Onetastic Upgrade Guide: Elevating Your Productivity with Microsoft OneNote Plugin</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionized-budget-tablet-in-depth-analysis-of-the-new-apple-ipad-102/"><u>Revolutionized Budget Tablet: In-Depth Analysis of the New Apple iPad 10.2</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-price-of-power-with-nikon-sb-700/"><u>The Price of Power with Nikon SB-700</u></a></li>
+<li><a href="https://win-blog.techidaily.com/tutorial-retrieving-cell-value-information-via-microsoft-excel-status-bar/"><u>Tutorial: Retrieving Cell Value Information via Microsoft Excel Status Bar</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/understanding-when-people-drop-off-on-instagram-for-2024/"><u>Understanding When People Drop Off on Instagram for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-a-fully-connected-experience-with-the-mobvoi-ticwatch-pro-lte-edition/"><u>Unveiling the Power of a Fully-Connected Experience with the Mobvoi Ticwatch Pro LTE Edition</u></a></li>
+</ul></div>
 

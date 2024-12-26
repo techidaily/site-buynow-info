@@ -1,7 +1,7 @@
 ---
 title: AmazonBasics Tripod - The Gateway to Professional Photography
-date: 2024-12-12T00:57:33.753Z
-updated: 2024-12-16T23:51:53.006Z
+date: 2024-12-19T00:16:12.765Z
+updated: 2024-12-26T03:30:45.040Z
 categories:
   - BestProducts
 description: This Article Describes AmazonBasics Tripod - The Gateway to Professional Photography
@@ -19,7 +19,7 @@ thumbnail: https://www.lifewire.com/thmb/GueH0d7vGKbrgxsm8VOzjxghyh0=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## TopMate C302 Laptop Cooling Pad
@@ -50,6 +50,10 @@ Lifewire / Andrew Hayward
 
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/Um5K58ex8qVMnW5PlEtqzPi9c-4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_HeroSquare-53c92cb3074b41d9b696fd9f6fa1a64e.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
 [View On Amazon $17](https://www.amazon.com/dp/B01L8M215A?tag=lifewire-onsite-prod-20&ascsubtag=5193471%7Cn3d06d6a443e14152b7728753066731b712%7CB01L8M215A)
@@ -72,10 +76,6 @@ Lifewire / Andrew Hayward
 
  The TopMate C302 is a strong example of the latter. It’s affordable and solidly effective, but the plastic design feels a bit flimsy. I wouldn’t bet on it lasting for the long haul without gentle handling, but given the price, you might not worry about it too much.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Design: Light and a little flimsy
 
  The C302 measures just over 14 inches wide and is designed for laptops with screens up to 15.6 inches diagonal. It’s primarily made of lightweight plastic, with a thin metal grate on the top above the two 4.9-inch fans to help dissipate heat.
@@ -93,6 +93,10 @@ Lifewire / Andrew Hayward
  It’ll do just fine holding your laptop and sitting on a desk, but I wouldn’t bet on it surviving a hard fall without some damage.
 
  The C302 has a little bit of accent lighting via a pair of blue lights beneath each fan, but it doesn’t emanate a significant glow, nor is it customizable in any way.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Setup Process: Plug and play
 
@@ -122,10 +126,6 @@ Lifewire / Andrew Hayward
 
  Depending on test, the results were roughly comparable to or better than more expensive cooling pads, like the Kootek Laptop Cooling Pad and Thermaltake Massive TM, which have some added features onboard. It’s also pretty quiet in use—certainly quieter than the Razer Blade 15’s own internal fans.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Price: It’s very affordable
 
  At $30, this is one of the most affordable laptop cooling pads on the market right now. While results varied across multiple tests and games/apps, the C302 was pretty well in line with some of the pricier options I tested. It feels a little flimsy and doesn’t have any premium features, but the C302 is a very good entry-level option.
@@ -133,10 +133,6 @@ Lifewire / Andrew Hayward
 ![TopMate C302 Laptop Cooling Pad](https://www.lifewire.com/thmb/3hXx9Tb9omnQS0YyIXmv97Lunr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TopMate_C302_02-8fc1ac2169044c0a82b61a80f63ef089.jpg)
 
 Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## TopMate C302 vs. Kootek Laptop Cooling Pad
 
@@ -149,7 +145,7 @@ Lifewire / Andrew Hayward
  Durability questions aside, the TopMate C302 Laptop Cooling Pad ultimately worked about as well as the other, pricier pads I tested, helping to offset some of the heat generated by a very hot gaming laptop. If you’re concerned about long-term damage or performance degradation from an overheating laptop, the C302 is a cost-efficient way to help keep your notebook from reaching extreme heat peaks.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -157,6 +153,10 @@ Lifewire / Andrew Hayward
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 * [North Face Pivoter Backpack](https://www.lifewire.com/north-face-pivoter-backpack-review-4690198)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -186,21 +186,18 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-ninja-legacy-continuation-game-roundup-like-the-japanese-samurai-epic/"><u>[New] Ninja Legacy Continuation Game Roundup Like the Japanese Samurai Epic</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-free-windows-programs-expertly-record-live-shows/"><u>[Updated] 2024 Approved Free Windows Programs Expertly Record Live Shows</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitters-entry-points-creating-an-account/"><u>[Updated] Twitters' Entry Points Creating an Account</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/detailed-analysis-of-imos-messaging-app-pros-and-cons/"><u>Detailed Analysis of Imo's Messaging App: Pros & Cons</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-soundbot-sb210-speaker-excellent-acoustic-output-reliable-under-favorable-circumstances/"><u>Evaluating the Soundbot SB210 Speaker: Excellent Acoustic Output, Reliable Under Favorable Circumstances</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-samsung-galaxy-a54-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Samsung Galaxy A54 5G Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-nokia-c02-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Nokia C02 | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-tips-for-clearer-zoomed-snapshots-on-snapchat/"><u>In 2024, Expert Tips for Clearer Zoomed Snapshots on Snapchat</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-unlock-pristine-facebook-videos-on-chromebooks/"><u>In 2024, Unlock Pristine Facebook Videos on Chromebooks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ion-audios-tailgater-plus-review-ultimate-hours-of-superior-enhanced-bass-performance/"><u>ION Audio's Tailgater Plus Review - Ultimate Hours of Superior, Enhanced Bass Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/logitech-c920-pro-hd-webcam-review-real-hd-video/"><u>Logitech C920 Pro HD Webcam Review: Real HD Video</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/new-in-2024-top-5-tiktok-voice-generators-you-should-try/"><u>New In 2024, Top 5 TikTok Voice Generators You Should Try</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/step-by-step-guide-preserving-pictures-in-your-word-docs/"><u>Step-by-Step Guide: Preserving Pictures in Your Word Docs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-5-critical-points-for-selecting-the-perfect-fitness-tracker/"><u>The Ultimate Guide: 5 Critical Points for Selecting the Perfect Fitness Tracker</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Vivo Y02T | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-leading-gaming-systems-in-2eplust-2024/"><u>Ultimate Guide: Leading Gaming Systems in 2E+t 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-speeding-up-instagram-content-consumption/"><u>[New] 2024 Approved Speeding Up Instagram Content Consumption</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-comprehensive-insight-into-the-ultra-clear-lg-monitor-for-2024/"><u>[New] Comprehensive Insight Into the Ultra-Clear LG Monitor for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-hidden-gems-to-hit-videos-strategies-for-success/"><u>[Updated] In 2024, From Hidden Gems to Hit Videos Strategies for Success</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/advancing-laptop-display-with-new-graphics-cards/"><u>Advancing Laptop Display with New Graphics Cards</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-meets-feature-in-the-nokia-71-premium-screen-and-camera-quality-worth-noting/"><u>Budget Meets Feature in the Nokia 7.1 - Premium Screen & Camera Quality Worth Noting</u></a></li>
+<li><a href="https://windows11.techidaily.com/expert-insights-into-the-world-of-hdr-technology-for-windows-11/"><u>Expert Insights Into the World of HDR Technology for Windows 11</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-play-hevc-h-265-video-on-xiaomi-redmi-note-13-pro-5g-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>How to play HEVC H.265 video on Xiaomi Redmi Note 13 Pro 5G?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-poco-x6-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Poco X6 Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-unlock-apple-iphone-12-pro-without-passcode-easily-by-drfone-ios/"><u>In 2024, Unlock Apple iPhone 12 Pro Without Passcode Easily</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/intriguingly-intimate-diving-into-amazons-revolutionary-fitness-gadget/"><u>Intriguingly Intimate - Diving Into Amazon's Revolutionary Fitness Gadget</u></a></li>
+<li><a href="https://win-blog.techidaily.com/light-up-your-video-chats-avoiding-and-resolving-zooms-notorious-pc-black-screen/"><u>Light Up Your Video Chats: Avoiding and Resolving Zoom's Notorious PC Black Screen</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/navigating-dead-ends-how-digiarty-ai-revitalizes-unavailable-web-content/"><u>Navigating Dead Ends: How Digiarty AI Revitalizes Unavailable Web Content</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unleash-high-speed-connectivity-and-slim-latency-with-the-innovative-extollo-lansocket-1500-reviewed/"><u>Unleash High-Speed Connectivity & Slim Latency with the Innovative Extollo LANSocket 1500 Reviewed!</u></a></li>
 </ul></div>
 

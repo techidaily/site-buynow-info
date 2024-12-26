@@ -1,7 +1,7 @@
 ---
 title: "Reviewing the Rugged Cat S42: Extensive Armor but Modest Performance Levels"
-date: 2024-12-10T21:58:56.701Z
-updated: 2024-12-16T21:11:04.688Z
+date: 2024-12-19T17:08:33.361Z
+updated: 2024-12-25T23:10:19.080Z
 categories:
   - BestProducts
 description: "This Article Describes Reviewing the Rugged Cat S42: Extensive Armor but Modest Performance Levels"
@@ -18,13 +18,13 @@ thumbnail: https://thmb.techidaily.com/4701af21fbd3236ee27b5d0a75fe2af600bece4b4
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/87Y0vp91-Opdxctf3M6BGQ6r1d8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -53,7 +53,7 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
@@ -81,14 +81,10 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Design: Sleek and convenient**
 
@@ -112,6 +108,10 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
 ## **Audio: Excellent sound**
@@ -125,7 +125,7 @@ Lifewire / Emily Ramirez
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: Lots of options with mixed utility**
@@ -161,7 +161,7 @@ Lifewire / Emily Ramirez
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -207,24 +207,18 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-enjoy-infinite-fun-top-10-offline-ios-games-unplugged/"><u>[New] In 2024, Enjoy Infinite Fun - Top 10 Offline iOS Games Unplugged</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-cinematic-dialogue-assembler/"><u>[Updated] 2024 Approved Cinematic Dialogue Assembler</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-essential-steps-to-curate-youtube-music-selections/"><u>[Updated] 2024 Approved Essential Steps to Curate YouTube Music Selections</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-effective-legal-strategies-for-content-visibility/"><u>[Updated] In 2024, Effective, Legal Strategies for Content Visibility</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-superior-android-3d-film-watcher/"><u>[Updated] Superior Android 3D Film Watcher</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-from-basics-to-blockbusters-building-an-audience-on-gaming-channels/"><u>2024 Approved From Basics to Blockbusters Building an Audience on Gaming Channels</u></a></li>
-<li><a href="https://program-issues.techidaily.com/batmans-epic-gaming-glitch-heres-how-to-avoid-the-arkham-knight-collapse/"><u>Batman's Epic Gaming Glitch? Here’s How to Avoid the Arkham Knight Collapse</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-cutting-edge-captures-delving-into-iphone-xs-camera/"><u>In 2024, Cutting Edge Captures Delving Into iPhone X's Camera</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-the-use-of-game-emulators-currently-lawful-anticipating-potential-legal-hurdles/"><u>Is the Use of Game Emulators Currently Lawful? Anticipating Potential Legal Hurdles</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/laptop-enthusiasts-do-you-really-need-a-dedicated-gaming-laptop/"><u>Laptop Enthusiasts: Do You Really Need a Dedicated Gaming Laptop?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/long-lasting-joy-the-panic-playdate-remains-an-engaging-gadget-after-two-years/"><u>Long-Lasting Joy: The Panic Playdate Remains an Engaging Gadget After Two Years</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/my-journey-into-intensive-android-gaming-essential-knowledge-for-beginners-and-enthusiasts-alike/"><u>My Journey Into Intensive Android Gaming - Essential Knowledge for Beginners and Enthusiasts Alike.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/optimize-home-entertainment-assemble-an-efficient-plex-media-station-with-top-prime-day-bargains/"><u>Optimize Home Entertainment: Assemble an Efficient Plex Media Station with Top Prime Day Bargains</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/preserving-your-optical-media-tips-to-avoid-dvdblu-ray-damage/"><u>Preserving Your Optical Media: Tips to Avoid DVD/Blu-Ray Damage</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reconsidering-fast-forward-is-accelerating-netflix-views-worth-it/"><u>Reconsidering Fast-Forward: Is Accelerating Netflix Views Worth It?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/redefining-streaming-amazon-prime-video-unveils-revamped-application-platform/"><u>Redefining Streaming: Amazon Prime Video Unveils Revamped Application Platform</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/retro-gaming-bliss-mastering-xboxs-clear-backed-controller-for-classic-games/"><u>Retro Gaming Bliss: Mastering Xbox's Clear-Backed Controller for Classic Games</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/revive-your-sound-quick-fixes-for-non-responsive-headset-microphones/"><u>Revive Your Sound: Quick Fixes for Non-Responsive Headset Microphones</u></a></li>
-<li><a href="https://driver-install.techidaily.com/1720062568306-windows-10-users-boost-pc-speed-with-new-driver/"><u>Windows 10 Users, Boost PC Speed with New Driver</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-fusing-your-content-creation-with-youtube-and-tiktok-synergy/"><u>[New] In 2024, Fusing Your Content Creation with YouTube & TikTok Synergy</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-ideal-recording-gear-for-vloggers/"><u>[Updated] Ideal Recording Gear for Vloggers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-in-depth-analysis-the-power-of-quantum-hdr/"><u>2024 Approved In-Depth Analysis The Power of Quantum HDR</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bringing-waterfront-scenes-alive-with-insta360s-x2/"><u>Bringing Waterfront Scenes Alive with Insta360's X2</u></a></li>
+<li><a href="https://fox-access.techidaily.com/harmonic-havens-expert-picks-of-ringtone-download-sites/"><u>Harmonic Havens Expert Picks of Ringtone Download Sites</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-master-plan-to-permanently-remove-youtube-shorts/"><u>In 2024, Master Plan to Permanently Remove YouTube Shorts</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-trouble-with-apple-iphone-6s-plus-swipe-up-try-these-11-solutions-drfone-by-drfone-ios/"><u>In 2024, Trouble with Apple iPhone 6s Plus Swipe-Up? Try These 11 Solutions | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-elitist-samsung-galaxy-s10-the-ultimate-high-end-device/"><u>In-Depth Analysis of the Elitist Samsung Galaxy S10: The Ultimate High-End Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-tab-s4-the-ultimate-android-tablet-experience/"><u>In-Depth Analysis of the Samsung Galaxy Tab S4: The Ultimate Android Tablet Experience</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/laying-the-groundwork-15-basic-shots-every-director-needs/"><u>Laying the Groundwork 15 Basic Shots Every Director Needs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/qc35-ii-breakdown-why-its-unrivaled-in-silence/"><u>QC35 II Breakdown - Why It’s Unrivaled in Silence</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-a-reinvented-experience-with-watch-dogs-legions-latest-setting-overview/"><u>Unveiling a Reinvented Experience with Watch Dogs: Legion's Latest Setting Overview</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/which-leads-in-conversation-an-analysis-of-chatgpt-plus-versus-perplexity/"><u>Which Leads in Conversation: An Analysis of ChatGPT Plus Versus Perplexity</u></a></li>
 </ul></div>
 

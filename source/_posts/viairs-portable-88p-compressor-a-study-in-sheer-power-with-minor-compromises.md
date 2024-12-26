@@ -1,7 +1,7 @@
 ---
 title: "Viair's Portable 88P Compressor: A Study in Sheer Power with Minor Compromises"
-date: 2024-12-11T22:41:50.100Z
-updated: 2024-12-17T13:07:59.077Z
+date: 2024-12-22T03:56:28.705Z
+updated: 2024-12-25T20:29:47.087Z
 categories:
   - BestProducts
 description: "This Article Describes Viair's Portable 88P Compressor: A Study in Sheer Power with Minor Compromises"
@@ -101,10 +101,6 @@ PHOTO: Amazon
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/mUdXUjWxeupVqNR_y43_eFTC0ic=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-02-69b93dc934684ef5b71a40215f6162f2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
  The jumper cable features over-voltage protection, auto power off, short circuit protection, reverse polarity protection, reverse current protection, timer circuit protection, and jumper cable spark protection. The charger also doubles as a car emergency kit. It has an LED light, jumper cables, and a carrying pouch, making it an excellent tool for your glove box.
@@ -112,7 +108,7 @@ Lifewire / Andrew Hayward
 [Halo Bolt Portable Charger/Jump Starter Review](https://www.lifewire.com/halo-bolt-portable-charger-jump-starter-review-5071993)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Versatile
@@ -141,6 +137,10 @@ PHOTO: Amazon
 
 ![Max Oak](https://www.lifewire.com/thmb/2J2B95OEgddwTnTPqs5dxy5QN28=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/maxoak-5x4-5db32562b89e462f84a77a28b9065dfa.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Gannon Burgett
 
  Our tester also liked that it measures 8.1 x 5.3 x 1.3 inches and weighs 2.77 pounds, so it could easily fit into your camping bag and won’t be that much heavier. Finally, it includes 14 types of laptop connectors, so it covers most models but not those powered via[USB-C](https://www.lifewire.com/usb-c-4149490) .
@@ -151,12 +151,16 @@ Lifewire / Gannon Burgett
 
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/aab2LeeqDhnHWsxLWYdgueO7v1Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-03-1530f666df824f6281040c2ae3285eb2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
 ## What to Look For in a Portable Laptop Battery Charger
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Capacity
@@ -164,16 +168,12 @@ Lifewire / Andrew Hayward
  When picking a portable laptop battery charger, one of your primary considerations should be its capacity to store energy (measured in mAh)—this denotes the device’s battery life before it needs to be recharged. Be sure that the battery has equal or more capacity than the one already inside your machine so that you can expect a full charge.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Output
 
  Some portable chargers can be a bit slow when outputting a charge, so be sure that the battery you’re purchasing has an output equal to or higher than the wattage of your typical laptop charger.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Connectors
 
@@ -223,21 +223,17 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-bypassing-education-tips-on-skipping-edgenuity-online-video-lessons/"><u>[New] 2024 Approved Bypassing Education Tips on Skipping Edgenuity Online Video Lessons</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-the-complete-lowdown-on-io-image-recording-software/"><u>[New] In 2024, The Complete Lowdown on IO Image Recording Software</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-get-ahead-with-these-must-know-pixlr-techniques/"><u>[Updated] Get Ahead with These Must-Know Pixlr Techniques</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-sharpimage-suite-clarity-at-your-fingertits/"><u>[Updated] In 2024, SharpImage Suite Clarity at Your Fingertits</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-cam-clash-sj6-legend-versus-yi-4k-visionary/"><u>2024 Approved Cam Clash SJ6 Legend Versus Yi 4K Visionary</u></a></li>
-<li><a href="https://win-blog.techidaily.com/conquer-your-valorant-pc-launch-struggles-2024-proven-solutions-for-smooth-startup/"><u>Conquer Your Valorant PC Launch Struggles: 2024 Proven Solutions for Smooth Startup</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/inside-this-weeks-tech-news-the-evolution-of-new-windows-laptops-and-behind-the-scenes-look-at-spotifys-future-plans/"><u>Inside This Week’s Tech News: The Evolution of New Windows Laptops and Behind-the-Scenes Look at Spotify's Future Plans</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210591795-9798985236712-its-a-tango-not-a-war/"><u>It's a Tango, Not a War | Free Book</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-xbox-series-xs-performance-a-guide-to-clearing-extra-space/"><u>Maximizing Xbox Series X|S Performance: A Guide to Clearing Extra Space</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/professional-audio-editing-made-easy-top-software-picks-for-2024/"><u>Professional Audio Editing Made Easy Top Software Picks for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/save-on-entertainment-verizons-myhome-internet-now-offers-a-special-streaming-package/"><u>Save on Entertainment: Verizon's MyHome Internet Now Offers a Special Streaming Package</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-future-of-gaming-unleashed-integration-of-mobile-device-ar-headset-and-cloud-services-into-a-revolutionary-hybrid-system/"><u>The Future of Gaming Unleashed: Integration of Mobile Device, AR Headset and Cloud Services Into a Revolutionary Hybrid System</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-great-debate-kindle-versus-nook-discovering-the-ultimate-reading-companion/"><u>The Great Debate: Kindle Versus Nook – Discovering the Ultimate Reading Companion</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlock-unlimited-savings-discover-your-new-doordash-dashpass-benefits/"><u>Unlock Unlimited Savings: Discover Your New DoorDash DashPass Benefits!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/why-purchasing-pc-games-from-microsoft-remains-a-superior-choice/"><u>Why Purchasing PC Games From Microsoft Remains a Superior Choice</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/windows-10-winx-mediatrans-iphoneipadipodpc/"><u>Windows (10)に正式サポート WinX MediaTrans - iPhone/iPad/iPodの高度なデータ管理およびバックアップソフト！スムーズなPC間転送を実現。</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-navigating-teamsnap-photo-functions-for-effective-collaboration/"><u>[New] 2024 Approved Navigating TeamSnap Photo Functions for Effective Collaboration</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-recording-quality-unlocked-best-mics/"><u>[Updated] Recording Quality Unlocked Best Mics</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-shaping-snapshots-transitioning-from-auto-to-smart-hdr-shooting-for-2024/"><u>[Updated] Shaping Snapshots Transitioning From Auto to Smart HDR Shooting for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-a-social-media-perspective-dissecting-igtv-versus-youtubes-features/"><u>2024 Approved A Social Media Perspective Dissecting IGTV versus YouTube's Features</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bards-brilliance-in-modern-dialogue-36-phrases-examined/"><u>Bard's Brilliance in Modern Dialogue: 36 Phrases Examined</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-alcatel-joy-tab-2-with-lte-comprehensive-user-review/"><u>Budget-Friendly Alcatel Joy Tab 2 with LTE - Comprehensive User Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/head-to-head-battle-of-sound-google-nest-audio-against-apple-homepod/"><u>Head-to-Head Battle of Sound: Google Nest Audio Against Apple HomePod</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-premier-playwrights-lair/"><u>In 2024, Premier Playwright's Lair</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-the-top-10-ai-avatar-generators/"><u>New 2024 Approved The Top 10 AI Avatar Generators</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/smartwatch-spotlight-detailed-review-of-withings-moves-timeless-design-and-technology/"><u>Smartwatch Spotlight: Detailed Review of Withings Move's Timeless Design and Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tp-link-tl-wr902ac-the-ultimate-portable-wi-fi-hotspot-for-mobile-internet-needs/"><u>TP-Link TL-WR902AC: The Ultimate Portable Wi-Fi Hotspot for Mobile Internet Needs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-potential-of-asus-rog-gtx5300-tailored-for-hardcore-gamers-and-tech-fans/"><u>Unveiling the Potential of Asus ROG GTX5300: Tailored for Hardcore Gamers & Tech Fans</u></a></li>
 </ul></div>
 

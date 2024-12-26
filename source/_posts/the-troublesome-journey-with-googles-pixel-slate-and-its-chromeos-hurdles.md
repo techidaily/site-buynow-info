@@ -1,7 +1,7 @@
 ---
 title: The Troublesome Journey with Google's Pixel Slate and Its ChromeOS Hurdles
-date: 2024-12-15T03:46:01.968Z
-updated: 2024-12-16T16:06:21.559Z
+date: 2024-12-23T00:15:36.227Z
+updated: 2024-12-26T06:43:54.294Z
 categories:
   - BestProducts
 description: This Article Describes The Troublesome Journey with Google's Pixel Slate and Its ChromeOS Hurdles
@@ -18,9 +18,17 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/AjVVBONBD_MfQeA3voTlfDA2Jrc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -44,16 +52,12 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -74,10 +78,6 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -85,10 +85,6 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
  As for a real plotline, there isn’t really one—the only kind of plot in the game is the objective to colonize Mars. There are challenges which you can do if you’re feeling particularly adventurous, which is nice, but they’re not a real plotline, and only serve to give you a different angle to colonizing the planet.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -105,10 +101,6 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
  In over twenty hours of gameplay, I learned the hard way that humans in this game are not only picky, but they demand the life of luxury the second they step off the rocket and into the dome. It didn’t matter that only twelve called a single dome home. It didn’t matter that there was barely enough of them to cover operating the grocery store and space bar. A lack of space for these amenities fell upon deaf ears. They wanted access to their art stores, electronics, and fine dining immediately. In that regard, I’m a little conflicted; as much as I wanted more shopping options for Mars, I realized not long after humans arrived that Haemimont Games, in reality, gave me a blessing by keeping a bland palate. Plus, more buildings and items become available as research, funding, and planetary discoveries allow.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -136,6 +128,10 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 
  Lifewire / Rebecca Isaacs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Competition: Other city-building games**
 
  What makes Surviving Mars unique is that technically it is a city-[building game](https://www.lifewire.com/best-offline-building-games-4580415) , but instead of building bus lines, you have to build oxygen and water lines to ensure colony survival. However, just like city-building games, you are building infrastructure. If you’re solely focused on building up a city, Surviving Mars would be a great addition to your library, but so would[Cities: Skylines](https://store.steampowered.com/app/255710/Cities%5FSkylines/) (view on Steam). Both focus on creating a habitat from scratch—one just happens to be hundreds of thousands of miles away while the other could be in a tropical or a Midwestern climate.
@@ -147,6 +143,10 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
  **A interesting new take on city-builders, if you can stomach the micromanagement.**
 
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -175,22 +175,18 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-immediate-techniques-for-instagram-video-audio-extraction-mp3/"><u>[New] 2024 Approved Immediate Techniques for Instagram Video Audio Extraction (MP3)</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-profound-inspection-the-detailed-review-of-bublcams-360-camera/"><u>[New] 2024 Approved Profound Inspection The Detailed Review of Bublcam's 360 Camera</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-how-to-vlog-confidently-like-popular-youtubers-in-2024/"><u>[New] How to Vlog Confidently Like Popular YouTubers, In 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-art-of-crafting-viral-video-content-on-youtube/"><u>[New] The Art of Crafting Viral Video Content on YouTube</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-melodic-mastery-in-visual-storytelling/"><u>[Updated] Melodic Mastery in Visual Storytelling</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1724766262425-macx-mediatrans/"><u>网上秒速购买 MacX MediaTrans - 确保安全及有效稳定传输服务</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-enhancing-comfort-and-convenience-the-oculus-quest-aturbish-strap-extra-battery-and-reliable-case/"><u>Comprehensive Evaluation: Enhancing Comfort and Convenience - The Oculus Quest Aturbish Strap, Extra Battery, and Reliable Case</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-vivo-x100-device-sim-by-drfone-android/"><u>Easily Unlock Your Vivo X100 Device SIM</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/explore-the-power-of-photos-with-canon-sx530-review/"><u>Explore the Power of Photos with Canon SX530 Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-the-iphone-12-pro-max-worth-it-exploring-the-power-of-going-big/"><u>Is the iPhone 12 Pro Max Worth It? Exploring the Power of Going Big</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/omnicharge-omni-20-user-manual-unlock-the-potential-of-universal-wireless-charging-in-a-compact-package/"><u>Omnicharge Omni 20 User Manual: Unlock the Potential of Universal, Wireless Charging in a Compact Package</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/professional-image-perfection-the-premier-iphone-object-removal-apps/"><u>Professional Image Perfection The Premier iPhone Object Removal Apps</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/spk10-037-lights-up-scenes-with-brightness-and-adaptability/"><u>SPK10-037 Lights Up Scenes with Brightness & Adaptability</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-portable-pc-playground-the-steam-deck/"><u>The Ultimate Portable PC Playground - The Steam Deck</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unleash-next-level-gaming-with-the-hp-omen-obelisk-value-and-performance-in-one-package/"><u>Unleash Next-Level Gaming with the HP OMEN Obelisk: Value & Performance in One Package</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-vyncs-link-insight-software-effective-tracking-amidst-perplexing-plan-schemes/"><u>Unveiling Vyncs' Link Insight Software: Effective Tracking Amidst Perplexing Plan Schemes</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/vlc-users-guide-to-screen-capturing-for-2024/"><u>VLC User's Guide to Screen Capturing for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-instagrams-secure-livestream-your-silent-journey/"><u>2024 Approved Instagram's Secure Livestream Your Silent Journey</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/advanced-tips-for-minecraft-gaming-streams/"><u>Advanced Tips for Minecraft Gaming Streams</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-xiaomi-redmi-note-12-4g-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Xiaomi Redmi Note 12 4G Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-tips-and-tricks-for-apple-id-locked-issue-from-apple-iphone-13-pro-by-drfone-ios/"><u>In 2024, Tips and Tricks for Apple ID Locked Issue From Apple iPhone 13 Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-a20-assessment-affordable-and-functional-smartphone-experience/"><u>Samsung Galaxy A20 Assessment: Affordable and Functional Smartphone Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/secure-your-childs-digital-world-the-amazon-fire-hd-10-kids-tablet-and-its-impressive-control-options-for-parents/"><u>Secure Your Child’s Digital World: The Amazon Fire HD 10 Kids Tablet and Its Impressive Control Options for Parents</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-new-era-of-productivity-in-your-hands-a-comprehensive-look-at-the-galaxy-tab-s6-with-dex-mode-and-stylus-functionality/"><u>The New Era of Productivity in Your Hands: A Comprehensive Look at the Galaxy Tab S6 with DeX Mode and Stylus Functionality</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-updated-method-to-bypass-samsung-galaxy-a15-4g-frp-by-drfone-android/"><u>The Updated Method to Bypass Samsung Galaxy A15 4G FRP</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-15-timeless-classics-in-stop-motion-cinema-history/"><u>Top 15 Timeless Classics in Stop-Motion Cinema History</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/topo-ergodyne-mat-the-ultimate-anti-fatigue-solution-for-your-standing-desk/"><u>Topo Ergodyne Mat - The Ultimate Anti-Fatigue Solution For Your Standing Desk</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723207016283-trouble-with-your-networks-dns-server-here-are-4-efficient-remedies/"><u>Trouble With Your Network's DNS Server? Here Are 4 Efficient Remedies</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unbeatable-value-comprehensive-review-of-the-tp-link-archer-c50-mini-wireless-ac1750-router/"><u>Unbeatable Value: Comprehensive Review of the TP-Link Archer C50 Mini Wireless AC1750 Router</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
 </ul></div>
 

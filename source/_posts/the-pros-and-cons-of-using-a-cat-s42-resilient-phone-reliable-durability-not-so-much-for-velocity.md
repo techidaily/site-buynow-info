@@ -1,7 +1,7 @@
 ---
 title: The Pros and Cons of Using a CAT S42 Resilient Phone - Reliable Durability, Not So Much for Velocity
-date: 2024-12-12T18:49:00.156Z
-updated: 2024-12-17T04:15:23.485Z
+date: 2024-12-21T17:14:58.554Z
+updated: 2024-12-26T04:14:02.196Z
 categories:
   - BestProducts
 description: This Article Describes The Pros and Cons of Using a CAT S42 Resilient Phone - Reliable Durability, Not So Much for Velocity
@@ -19,12 +19,16 @@ thumbnail: https://www.lifewire.com/thmb/6-p5ewDjPncMceqeBCrB17zrpa8=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## DBPOWER 600A Peak 18000mAh Portable Car Jump Starter
 
 ![600A Peak 18000mAh Portable Car Jump Starter](https://www.lifewire.com/thmb/zoSakt2DeEHvZbIU0RNWljw5x0A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DBPower_JumpStarter_5LW4140286_HeroSquare-4defda07335a4d7bafb41bb20cacee2f.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -49,7 +53,7 @@ thumbnail: https://www.lifewire.com/thmb/6-p5ewDjPncMceqeBCrB17zrpa8=/400x300/fi
 4.1
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## DBPOWER 600A Peak 18000mAh Portable Car Jump Starter
@@ -79,6 +83,10 @@ thumbnail: https://www.lifewire.com/thmb/6-p5ewDjPncMceqeBCrB17zrpa8=/400x300/fi
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: A rugged brick of power contained within its own nice case**
 
  The unit and all its accessories are contained within a semi-hard case with a relatively durable zipper holding the two sides of the case together. One side contains the unit itself within a foam insert, and the other is an elastic mesh pouch for all the accessories. The idea here is that you can keep the case stashed in your trunk or under a seat and have everything you need.
@@ -88,10 +96,6 @@ thumbnail: https://www.lifewire.com/thmb/6-p5ewDjPncMceqeBCrB17zrpa8=/400x300/fi
  Lifewire / Tony Mitera
 
  The accessory kit contains a wall charger and a 12V port charger for the unit, a DC cable, and a variety of ends to allow for charging a laptop. The jumper cables sprout from a module that plugs into a specific port on the unit and terminate in your standard clamps. The module itself has a status light that illuminates to indicate the unit’s readiness to jump start the car.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: The cables are short but easy to use**
 
@@ -109,6 +113,10 @@ It's a breeze using the 600A to jump start a car.
 
  Charging USB devices is not only simple but fast as well, with a sustained 1,200 mAh current. This level of charging will top off your devices in a hurry, and with 18,000 mAh capacity the unit should be able to charge a phone like the Samsung Galaxy S10 five times over. Be aware that if your phone uses a USB-C or Thunderbolt connection you’ll need to provide your own cable.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Key Features: A decent flashlight and, oddly, a compass**
 
  Small as it's, the DBPOWER Portable Jump Starter has a few extra features of note. The flashlight built into the case is decent, but doesn’t put out much light and does so within a relatively narrow angle. However, with as small as the unit is, you can easily just hold the whole thing in your hand like a flashlight to illuminate whatever you need.
@@ -125,10 +133,6 @@ It packs a ton of value into its diminutive size.
 
  You can find this model available online for between $70 and $75, and at that price point it packs a ton of value into its diminutive size. There are other units that are a little less expensive, but generally at the expense of some features or included accessories.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Competition: Splitting hairs on what features matter most to you**
 
 **_Beatit BT-D11:_** The two units are so similar in their design and production that it really boils down to one question: How important is charging your laptop to you? If it’s worth the extra $10, stick with the DBPOWER 600A. If not, you can pick up the Beatit BT-D11 for a bit less money and otherwise get a strikingly similar unit.
@@ -142,10 +146,6 @@ It packs a ton of value into its diminutive size.
 **A lot of features in a dependable package.**
 
  It’s worth looking at other jump starters to see what they offer, but the DBPOWER 600A Peak 18000mAh Portable Car Jump Starter does everything that it's designed for quite well, is reliable and durable, and comes in a semi-hard case that you can easily stash in just about any vehicle.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -178,21 +178,15 @@ It packs a ton of value into its diminutive size.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-a-list-of-the-best-8-sites-for-free-3d-text-psd-downloads/"><u>[New] A List of the Best 8 Sites for Free 3D Text PSD Downloads</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-efficiently-coordinating-group-activities-via-zoom/"><u>[New] Efficiently Coordinating Group Activities via Zoom</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-gamers-delight-selecting-the-top-10-hddsssds/"><u>[New] Gamer's Delight Selecting the Top 10 HDDs/SSDs</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-how-to-add-music-to-powerpoint-tutorial-guide/"><u>[New] How to Add Music to PowerPoint? [Tutorial Guide]</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-decoding-varieties-in-hand-motion-tracking/"><u>[New] In 2024, Decoding Varieties in Hand Motion Tracking</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-accelerated-8-screencap-solutions/"><u>[Updated] In 2024, Accelerated 8 Screencap Solutions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/alexa-or-google-assistant-which-smart-voice-ai-suits-you-best/"><u>Alexa or Google Assistant: Which Smart Voice AI Suits You Best?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/beat-overheating-in-depth-analysis-of-havits-5-fan-laptop-cooling-pad-for-enhanced-gaming-sessions/"><u>Beat Overheating: In-Depth Analysis of HAVIT's 5 Fan Laptop Cooling Pad for Enhanced Gaming Sessions</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/comprehensive-guide-safe-ways-to-copy-and-convert-your-dvds-and-cds/"><u>Comprehensive Guide: Safe Ways to Copy & Convert Your DVDs and CDs</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1725286127151-dvd-windows-11/"><u>DVDコピー自由化 - Windows 11で使える最適なフリーソフトとその方法</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/havit-5-adjustable-fans-the-ultimate-solution-to-overheating-in-your-gaming-laptop/"><u>HAVIT 5 Adjustable Fans – The Ultimate Solution to Overheating in Your Gaming Laptop</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-tecno-spark-10-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Tecno Spark 10 5G to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/nest-audio-smart-speaker-review-a-haven-for-melody-lovers-and-beat-seekers/"><u>Nest Audio Smart Speaker Review: A Haven for Melody Lovers and Beat Seekers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-critiques-and-praises-a-breakdown-of-recent-viber-out-testimonials/"><u>Top Critiques & Praises: A Breakdown of Recent Viber Out Testimonials</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-value-cameras-s-shooting/"><u>Top Value Cameras 'S Shooting</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-comparison-can-alexa-outperform-google-assistant-in-your-home/"><u>Ultimate Comparison: Can Alexa Outperform Google Assistant in Your Home?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-from-novice-to-expert-navigating-telegram-web/"><u>[Updated] 2024 Approved From Novice to Expert Navigating Telegram Web</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-adding-pizzazz-to-your-footage-with-moving-text/"><u>[Updated] In 2024, Adding Pizzazz to Your Footage with Moving Text</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-7-must-have-metaverse-devices-you-need-to-prepare/"><u>2024 Approved 7 Must-Have Metaverse Devices You Need to Prepare</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/crucial-aspects-to-review-prior-to-acquiring-secondhand-ipads/"><u>Crucial Aspects to Review Prior to Acquiring Secondhand iPads</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor Magic 6 Lite | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-ultimate-photo-perfection-discover-our-6-best-background-erasers/"><u>In 2024, Ultimate Photo Perfection – Discover Our 6 Best Background Erasers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Motorola Moto G24? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-artistry-behind-rayman-legends-exceptional-2d-platform-gaming-unleashed/"><u>The Artistry Behind Rayman Legends - Exceptional 2D Platform Gaming Unleashed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tp-link-archer-c50-unveiled-top-value-for-money-in-wifi-routers-reviewed/"><u>TP-Link Archer C50 Unveiled: Top Value for Money in WiFi Routers Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-excellence-detailed-insights-into-the-smart-design-of-the-samsung-galaxy-watch/"><u>Unveiling the Excellence: Detailed Insights Into the Smart Design of the Samsung Galaxy Watch</u></a></li>
 </ul></div>
 

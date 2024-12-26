@@ -1,7 +1,7 @@
 ---
 title: "Microsoft Surface Laptop 4 Analysis: Ultimate Performance Unleashed"
-date: 2024-08-26T06:32:09.455Z
-updated: 2024-08-27T06:32:09.455Z
+date: 2024-12-19T01:11:52.726Z
+updated: 2024-12-25T23:28:07.532Z
 categories:
   - BestProducts
 description: "This Article Describes Microsoft Surface Laptop 4 Analysis: Ultimate Performance Unleashed"
@@ -66,6 +66,10 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/t8wI_yN2s_uIQ1leo87MmOnXxb4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-5-0c39ec4e89eb45b094471681efec0e7d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 ## **Design: Dark, sturdy, and feature-packed**
@@ -94,14 +98,8 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/TRrezKVbAUPs2Rud3g4_iOHyxB8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-2-4b3f9d8acd1440089989378253d902f4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Comfort: Hefty, but darn comfy**
 
  The original Elite was perhaps the most comfortable controller I’ve ever used, so with the Series 2, I had high hopes in this department. Thanks to some clever but subtle changes by the Microsoft team, this controller is even better.
@@ -119,8 +117,9 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup Process and Software: Bluetooth, at long last**
 
  One of our biggest gripes with the original Elite controller was that it lacked Bluetooth functionality despite its premium price tag. Seeing how the much cheaper ONE S variant included this, it was even more frustrating. Thankfully, Microsoft listened to our collective rants and added Bluetooth to the Series 2, which drastically improves the number of devices it can be used with.
@@ -141,7 +140,15 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance/Durability: Enhanced performance and durability**
 
@@ -165,9 +172,6 @@ Lifewire / Zach Sweat
 
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## **Price: Like buying a brand new console**
 
  Right now, the Elite Series 2 controller retails at an MSRP of $249.99, about $100 more than its predecessor. This price tag makes it not only the most expensive first-party controller around, but also nearly the cost of a brand new Xbox One S console (or three brand new titles). That can be a tough sell for your average gamer.
@@ -181,9 +185,9 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
 
  Since the Elite controller really is in a league of its own, the biggest competitor to it is the first generation, which can still be purchased from a number of retailers. We’re going to quickly compare the two to see which might be best for you.
@@ -199,12 +203,9 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
  Everything we disliked about the original Elite controller has been improved with the second iteration, making it the best first-party controller you can get for XB1 or PC. However, the steep price point might be a hard pill to swallow for users who don’t like to splurge.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Xbox One Elite Series 2 Controller
@@ -222,14 +223,11 @@ No advertising on the website.
 * Warranty  90-day warranty
 * Compatibility  All Xbox One Consoles, Windows 10 PCs, Bluetooth devices
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -238,4 +236,24 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-embarking-on-a-youtube-venture-user-setup-essentials/"><u>[New] In 2024, Embarking on a YouTube Venture User Setup Essentials</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-aesthetic-video-upgrade-implement-lc-overlay-and-black-bars-on-facebook-for-2024/"><u>[Updated] Aesthetic Video Upgrade Implement LC Overlay & Black Bars on Facebook for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-exclusive-selection-of-vr-for-drone-pilots-for-2024/"><u>[Updated] Exclusive Selection of VR for Drone Pilots for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-video-editing-for-social-media-standout-for-2024/"><u>[Updated] Mastering Video Editing for Social Media Standout for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-pioneering-camera-tech-an-analysis-of-manycams-new-recorder-for-2024/"><u>[Updated] Pioneering Camera Tech An Analysis of ManyCam's New Recorder for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-turn-mess-into-mastery-efficient-edits-on-bulky-tiktok-drafts/"><u>[Updated] Turn Mess Into Mastery Efficient Edits on Bulky TikTok Drafts</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-infinix-smart-8-plus-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Infinix Smart 8 Plus</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/audio-problem-solved-correcting-itunes-configuration-errors-made-easy/"><u>Audio Problem Solved: Correcting iTunes Configuration Errors Made Easy</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-perfection-with-apples-latest-innovation-series-4-unleashed/"><u>Experience Perfection with Apple's Latest Innovation: Series 4 Unleashed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-tab-s6-features-s-pen-and-dex-mode/"><u>In-Depth Analysis of the Samsung Galaxy Tab S6 Features - S Pen & Dex Mode</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-ankers-super-bright-tactical-lamp-the-go-to-gear-for-rugged-expeditions/"><u>In-Depth Review of Anker's Super Bright Tactical Lamp - The Go-To Gear for Rugged Expeditions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insignia-ns-4ns-df710nacd-exploring-the-affordable-fire-tv-edition-with-alexa-and-ultra-hd-capabilities/"><u>Insignia NS-4nS-Df710NACd: Exploring the Affordable Fire TV Edition with Alexa and Ultra HD Capabilities</u></a></li>
+<li><a href="https://win-dash.techidaily.com/solution-as-wood-dries-its-moisture-content-decreases-which-reduces-its-specific-weight-due-to-water-loss-thermal-conductivity-also-decreases-as-the-proport227/"><u>Solution: As Wood Dries, Its Moisture Content Decreases, Which Reduces Its Specific Weight Due to Water Loss. Thermal Conductivity Also Decreases as the Proportion of Air Increases Within the Cellular Structure</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-bargain-for-quality-4k-action-capture-akaso-ek7000/"><u>The Best Bargain for Quality 4K Action Capture - AKASO EK7000</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-top-racing-rc-rock-crawler-a-comprehensive-off-road-videocamera/"><u>Ultimate Guide to the Top Racing RC Rock Crawler: A Comprehensive Off-Road Videocamera</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/uncovering-the-excellence-of-the-acer-aspire-e-15-where-affordability-meets-quality/"><u>Uncovering the Excellence of the Acer Aspire E 15 - Where Affordability Meets Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unraveling-the-mobvoi-ticwatch-pro-3-superior-gps-capabilities-meet-enhanced-dual-display-longevity-in-our-test-drive/"><u>Unraveling the Mobvoi TicWatch Pro 3: Superior GPS Capabilities Meet Enhanced Dual Display Longevity in Our Test Drive</u></a></li>
+</ul></div>
 

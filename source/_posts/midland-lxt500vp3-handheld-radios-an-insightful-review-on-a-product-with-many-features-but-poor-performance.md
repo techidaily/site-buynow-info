@@ -1,7 +1,7 @@
 ---
 title: "Midland LXT500VP3 Handheld Radios: An Insightful Review on a Product with Many Features but Poor Performance"
-date: 2024-12-09T21:46:46.093Z
-updated: 2024-12-17T02:00:36.278Z
+date: 2024-12-18T16:40:32.211Z
+updated: 2024-12-26T02:48:27.936Z
 categories:
   - BestProducts
 description: "This Article Describes Midland LXT500VP3 Handheld Radios: An Insightful Review on a Product with Many Features but Poor Performance"
@@ -44,13 +44,13 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
 4.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Beatit 800A BT-D11 Car Jump Starter
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -75,10 +75,6 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: A lot of power packed into a small frame**
 
  The Beatit Jump Starter D11’s main unit's effectively a small black brick with red accents. Roughly the size of a small paperback book, the unit's constructed out of durable plastic and features a flashlight at one end. Along one of the long sides there's a small display that shows battery status, the on/off switch, two USB power outputs, and the device’s charging port. On the opposing side a rubber flap covers the jumper cable port; a unique port that the jumper cable accessory plugs in to.
@@ -90,7 +86,7 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: It can’t realistically be much simpler**
@@ -102,7 +98,7 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Plenty of power for all your needs**
@@ -113,10 +109,6 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
  There aren’t a ton of other features present with the Beatit Jump Starter D11 but there are some of note, including the unit’s built-in flashlight. It’s a nice addition to have if you must jump start a car in the middle of the night, but it doesn’t put out of a ton of light and the beam is pretty narrow. You can pick the unit up and use it as a large flashlight, though doing so while also trying to get the clamps attached is cumbersome.
@@ -124,6 +116,10 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  A nice feature that is present in many jump starters but always appreciated is the included[12V port charger](https://www.lifewire.com/car-cigarette-lighter-12v-socket-534754) , which lets you charge the unit back up within the car once you have it started. Charging from the wall charger is faster overall, but people with a dodgy battery but a working alternator will appreciate being able to use the jump starter to get their car started and then charge the unit back up as they drive to their destination.
 
  Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: A ton of value for a tiny cost**
 
@@ -146,6 +142,10 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 **For the price, it's perfect.**
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -178,22 +178,17 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/the-goofy-adventure-a-critical-appraisal-videotape-edition-for-2024/"><u>'The Goofy Adventure' - A Critical Appraisal Videotape Edition for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-unlock-creative-potential-crafting-tiktok-videos-using-templates/"><u>[Updated] In 2024, Unlock Creative Potential Crafting TikTok Videos Using Templates</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/choosing-the-right-iphone-15-a-comprehensive-guide-to-models-regular-vs-plus-vs-pro-vs-pro-max-tech-insights/"><u>Choosing the Right iPhone 15: A Comprehensive Guide to Models - Regular Vs. Plus Vs. Pro Vs. Pro Max | Tech Insights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/enhancing-privacy-how-i-customize-roku-setup-for-secure-viewing/"><u>Enhancing Privacy: How I Customize Roku Setup for Secure Viewing</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/enjoy-solo-adventures-top-single-player-games-perfect-for-sharing-with-friends/"><u>Enjoy Solo Adventures: Top Single-Player Games Perfect for Sharing with Friends</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exclusive-news-roku-launches-continuous-sports-streaming-service/"><u>Exclusive News: Roku Launches Continuous Sports Streaming Service</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-swift-and-reliable-wireless-connection-at-bargain-prices-using-g309-lightspeed-technology/"><u>Experience Swift and Reliable Wireless Connection at Bargain Prices Using G309 LIGHTSPEED Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-newly-updated-version-of-the-netflix-television-interface/"><u>Exploring the Newly Updated Version of the Netflix Television Interface</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/extend-your-playtime-top-5-tips-for-lengthening-ps5-dualsense-charge/"><u>Extend Your Playtime: Top 5 Tips for Lengthening PS5 DualSense Charge</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/fear-not-secure-your-favorite-series-with-dvd-purchases/"><u>Fear Not! Secure Your Favorite Series with DVD Purchases</u></a></li>
-<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-vivo-s17-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Vivo S17 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/forecast-vs-reality-how-accurate-were-pre-2017-predictions-about-the-modern-esports-landscape/"><u>Forecast Vs. Reality: How Accurate Were Pre-2017 Predictions About the Modern eSports Landscape?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-leading-5-drones-the-ultimate-professional-buy-guide/"><u>In 2024, Leading 5 Drones - The Ultimate Professional Buy Guide</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-stardews-ultimate-customization-guide-the-top-7-mods-listed/"><u>In 2024, Stardew's Ultimate Customization Guide The Top 7 Mods Listed</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-unveiling-vimeo-the-preferred-platform-by-directors/"><u>In 2024, Unveiling Vimeo The Preferred Platform by Directors</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/the-complete-cheat-sheet-constructing-an-unbeatable-gaming-station-as-recommended-by-zdnet-experts/"><u>The Complete Cheat Sheet: Constructing an Unbeatable Gaming Station as Recommended by ZDNet Experts</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/viral-loop-creations-instagrams-boomerang-guide/"><u>Viral Loop Creations Instagram's Boomerang Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-best-pixel-perfect-grids-elevate-image-quality-online-for-2024/"><u>[Updated] Best Pixel Perfect Grids Elevate Image Quality Online for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-top-screen-grabber-software-in-the-windows-10-arena-for-2024/"><u>[Updated] Top Screen Grabber Software in the Windows 10 Arena for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-device-diversity-met-with-editing-brilliance/"><u>2024 Approved Device Diversity Met With Editing Brilliance</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-8-web-archives-of-3d-letterforms/"><u>2024 Approved Top 8 Web Archives of 3D Letterforms</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/best-online-vimeo-video-downloaders/"><u>Best Online Vimeo Video Downloaders</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/breaking-down-the-lenovo-thinkpad-x1-nano-the-revolutionary-leap-in-ultra-thin-computing/"><u>Breaking Down the Lenovo ThinkPad X1 Nano - The Revolutionary Leap in Ultra-Thin Computing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-asus-rog-gt-ac5300-crafted-with-gamers-and-tech-enthusiasts-in-mind/"><u>Expert Insights on Asus ROG GT-AC5300: Crafted with Gamers and Tech Enthusiasts in Mind</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-adventure-uncovering-joyful-experiences-in-pokemon-platinum/"><u>Exploring Adventure: Uncovering Joyful Experiences in Pokemon Platinum</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/is-there-a-roblox-hack-differentiating-between-website-issues-and-personal-connectivity-problems/"><u>Is There a Roblox Hack? Differentiating Between Website Issues and Personal Connectivity Problems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-wi-fi-expansion-devices-2024-edition/"><u>Leading Wi-Fi Expansion Devices: 2024 Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-educational-websites-a-guide-to-premier-online-learning-experiences/"><u>Navigating Educational Websites: A Guide to Premier Online Learning Experiences</u></a></li>
+<li><a href="https://win-forum.techidaily.com/ultimate-walkthrough-for-eliminating-users-in-windows-10-via-revo-uninstaller/"><u>Ultimate Walkthrough for Eliminating Users in Windows 10 via Revo Uninstaller</u></a></li>
 </ul></div>
 

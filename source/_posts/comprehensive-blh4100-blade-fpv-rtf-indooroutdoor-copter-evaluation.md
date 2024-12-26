@@ -1,7 +1,7 @@
 ---
 title: Comprehensive BLH4100 Blade FPV RTF Indoor/Outdoor Copter Evaluation
-date: 2024-12-14T18:18:06.357Z
-updated: 2024-12-17T02:55:48.076Z
+date: 2024-12-21T20:56:48.920Z
+updated: 2024-12-26T02:06:53.270Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive BLH4100 Blade FPV RTF Indoor/Outdoor Copter Evaluation
@@ -18,13 +18,13 @@ thumbnail: https://www.lifewire.com/thmb/0k72WSI9zpSx_0NVgOzieZdbYDg=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/NWhMBmuK3pkL9EGvdNCEAF8sWEo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -47,7 +47,7 @@ Lifewire / Jeffrey Daniel Chadwick
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Kensun AC/DC Portable Air Pump Tire Inflator
@@ -76,6 +76,10 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -98,15 +102,15 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: T-minus one minute**
 
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
 
  Lifewire / Jeffrey Daniel Chadwick
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
 
@@ -128,16 +132,12 @@ Lifewire / Jeffrey Daniel Chadwick
 
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
@@ -179,22 +179,21 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-journeying-beyond-boundaries-jaunt-vr-analysis/"><u>[New] 2024 Approved Journeying Beyond Boundaries Jaunt VR Analysis</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-boost-your-media-creation-skills-a-detailed-walkthrough-of-movie-maker-on-windows-8/"><u>[Updated] Boost Your Media Creation Skills A Detailed Walkthrough of Movie Maker on Windows 8</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-navigating-the-clouds-and-crowds-stream-from-dji-to-facebook/"><u>[Updated] In 2024, Navigating the Clouds and Crowds Stream From DJI to Facebook</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/a-step-by-step-guide-mastering-the-art-of-safelisting-emails-on-gmail/"><u>A Step-by-Step Guide: Mastering the Art of Safelisting Emails on Gmail</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/antonis-at-127-antenna-review-experience-unparalleled-television-viewing-with-our-sleek-free-digital-broadcast-receiver/"><u>ANTONIS At-127 Antenna Review: Experience Unparalleled Television Viewing With Our Sleek, Free Digital Broadcast Receiver!</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/comment-synchronisez-automatiquement-votre-bureau-avec-microsoft-onedrive/"><u>Comment Synchronisez Automatiquement Votre Bureau Avec Microsoft OneDrive ?</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/digital-vigilance-compromised-by-ai-limitations/"><u>Digital Vigilance Compromised by AI Limitations</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/get-to-know-teac-pd-301-sleek-superior-audio/"><u>Get to Know Teac PD-301: Sleek, Superior Audio</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/grab-prime-time-savings-premium-roku-models-now-at-record-low-prices/"><u>Grab Prime Time Savings: Premium Roku Models Now at Record Low Prices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-to-make-a-nintendo-network-id-on-your-nintendo-3ds/"><u>How to Make a Nintendo Network ID on Your Nintendo 3DS</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-gmail-password-on-samsung-galaxy-xcover-6-pro-tactical-edition-devices-by-drfone-android/"><u>How to Reset Gmail Password on Samsung Galaxy XCover 6 Pro Tactical Edition Devices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reimagining-ubisofts-hit-series-with-watch-dogs-legion-critique/"><u>Reimagining Ubisoft's Hit Series with Watch Dogs: Legion Critique</u></a></li>
-<li><a href="https://games-able.techidaily.com/reinventing-old-school-classics-6-advantages-of-a-raspberry-pi/"><u>Reinventing Old-School Classics - 6 Advantages of a Raspberry Pi</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/taking-water-sports-to-new-heights-with-insta360-x2/"><u>Taking Water Sports to New Heights with Insta360 X2</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/top-5-tracking-apps-to-track-apple-iphone-12-pro-max-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>Top 5 Tracking Apps to Track Apple iPhone 12 Pro Max without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-insights-into-the-worlds-most-popular-sandbox-game-perfect-for-families/"><u>Ultimate Insights Into the World's Most Popular Sandbox Game - Perfect for Families</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-stellaris-review-conquering-new-worlds-in-an-interstellar-empire-building-adventure/"><u>Ultimate Stellaris Review: Conquering New Worlds in an Interstellar Empire-Building Adventure</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-expert-advice-enhancing-your-screen-capture-game-with-mobizen-tools-for-2024/"><u>[New] Expert Advice Enhancing Your Screen Capture Game with Mobizen Tools for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-5-cutting-edge-streamers-camera-recommendations/"><u>[New] In 2024, 5 Cutting-Edge Streamers' Camera Recommendations</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-the-next-wave-of-social-media-top-apps-as-periscope-alternates/"><u>[New] The Next Wave of Social Media Top Apps as Periscope Alternates</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solved-irqlnotlessorequal-bsod-in-windows-10/"><u>[Solved] IRQL_NOT_LESS_OR_EQUAL BSOD in Windows 10</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-canvas-to-cryptos-select-7-nft-creating-powerhouses/"><u>[Updated] From Canvas to Cryptos Select 7 NFT-Creating Powerhouses</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-find-the-right-aspect-ratio-for-your-video/"><u>2024 Approved Find The Right Aspect Ratio For Your Video</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/adapting-reading-habits-with-kindles-today/"><u>Adapting Reading Habits with Kindles Today</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-beast-unleashed-the-comprehensive-review-of-the-zte-blade-a-3-y-edition/"><u>Budget Beast Unleashed: The Comprehensive Review of the ZTE Blade A 3 Y Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-viair-88p-compact-compressor-immense-capabilities-meet-some-concerns/"><u>Comprehensive Analysis of Viair 88P Compact Compressor: Immense Capabilities Meet Some Concerns</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-expert-tips-for-obs-and-facebook-integration/"><u>In 2024, Expert Tips for OBS and Facebook Integration</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-get-clear-coffee-stain-free-images-using-ioss-free-app/"><u>In 2024, Get Clear, Coffee Stain-Free Images Using iOS's Free App</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-asus-rt-ac88u-gaming-router-does-it-deliver/"><u>The Ultimate Verdict on Asus RT-AC88U Gaming Router: Does It Deliver?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-untold-story-behind-cyberpunk-2077-a-work-in-progress-or-a-missed-opportunity/"><u>The Untold Story Behind Cyberpunk 2077: A Work in Progress or a Missed Opportunity?</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/ultimate-guide-for-sustainable-visual-recording-for-2024/"><u>Ultimate Guide for Sustainable Visual Recording for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-spectacular-features-of-the-sony-xbr49x900f-49-inch-4k-tv-review/"><u>Unveiling the Spectacular Features of the Sony XBR49X900F 49-Inch 4K TV Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-sign-up-for-amazon-prime-4-essential-insights-revealed/"><u>Why Sign Up for Amazon Prime: 4 Essential Insights Revealed</u></a></li>
 </ul></div>
 

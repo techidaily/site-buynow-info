@@ -1,7 +1,7 @@
 ---
 title: Practical Experience with Your New 9-Inch Lenovo Tabby Gadget
-date: 2024-12-15T20:28:09.642Z
-updated: 2024-12-17T06:25:45.204Z
+date: 2024-12-20T16:51:56.600Z
+updated: 2024-12-26T03:28:37.686Z
 categories:
   - BestProducts
 description: This Article Describes Practical Experience with Your New 9-Inch Lenovo Tabby Gadget
@@ -21,6 +21,10 @@ thumbnail: https://www.lifewire.com/thmb/madw9taHRwBTZapEMNcHlZMo7i8=/540x405/fi
 ## Kinesis Freestyle2 Blue
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/Hagf4IpRh30OapEN21WY2crMw1g=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_HeroSquare-99f80025b0254cbebe67ed22575a90c5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -74,6 +78,10 @@ Lifewire / Emily Isaacs
 
 [The Best Ergonomic Keyboards of 2024](https://www.lifewire.com/best-ergonomic-keyboards-4147386)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design and Features: Freestyle2 breaks the mold**
 
  For people who are tethered to their[computers](https://www.lifewire.com/computer-and-laptop-reviews-4102643) , ergonomic keyboards are a must. These keyboards tend to be large thanks to the frequently employed swoop design that opens up the keys to provide additional spacing, so fingers feel less cramped, and a wrist-friendly position that prevents[repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) while typing. These keyboards are typically space hogs, taking up large portions of any surface that they’re placed on, often forcing users to reach further for[mice](https://www.lifewire.com/best-wireless-mice-6666207) . This can lead to shoulder injuries in place of wrist injuries—a trade-off no one wants.
@@ -91,7 +99,7 @@ Lifewire / Emily Isaacs
  Clocking in at 2 pounds, it’s also lightweight which makes it easy to pack. Whether you’re commuting between the home and the office or you’re heading out of town for a vacation, it’s easy to break down and bring anywhere so long as there’s a flat surface to place it during use.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: For Apple products only**
@@ -99,10 +107,6 @@ Lifewire / Emily Isaacs
  The Kinesis Freestyle2 Blue arrives with the two keyboard halves, the instructional pamphlet, and a six-foot USB charging cable. Designed for use with iPads,[iPhones](https://www.lifewire.com/iphone-and-ios-4781515) , and[Macs](https://www.lifewire.com/macs-4781332) , the setup process is quick and easy to complete. First, we flipped the switch on the right-hand side of the keyboard from the off position to the on position. Then, we flipped the keyboard over and pressed the connect button on the backside. We knew it was ready to begin pairing when the lights on the frontside began flashing blue.
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/XHY6Xe9cdaO1U6Uj0wDY6rROlcA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_04-7fad98b589454e0388ecf48afe425e8c.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -116,10 +120,6 @@ Lifewire / Emily Isaacs
 
  Its split design is comfortable, following the natural arc of your fingers and hands as they rest upon its keys.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Battery: Plenty of juice so you’re never in a bind**
 
  The battery life on the Freestyle2 is excellent. It arrives with a partial charge, so it’s important to remember to fully charge it after receiving it. Once charged, the battery life can last up to 300 plus hours of regular use. The Freestyle2 does an excellent job of letting you know when its battery is getting low—battery lights will flash red to indicate when there are about four hours of battery life remaining. This ensures you’re never left hanging.
@@ -131,10 +131,14 @@ Lifewire / Emily Isaacs
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/vncgu0FEgBJ69UL6H8BjQ2QoGRI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_03-9055476d1d974c8bbe9b1c39d479b300.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Kinesis Freestyle2 Blue vs. Microsoft Sculpt Ergonomic Keyboard**
 
@@ -153,10 +157,6 @@ Lifewire / Emily Isaacs
  **An ideal keyboard for Apple users with its compact design, portability, and long-lasting battery.**
 
  The Kinesis Freestyle2 Blue for Mac is a compact, user-friendly ergonomic keyboard that takes comfort and customization to the next level for Apple users thanks to its split, modular design. Its extended battery life of up to 300 plus hours combined with its ability to connect to multiple iOS devices at a time is a game-changer, making it well worth the splurge.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -189,24 +189,19 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/avigating-social-media-comparing-igtv-and-youtube-features-for-2024/"><u>[New] Navigating Social Media Comparing IGTV and YouTube Features for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-convert-spotify-playlist-to-youtube-5-best-tools/"><u>[Updated] Convert Spotify Playlist To YouTube 5 Best Tools</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-the-ultimate-guide-to-obs-and-zoom-harmony-for-2024/"><u>[Updated] The Ultimate Guide to OBS & Zoom Harmony for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/2023s-premier-ergonomic-height-adjustable-desks-a-comprehensive-guide/"><u>2023'S Premier Ergonomic Height-Adjustable Desks: A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-avoiding-storage-woes-removing-youtube-media/"><u>2024 Approved Avoiding Storage Woes Removing YouTube Media</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/2024s-ultimate-selection-premium-case-options-for-the-samsung-galaxy-z-flip-n-model/"><u>2024'S Ultimate Selection: Premium Case Options for the Samsung Galaxy Z Flip N Model</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/airflow-management/"><u>Airflow Management</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ding-with-asmr-top-strategies-for-video-creation-for-2024/"><u>Ascending with ASMR Top Strategies for Video Creation for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/convenient-bavarder-implementation-in-linux/"><u>Convenient Bavarder Implementation in Linux</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-leading-mp3-players-of-2023-a-comprehensive-review/"><u>Discover the Leading MP3 Players of 2023: A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/essential-galaxy-tab-s8-gear-the-must-have-upgrades-and-protectors-of-2t23/"><u>Essential Galaxy Tab S8 Gear: The Must-Have Upgrades and Protectors of 2T23</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-unique-wrist-and-neck-adornments-discover-the-most-trending-jewelry-alternatives-for-your-hand-this-year/"><u>Exploring Unique Wrist & Neck Adornments: Discover the Most Trending Jewelry Alternatives for Your Hand This Year</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-xiaomi-redmi-a2-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Xiaomi Redmi A2 Without the Home Button | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-scanner-innovations-the-ultimate-list/"><u>Leading Scanner Innovations: The Ultimate List</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-smart-outlet-solutions-the-ultimate-guide/"><u>Leading Smart Outlet Solutions: The Ultimate Guide</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/limitations-of-chatgpt-compared-to-traditional-web-search-techniques/"><u>Limitations of ChatGPT Compared to Traditional Web Search Techniques</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210773040-9781922405326-periodic-poetry/"><u>Periodic Poetry | Free Book</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-windows-10s-resource-hungry-antivirus-agent-msmpengine/"><u>Troubleshooting Windows 10’S Resource-Hungry Antivirus Agent (MsMpEngine)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/uncovering-the-highest-performing-internal-storage-options-s-tech-enthusiasts/"><u>Uncovering the Highest-Performing Internal Storage Options 'S Tech Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-explore-and-compare-20plus-best-free-video-editors-for-ios/"><u>[New] In 2024, Explore and Compare 20+ Best Free Video Editors for iOS</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-step-by-step-instagram-reels-production-process/"><u>[New] Step-by-Step Instagram Reels Production Process</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-conquering-the-complexities-of-360-video-post-production-in-premiere/"><u>2024 Approved Conquering the Complexities of 360° Video Post-Production in Premiere</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cat-s42-robust-phone-assessment-impressive-protection-yet-average-speed/"><u>CAT S4^2 Robust Phone Assessment: Impressive Protection, Yet Average Speed</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-kensuns-compact-and-durable-tire-inflator-user-friendly-and-mobile/"><u>Comprehensive Evaluation of Kensun's Compact and Durable Tire Inflator - User-Friendly and Mobile</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-dell-inspiron-3671-desktop-middle-ground-in-budget-computing/"><u>Comprehensive Evaluation of the Dell Inspiron 3671 Desktop: Middle Ground in Budget Computing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-difference-a-thorough-review-of-the-latest-and-greatest-macbook-pro-m1-2021-by-apple-inc/"><u>Discover the Difference: A Thorough Review of the Latest and Greatest MacBook Pro (M1, 2021) by Apple Inc.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/high-end-huion-inspiroy-g10t-graphics-pen-tablet-evaluation-superior-craftsmanship-and-functionality/"><u>High-End Huion Inspiroy G10T Graphics Pen Tablet Evaluation - Superior Craftsmanship & Functionality</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-oppo-k11-5g-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Oppo K11 5G?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/master-wmp-techniques-for-efficient-cd-handling-and-recordings/"><u>Master WMP Techniques for Efficient CD Handling and Recordings</u></a></li>
+<li><a href="https://media-tips.techidaily.com/simple-guide-free-steps-to-mastering-flv-extract-usage/"><u>Simple Guide: Free Steps to Mastering Flv Extract Usage</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/step-onto-the-court-with-nba-2k19-leading-basketball-emulator/"><u>Step Onto the Court with NBA 2K19: Leading Basketball Emulator</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pixel-journey-facebooks-evolution-into-meta/"><u>The Pixel Journey: Facebook's Evolution Into Meta</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-sharing-your-game-library-with-friends-on-xbox-one/"><u>The Ultimate Guide: Sharing Your Game Library with Friends on Xbox One</u></a></li>
 </ul></div>
 

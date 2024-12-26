@@ -1,7 +1,7 @@
 ---
 title: "Razer Portal Review: Wi-Fi For Gamers"
-date: 2024-08-26T06:31:13.104Z
-updated: 2024-08-27T06:31:13.104Z
+date: 2024-12-23T16:35:09.072Z
+updated: 2024-12-26T02:41:50.432Z
 categories:
   - BestProducts
 description: "This Article Describes Razer Portal Review: Wi-Fi For Gamers"
@@ -13,9 +13,17 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
 
 4.7
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## PetCube Play 2
 
 ![Petcube Play 2](https://www.lifewire.com/thmb/fi4QKVoNpmF0orWr6-09-W2GJQY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/PetCube_PetCameras_Play2_HeroSquare-1fac0e7ac5604adbbc5e1443c8904884.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Sandra Safford
 
@@ -36,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
 [View On Amazon $80](https://www.amazon.com/dp/B07R3G87RG?tag=lifewire-onsite-prod-20&ascsubtag=4799304%7Cn4fb6acc7130e4f4da457cbd852f855df06%7CB07R3G87RG)
 
 4.7
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## PetCube Play 2
 
@@ -64,8 +76,9 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
  Making the most of time away from our pets is a big concern for pet owners. Even leaving for work has its own requirements, such as checking for food, water, and your pet's well-being. The Play 2 is made for those pet owners who just can't look away for a whole day. Improved field of view and newly added Alexa functionality make an amazing quality pet camera even better.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Tiny device blends in anywhere**
 
  The Play 2 has a subtle design that blends in with other home electronics. The reflective black plastic on the front face hides fingerprints fairly well, but the matte black plastic on the top is easily smudged. Unless someone got close enough to read the word “Petcube,” they would never know that this little camera marks you as pet-obsessed. The wide field of view and small size of the Play 2 means it can fit just about anywhere without being intrusive.
@@ -78,15 +91,16 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
 
  Lifewire / Sandra Stafford
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Video Quality: Beautifully clear picture quality**
 
  I tested the Play 2 in my house lit by the unrelenting Texas sun. The Petcube Play 2, like its predecessor, records in[1080p](https://www.lifewire.com/what-the-term-1080p-means-1846837) . In daylight, the picture quality is so good that I can make out every whisker on my cat’s face. It’s a bit grainy at times, but there isn’t a pet cam on the market that performs better. Even the wealthiest pet owners aren’t going to pay for a cam that records in 4K. Pets don’t do much at night, but with the laser, I was able to entice my pets to cooperate for testing the automatic night vision. The recording quality at night is still very good, but grainier than during the day.
 
  In daylight, the picture quality is so good that I can make out every whisker on my cat’s face.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Excellent performance in every area**
 
  Ultimately, no one is picking a pet cam for the video quality alone. Cute videos are nice, but without something to encourage them, you’re not likely to find your pets doing anything more interesting than sleeping or barking at neighbors.
@@ -105,27 +119,18 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
 
  Lifewire / Sandra Stafford
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **App Support: Subscribers get some nice perks**
 
  When purchasing a fairly expensive pet cam, no one wants to feel like they were forced to pay an additional monthly cost. Petcube offers subscribers a lot of extras to make the cost worth it. Subscriptions start at $3.99/month and have bonuses like notifications, video history, clips that save automatically, and video downloads. At the $8.25/month level, the subscription covers an unlimited number of cameras and extends the warranty on each device to two years. Various services like pet DNA kits, Wag! and the Ollie box offers discounts to subscribers as well. Giving free users the basic functions of their pet cam but reserving so many extras for subscribers is a great way of balancing the needs of both.
 
  Subscriptions start at $3.99/month and have bonuses like notifications, video history, clips that save automatically, and video downloads.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: A splurge you won’t regret**
 
  Any way I look at it, the Petcube Play 2 is a serious splurge. There are more expensive pet cams on the market, but not many. If you just want a camera to be able to look in on your pets and ensure that no one has broken in, a security cameracan do that for much less money. You could add an automatic laser toy and still not come close to spending $200\. Pricey or not, the Play 2 is good enough to justify the price if you feel like getting a gift for your pet and for yourself.
 
  Pricey or not, the Play 2 is good enough to justify the price if you feel like getting a gift for your pet and for yourself.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## **Petcube Play 2 vs. Pawbo Life Wi-Fi Camera**
 
  The Petcube Play 2 has a lot to offer, but there is an alternative that can save a lot of money. At around[$150 on Amazon,](https://www.amazon.com/dp/B06XPSGS4W/?tag=lifewire-onsite-prod-20&ascsubtag=4799304%7Cn4fb6acc7130e4f4da457cbd852f855df06%7C) the[Pawbo Life Wi-Fi Camera](https://www.lifewire.com/pawbo-life-pet-camera-review-4692446) has the best features for pets, such as a treat dispenser and the laser that cats love. Quality had to be cut somewhere to keep this option affordable, so clips are recorded in 720p and there is no night vision at all. Pets don’t care either way about picture quality, so the Pawbo is a good choice if you just want to give them some treats and playtime while you’re at work during the day. Pay a little more for the Petcube Play 2 if you want to share the clips or need night vision.
@@ -136,9 +141,6 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
 
  The Petcube Play 2 is at the sweet spot of features and price. The crisp, clear recording quality will allow you to enjoy your pet’s playtime even if you can’t always be there with them.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Play 2
@@ -158,8 +160,6 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -167,4 +167,24 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-info.techidaily.com/affordable-monoprice-graphics-tablet-an-in-depth-analysis-of-value-and-performance/"><u>Affordable Monoprice Graphics Tablet: An In-Depth Analysis of Value and Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-precision-with-the-ambient-weather-station-ws-2902a-osprey-a-detailed-examination/"><u>Affordable Precision with the Ambient Weather Station WS-2902A 'Osprey': A Detailed Examination</u></a></li>
+<li><a href="https://common-error.techidaily.com/application-stops-due-to-dll-absence/"><u>Application Stops Due to DLL Absence</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-bw-16d1x-u-powerful-blu-ray-drive-review/"><u>Asus BW-16D1X-U Powerful Blu-Ray Drive Review</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/celebrate-with-winxdvd-exclusive-18th-year-offer-huge-bundles-at-lowest-prices-plus-bonus-presents/"><u>Celebrate with WinXDVD - Exclusive 18Th Year Offer: Huge Bundles at Lowest Prices + Bonus Presents</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-prime-day-bargains-where-to-find-elite-deals-on-acer-products/"><u>Discover Prime Day Bargains: Where to Find Elite Deals on Acer Products</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/experience-ultimate-quality-leading-4k-converters-for-2024/"><u>Experience Ultimate Quality Leading 4K Converters for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/g-youtube-playback-tips-for-ios-and-android-for-2024/"><u>Hiding YouTube Playback Tips for iOS and Android for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-belly-laughs-list-ultimate-guide-to-free-memes/"><u>In 2024, Belly Laughs List Ultimate Guide to Free Memes</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-easy-methods-how-to-transfer-pictures-from-apple-iphone-11-pro-to-pc-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Easy Methods How To Transfer Pictures From Apple iPhone 11 Pro to PC | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-lava-storm-5g-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Lava Storm 5G</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-exploring-variations-panoramic-and-virtual-reality-films/"><u>In 2024, Exploring Variations Panoramic & Virtual Reality Films</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-and-practical-dissecting-the-features-of-the-twelve-south-bookbook-v2-macbook-enclosure/"><u>Innovative and Practical: Dissecting the Features of the Twelve South BookBook V2 MacBook Enclosure</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/investigating-economical-recording-a-look-into-vixias-hf-r800/"><u>Investigating Economical Recording: A Look Into VIXIA's HF R800</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-meteorological-insights-with-ospreys-budget-friendly-ws-2902a-our-detailed-assessment/"><u>Maximizing Meteorological Insights with Osprey's Budget-Friendly WS-2902A - Our Detailed Assessment</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/palette-perfection-translating-color-concepts-for-2024/"><u>Palette Perfection Translating Color Concepts for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-duality-of-innovation-examining-the-pros-and-cons-of-the-flexible-lenovo-thinkpad-x1-fold/"><u>The Duality of Innovation: Examining the Pros & Cons of the Flexible Lenovo ThinkPad X1 Fold</u></a></li>
+</ul></div>
 

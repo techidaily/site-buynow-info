@@ -1,7 +1,7 @@
 ---
 title: "Ultimate LG Gram 17 Assessment: Light as a Feather Yet Power-Packed"
-date: 2024-12-14T17:05:57.278Z
-updated: 2024-12-17T09:30:16.684Z
+date: 2024-12-19T23:41:16.943Z
+updated: 2024-12-25T16:12:14.266Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate LG Gram 17 Assessment: Light as a Feather Yet Power-Packed"
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/4494210181b361ed33c42bb9503adb4d12c1be013
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Razer Book 13
@@ -79,7 +79,7 @@ Lifewire / Andy Zahn
  An[ultrabook](https://www.lifewire.com/best-laptops-to-buy-4043650) is typically a thing of compromises, and if you want a laptop that’s thin and light, power is often sacrificed. However, the Razer Book 13 challenges that stereotype and offers a sleek and attractive alternative to other high-end[ultra-portables](https://www.lifewire.com/best-lightweight-laptops-to-buy-4065134) . I tested it for 40 hours to find if it can live up both to its stunning ultrabook looks and Razer’s prowess in building high-powered gaming laptops.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Design: Beauty in minimalism
@@ -111,7 +111,7 @@ Lifewire / Andy Zahn
 Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Performance: Lean and mean
@@ -127,7 +127,7 @@ Lifewire / Andy Zahn
  The Book 13 is equipped with a 512GB SSD. This is good enough, but it would have been nice to have a full terabyte of storage.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Software: No bloat
@@ -137,22 +137,14 @@ Lifewire / Andy Zahn
 ![Razer Book 13](https://www.lifewire.com/thmb/hKfA1c1e0-bRVVhMU22PtI2GewM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_03-23b08f335541443ebe1e7d7763140eca.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Connectivity: The latest and greatest
 
  With[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , the Book 13 had no trouble taking full advantage of my home network. It provides a fast and reliable connection, and Bluetooth 5.0 is available as well.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Battery: Juice for the day
 
@@ -184,6 +176,10 @@ Lifewire / Andy Zahn
 
  This is a premium, ultra-portable device designed more for professional work, and its ability to game is basically a nice bonus. Considering the competition from Dell and Apple, it’s not unreasonably priced.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Razer Book 13 vs. Dell XPS 13 7390 2-in-1
 
  There are a few big competitors that the Razer Book 13 is going up against, and perhaps the most significant is the excellent Dell XPS 13 7390 2-in-1\. Dell’s XPS laptops are great, and the 13 2-in-1 is no exception. Its main advantage over the Razer is its ability to transform into a tablet, but the Razer wins over in terms of raw power, and of course the Book 13 features that wonderful RGB backlighting.
@@ -195,6 +191,10 @@ Lifewire / Andy Zahn
  **A laptop with great looks, compact design, and remarkable power.**
 
  There’s a lot to love about the Razer Book 13, and not a lot of negative things to say about it. It’s not a graphical powerhouse, but the fact that it’s able to game at all is remarkable. Between its solid design, attractive aesthetics, and nice little touches that tie the whole package together, this is one awesome little ultrabook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -234,22 +234,16 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-how-to-add-instagram-filter-to-existing-photos-and-videos/"><u>[New] How to Add Instagram Filter to Existing Photos and Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-fix-facebook-messenger-not-sending-videos-on-iphone-and-android/"><u>[Updated] 2024 Approved Fix “Facebook Messenger Not Sending Videos” On iPhone and Android</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-transforming-mundane-images-with-music-on-instagram/"><u>[Updated] In 2024, Transforming Mundane Images with Music on Instagram</u></a></li>
-<li><a href="https://program-issues.techidaily.com/create-a-custom-action-to-create-custom-actions-visit-httpsdevelopersgooglecomassistantsdkdocsweb-discovery-and-click-on-web-discovery-follow-the-instructio544/"><u>Create a Custom Action: To Create Custom Actions, Visit https://developers.google.com/assistant/sdk/docs/web-discovery and Click on Web Discovery. Follow the Instructions Provided by Web Disco to Generate an App Engine URL for Your Action.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/end-your-frustration-with-continuous-spotify-ads-discover-a-quick-solution-now/"><u>End Your Frustration with Continuous Spotify Ads - Discover a Quick Solution Now!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/enhancing-retro-gaming-dolphin-emulator-now-comes-with-earnable-achievements-for-classic-gamecube-games/"><u>Enhancing Retro Gaming: Dolphin Emulator Now Comes with Earnable Achievements for Classic GameCube Games</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-persistent-necessity-of-installing-and-downloading-in-modern-physical-gaming/"><u>Exploring the Persistent Necessity of Installing and Downloading in Modern Physical Gaming</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/free-access-catching-all-us-formula-e-races-without-paying-a-dime/"><u>Free Access: Catching All U.S. Formula E Races Without Paying a Dime</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/free-online-webm-file-converter-easy-download-and-use-with-movavi/"><u>Free Online WebM File Converter - Easy Download and Use with Movavi</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/guide-on-how-to-permanently-end-amazon-prime-service-and-obtain-reimbursement/"><u>Guide on How To Permanently End Amazon Prime Service And Obtain Reimbursement</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-vrr-makes-gaming-smoother-by-fixing-screen-flickers-on-your-display/"><u>How VRR Makes Gaming Smoother by Fixing Screen Flickers on Your Display.</u></a></li>
-<li><a href="https://review-topics.techidaily.com/identify-missing-or-malfunctioning-hardware-drivers-with-windows-device-manager-on-windows-10-by-drivereasy-guide/"><u>Identify missing or malfunctioning hardware drivers with Windows Device Manager on Windows 10</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/identifying-current-subscribers-a-guide-for-streaming-platforms-such-as-netflix-and-spotify/"><u>Identifying Current Subscribers: A Guide for Streaming Platforms Such as Netflix and Spotify</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-capturing-adventures-with-right-tools-and-tech/"><u>In 2024, Capturing Adventures with Right Tools & Tech</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/increase-xbox-series-storage-capacity-effortlessly-using-seagates-external-add-on/"><u>Increase Xbox Series Storage Capacity Effortlessly Using Seagate's External Add-On</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-10-essential-animation-programs-for-school-projects/"><u>New 2024 Approved 10 Essential Animation Programs for School Projects</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/the-quest-for-content-videos-in-social-media-network-for-2024/"><u>The Quest for Content Videos in Social Media Network for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-verifying-ad-revenue-on-yt-a-step-by-step-tutorial/"><u>[New] 2024 Approved Verifying Ad Revenue on YT A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-striking-visuals-a-deep-dive-into-optimal-youtube-thumbnail-sizes/"><u>[New] In 2024, Striking Visuals A Deep Dive Into Optimal YouTube Thumbnail Sizes</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-unlock-the-power-of-instagram-reels-with-these-strategies/"><u>2024 Approved Unlock the Power of Instagram Reels with These Strategies</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/boost-creativity-the-best-ai-text-synthesizers/"><u>Boost Creativity: The Best AI Text Synthesizers</u></a></li>
+<li><a href="https://program-issues.techidaily.com/digitalis-glycosides-increase-intracellular-calcium-and-strengthen-cardiac-contractions-but-are-toxic-in-high-doses/"><u>Digitalis Glycosides Increase Intracellular Calcium and Strengthen Cardiac Contractions but Are Toxic in High Doses.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/head-to-head-showdown-how-does-the-newly-launched-samsung-galaxy-s2-problem-what-is-a-mole-in-chemistry/"><u>Head-to-Head Showdown: How Does the Newly Launched Samsung Galaxy S2 # Problem: What Is a Mole in Chemistry?</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-fix-naraka-bladepoint-lag-issues/"><u>How To Fix Naraka Bladepoint Lag Issues</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-oneplus-n-6t-smartphone-assessment-outstanding-efficiency-and-economic-price-tag/"><u>The OnePlus N 6T Smartphone Assessment: Outstanding Efficiency and Economic Price Tag</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-tier-mobile-entertainment-unveiling-the-ultimate-8-titles/"><u>Top-Tier Mobile Entertainment: Unveiling the Ultimate 8 Titles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-restful-nights-in-depth-analysis-of-ihome-zenergy-bedside-machine/"><u>Unveiling the Power of Restful Nights: In-Depth Analysis of IHome Zenergy Bedside Machine</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-xiaomi-redmi-note-13-5g-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Xiaomi Redmi Note 13 5G Has Black Screen of Death? | Dr.fone</u></a></li>
 </ul></div>
 
