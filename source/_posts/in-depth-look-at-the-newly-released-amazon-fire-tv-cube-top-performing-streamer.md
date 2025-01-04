@@ -1,7 +1,7 @@
 ---
 title: In-Depth Look at the Newly Released Amazon Fire TV Cube - Top Performing Streamer
-date: 2024-08-19T16:26:25.142Z
-updated: 2024-08-20T16:26:25.142Z
+date: 2024-12-29T23:18:47.881Z
+updated: 2025-01-04T09:59:53.052Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Look at the Newly Released Amazon Fire TV Cube - Top Performing Streamer
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/uu5hfNep04ko4ocqgxGOKaQdBMk=/400x300/fi
 ## Amazon Fire TV Cube
 
 ![Fire TV Cube (2nd Generation)](https://www.lifewire.com/thmb/K_gugGZBSXUKggkCqocQEu_IF2U=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FireCubeTV_HeroSquare-484d7d80c4354681968a1ff7d19b9676.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire/Emily Ramirez
 
@@ -38,6 +42,10 @@ Lifewire/Emily Ramirez
 [View On Amazon $140](https://www.amazon.com/All-new-fire-tv-cube-4k-streaming-device/dp/B09BZZ3MM7?tag=lifewire-onsite-prod-20&ascsubtag=4843542%7Cn953f465c43be47c0a5bba4023504b68e14%7CB09BZZ3MM7) [View On Walmart $140](https://www.walmart.com/ip/Amz-Fire-TV-Cube-3rd-Gen-4K-Streaming-Device-Hands-free-Wi-Fi-6E-Free-Cleaning-Cloth/5497411266) [View On Best Buy $140](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Famazon-fire-tv-cube-3rd-gen-streaming-media-player-with-4k-ultra-hd-wi-fi-6e-and-alexa-voice-remote-black%2F6522377.p)
 
 4.6
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Amazon Fire TV Cube
 
@@ -66,11 +74,12 @@ Lifewire/Emily Ramirez
 
 ![Fire TV Cube (2nd Generation)](https://www.lifewire.com/thmb/XdJMKZTDX0bcXYVWQa5F4sXhnt0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FireCubeTV_HeroHoriz-bb386a84025b49d2a22d3d34c6974007.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire/Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Futuristic design powered by Alexa**
 
  The Fire TV Cube is a cute, futuristic-looking block that will stand out on your home console despite its 4-inch sides. On the outside, it’s virtually unchanged from the first-generation model. Across the top, there’s a blue LED bar that lights up whenever the Cube takes action. The sides of the cube have a glossy black finish that’s a fingerprint magnet. There’s volume and menu buttons on the top, as well, but we don’t foresee a lot of use for them considering that the Cube comes with a remote. In the back, there’s an[HDMI connector](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) , a power adapter port, and a micro USB port.
@@ -85,9 +94,6 @@ Lifewire/Emily Ramirez
 
  My biggest pet peeve with the Cube’s design and features is its accessory bundle. For $120, Amazon could have afforded to throw in an HDMI cable—the $30 Roku Express has one, for instance. If you end up purchasing a Cube, remember to also get an[HDMI cable](https://www.lifewire.com/hdmi-cables-and-connectors-what-you-need-to-know-4685377) . I’ve found Blue Rigger strikes a great balance between affordability and quality, if you need a recommendation.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Some difficulty in getting ready**
 
  Compared to the[Fire TV Stick](https://www.lifewire.com/amazon-fire-tv-stick-4k-review-4691492) , the Cube is a little harder to set up— it doesn’t automatically boot like the Stick, and you need to take into consideration its IR receivers. It must have a clear line of sight to your remote, so place it somewhere you can see it. Additionally, if you want to take advantage of its 4K capabilities, you’ll likely want to use the included Ethernet adapter (and you’ll need to acquire an[Ethernet cable](https://www.lifewire.com/what-is-an-ethernet-cable-817548) ).
@@ -106,9 +112,6 @@ Lifewire/Emily Ramirez
 
 Lifewire/Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Software: Heavily biased toward Amazon services**
 
  Software is simultaneously Fire TV’s strongest and weakest point. On the one hand, the quantity of content available on the Fire TV platform is astounding—there’s over 5,000 apps to choose from, as well as a meager library of simple games to play. If you’re looking for something, you will find it.
@@ -126,8 +129,9 @@ Lifewire/Emily Ramirez
 ![Fire TV Cube (2nd Generation)](https://www.lifewire.com/thmb/21Mjfh9xUyCrX05R6TQdh9JX64c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/FireCubeTV_02-603b91304a21457c94312ceb97dfcf74.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Lifewire/Emily Ramirez
 
 ## **Price: On the expensive side**
@@ -135,8 +139,9 @@ Lifewire/Emily Ramirez
  The Fire TV Cube costs $120, which is frankly a little expensive compared to the Fire TV Stick 4K or an Amazon Echo. However, if you want an Echo that’s also a media player, the Cube is your best option. It comes with excellent performance, control for IoT devices, built-in speaker and mic, and svelte looks. While it’s not the best value streaming device, it’s certainly a versatile and well-featured one.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Amazon Fire TV Cube vs. Roku Ultra**
 
  There’s a lot to consider if you’re choosing between the Roku Ultra and the Fire TV Cube. Specs-wise, the Fire TV Cube is undoubtedly more powerful and supports more codecs. However, the Roku Ultra has more than enough power to handle 4K content, and it supports HDR, so only the pickiest film lovers would even notice the difference.
@@ -149,9 +154,6 @@ Lifewire/Emily Ramirez
 
  The Amazon Fire TV Cube is a fantastic streamer for those committed to the Alexa ecosystem. However, it’s a little expensive if you only want reliable 4K streaming, in which case you may be better served by the Fire TV Stick 4K or the Roku Streaming Stick+ for $50.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Fire TV Cube
@@ -170,8 +172,6 @@ Lifewire/Emily Ramirez
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -179,4 +179,17 @@ Lifewire/Emily Ramirez
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-essential-steps-for-embedding-social-network-live-videos/"><u>[New] 2024 Approved Essential Steps for Embedding Social Network Live Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-maximizing-your-media-library-with-mov-on-windows-10/"><u>[New] Maximizing Your Media Library with .mov on Windows 10</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-next-level-broadcast-software-beyond-streamlabs/"><u>[Updated] 2024 Approved Next-Level Broadcast Software Beyond StreamLabs</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-transform-your-streaming-enabling-av1-technology-in-youtube/"><u>[Updated] In 2024, Transform Your Streaming Enabling AV1 Technology in YouTube</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/common-stock-30-million-shares-at-par-value-of-10-300/"><u>Common Stock (30 Million Shares at Par Value of $10): $300</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-apc-back-ups-pro-1500va-powerful-performance-with-multiple-outlets-and-hot-swap-battery-feature/"><u>Comprehensive Analysis of the APC Back-UPS Pro 1500VA: Powerful Performance with Multiple Outlets & Hot-Swap Battery Feature</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-lenovo-ideapad-130s-confronting-power-boundaries-and-surprising-ease-of-use/"><u>Comprehensive Review of Lenovo IdeaPad 130S: Confronting Power Boundaries and Surprising Ease-of-Use</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/creative-labs-sound-blaster-zxr-in-focus-analyzing-the-2013-flagship-audio-experience/"><u>Creative Labs' Sound Blaster ZXR in Focus: Analyzing the 2013 Flagship Audio Experience</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-12-prominent-vivo-t2x-5g-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Vivo T2x 5G Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-home-movie-magic-creating-professional-looking-dvds-with-ease/"><u>New 2024 Approved Home Movie Magic Creating Professional-Looking DVDs with Ease</u></a></li>
+</ul></div>
 

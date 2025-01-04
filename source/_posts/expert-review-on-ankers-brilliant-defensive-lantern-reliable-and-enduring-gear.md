@@ -1,7 +1,7 @@
 ---
 title: Expert Review on Anker's Brilliant Defensive Lantern – Reliable and Enduring Gear
-date: 2024-12-25T06:19:47.022Z
-updated: 2024-12-25T16:12:47.654Z
+date: 2024-12-30T07:42:46.963Z
+updated: 2025-01-04T06:56:05.012Z
 categories:
   - BestProducts
 description: This Article Describes Expert Review on Anker's Brilliant Defensive Lantern – Reliable and Enduring Gear
@@ -18,12 +18,16 @@ thumbnail: https://www.lifewire.com/thmb/6LT3niV6b8rxfFzKUOSGiOSPwO4=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Cyberpunk 2077
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/lg-rMa42Ti9heFLfXVc2qNkjwk0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cyberpunk-2077-1-d90f62b5a126437681da9916c0360527.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
@@ -55,10 +59,6 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/sG6odS-sTBDQKNtpoev0kWtdSGg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cyberpunk-2077-1-d90f62b5a126437681da9916c0360527.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Andy Zahn / Lifewire
 
 [View On Amazon $55](https://www.amazon.com/dp/B07T8BP118/?tag=lifewire-onsite-prod-20&ascsubtag=5113844%7Cn1caa6f424ed249b0ba9a31e582ec71b217%7CB07T8BP118) [View On Steampowered.com](https://store.steampowered.com/app/1091500/Cyberpunk%5F2077/) [View On Gamestop.com](https://www.gamestop.com/video-games/pc-gaming/games/products/cyberpunk-2077/11094594.html)
@@ -89,7 +89,7 @@ Andy Zahn / Lifewire
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/YQBwL9wFHphVzIqJYlYwd0J2OYU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-2-7e358ac09a2c48fbb0f6aaec1e9381e9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
@@ -106,6 +106,10 @@ Andy Zahn / Lifewire
 
  Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Gameplay: Fun, but deeply flawed
 
  As with the game as a whole, Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows. It does some things very well and stumbles bafflingly in other regards. The game mostly takes place in the first person, with third-person view being an option while driving.
@@ -113,10 +117,6 @@ Andy Zahn / Lifewire
  Driving is not what I’d call a perfect experience in either third or first-person modes. Though beautifully designed and widely varied, vehicles tend to have little weight to them, and you really have to work to avoid careening about the road, running over pedestrians, and attracting the tepid attention of the police. They all also seem to be in desperate need of a new set of brakes, and to make matters worse the AI for the NPC vehicles is very simple indeed. Park your car with a bit of it sticking out into the road and a line will quickly build up as these simpletons exhibit infinite patience rather than simply go around.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/NwK7qVv8XDmr_i0b9XzULnmPZ9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-5-664cae2e38304560a7d6fc3ce2a84335.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -146,10 +146,6 @@ Andy Zahn / Lifewire
 
  Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Customization: Lots to tinker with
 
  There is a deep level of character customization possible in Cyberpunk 2077, and you can sink a lot of time into creating the perfect character. Of course, you can always just pick a preset, but where's the fun in that? I tried to craft a likeness of Snake Plissken from Escape from Los Angeles, but couldn’t get it quite right, so I made a rough approximation of Basil Fawlty instead.
@@ -157,6 +153,10 @@ Andy Zahn / Lifewire
  Next, you get seven points with which to customize your character’s attributes between body, intelligence, technical ability, and cool. This determines your proficiency in both physical and technical skills. Don’t worry too much, as you will level up and add to these attributes and their associated skills as the game progresses. Skills allow you to fine-tune your abilities, as well as add new ones to your arsenal. It’s a good idea to focus on a specialty, once you know what you enjoy doing in the game because the more points you put into a category the more options unlock.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/Uqy4AEm6VMUR3LFH9U2FK5UDvo0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-3-28901c5bd3564eeea8e98bc9dbb8ae07.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -191,7 +191,7 @@ Andy Zahn / Lifewire
  The high quality of storytelling is probably the main highlight of the game, next to the insane graphical fidelity.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Performance: Making strong GPUs cry
@@ -206,6 +206,10 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/toUXDFSRFZjol-BOgnhnVEyJTYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-8-7b54b824c3bc4dcfb04234f69204d2f6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Andy Zahn / Lifewire
 
  If you don’t have a ray tracing enabled card, you may want to think twice about Cyberpunk 2077 until you’re able to upgrade. It’s playable on older cards, but the incredible visuals of this game running on high-end hardware are such an integral part of the experience that it’s hard to recommend running in a reduced capacity. The same goes for last-gen consoles ([PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) ,[Xbox One](https://www.lifewire.com/xbox-one-buyers-guide-3562291) ), where the experience is also greatly impacted by reduced processing power. Players are reporting the worst issues on these older consoles, where Cyberpunk appears to be almost unplayable for many.
@@ -215,7 +219,7 @@ Andy Zahn / Lifewire
  An alternative worth considering if you have a robust high-speed internet connection is streaming the game on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) . This will allow you to experience the game at its best without having to invest in a two thousand dollar PC. However, it does leave your ability to play the game at the mercy of your ability to access a strong internet connection.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Graphics: Ahead of its time
@@ -237,10 +241,6 @@ Andy Zahn / Lifewire
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/o42yZx4igr8SBsJoS2Nc52n6m3U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-6-1b41a87ba1244122adf280147c09e5f1.jpg)
 
 Andy Zahn / Lifewire
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Multiplayer: Absent for the moment
 
@@ -288,22 +288,14 @@ Andy Zahn / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/updated-best-zoom-webcams-top-picks-of-the-season/"><u>[Updated] Best Zoom Webcams – Top Picks of the Season</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-seamless-capture-and-share-iphone-to-snapchat-backup-guide-for-2024/"><u>[Updated] Seamless Capture & Share IPhone to Snapchat Backup Guide for 2024</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/5pya6auy44gu44ki44kv44k344on44oz55so44kr44oh44op77ya5oml44g244km6koc5q2j5qmf6io944gm5ykz44kp44gj44gf44gk44gz44gz44kb44oi44oh44or/"><u>最高のアクション用カメラ：手ぶれ補正機能が備わったおすすめモデル</u></a></li>
-<li><a href="https://win11.techidaily.com/blending-email-services-adding-gmail-to-the-outlook-app-in-windows/"><u>Blending Email Services: Adding Gmail to the Outlook App in Windows</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-gimp-reviews-top-rated-cross-platform-no-cost-photo-editing-software/"><u>Comprehensive GIMP Reviews: Top Rated Cross-Platform, No Cost Photo Editing Software</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-superiority-of-the-apple-iphone-xs-max-a-review-for-tech-enthusiasts/"><u>Discover the Superiority of the Apple iPhone XS Max - A Review for Tech Enthusiasts</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/finding-your-perfect-match-high-quality-lipo-units-for-drones/"><u>Finding Your Perfect Match High-Quality LiPo Units for Drones</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/hisense-50h8f-4k-hdr-tv-review-a-big-screen-on-a-budget/"><u>Hisense 50H8F 4K HDR TV Review: A Big Screen on a Budget</u></a></li>
-<li><a href="https://driver-install.techidaily.com/how-to-securely-install-canon-printer-drivers-on-win11/"><u>How to Securely Install Canon Printer Drivers on WIN11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/new-years-savings-alert-get-96-off-lifetime-access-to-mondly-premium/"><u>New Year's Savings Alert: Get 96% OFF Lifetime Access To Mondly Premium</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/oodles-marketplace-your-gateway-to-top-quality-secondhand-bargains-in-our-town/"><u>Oodle's Marketplace: Your Gateway to Top-Quality Secondhand Bargains in Our Town</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/professional-insight-on-corrective-eyewear-tailored-to-shield-from-harmful-light-waves/"><u>Professional Insight on Corrective Eyewear Tailored to Shield From Harmful Light Waves</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tablet-face-off-analyzing-the-distinctions-between-ipad-pro-and-microsoft-surface-pro/"><u>Tablet Face-Off: Analyzing the Distinctions Between iPad Pro and Microsoft Surface Pro</u></a></li>
-<li><a href="https://win-blog.techidaily.com/the-complete-walkthrough-to-correctly-fix-the-borderlands-eborderlands-3-ls-0013-error-code/"><u>The Complete Walkthrough to Correctly Fix the Borderlands Eborderlands 3 LS-0013 Error Code</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ideal-choice-for-gamers-experience-excellence-with-asus-vg245h/"><u>The Ideal Choice for Gamers: Experience Excellence With Asus VG245H</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/the-prime-cloud-storage-contenders-of-the-new-year-for-2024/"><u>The Prime Cloud Storage Contenders of the New Year for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-stunning-camera-quality-of-the-huawei-p20-pro-smartphone/"><u>The Ultimate Guide to the Stunning Camera Quality of the Huawei P20 Pro Smartphone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-banishing-bogus-followers-from-instagram-landscape/"><u>[Updated] 2024 Approved Banishing Bogus Followers From Instagram Landscape</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/enabling-windows-11-auto-hdr-feature/"><u>Enabling Windows 11 Auto HDR Feature</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/exclusive-top-quintessential-4k-hd-gear-list/"><u>Exclusive Top Quintessential 4K HD Gear List</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-realme-narzo-60-pro-5g-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Realme Narzo 60 Pro 5G Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/kensun-tire-inflator-unveiled-a-review-highlighting-its-resilience-and-portability-features/"><u>Kensun Tire Inflator Unveiled: A Review Highlighting Its Resilience and Portability Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-power-converters-reviewed-a-guide-to-the-2024-markets-finest-choices/"><u>Leading Power Converters Reviewed: A Guide to the 2024 Market's Finest Choices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-high-definition-comprehensive-review-of-sony-xbr49x900f-the-ultimate-4k-tv-experience/"><u>Mastering High Definition: Comprehensive Review of Sony XBR49X900F - The Ultimate 4K TV Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/most-effective-high-performance-routers-for-extended-coverage-in-224/"><u>Most Effective High-Performance Routers for Extended Coverage in 2^24</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/cting-your-youtube-video-blueprint-for-2024/"><u>Perfecting Your YouTube Video Blueprint for 2024</u></a></li>
 </ul></div>
 

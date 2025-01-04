@@ -1,7 +1,7 @@
 ---
 title: MaxOak 185Wh/50000mAh Battery Pack Review
-date: 2024-08-19T16:25:26.896Z
-updated: 2024-08-20T16:25:26.896Z
+date: 2025-01-01T23:57:06.211Z
+updated: 2025-01-03T23:23:13.934Z
 categories:
   - BestProducts
 description: This Article Describes MaxOak 185Wh/50000mAh Battery Pack Review
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/zO2N3--AfLbAM--5s4pPcEPVQEw=/400x300/fi
 ## Top-Rated ZMI PowerPack 20000 Examined: The Perfect Compact Power Device Reviewed
 
 4.9
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## ZMI PowerPack 20000
 
@@ -65,9 +69,6 @@ thumbnail: https://www.lifewire.com/thmb/zO2N3--AfLbAM--5s4pPcEPVQEw=/400x300/fi
 
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Small but powerful**
 
  The ZMI PowerPack 20000’s size is easily one of its biggest selling points. While it is a little heavy at 14.3 ounces, this power bank is the approximate width and height of a large smartphone, measuring up very closely to the size of my Apple iPhone 11 Pro at 6.3 x 3.2 inches (HWD). Of course, the 0.8-inch thickness is quite a bit larger than any phone today, but unlike most laptop-friendly charging banks, ZMI’s can still fit into a pocket or handbag with ease.
@@ -82,21 +83,16 @@ thumbnail: https://www.lifewire.com/thmb/zO2N3--AfLbAM--5s4pPcEPVQEw=/400x300/fi
 
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/vaINPELrwcWnOZDsX1ztKkCouww=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-03-1530f666df824f6281040c2ae3285eb2-2e7956941b91403aa888795a7e5e2e33.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ## **Setup Process: Easy does it**
 
  There’s not much to the setup process here. Using the included USB-C to USB-C cable, simply plug one end into the power bank and the other into an AC adapter that you have handy—like one for a laptop, tablet, or[smartphone](https://www.lifewire.com/best-smartphones-4043781) . Once the four lights on the side are fully illuminated, then the battery pack is fully charged. Simply plug in devices using their respective cables to charge them using the power within the ZMI PowerPack 20000.
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Charging Speed and Battery: It keeps going**
 
  The ZMI PowerPack 20000 has a hearty 20,000mAh cell within, and it charged my devices quickly without fully depleting the brick. I charged a[2019 MacBook Pro](https://www.lifewire.com/apple-macbook-pro-13-inch-2019-review-4770116) (13-inch) laptop from 0 percent to 100 percent in just 1 hour, 53 minutes using the ZMI PowerPack 20000’s USB-C PD port, with an effective charging rate of 42.92W (14.8Vx2.9A). When the charging process was complete, the PowerPack still had one light illuminated, indicating that there was still a little bit of battery life remaining.
@@ -108,8 +104,9 @@ Lifewire / Andrew Hayward
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/asGVK-moJ54HvqyY9N6Kb-KM8hw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-04-828899fb01024cd4a0e35980251c04b4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 ## **Price: It’s a bargain**
@@ -119,8 +116,9 @@ Lifewire / Andrew Hayward
  With larger laptop-friendly battery packs sometimes selling for well north of $100, the $70 price point of the ZMI PowerPack 20000 is an incredibly attractive deal.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **ZMI PowerPack 20000 vs Mophie Powerstation AC**
 
  ZMI’s PowerPack 20000 is about half the size and weight of the[Mophie Powerstation AC](https://www.lifewire.com/mophie-powerstation-ac-review-5071990) (see on[Amazon](https://www.amazon.com/dp/B078GYSBVR?linkCode=ogi&th=1&psc=1&tag=lifewire-onsite-prod-20&ascsubtag=5071991%7Cn210c12f6fa164d19b551ef300c5549c018%7C) ), which has a AC power port on one end, not to mention a larger 24,000mAh cell. Those are both stellar benefits, plus the fabric-lined exterior gives it a distinctive allure. That said, Mophie’s pack sells for $200, and we’d only recommend it if you must have the AC power outlet for charging a power-hungry laptop. If the ZMI PowerPack 20000 will meet your charging needs, however, it’s a much better bargain.
@@ -130,6 +128,10 @@ Lifewire / Andrew Hayward
  **A fantastic portable laptop battery charger for nearly everyone.**
 
  It’s honestly difficult to find anything to complain about with the ZMI PowerPack 20000\. It’s powerful and does a great job of charging laptops and phones, it has enough capacity to handle those tasks with ease, it’s compact and well-designed, and the price is fantastic. It’s half the size of the giant Anker power brick that I’ve brought on my last two international trips and can handle all of the same tasks. In other words,_this_ is the power brick I’m bringing on my next trip.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -142,14 +144,11 @@ Lifewire / Andrew Hayward
 * Ports  1x USB-C, 2x USB-A
 * Waterproof  N/A
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,4 +157,22 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-deciphering-bandicams-latest-2023-capabilities/"><u>[New] Deciphering Bandicam's Latest 2023 Capabilities</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unlock-words-full-potential-with-easy-speech-to-text-features/"><u>[New] Unlock Word's Full Potential with Easy Speech-to-Text Features</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-meme-madness-the-iphone-edition/"><u>[Updated] In 2024, Meme Madness The iPhone Edition</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-full-screen-fix-for-obs-enthusiasts/"><u>2024 Approved Full-Screen Fix for OBS Enthusiasts</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-on-oppo-find-x6-by-drfone-android/"><u>In 2024, How to Bypass FRP on Oppo Find X6?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/leading-the-way-in-color-grading-adobes-top-10-luts-for-lightroom/"><u>Leading the Way in Color Grading Adobe's Top 10 LUTs for LightRoom</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/online-projection-calibration-tool-for-2024/"><u>Online Projection Calibration Tool for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshoot-and-tackle-frequent-tv-problems-with-these-easy-solutions/"><u>Troubleshoot and Tackle Frequent TV Problems with These Easy Solutions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unleashing-performance-in-depth-look-at-why-alienware-aurora-r11-is-2021s-top-gaming-machine/"><u>Unleashing Performance: In-Depth Look at Why Alienware Aurora R11 Is 2021’S Top Gaming Machine</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-augmented-reality-fun-without-breaking-the-bank-a-look-at-the-arcshell-ar-5/"><u>Unlocking Augmented Reality Fun without Breaking the Bank – A Look at the Arcshell AR-5</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-boses-sporty-soundwires-durability-examined/"><u>Unpacking Bose's Sporty SoundWires: Durability Examined</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-portable-genius-expert-review-of-the-hp-zbook-firefly-15-g8/"><u>Unveiling the Portable Genius: Expert Review of the HP ZBook Firefly 15 G8</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/urban-armor-gears-durable-macbook-pro-protector-a-comprehensive-evaluation/"><u>Urban Armor Gear's Durable MacBook Pro Protector: A Comprehensive Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/voice-assistants-face-off-determining-the-ideal-choice-between-alexa-and-google/"><u>Voice Assistants Face-Off: Determining the Ideal Choice Between Alexa and Google</u></a></li>
+</ul></div>
 

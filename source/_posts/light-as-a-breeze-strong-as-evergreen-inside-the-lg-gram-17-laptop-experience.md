@@ -1,7 +1,7 @@
 ---
 title: "Light as a Breeze, Strong as Evergreen: Inside the LG Gram 17 Laptop Experience"
-date: 2024-08-11T00:20:12.673Z
-updated: 2024-08-12T00:20:12.673Z
+date: 2024-12-29T08:37:38.410Z
+updated: 2025-01-04T04:08:52.230Z
 categories:
   - BestProducts
 description: "This Article Describes Light as a Breeze, Strong as Evergreen: Inside the LG Gram 17 Laptop Experience"
@@ -13,12 +13,13 @@ thumbnail: https://thmb.techidaily.com/3e3d11024602b266406d40d71c2e14542454419c9
 
 3.5
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Nikon Coolpix A10
 
 ![Nikon COOLPIX A10](https://www.lifewire.com/thmb/_nVZpOtGKRN-2bMUEFmyLS1Rma0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_03LW3897833-1-7909edb954234ba998fda175019f4ce7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Scott Gercken
 
@@ -42,14 +43,16 @@ Lifewire / Scott Gercken
 3.5
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Nikon Coolpix A10
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Nikon COOLPIX A10](https://www.lifewire.com/thmb/YC6hZEGkRUots77n6cg8D4tnDfs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_03LW3897833-1-7909edb954234ba998fda175019f4ce7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Scott Gercken
 
@@ -75,9 +78,6 @@ Lifewire / Scott Gercken
 
  Lifewire / Scott Gercken
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Feels good with natural controls**
 
  The Nikon COOLPIX A10 is a nice looking camera with a flashy silver front and black rear. It’s 3.5” wide, 2.25” tall, 0.75” deep on the narrow side and 1” deep on the wide side. The right side of the camera, the one with all the controls, has a rounded bulge that grows from 0.75” to 1”, perfectly designed to fit the hand (the camera would otherwise have been too narrow to hold comfortably). There are several controls on the top of the camera—the on/off button, the shutter, and the zoom controls.
@@ -85,6 +85,10 @@ Lifewire / Scott Gercken
  On the reverse you’ll see several buttons, including play, menu, and video. There’s also a directional input that both navigates the menu and allows you to control the flash, self-timer, expose, and macro view. To access the SD card, you have to open the battery chamber, which means you can’t switch it out without turning off the camera. The Nikon COOLPIX A10 uses standard AA batteries, so you can use any old battery you buy at the store. When you turn the camera on the lens cover opens, and the lens extends from the camera out to a maximum of 2 inches. The camera weighs 5.7 ounces, just the right weight to feel sturdy but not so heavy that it’s awkward to use.
 
  Lifewire / Scott Gercken
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Straightforward and simple**
 
@@ -96,9 +100,6 @@ Lifewire / Scott Gercken
 
  Lifewire / Scott Gercken
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ## **Photo Quality: Beautiful photographs with a frustrating user experience.**
 
  The headline number for every[point and shoot](https://www.lifewire.com/point-and-shoot-camera-4688891) digital camera is[megapixels](https://www.lifewire.com/what-is-a-megapixel-493313) , and the Nikon COOLPIX A10 has a fairly standard 16 MP ceiling. But the megapixel count doesn’t express much about the quality of the camera or the photographs it takes. We took the Nikon COOLPIX A10 out to see what it could do, taking photos in every setting we could think of, from night landscapes to indoor pet shots. The COOLPIX produces quality photos in most circumstances.
@@ -134,8 +135,9 @@ Lifewire / Scott Gercken
  The Nikon COOLPIX A10 has a list price of $75, around the same price as many entry-level digital cameras. It takes decent photos, so you can grab some nice vacay pictures at the beach or camping without exposing expensive gear to the weather. Our only major hesitation is around the lengthy delay between taking photos.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Competition: Phone and camera options**
 
 **iPhone 6s:** It’s becoming more and more difficult to justify a separate digital camera from our phones. The iPhone 6s does have a 12 MP camera against the COOLPIX’s 16, but that really only matters if you’re looking to print large photos or need extremely high resolution images. Often, it takes better photos than the COOLPIX A10, and it’s video capabilities are much better.. It doesn’t, however, have the ISO, white balance, or exposure options that the Nikon COOLPIX A10 has, and comes with a slightly larger price tag. We saw prices between $100 and $250 depending on the options, but for that price you also get an iPhone and all the additional functionality that comes with it.
@@ -179,8 +181,6 @@ Lifewire / Scott Gercken
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -188,4 +188,21 @@ Lifewire / Scott Gercken
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-secure-storage-system-5-ways-to-upload-files/"><u>[New] 2024 Approved Secure Storage System 5 Ways to Upload Files</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-navigating-the-insider-features-of-zoom-software-for-windows-11/"><u>[Updated] Navigating the Insider Features of Zoom Software for Windows 11</u></a></li>
+<li><a href="https://extra-information.techidaily.com/app-analysis-vll-perspective/"><u>App Analysis VLL Perspective</u></a></li>
+<li><a href="https://some-tips.techidaily.com/becoming-a-chief-ai-officer-the-pathway-to-leadership-in-artificial-intelligence-roles/"><u>Becoming a Chief AI Officer - The Pathway to Leadership in Artificial Intelligence Roles</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-from-realme-gt-neo-5-by-drfone-android/"><u>How to Bypass FRP from Realme GT Neo 5?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-nokia-c12-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Nokia C12 Phones? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/in-depth-tcl-stylus-5g-analysis-the-best-under-300-smartphone-with-pen-techradar/"><u>In-Depth TCL Stylus 5G Analysis - The Best Under $300 Smartphone with Pen | TechRadar</u></a></li>
+<li><a href="https://win-superb.techidaily.com/microsofts-insider-exposes-the-truth-about-pursuing-a-career-within-the-tech-giant/"><u>Microsoft's Insider Exposes the Truth About Pursuing a Career Within the Tech Giant</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-pick-for-budget-video-doorbells-expert-review-of-remobell-below-100/"><u>Top Pick for Budget Video Doorbells - Expert Review of RemoBell Below $100!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-ergonomic-vertical-mice-your-ultimate-guide/"><u>Top Rated Ergonomic Vertical Mice : Your Ultimate Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-voice-dictation-apps-dominating-the-market-in-2amo/"><u>Top Voice Dictation Apps Dominating the Market in 2Amo</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/treat-time-triumphs-games-and-snacks/"><u>Treat Time Triumphs: Games & Snacks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/understanding-the-gradual-vs-the-monumental-in-code/"><u>Understanding the Gradual Vs. The Monumental in Code</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-lenovo-p1-1-pro-an-overall-satisfactory-device-with-a-few-downsides/"><u>Unveiling the Lenovo P1 1 Pro: An Overall Satisfactory Device with a Few Downsides</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Affordable Tech Showdown: How Does the Samsung Galaxy A20 Hold Up?"
-date: 2024-08-19T16:27:16.071Z
-updated: 2024-08-20T16:27:16.071Z
+date: 2024-12-29T23:46:26.587Z
+updated: 2025-01-03T21:09:19.276Z
 categories:
   - BestProducts
 description: "This Article Describes Affordable Tech Showdown: How Does the Samsung Galaxy A20 Hold Up?"
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/c29b91a7962f39ddd096ce546c9dfc1fb01c0ff8d
 
 ![iPad Air 4](https://www.lifewire.com/thmb/wNUh8VcuJ6_viOl0VmQLoXGx7HI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ipad-air-4-homescreen-a791aa668fc441f78347a21d4d19dfac.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Apple
 
  The iPad Air 4 is one of the newest svelte tablets from Apple, building on the design and features of the[2019 iPad Air.](https://www.lifewire.com/apple-ipad-air-2019-review-4688969) You get a slate with minimized bezels and rounded corners, similar to the iPad Pro. The home button is removed in favor of swiping up from the bottom. The fingerprint sensor is combined with the lock button. Last but not least, the iPad Air 4 has a[USB-C](https://www.lifewire.com/usb-c-4149490) port in place of the Lightning port, putting it on the same level as the iPad Pro series and allowing you to use a variety of USB-C accessories and dongles. The tablet is also uses the magnetic Magic Connector, letting you sync and charge the Apple Pencil and connect the Magic Keyboard.
@@ -36,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/c29b91a7962f39ddd096ce546c9dfc1fb01c0ff8d
  Despite being an Android slate, it’s possible to see some common design elements between the Galaxy Tab S7+ and iPad Air 4\. Both make the bezels as narrow as possible, remove any buttons from the front of the device, and push the buttons off to the side. The fingerprint sensor is in-screen, though it registers a tad slow. Like the Air 4, the Galaxy Tab S7+ is designed to work with additional accessories like Samsung’s Book Cover keyboard and S Pen.
 
 ![Samsung Galaxy Tab S7+](https://www.lifewire.com/thmb/acvho_S3pqe_E9IggPOhXchQV-c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/71rwF2aLHL._AC_SL1500_-0a7c4f8d84ab4137a989f916c23817f7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Amazon
 
@@ -47,6 +55,10 @@ thumbnail: https://thmb.techidaily.com/c29b91a7962f39ddd096ce546c9dfc1fb01c0ff8d
 
 ![iPad Air 4](https://www.lifewire.com/thmb/2od3Stg-Pw0hdc_rj0HKQe9I9lI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/714s7LfdaBL._AC_SL1500_-f82422f45fc641148a9d25f8204ea28f.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Apple
 
  Apple’s A14 Bionic chip powers the iPad Air 4\. It’s one of the fastest tablets in Apple’s lineup, next to the iPad Pro. The powerful processor translates into fast and responsive performance capable of responsive multitasking, productivity, and intensive gaming. There’s nothing you can throw at the iPad Air that will make it choke, and combined with the Magic Keyboard, it comes very close to becoming a laptop replacement. Our reviewer managed to run Photoshop without a hitch, as well as demanding games like_Genshin Impact_ .
@@ -57,16 +69,14 @@ thumbnail: https://thmb.techidaily.com/c29b91a7962f39ddd096ce546c9dfc1fb01c0ff8d
 
  Despite the power-hungry screen, the Galaxy Tab S7+ manages solid battery life. Watching videos at reasonable brightness, our tester clocked 14 hours of video playback. That’s two hours longer than the iPad Air 4 and enough to cover you for an entire workday or a very long trip.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Software and Productivity
 
 ![Tab S7+](https://www.lifewire.com/thmb/4hEmPHaTd-0S5fFp_VEt0wCK3rQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/71AmOoiKCL._AC_SL1500_-f20de14bdd0249c1946561d1311015dc.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Samsung
 
  Unsurprisingly, the iPad Air 4 ships with iPadOS 14 and is upgradeable to[iPadOS 17](https://www.lifewire.com/ipados-17-news-and-rumors-7505923) . You get a focus on productivity and multitasking features to make it a more capable laptop replacement. You can run apps side-by-side, switch between multiple apps, and generally split the screen to work on two windows simultaneously. The Magic Keyboard features a full array of keyboard keys and a touchpad. It’s slightly cramped due to the size, but you can work on word processing without a problem once you get used to it. The Apple Pencil allows you to take handwritten notes and translate writing to text, making it particularly useful for students.
@@ -74,15 +84,13 @@ Samsung
  The Samsung Galaxy Tab S7+ comes running Android 10 out of the box with Samsung One UI 2.5 skin on top (upgradeable to[Android 13](https://www.lifewire.com/android-13-5216960) ). Like the iPad Air 4, the software is geared towards multitasking and productivity, focusing on turning the slate into a laptop replacement. Aside from running apps side-by-side, you can use[Samsung DeX](https://www.lifewire.com/what-is-samsung-dex-4176992) to put the Tab S7+ into desktop mode. This gives you a taskbar, program files, and draggable, overlapping application windows. This essentially gives you an experience similar to a Chromebook. Add in the Book Cover and S Pen for word processing and note-taking, and you get a tablet that genuinely can serve to replace your daily use laptop.
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Price
 
  Price is a huge factor for some people. Apple's 2020 iPad Air is around $200 cheaper than Samsung's Tab S7+. But when you consider that the base Galaxy Tab model comes with 128 GB of storage while the iPad Air only has 64 GB for that price and that the latter also has a higher refresh rate, the difference in cost makes a little more sense.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## Final Verdict
 
  Much of your choice between the iPad Air 4 and Samsung Galaxy Tab S7+ will come from the ecosystem you’re already in. Apple users will find adding the iPad Air 4 to their existing mix of devices easier, while Android users will find the Galaxy Tab S7+ to suit them better. Both tablets will do well at multitasking and productivity, though the Galaxy Tab S7+ has a slight edge due to DeX mode desktop experience. As for multimedia, the Tab S7+ wins out again due to its gorgeous HDR+ capable display and 120Hz refresh rate.
@@ -107,8 +115,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -116,4 +122,22 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-advanced-strategies-for-enhancing-vhs-images-digitally/"><u>[New] Advanced Strategies for Enhancing VHS Images Digitally</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/iscovering-the-hidden-gems-in-asmr-creation/"><u>[New] Discovering the Hidden Gems in ASMR Creation</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-can-you-create-animated-facebook-ads-with-high-roi-in-2024/"><u>[Updated] How Can You Create Animated Facebook Ads With High ROI, In 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722508713203-a-journey-back-in-time-with-nintendos-game-and-watch-the-enduring-appeal-of-super-mario-bros/"><u>A Journey Back in Time with Nintendo's Game & Watch: The Enduring Appeal of Super Mario Bros</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-digicams-2024s-best-finds/"><u>Affordable Digicams: 2024'S Best Finds</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/analyzing-the-design-and-functionality-of-the-sleek-asus-bw-16d1x-u-blu-ray-drive-the-good-the-bad-and-the-quirky/"><u>Analyzing the Design & Functionality of the Sleek Asus BW-16D1X-U Blu-Ray Drive - The Good, the Bad, and the Quirky</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/canons-elph-190-reliable-reasonably-priced/"><u>Canon's ELPH 190: Reliable, Reasonably Priced</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-escort-max-360-radar-detector-and-gps-device-in-depth-review/"><u>Comprehensive Escort Max 360 Radar Detector & GPS Device - In-Depth Review</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discover-the-ultimate-list-free-car-racing-games/"><u>Discover the Ultimate List: Free Car Racing Games</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/how-can-i-confirm-proper-functionality-of-my-graphics-card-tips-and-tools-by-yl-computing/"><u>How Can I Confirm Proper Functionality of My Graphics Card - Tips & Tools by YL Computing</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6s-plus-passcode-without-computer-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 6s Plus Passcode without Computer? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/resolving-update-issues-microsoft-flight-simulator-2020-freezing-during-installation/"><u>Resolving Update Issues: Microsoft Flight Simulator 2020 Freezing During Installation</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/transform-your-casual-gopro-footage-to-a-pro-level/"><u>Transform Your Casual Gopro Footage to a Pro Level</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-portable-kensun-air-compressor-review-a-solid-reliable-choice-for-on-the-go-repairs/"><u>Unveiling the Portable Kensun Air Compressor Review: A Solid, Reliable Choice for On-the-Go Repairs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/vonage-reviewed-still-a-front-runner-in-todays-voip-market/"><u>Vonage Reviewed - Still a Front Runner in Today's VoIP Market?</u></a></li>
+</ul></div>
 

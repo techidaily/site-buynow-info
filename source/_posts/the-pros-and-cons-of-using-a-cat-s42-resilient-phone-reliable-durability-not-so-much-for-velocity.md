@@ -1,7 +1,7 @@
 ---
 title: The Pros and Cons of Using a CAT S42 Resilient Phone - Reliable Durability, Not So Much for Velocity
-date: 2024-12-21T17:14:58.554Z
-updated: 2024-12-26T04:14:02.196Z
+date: 2025-01-03T07:49:28.794Z
+updated: 2025-01-04T00:48:00.618Z
 categories:
   - BestProducts
 description: This Article Describes The Pros and Cons of Using a CAT S42 Resilient Phone - Reliable Durability, Not So Much for Velocity
@@ -19,16 +19,12 @@ thumbnail: https://www.lifewire.com/thmb/6-p5ewDjPncMceqeBCrB17zrpa8=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## DBPOWER 600A Peak 18000mAh Portable Car Jump Starter
 
 ![600A Peak 18000mAh Portable Car Jump Starter](https://www.lifewire.com/thmb/zoSakt2DeEHvZbIU0RNWljw5x0A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DBPower_JumpStarter_5LW4140286_HeroSquare-4defda07335a4d7bafb41bb20cacee2f.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -51,10 +47,6 @@ thumbnail: https://www.lifewire.com/thmb/6-p5ewDjPncMceqeBCrB17zrpa8=/400x300/fi
 [View On EBay](https://www.ebay.com/p/1372623471)
 
 4.1
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## DBPOWER 600A Peak 18000mAh Portable Car Jump Starter
 
@@ -84,7 +76,7 @@ thumbnail: https://www.lifewire.com/thmb/6-p5ewDjPncMceqeBCrB17zrpa8=/400x300/fi
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: A rugged brick of power contained within its own nice case**
@@ -114,7 +106,7 @@ It's a breeze using the 600A to jump start a car.
  Charging USB devices is not only simple but fast as well, with a sustained 1,200 mAh current. This level of charging will top off your devices in a hurry, and with 18,000 mAh capacity the unit should be able to charge a phone like the Samsung Galaxy S10 five times over. Be aware that if your phone uses a USB-C or Thunderbolt connection you’ll need to provide your own cable.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Key Features: A decent flashlight and, oddly, a compass**
@@ -133,6 +125,10 @@ It packs a ton of value into its diminutive size.
 
  You can find this model available online for between $70 and $75, and at that price point it packs a ton of value into its diminutive size. There are other units that are a little less expensive, but generally at the expense of some features or included accessories.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Competition: Splitting hairs on what features matter most to you**
 
 **_Beatit BT-D11:_** The two units are so similar in their design and production that it really boils down to one question: How important is charging your laptop to you? If it’s worth the extra $10, stick with the DBPOWER 600A. If not, you can pick up the Beatit BT-D11 for a bit less money and otherwise get a strikingly similar unit.
@@ -146,6 +142,10 @@ It packs a ton of value into its diminutive size.
 **A lot of features in a dependable package.**
 
  It’s worth looking at other jump starters to see what they offer, but the DBPOWER 600A Peak 18000mAh Portable Car Jump Starter does everything that it's designed for quite well, is reliable and durable, and comes in a semi-hard case that you can easily stash in just about any vehicle.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -178,15 +178,22 @@ It packs a ton of value into its diminutive size.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-from-novice-to-expert-navigating-telegram-web/"><u>[Updated] 2024 Approved From Novice to Expert Navigating Telegram Web</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-adding-pizzazz-to-your-footage-with-moving-text/"><u>[Updated] In 2024, Adding Pizzazz to Your Footage with Moving Text</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-7-must-have-metaverse-devices-you-need-to-prepare/"><u>2024 Approved 7 Must-Have Metaverse Devices You Need to Prepare</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/crucial-aspects-to-review-prior-to-acquiring-secondhand-ipads/"><u>Crucial Aspects to Review Prior to Acquiring Secondhand iPads</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor Magic 6 Lite | Dr.fone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-ultimate-photo-perfection-discover-our-6-best-background-erasers/"><u>In 2024, Ultimate Photo Perfection – Discover Our 6 Best Background Erasers</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Motorola Moto G24? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-artistry-behind-rayman-legends-exceptional-2d-platform-gaming-unleashed/"><u>The Artistry Behind Rayman Legends - Exceptional 2D Platform Gaming Unleashed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tp-link-archer-c50-unveiled-top-value-for-money-in-wifi-routers-reviewed/"><u>TP-Link Archer C50 Unveiled: Top Value for Money in WiFi Routers Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-excellence-detailed-insights-into-the-smart-design-of-the-samsung-galaxy-watch/"><u>Unveiling the Excellence: Detailed Insights Into the Smart Design of the Samsung Galaxy Watch</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-mastering-the-art-of-preserving-playstation-4-gaming-history-for-2024/"><u>[New] Mastering the Art of Preserving PlayStation 4 Gaming History for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-winning-over-brands-in-the-world-of-youtube-sponsorships/"><u>[Updated] 2024 Approved Winning Over Brands in the World of YouTube Sponsorships</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-srt-transition-subbed-content-conversion-strategies-for-2024/"><u>[Updated] SRT Transition Subbed Content Conversion Strategies for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-camera-restored-obs-problem-fixed/"><u>2024 Approved Camera Restored - OBS Problem Fixed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/analyzing-moto-gs-stylus-edition-solid-execution-sufficient-energy-life-and-handwriting-interface-innovation/"><u>Analyzing Moto G's Stylus Edition: Solid Execution, Sufficient Energy Life & Handwriting Interface Innovation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bargain-priced-dual-arm-cheetah-clamp-reviewed/"><u>Bargain-Priced Dual Arm Cheetah Clamp Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-netgear-nighthawk-rax80-the-ultimate-wi-fi-6-experience/"><u>Comprehensive Review of the Netgear Nighthawk RAX80: The Ultimate Wi-Fi 6 Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/crystal-sound-performance-of-midland-gxt1000vp4-tested-and-reviewed-for-professionals/"><u>Crystal Sound Performance of Midland GXT1000VP4 Tested and Reviewed for Professionals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/deciphering-the-enigma-a-look-at-the-balancing-act-between-cost-and-character-in-the-microsoft-surface-go/"><u>Deciphering the Enigma: A Look at the Balancing Act Between Cost and Character in the Microsoft Surface Go</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/essential-strategies-for-elevating-your-imac-performance-with-intel-upgrades/"><u>Essential Strategies for Elevating Your iMac Performance with Intel Upgrades</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-benefits-of-owning-an-affordable-kindle-insights-into-the-2019-amazon-kindle-model/"><u>Explore the Benefits of Owning an Affordable Kindle: Insights Into the 2019 Amazon Kindle Model</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-premier-e-learning-platforms-for-coding/"><u>Exploring the Premier E-Learning Platforms for Coding</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/extended-assurance-intel-adds-extra-years-to-chip-warranties-on-gen-13-and-14-processors-due-to-performance-issues/"><u>Extended Assurance: Intel Adds Extra Year(s) to Chip Warranties on Gen 13 and 14 Processors Due to Performance Issues</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-comparing-the-gopro-max-360-and-hero-11-determining-the-superior-gopro-video-camera/"><u>In 2024, Comparing the GoPro Max 360 and Hero 11 Determining the Superior GoPro Video Camera</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-lenovo-thinkphone-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Lenovo ThinkPhone to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-get-rid-of-filmora-watermark-with-and-without-subscription-for-2024/"><u>New Get Rid of Filmora Watermark With and Without Subscription for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/egies-to-arrange-content-in-youtube-media-for-2024/"><u>Strategies to Arrange Content in YouTube Media for 2024</u></a></li>
 </ul></div>
 

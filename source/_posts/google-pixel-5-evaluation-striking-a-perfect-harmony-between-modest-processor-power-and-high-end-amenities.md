@@ -1,7 +1,7 @@
 ---
 title: "Google Pixel #5 Evaluation: Striking a Perfect Harmony Between Modest Processor Power and High-End Amenities"
-date: 2024-08-19T16:27:03.807Z
-updated: 2024-08-20T16:27:03.807Z
+date: 2024-12-27T18:00:41.929Z
+updated: 2025-01-04T04:05:57.174Z
 categories:
   - BestProducts
 description: "This Article Describes Google Pixel #5 Evaluation: Striking a Perfect Harmony Between Modest Processor Power and High-End Amenities"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/0d6a66026bc293d990118e0e33da7d0a3d5bf37cd
 ## Boost Your Health Journey: Experience a New Level of Motivation and Tracking with the Fitbit Versa S 3, Featuring Inbuilt GPS Technology and Fitness Applications
 
 4.8
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fitbit Versa 3
 
@@ -70,10 +74,6 @@ thumbnail: https://thmb.techidaily.com/0d6a66026bc293d990118e0e33da7d0a3d5bf37cd
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Design: Sleek and smart-looking
 
  The Fitbit Versa 3 resembles prior versions of the model, though with softer and more rounded edges meant to better contour to the wrist and offer faster response times, according to[Fitbit](https://www.lifewire.com/what-is-fitbit-4176010) . While the standard model that I tested came with a silicone infinity sport band, there are several fancier watch bands available, including a quick-release band—if you opt for a special edition. This would certainly be preferable to the basic black version I tested, which really does look like a sports watch rather than a “regular” watch.
@@ -84,6 +84,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  This smartwatch is capable of storing five different watch faces, and while they’re easy to find, downloading a new face, just like all apps—took quite a while. The SPO2 watch face is compatible with the Versa 3, but you’ll have to pay for the Fitbit Premium app subscription to access this data in any meaningful way.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Comfort: Lightweight for all-day wear
 
  I found the Fitbit Versa 3 to be pleasantly lightweight and easy to wear for the whole day. Sleeping with it was never an issue, and the sleep mode setting was easy to turn on for uninterrupted sleep. Showering with the device was also uneventful, though I found that the side button was somehow turned on by contact with the water. I’m not sure how this bodes for swimming workouts with this device, which it’s supposed to be able to handle with its 50-meter water resistance.
@@ -92,14 +96,8 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![Fitbit Versa 3](https://www.lifewire.com/thmb/R_j7dFFwnlWoGyar6N0dYZREqIM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Versa-3-02-8b212782c0f245459f26ffaa0e2982e2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Performance: Accuracy slightly questionable
 
  In true Fitbit brand fashion, the Fitbit Versa 3 supports wellness in a big-picture way. There are over 20 different workout modes and several, such as running, elliptical exercise, swimming, biking, and aerobic workouts, are automatically detected.
@@ -112,27 +110,18 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![Fitbit Versa 3](https://www.lifewire.com/thmb/XaHqGkkkpkk1u4lozEYs71XuROc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Versa-3-05-95e58759793b422db3ebd22cf177f2ba.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Battery: Lasts for a solid six days
 
  Like the Fitbit Sense, the Fitbit Versa 3 is supposed to last for over six days on a single charge when the display is not set to “always on.” My experience yielded six days before the battery was critically low. This could be because I chose to download and use the Fitbit SPO2 watch face that measures blood oxygen saturation. Fitbit says this face could accelerate the need for charging. Otherwise, I used[GPS](https://www.lifewire.com/what-is-gps-how-it-works-4688647) for about 30 minutes each day and only streamed music via Spotify for 2 hours total.
 
  It charged from critically low to 100 percent in about 1.25 hours, which is in line with the 1-2 hour estimation by the manufacturer. A quick charge brought the device from 9 percent to 29 percent, which tracks with the claim that a 12-minute charge would bring it up to a full day of battery life.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Software/Key Features: Wellness and convenience features reign
 
  The Fitbit Versa 3 runs on the Fitbit OS and benefits from several upgrades. The latest smart features include a built-in speaker and microphone, which Android users can use to respond to phone calls along with sending replies and emojis when the phone is nearby. Sadly, iPhone users can only answer or reject calls and view notifications.
@@ -149,7 +138,15 @@ No advertising on the website.
 
 ![Fitbit Versa 3](https://www.lifewire.com/thmb/2f-G8JEK0Z63WAJEd2yrsI_9jDg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Versa-3-03-00c26852cbc94711a4bb6660b02e2550.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Price: Less costly than similar models
 
@@ -173,6 +170,10 @@ No advertising on the website.
 
  The Fitbit Versa 3 is a lightweight wearable that offers an attractive blend of fitness and wellness-tracking tools and connected features. New on-device GPS, enhanced heart-rate monitoring, music controls, and the companion app could provide some users an easy deep dive into wellness trends along with desirable customization power. Those looking for added motivation to stay active may find it in this comfortable and capable wearable.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Versa 3
@@ -184,14 +185,11 @@ No advertising on the website.
 * Product Dimensions  1.59 x 1.59 x 0.49 in.
 * Color  Black/Black Aluminum, Midnight/Soft Gold Aluminum, Olive / Soft Gold Aluminum, Pink Clay/Soft Gold Aluminum, Thistle / Soft Gold Aluminum
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -200,4 +198,26 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-craft-stellar-youtube-thumbnails-with-these-8-software-alternatives/"><u>[New] 2024 Approved Craft Stellar YouTube Thumbnails with These 8 Software Alternatives</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-full-screen-mastery-for-premier-pro-users/"><u>2024 Approved Full Screen Mastery for Premier Pro Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/7-must-haves-in-a-youtube-premium-experience/"><u>7 Must-Haves in a YouTube Premium Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-closer-look-at-lenovos-groundbreaking-x1-fold-amazing-concept-room-for-improvement/"><u>A Closer Look at Lenovo's Groundbreaking X1 Fold: Amazing Concept, Room for Improvement</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-protection-in-depth-review-of-the-procase-macbook-pro-13-laptop-sleeve/"><u>Affordable Protection: In-Depth Review of the ProCase MacBook Pro 13 Laptop Sleeve</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/are-airpods-max-worth-the-investment/"><u>Are AirPods Max Worth the Investment?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bright-ideas-versatile-lights-the-spk10-037-experience/"><u>Bright Ideas, Versatile Lights - The SPK10-037 Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-the-differences-google-nest-audio-vs-nest-mini/"><u>Comparing the Differences: Google Nest Audio Vs. Nest Mini</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-wifi-routers-can-tp-link-archer-ax6000-outperform-the-netgeek-nighthawk-ax12/"><u>Comparing WiFi Routers: Can TP-Link Archer AX6000 Outperform the Netgeek Nighthawk AX12?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722580773194-displacement-pumps-can-handle-sensitive-or-abrasive-materials-with-minimal-shear-stress/"><u>Displacement Pumps Can Handle Sensitive or Abrasive Materials with Minimal Shear Stress</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-vivo-y78plus-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Vivo Y78+ to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-nokia-c12-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Nokia C12 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-oppo-f25-pro-5g-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Oppo F25 Pro 5G</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-maximizing-obs-broadcasts-to-facebook-feed/"><u>In 2024, Maximizing OBS Broadcasts to Facebook Feed</u></a></li>
+<li><a href="https://driver-install.techidaily.com/quick-path-for-nvidia-driver-recollection/"><u>Quick Path for NVIDIA Driver Recollection</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Samsung Galaxy A23 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/swift-windows-checkup-guide-explanatory-for-2024/"><u>Swift Windows Checkup Guide Explanatory for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/wireless-audio-experience-with-m06-model-robust-link/"><u>Wireless Audio Experience with M06 Model: Robust Link</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/your-ultimate-source-for-tech-comparisons-tomgearreview/"><u>Your Ultimate Source for Tech Comparisons - TomGearReview</u></a></li>
+</ul></div>
 

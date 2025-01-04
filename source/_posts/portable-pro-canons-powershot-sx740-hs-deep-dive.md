@@ -1,7 +1,7 @@
 ---
 title: "Portable Pro: Canon's PowerShot SX740 HS Deep Dive"
-date: 2024-08-19T16:27:58.552Z
-updated: 2024-08-20T16:27:58.552Z
+date: 2024-12-31T07:40:29.947Z
+updated: 2025-01-04T07:43:54.491Z
 categories:
   - BestProducts
 description: "This Article Describes Portable Pro: Canon's PowerShot SX740 HS Deep Dive"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/0dd6482f07fc9901f47c9f1a7353b186913c8692e
 ## Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner
 
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/1WEpNEg3uu2Ow7DpqhXyGzVO8Pw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_HeroSquare-191df3b949f947dc9398373d6f610c19.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Scott Gercken
 
@@ -37,9 +41,17 @@ Lifewire / Scott Gercken
 
 4.4
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner
 
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/0KtwvTBY-2P8KkZ_aO3Di4x-41c=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_HeroSquare-191df3b949f947dc9398373d6f610c19.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Scott Gercken
 
@@ -79,9 +91,6 @@ Lifewire / Scott Gercken
 
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/LB5BA5cM1cVQB_sK6BgcOEl3l9k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_02-60d78cf22bf04b52979d5f65437a35e8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Scott Gercken
 
 ## **Setup Process: So easy**
@@ -90,17 +99,14 @@ Lifewire / Scott Gercken
 
  The BDR-XS06 also comes with a copy of Roxio Toast Lite. We inserted the installation disc into the BDR-XS06 to get the process started. When the drive mounted the disc, it showed a window with the application and an alias for the applications folder. Installation was as easy as dragging the icon to our applications folder. When we opened the app, the only setup step was registration, and then we were ready to go.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ## **Compatibility: Works right out of the box**
 
  Even without the software, the BDR-XS06 worked right away. This model works right out of the box with both Windows and MacOS with little to no additional fuss. It’s one of the most plug-and-play burners we’ve tested.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: As advertised**
 
  Like most Blu-ray burners, the BDR-XS06 slows down its read speed when you put in a movie or audio disc. That keeps the noise level low for those media. When it reads data discs, however, the speed picks up, which means more noise. The noise while installing Roxio Toast Lite got to an annoyingly loud level. It might not be too much in a busy office, but it was surprising in the quiet room where we tested it.
@@ -111,19 +117,12 @@ It’s one of the most plug-and-play burners we’ve tested.
 
 ![Pioneer BDR-XS06](https://www.lifewire.com/thmb/hYWwVcK8E-FSog7TpOTOgE-hYnY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW832423_03-df0bfb492ead4e86a35df19618bcd5d4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
  Lifewire / Scott Gercken
 
 ## **Image Quality: Decent quality for an optical drive**
 
  While Blu-ray burners and[optical drives](https://www.lifewire.com/what-is-an-optical-disc-drive-2618157) aren’t exactly designed to play movies, we tried it anyway. We used a free Blu-ray player for Mac, and the picture was pretty good. On the Mac, it was sharp, almost as good as a[Blu-ray player](https://www.lifewire.com/best-blu-ray-players-1846400) designed for the TV. Next, we connected an HDMI cable to the Mac to see what it would look like on an[HDTV](https://www.lifewire.com/best-tvs-to-buy-4061107) . It wasn’t as good as on the computer, but it wasn’t bad either. The TV reported that the resolution was 768p at 60hz, not as good as a Blu-ray player built for that purpose, but better than SD.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Sound Quality: Blu-ray quality sound**
 
  While many people rave about[HD](https://www.lifewire.com/what-you-need-to-see-hd-1847338) image quality, we think that the depth of sound is the most exciting feature of the Blu-ray format. When you get all the high-end and low-end sound, it feels more immersive, and the Pioneer BDR-XS06 Slot Loading Portable Blu-ray Burner delivered the audio quality you’d expect from a Blu-ray. If you don’t mind the reduction in image quality vs. a dedicated player, the BDR-XS06 could double as a Blu-ray player for your PC or TV.
@@ -138,13 +137,14 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  That extra durability is worth the slightly higher cost than this drive’s competitors.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Good value for the speed and portability**
 
  For the price, it delivers strong performance and portability. At an MSRP of $120, the BDR-XS06 is a little more expensive than some of its competition, but it feels more solid than even Pioneer’s own models in this price range. That extra durability is worth the slightly higher cost than this drive’s competitors.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: A step ahead**
 
 **_Pioneer BDR-XD05B 6x Slim Portable USB 3.0 Blu-ray Burner_ :** The Pioneer BDR-XD05B is Pioneer’s new model of external Blu-ray burners. It has a clamshell case, which means the top pops open so you can place the Blu-ray into the drive. The drive is black and a smudge magnet, and it also doesn’t feel as sturdy as the Pioneer BDR-XS06\. In general, we prefer the BDR-XS06 for its sturdy, smudge-free design, but the BDR-XD05B is a fine choice if your main concern is price.
@@ -169,6 +169,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * [Asus BW-16D1X-U Blu-ray Drive](https://www.lifewire.com/asus-bw-16d1x-u-blu-ray-drive-review-4774686)
 * [NAVISKAUTO 12" Portable DVD Player](https://www.lifewire.com/naviskauto-12-portable-dvd-player-review-4691953)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  BDR-XS06 Slot Loading Portable Blu-ray Burner
@@ -186,14 +190,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * Warranty  1 year
 * Color options  Silver
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -202,4 +203,23 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-perfecting-video-segmentation-for-enhanced-viewing-experience-on-youtube/"><u>[New] Perfecting Video Segmentation for Enhanced Viewing Experience on YouTube</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-invigorate-clips-with-top-winter-backdrop-choices/"><u>2024 Approved Invigorate Clips with Top Winter Backdrop Choices</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/4-effective-methods-fake-gps-location-on-apple-iphone-15ipad-drfone-by-drfone-virtual-ios/"><u>4 Effective Methods Fake GPS Location on Apple iPhone 15/iPad | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-mobile-device-iphone-or-samsung-galaxy-for-your-next-purchase/"><u>Best Mobile Device : IPhone or Samsung Galaxy for Your Next Purchase?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boosting-your-pcs-visual-power-graphics-card-upgrades/"><u>Boosting Your PC's Visual Power: Graphics Card Upgrades</u></a></li>
+<li><a href="https://win-top.techidaily.com/enhanced-text-editing-with-emeditor-pro-800-beta-version/"><u>Enhanced Text Editing with EmEditor Pro 8.00 Beta Version</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-vivo-y36i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Vivo Y36i | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Realme 12 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-mobvoi-ticwatch-pro-3-with-gps-and-dual-screens-a-game-changer-for-battery-efficiency/"><u>In-Depth Analysis of Mobvoi TicWatch Pro 3 with GPS and Dual Screens – A Game Changer for Battery Efficiency</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/m1-revolution-unveiling-apples-2020-macbook-pro-13-inch-transformation/"><u>M1 Revolution: Unveiling Apple's 2020 MacBook Pro 13-Inch Transformation</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-itel-p55-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Itel P55 Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-faceoff-how-the-iphone-15-pro-stacks-up-to-the-pro-max/"><u>The Ultimate Faceoff: How the iPhone 15 Pro Stacks Up to the Pro Max</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-portable-energy-givers-for-cars-2024/"><u>Top Portable Energy Givers for Cars 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-step-by-step-imac-intel-hardware-upgrade-tips-and-tricks/"><u>Ultimate Step-by-Step iMac (Intel) Hardware Upgrade Tips and Tricks</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/update-your-canon-mg2520-on-windows-free-software-download-and-how-to/"><u>Update Your Canon MG2520 on Windows - Free Software Download & How-To</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Infinix Note 30 Pro? | Dr.fone</u></a></li>
+</ul></div>
 

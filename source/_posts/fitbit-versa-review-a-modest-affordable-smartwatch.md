@@ -1,7 +1,7 @@
 ---
 title: "Fitbit Versa Review: A Modest, Affordable Smartwatch"
-date: 2024-08-11T00:18:22.246Z
-updated: 2024-08-12T00:18:22.246Z
+date: 2024-12-27T18:56:28.666Z
+updated: 2025-01-04T02:18:14.020Z
 categories:
   - BestProducts
 description: "This Article Describes Fitbit Versa Review: A Modest, Affordable Smartwatch"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/50ec9f96a3862eafb44f6037d6d07d4292a04cc1b
 
 4
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ## Beantech Bitwatch S1 Plus
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/JogmBSjTGQl_gqbjuX8prgeJJPA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
@@ -39,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/50ec9f96a3862eafb44f6037d6d07d4292a04cc1b
 [View On Amazon](https://www.amazon.com/Bit-Android-phones-Storage-leather/dp/B071VZMBH9/?tag=lifewire-onsite-prod-20&ascsubtag=4773105%7Cn9405fb50cb804e70a7f30ec502e40d9b21%7CB071VZMBH9)
 
 4
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Beantech Bitwatch S1 Plus
 
@@ -65,9 +66,6 @@ thumbnail: https://thmb.techidaily.com/50ec9f96a3862eafb44f6037d6d07d4292a04cc1b
 
  The Beantech Bitwatch S1 Plus is an interesting proposition. For only $50, it promises to provide heart rate monitoring, music storage, call management, voice control, and remote notifications. For the most part, it delivers. The Bitwatch has its share of design flaws, such as a poorly fitted watch strap and an iOS-only voice app, but it performs enough to be a reasonable consideration for those looking for their first smartwatch.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/8rMhc1Lk5yFRFW4Zlt2K9cmPdFo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-4-01d7e5ff51aa47008d803513064f4a7a.jpg)
 
  Lifewire / Emily Ramirez
@@ -83,15 +81,13 @@ thumbnail: https://thmb.techidaily.com/50ec9f96a3862eafb44f6037d6d07d4292a04cc1b
  While it doesn’t have[NFC](https://www.lifewire.com/what-is-nfc-832715) or GPS, it does have a speaker, and you can send basic messages with the watch. The Bitwatch S1 is surprisingly robust for those who want to dip their toes into the smartwatch experience, with many of the features that mid-tier smartwatches possess.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup Process: Easy, but unexplained**
 
  Setting up the Bitwatch works as you’d expect. Pair it via the Bluetooth on your phone and download the Beantech app. It works with both Android and iOS, so you should have no difficulty. Alerts will show up in the remote notifier app, and apps such as the calendar are not synced with your phone’s calendar apps, so keep that in mind if you’d like to add any events, notifications, or alarms to your watch.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/O7xHfA9sKsBdC0nmqNXbFky-Dm4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-2-3b838f1124184bbd9452b79bb8449c2b.jpg)
 
  Lifewire / Emily Ramirez
@@ -108,24 +104,30 @@ thumbnail: https://thmb.techidaily.com/50ec9f96a3862eafb44f6037d6d07d4292a04cc1b
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/7GtX2IU-w4sJA-BTqQtHQThxaJo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-3-ade31135cd9d4fe0b6b01286941d2652.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Battery: It last longer than most flagship smartwatches**
 
  The battery life on the Bitwatch is excellent. With regular usage (GPS, heart rate, Bluetooth all on), we got between two and three days of use before we had to recharge. Charging is a little annoying, though, since it uses a snapping charger base that’s difficult to remove.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Reasonable, but worth paying more**
 
  The Bitwatch costs about $50, which is reasonable for its features and performance. You get reliable notifications and a passable heart rate monitor, as well as some basic functions like alarms and a speaker. If you want a cheap smartwatch, then the Bitwatch isn’t a bad pick, but $30 more can get you GPS and smarter notifications. If you are after a solid fitness tracker, both Garmin and[Fitbit](https://www.lifewire.com/what-is-fitbit-4176010) have[fantastic wearables](https://www.lifewire.com/phone-accessory-reviews-4102587) for under $100.
 
  The Beantech Bitwatch is not a groundbreaking smartwatch, but it provides a lot of essential features for $50.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: If you want more, it will cost more**
 
  For a budget smartwatch, the Bitwatch packs a lot of features. However, it suffers in reliability and style, which may turn users off from the smartwatch market altogether. For a little more money, you can get the Amazfit Bip_,_ a sleek smartwatch from Huami that has a thirty-day battery life, fitness tracking, onboard GPS, and notifications. If you’re looking to get something very cheap to try out the smartwatch lifestyle, you should also look at the Padgene DZ09 Smart Watch, which is only $15 and has a lot of the features on the Bitwatch.
@@ -138,9 +140,6 @@ thumbnail: https://thmb.techidaily.com/50ec9f96a3862eafb44f6037d6d07d4292a04cc1b
 
  The Beantech Bitwatch is not a groundbreaking smartwatch, but it provides a lot of essential features for $50\. If you’re looking to try out smartwatches, the Bitwatch will give you a solid battery life, music storage, passive notifications, phone call management, and a very large touchscreen.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Bitwatch S1 Plus
@@ -155,14 +154,11 @@ thumbnail: https://thmb.techidaily.com/50ec9f96a3862eafb44f6037d6d07d4292a04cc1b
 * Battery Capacity  Unknown; 2 days in field testing
 * Waterproof  No
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -171,4 +167,16 @@ thumbnail: https://thmb.techidaily.com/50ec9f96a3862eafb44f6037d6d07d4292a04cc1b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-essential-steps-in-making-impactful-fb-cover-videos/"><u>2024 Approved Essential Steps in Making Impactful FB Cover Videos</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-insightful-illustration-how-to-record-and-preserve-your-playthroughs-in-roblox-using-macos/"><u>2024 Approved Insightful Illustration How to Record & Preserve Your Playthroughs in Roblox Using MacOS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-new-era-of-computing-the-impacts-and-performance-of-the-2020-apple-macbook-pro-m1-13-reviewed/"><u>A New Era of Computing: The Impacts & Performance of the 2020 Apple MacBook Pro (M1, 13) Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-quantum-leap-for-laptops-the-2020-apple-macbook-pro-with-m1-chip-comprehensive-review-and-verdict/"><u>A Quantum Leap for Laptops: The 2020 Apple MacBook Pro with M1 Chip – Comprehensive Review and Verdict</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-flight-experience-with-the-syma-x5c-remote-controlled-quadcopter-a-detailed-analysis/"><u>Affordable Flight Experience with the SYMA X5C Remote Controlled Quadcopter - A Detailed Analysis</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/comprehensive-guide-to-audiovisual-transmitters/"><u>Comprehensive Guide to Audiovisual Transmitters</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-concept-to-completion-the-artisans-guide-to-gifs/"><u>In 2024, From Concept to Completion The Artisan's Guide to GIFs</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-incredible-analysis-and-backup-recommendations/"><u>In 2024, Incredible Analysis & Backup Recommendations</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-benefits-of-the-acer-chromebook-cuisine-such-as-grilled-salmon-or-roast-beef-for-desserts-fresh-berries-and-fruit-tarts-would-suit-the-theme-y74/"><u>Unveiling the Benefits of the Acer Chromebook Cuisine, Such as Grilled Salmon or Roast Beef. For Desserts, Fresh Berries and Fruit Tarts Would Suit the Theme. You Can Also Serve a Crisp White Wine Like Sauvignon Blanc to Complement the Fish Dishes.</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Razer Book 13 Evaluation: Maximizing Performance in a Portable Package"
-date: 2024-12-24T06:43:54.057Z
-updated: 2024-12-25T21:30:27.095Z
+date: 2024-12-28T19:16:30.353Z
+updated: 2025-01-04T13:47:54.570Z
 categories:
   - BestProducts
 description: "This Article Describes Razer Book 13 Evaluation: Maximizing Performance in a Portable Package"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/8398659134dc24374c71d0ed649ae9e802ceefac0
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Halo Bolt Portable Charger/Jump Starter
 
@@ -48,9 +44,17 @@ Lifewire / Andrew Hayward
 
 3.7
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Halo Bolt Portable Charger/Jump Starter
 
 ![Halo Bolt Portable Charger/Jump Starter](https://www.lifewire.com/thmb/wNeN4Rq5GyM9MuDOzyg5QlRT-U4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-HeroSquare-889ebc2fc6b54573a26c09cabb34bd5c.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andrew Hayward
 
@@ -70,6 +74,10 @@ Lifewire / Andrew Hayward
 
  Granted, it doesn’t pack as much power as some dedicated laptop chargers, which may be a better option for that need. Still, the added versatility gives the Halo Bolt a unique edge in the market. I tested the Halo Bolt for a week with multiple devices, including laptops and smartphones.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: The shiny brick**
 
  While certainly portable, the Halo Bolt isn’t designed to be pocket-friendly. This big brick of a battery pack comes in at 7.2 x 1.6 x 3.8 inches (HWD) with a weight of more than 1.5 pounds. Smaller, cheaper battery packs are available for smartphones, but this beast is made for heavier-duty needs and is designed accordingly.
@@ -84,10 +92,6 @@ Lifewire / Andrew Hayward
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/nYYltjJN71EGK1Dwv2_XABixuhs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-04-85b590a9939a4f44b0c7a510a456b80f.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 ## **Setup Process: Load it up**
@@ -99,7 +103,7 @@ Lifewire / Andrew Hayward
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/mUdXUjWxeupVqNR_y43_eFTC0ic=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-02-69b93dc934684ef5b71a40215f6162f2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -120,19 +124,11 @@ Lifewire / Andrew Hayward
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/MNFqifirQ0sn61GPO1e-bLQ1t8s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-06-8bc3449bd35243aaaf67272c1d3774a6-bc803e0a114b4116adf3078af6a2de00.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Andrew Hayward
 
 ## **Price: It’s priced right**
 
  For a jack-of-all-trades power brick that can jump-start your car and charge its battery, serve as a bright flashlight for roadside emergencies, and charge a wide array of portable devices, the $100 price seen on Amazon looks pretty reasonable. However, given that it couldn’t charge my laptop to total capacity and lacks a USB-C port, handier, higher-capacity charging bricks are available specifically for laptop and smartphone charging needs.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Halo Bolt ACDC 58830 vs. ZMI PowerPack 20000**
 
@@ -145,6 +141,10 @@ Lifewire / Andrew Hayward
  **Final Verdict: A convenient backup battery and jump starter.**
 
  The Halo Bolt isn’t the best option for charging laptops, but it is a solid all-around device for providing backup power to a broader array of gadgets, not to mention jump-starting a car. This versatile device is smart to have around if you drive a car and are frequently mobile with your portable gadgets. I wouldn’t bring it with me on vacation, but it could prove useful before long as a backup device to keep handy.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -172,18 +172,16 @@ Lifewire / Andrew Hayward
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-channel-expansion-at-wallet-friendly-costs/"><u>[Updated] In 2024, Channel Expansion at Wallet-Friendly Costs</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-monthly-income-patterns-for-content-creators/"><u>[Updated] Monthly Income Patterns for Content Creators</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/barnes-and-nobles-latest-e-ink-marvel-a-detailed-look-at-the-nook-glowlight-ebook-reader/"><u>Barnes & Noble's Latest E-Ink Marvel - A Detailed Look at the Nook GlowLight eBook Reader</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/eliminating-noise-in-photos-using-photopeas-tools/"><u>Eliminating Noise in Photos Using Photopea's Tools</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-nokia-c12-plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Nokia C12 Plus | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-samsungs-vision-innovations-in-image-editor-software/"><u>In 2024, Samsung’s Vision Innovations in Image Editor Software</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-lenovo-ideapad-320-where-sophistication-meets-portability-and-legendary-keyboard-design/"><u>In-Depth Analysis of the Lenovo Ideapad 320: Where Sophistication Meets Portability & Legendary Keyboard Design</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-comparison-ring-vs-nest-for-intelligent-entryway-solutions/"><u>In-Depth Comparison: Ring Vs. Nest for Intelligent Entryway Solutions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mobvoi-ticwatch-e2-review-cheap-but-not-a-good-deal/"><u>Mobvoi TicWatch E2 Review: Cheap, But Not a Good Deal</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reviewing-bose-headphones-the-durable-sturdy-option/"><u>Reviewing Bose Headphones: The Durable, Sturdy Option</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/score-a-steal-on-black-friday-with-the-lenovo-flex-3-chromebook-for-just-99-beat-cyber-monday-hype-now/"><u>Score a Steal on Black Friday with the Lenovo Flex 3 Chromebook for Just $99 - Beat Cyber Monday Hype Now!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-2019-apple-ipad-air-unveiled-perfect-for-all-your-media-needs/"><u>The 2019 Apple iPad Air Unveiled: Perfect for All Your Media Needs!</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/unveiling-the-steps-a-guide-to-accessing-your-pcs-control-panel-inspired-by-yl-computing/"><u>Unveiling the Steps: A Guide to Accessing Your PC's Control Panel - Inspired by YL Computing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-pulse-picking-playbacks-character-beats-unveiled/"><u>[New] In 2024, Pulse-Picking Playbacks Character Beats Unveiled</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-efficient-steps-recording-on-apples-ipad/"><u>[Updated] 2024 Approved Efficient Steps Recording on Apple's iPad</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-enhancing-iphone-shots-the-live-photo-method-for-2024/"><u>[Updated] Enhancing iPhone Shots The Live Photo Method for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/31-maximizing-email-potential-with-chatgpt-and-inbox-summarizers/"><u>31 Maximizing Email Potential with ChatGPT & Inbox Summarizers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-linksyss-wrt3200acm-a-benchmark-for-open-source-routers/"><u>Comprehensive Analysis of Linksys's WRT3200ACM – A Benchmark for Open-Source Routers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-asus-bw-16d1x-u-blu-ray-writer-aesthetically-pleasing-with-minor-imperfections/"><u>Comprehensive Evaluation of the Asus BW-16D1X-U Blu-Ray Writer: Aesthetically Pleasing with Minor Imperfections</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-tp-link-av200n-powerline-adapter-top-velocity-yet-lackluster-design-choices/"><u>Comprehensive Review of TP-Link AV200n Powerline Adapter: Top Velocity Yet Lackluster Design Choices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-how-the-sumind-bt70b-enhances-your-cars-audio-experience-with-bluetooth/"><u>Comprehensive Review: How the Sumind BT70B Enhances Your Car's Audio Experience with Bluetooth</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/heartwarming-encounter-why-an-apple-store-workers-insights-turned-me-into-a-vision-pro-advocate/"><u>Heartwarming Encounter: Why an Apple Store Worker's Insights Turned Me Into a Vision Pro Advocate</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-essential-guide-to-fitbit-inspire-hr-your-reliable-partner-for-non-stop-health-monitoring/"><u>The Essential Guide to Fitbit Inspire HR: Your Reliable Partner for Non-Stop Health Monitoring</u></a></li>
 </ul></div>
 

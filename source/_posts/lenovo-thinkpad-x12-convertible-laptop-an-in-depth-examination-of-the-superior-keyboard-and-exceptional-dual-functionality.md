@@ -1,7 +1,7 @@
 ---
 title: Lenovo ThinkPad X12 Convertible Laptop - An In-Depth Examination of the Superior Keyboard and Exceptional Dual Functionality
-date: 2024-12-20T01:40:18.123Z
-updated: 2024-12-25T19:11:54.172Z
+date: 2024-12-30T04:56:00.409Z
+updated: 2025-01-04T10:14:28.172Z
 categories:
   - BestProducts
 description: This Article Describes Lenovo ThinkPad X12 Convertible Laptop - An In-Depth Examination of the Superior Keyboard and Exceptional Dual Functionality
@@ -22,10 +22,6 @@ thumbnail: https://www.lifewire.com/thmb/M7cbcf9RaLnWFD_BZCSTd_n3AbI=/400x300/fi
 
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/OL3QdFJ2E8lLE0w3IGyxR-rAD4Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Danny Chadwick
 
  What We Like
@@ -45,13 +41,13 @@ Lifewire / Danny Chadwick
 
 4.5
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Z-Edge Z3 Plus Dashcam
 
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/sE7fZzxcPjZXohzroVqLVr5l4qs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
 
@@ -104,6 +100,10 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Super straightforward**
 
  If you’re even passingly familiar with digital cameras, you can have the Z3 Plus set up and ready to go within a few minutes of taking it out of the box. And while you should read the user manual before turning it on, you probably won’t run into any major difficulties if you don’t. The most time-consuming part of the setup is running the power cable up and around your windshield so it’s not dangling down to the power supply while you drive. This requires you to tuck the cord under your car’s upholstery and panels, which takes about 20 minutes to complete.
@@ -113,6 +113,10 @@ Lifewire / Danny Chadwick
  The user manual is excellent, detailed and provides comprehensive instructions for all the features this dashcam offers—this is worth mentioning because some other cameras we tested have subpar instructions.
 
  Lifewire / Danny Chadwick
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Camera Quality: Beyond high definition**
 
@@ -126,6 +130,10 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Never failed**
 
  We tested the Z-Edge Z3 Plus on a six-hour road trip, and throughout the drive, the Z3 Plus nor the suction cup failed. So long as it was plugged into power, it functioned flawlessly.
@@ -134,16 +142,12 @@ Lifewire / Danny Chadwick
 
  We did experience one strange glitch at the end of our testing—a couple of minutes after we had boxed up the Z3 Plus and put it away, we noticed loud, rapid beeping coming from the box. We took the Z3 Plus back out and it was frozen on the power-up screen. We couldn’t get it to turn off (or stop beeping) until the battery died a few minutes later. The camera appeared to work fine after that and we weren’t able to replicate the problem, but it was something of an alarming glitch from such a new device.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Fair price for a fair product**
 
  As of the time of this writing, you can pick up this dashcam from Z-Edge for between $120 and $140, which seems like a good value to us. Given its features, tools, and image quality, it’s a fair price for a useful and reliable device.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: Z-Edge Z3 Plus vs. Apeman C450 Dash Camera**
@@ -161,10 +165,6 @@ Lifewire / Danny Chadwick
  **A durable, reliable dashboard camera that captures high-quality footage.**
 
  The Z-Edge Z3 Plus is easy to set up, intuitive to use, captures clear video footage for a reasonable price. We would like to have seen a second mounting option to the suction cup and a longer-lasting battery, but those are minor quibbles in light of this device’s reliable performance.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -198,18 +198,24 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-ai-editor.techidaily.com/boost-your-videos-faster-on-windows-7-or-10-using-our-proven-acceleration-techniques/"><u>Boost Your Videos Faster on Windows 7 or 10 Using Our Proven Acceleration Techniques</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comparing-macbook-models-key-distinctions-between-air-and-pro/"><u>Comparing MacBook Models: Key Distinctions Between Air and Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-top-games-to-own-on-your-steam-deck-this-year/"><u>Discover the Top Games to Own on Your Steam Deck This Year</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discovering-value-in-miniature-unpacking-the-features-of-the-samsung-galaxy-s10e/"><u>Discovering Value in Miniature: Unpacking the Features of the Samsung Galaxy S10e</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dive-into-reading-with-confidence-using-the-kobo-libra-h2o-a-complete-review-on-its-durability-and-features/"><u>Dive Into Reading with Confidence Using the Kobo Libra H2O - A Complete Review on Its Durability and Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/echo-dot-4th-generation-unveiled-the-revamped-design-experience/"><u>Echo Dot 4Th Generation Unveiled: The Revamped Design Experience</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/exploring-new-worlds-mondly-language-app-for-oculus-quest-users/"><u>Exploring New Worlds: Mondly Language App for Oculus Quest Users</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/lenswave-proconnect-25x-review-superior-quality-at-an-extreme-price/"><u>LensWave ProConnect 25X Review: Superior Quality at an Extreme Price</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/network-nirvana-access-resurrected/"><u>Network Nirvana Access Resurrected</u></a></li>
-<li><a href="https://win-web3.techidaily.com/securely-restoring-system-defaults-in-windows-11-without-data-loss-expert-guide/"><u>Securely Restoring System Defaults in Windows 11 Without Data Loss - Expert Guide</u></a></li>
-<li><a href="https://win-able.techidaily.com/slashing-zooms-resource-demand-proven-methods-to-reduce-cpu-load-expertise/"><u>Slashing Zoom's Resource Demand - Proven Methods to Reduce CPU Load (Expertise)</u></a></li>
-<li><a href="https://win-dash.techidaily.com/someone-will-have-their-rights-violated/"><u>Someone Will Have Their Rights Violated.</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unveiling-the-top-6-head-mount-options-for-dynamic-camera-use-for-2024/"><u>Unveiling the Top 6 Head Mount Options for Dynamic Camera Use for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/avigating-top-purchasers-for-monetized-yt-channels/"><u>[New] Navigating Top Purchasers for Monetized YT Channels</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-achieving-seamless-sounds-logic-x-crossfade-guide/"><u>[Updated] Achieving Seamless Sounds Logic X Crossfade Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-mastering-the-melody-of-text-vocal-styling-for-ppt/"><u>[Updated] In 2024, Mastering the Melody of Text Vocal Styling for PPT</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-step-into-the-world-of-high-quality-lenovo-screen-recordings/"><u>[Updated] In 2024, Step Into the World of High-Quality Lenovo Screen Recordings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-ultimate-guide-choosing-the-right-wireless-travel-router/"><u>2024'S Ultimate Guide: Choosing the Right Wireless Travel Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-microsoft-surface-laptop-go-assessment-the-perfect-lightweight-ultrabook/"><u>Affordable Microsoft Surface Laptop Go Assessment: The Perfect Lightweight Ultrabook</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-fitbit-versa-overview-the-perfect-blend-of-simplicity-and-functionality/"><u>Budget-Friendly Fitbit Versa Overview: The Perfect Blend of Simplicity and Functionality</u></a></li>
+<li><a href="https://win-answers.techidaily.com/enhancing-dragons-dogma-nks-frame-rate-how-to-tackle-lag-and-stuttering-challenges/"><u>Enhancing Dragon's Dogma Nk's Frame Rate: How to Tackle Lag & Stuttering Challenges</u></a></li>
+<li><a href="https://techtrends.techidaily.com/exploring-the-tesla-bot-insights-into-price-forecasts-release-timeline-and-feature-breakdown/"><u>Exploring the Tesla Bot: Insights Into Price Forecasts, Release Timeline, & Feature Breakdown</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-your-xiaomi-redmi-note-12-5g-lock-screen-password-by-drfone-android/"><u>How to Reset your Xiaomi Redmi Note 12 5G Lock Screen Password</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-infinix-smart-7-hd-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Infinix Smart 7 HD Phone Hassle-Free</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-tecno-spark-20c-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Tecno Spark 20C</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-gaomon-pd1560-pen-display-for-digital-illustrators/"><u>The Ultimate Verdict on Gaomon PD1560 Pen Display for Digital Illustrators</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/top-5-dvd-to-mp4-converter-programs-for-pc-and-web-the-best-options-available/"><u>Top 5 DVD to MP4 Converter Programs for PC and Web: The Best Options Available</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-performance-with-family-support-unveiling-the-features-of-the-netgear-nighthawk-x6-ac3200-router/"><u>Ultimate Performance with Family Support: Unveiling the Features of the Netgear Nighthawk X6 AC3200 Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-dji-robomasters-s1-the-ultimate-battlebot-with-programming-fun/"><u>Unboxing DJI Robomasters S1: The Ultimate Battlebot With Programming Fun!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-essentials-a-comprehensive-look-at-the-nintendo-switch-lites-handheld-experience/"><u>Unveiling the Essentials: A Comprehensive Look at the Nintendo Switch Lite's Handheld Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-microsofts-flight-simulator-x-gold-edition-is-a-must-have-for-enthusiasts/"><u>Why Microsoft's Flight Simulator X: Gold Edition Is a Must-Have for Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/your-essential-buyers-guide-to-premium-portable-gaming-devices/"><u>Your Essential Buyer's Guide to Premium Portable Gaming Devices</u></a></li>
 </ul></div>
 

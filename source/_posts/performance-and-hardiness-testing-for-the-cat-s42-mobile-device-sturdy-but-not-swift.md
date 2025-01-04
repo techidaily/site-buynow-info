@@ -1,7 +1,7 @@
 ---
 title: "Performance and Hardiness Testing for the CAT S42 Mobile Device: Sturdy but Not Swift"
-date: 2024-12-24T01:16:06.768Z
-updated: 2024-12-25T22:10:37.431Z
+date: 2025-01-01T20:16:50.577Z
+updated: 2025-01-04T05:55:57.683Z
 categories:
   - BestProducts
 description: "This Article Describes Performance and Hardiness Testing for the CAT S42 Mobile Device: Sturdy but Not Swift"
@@ -44,6 +44,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Just Buy This (All Around Best)
 
 [Apple Watch Series 9 GPS + Cellular 45mm](https://www.amazon.com/Apple-Cellular-Smartwatch-Midnight-Aluminum/dp/B0CHXFH656?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CHXFH656)
@@ -55,10 +59,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 [$457 at Amazon](https://www.amazon.com/Apple-Cellular-Smartwatch-Midnight-Aluminum/dp/B0CHXFH656?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CHXFH656) [$439 at Walmart](https://www.walmart.com/ip/Apple-Watch-Series-9-GPS-45mm-Pink-Aluminum-Case-with-Light-Pink-Sport-Band-S-M/5032289284) [$429 at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fapple-watch-series-9-gps-45mm-midnight-aluminum-case-with-midnight-sport-band-m-l-midnight%2F6340284.p%3FskuId%3D6340284)
 
 **TL;DR:** Highly customizable for any situation, simple to use, and regularly updated, the Apple Watch Series 9 is the one to beat.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Why We Recommend This
 
@@ -95,6 +95,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **Who else recommends it?** Digital Trends, TechRadar, CNET, ZDNet, and PCMag all recommend the Apple Watch Series 9.
 * **What do buyers think?** The Apple Watch Series 9 has over 2,400 ratings on Amazon, with 83% of those giving the watch five stars for an average rating of 4.7 out of 5.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Best Android Smartwatch
 
 [Samsung Galaxy Watch 6](https://www.amazon.com/SAMSUNG-Bluetooth-Smartwatch-Personalized-Advanced/dp/B0C792QRW6/?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0C792QRW6)
@@ -108,7 +112,7 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 **TL;DR:** Sleek and stylish, the Samsung Galaxy Watch 6 has some great features provided you’re an Android phone owner. Its body composition tool is a particular highlight.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Why We Recommend This
@@ -140,6 +144,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
 * **Who else recommends it?** TechRadar, BuzzFeed, PCMag, T3, Tom’s Guide, and Digital Trends all recommend the Samsung Galaxy Watch 6\.
 * **What do buyers think?** The Samsung Galaxy Watch 6 has over 3,900 ratings on Amazon, with 88% of those rating the watch either five or four stars. The overall average rating is 4.5 out of 5.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Easiest on the Budget
 
@@ -186,7 +194,7 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **What do buyers think?** The Garmin Vivoactive 5 has over 1,800 ratings on Amazon, with 76% of them rating it five or four stars. Its average rating is 4.4 out of 5.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How We Test
@@ -203,10 +211,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
  I used all the devices for several weeks, with some smartwatches used for months. I wore them daily while working, exercising, relaxing, and asleep.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What to Look For
 
  Buying a smartwatch involves finding the right balance between looks and practicality. Consider where you plan on wearing it, such as in the office or when walking, and plan accordingly.
@@ -218,10 +222,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 [The Best Running Watches of 2024](https://www.lifewire.com/best-running-watches-8681631)
 
 [The Best Fitness Trackers of 2024](https://www.lifewire.com/best-fitness-trackers-8656291)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Other Smartwatches We Reviewed
 
@@ -258,22 +258,22 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-exploring-the-best-5-book-promo-videos-for-authors/"><u>[New] In 2024, Exploring the Best 5 Book Promo Videos for Authors</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-twitter-video-reconfiguration-audio-version-for-2024/"><u>[New] Twitter Video Reconfiguration Audio Version for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-pioneers-of-haptic-technology-unveiled/"><u>[Updated] Pioneers of Haptic Technology Unveiled</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-pristineai-designs-crafting-visuals-with-ai/"><u>2024 Approved PristineAI Designs Crafting Visuals with AI</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/anymp4-screen-recorder-review/"><u>AnyMP4 Screen Recorder Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-handheld-input-devices-for-enhanced-ipad-navigation/"><u>Best Handheld Input Devices for Enhanced iPad Navigation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/critical-analysis-of-the-google-pixel-3-experiencing-true-android-potential/"><u>Critical Analysis of the Google Pixel 3: Experiencing True Android Potential</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/essential-tips-for-choosing-the-ideal-dash-video-recorder/"><u>Essential Tips for Choosing the Ideal Dash Video Recorder</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/flash-off-top-100-instant-cams-cheap-and-quick/"><u>Flash Off - Top $100 Instant Cams, Cheap and Quick</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-freedom-through-jokes-ranking-the-most-hilarious-social-media-prisons/"><u>In 2024, Freedom Through Jokes Ranking the Most Hilarious Social Media Prisons</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Honor 90 Pro? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-xiaomi-redmi-note-12-pro-5g-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Xiaomi Redmi Note 12 Pro 5G Device</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/jumpstart-your-pc-windows-7-to-10-upgrade-tips/"><u>Jumpstart Your PC: Windows 7 to 10 Upgrade Tips</u></a></li>
-<li><a href="https://blog-min.techidaily.com/resolving-audio-without-visuals-fixing-the-silent-movie-mode-in-windows-11/"><u>Resolving Audio Without Visuals: Fixing the Silent Movie Mode in Windows 11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/serving-up-strategies-and-fun-our-critique-on-overcooked-2-madness/"><u>Serving Up Strategies and Fun - Our Critique on Overcooked! 2 Madness</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-gaming-iphones-which-one-should-you-choose/"><u>Top Gaming iPhones: Which One Should You Choose?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-choosing-the-perfect-cable-modem/"><u>Ultimate Guide: Choosing the Perfect Cable Modem</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-discovering-the-true-potential-of-dji-inspire-2/"><u>[New] In 2024, Discovering the True Potential of DJI Inspire 2</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-instagram-de-following-immediate-awareness/"><u>[New] In 2024, Instagram De-Following Immediate Awareness</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-chat-room-to-global-stage-broadcast-google-meet-on-youtube/"><u>[Updated] From Chat Room to Global Stage Broadcast Google Meet on YouTube</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-perfecting-live-footage-with-fbx-recorder/"><u>[Updated] Perfecting Live Footage with FBX Recorder</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-a-step-by-step-guide-to-amplify-your-content-through-spotlighting/"><u>2024 Approved A Step-by-Step Guide to Amplify Your Content Through Spotlighting</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-maximizing-indoor-luminance-naturally/"><u>2024 Approved Maximizing Indoor Luminance Naturally</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/essential-antivirus-apps-for-iphones-ranking-the-top-6-protectors/"><u>Essential Antivirus Apps for iPhones: Ranking the Top 6 Protectors</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-a-visual-upgrade-with-new-imacs-m1-processor-a-complete-review/"><u>Experience a Visual Upgrade with New iMac’s M1 Processor - A Complete Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-on-the-huion-inspiroy-g10t-graphic-tablet-unrivaled-quality-and-functionality-for-artists/"><u>Expert Analysis on the Huion Inspiroy G10T Graphic Tablet: Unrivaled Quality and Functionality for Artists</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/free-tango-communication-explore-text-audio-and-video-chat-features/"><u>Free Tango Communication: Explore Text, Audio & Video Chat Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/from-screen-to-paper-preparing-images-with-print-settings-in-photoshop/"><u>From Screen to Paper: Preparing Images with Print Settings in Photoshop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gather-primary-and-secondary-data/"><u>Gather Primary and Secondary Data</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Vivo Y36i? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-complete-reference-for-content-creators-youtube-copyright/"><u>In 2024, The Complete Reference for Content Creators YouTube Copyright</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-pursuit-of-the-best-deal-on-high-tech-pet-monitoring/"><u>In Pursuit of the Best Deal on High-Tech Pet Monitoring</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-is-convenience-justification-for-high-cost-of-mophie-ac-powerstation-charger/"><u>In-Depth Review: Is Convenience Justification for High Cost of Mophie AC Powerstation Charger?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ultimate-quick-windows-photo-zoom/"><u>Ultimate Quick Windows Photo Zoom</u></a></li>
 </ul></div>
 

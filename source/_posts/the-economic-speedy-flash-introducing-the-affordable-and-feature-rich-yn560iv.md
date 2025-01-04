@@ -1,7 +1,7 @@
 ---
 title: "The Economic Speedy Flash: Introducing the Affordable & Feature-Rich YN560IV"
-date: 2024-12-24T07:06:19.092Z
-updated: 2024-12-26T00:53:35.726Z
+date: 2024-12-29T23:26:05.111Z
+updated: 2025-01-04T02:36:15.272Z
 categories:
   - BestProducts
 description: "This Article Describes The Economic Speedy Flash: Introducing the Affordable & Feature-Rich YN560IV"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/b522bd70ce2a83bf8e8f7f86960d2837c426a969d
 ## Nintendo Game & Watch: Super Mario Bros
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/CbS7qDMrVVuRiuPL-4w-ip5Ked0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_HeroSquare-c0176be04bfb4d83b2f7724b1332c18b.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -50,10 +46,6 @@ Lifewire / Emily Isaacs
 ## Nintendo Game & Watch: Super Mario Bros
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/Gqz0Wb1wB-1ecipbSoEbqeuT3EU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_HeroSquare-c0176be04bfb4d83b2f7724b1332c18b.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -90,19 +82,23 @@ Lifewire / Emily Isaacs
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/RGM_gLdIp2jvsVG5LhRKLVw0nho=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_04-f94be735a5644020b52656e67a6c0465.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Emily Isaacs
 
  Nintendo Game & Watch: Super Mario Bros. arrives in a small package that is lovingly designed in the Game & Watch family feel. In addition to the instructional care packet, it also includes a charging cable. Some long-time Nintendo fans may be inclined to keep the box, due to the Game & Watch’s collectible nature.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Setup Process: Pick up and play
 
  The Nintendo Game & Watch: Super Mario Bros. is a pick-up and play device. Simply open the box and remove the console from its shipment packaging, press the power button on the right-hand side, click the Time button to set your clock for the included Watch mode, and then you’re all set to enjoy the preloaded Super Mario Bros_._ and Ball games. It arrives with a partial charge.
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/IzTLcGKhslJLE9YpMMkMKBV1BME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_03-5ca824e25f85464a83c9187541b0f059.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -128,22 +124,22 @@ Lifewire / Emily Isaacs
 
 Lifewire / Emily Isaacs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Price: Great value for the price
 
  Thanks to the Game & Watch’s lovely, classic retro design, sturdy frame, crisp and clear LCD screen, and great game content, retailing for only $50, the Nintendo Game & Watch: Super Mario Bros. is a great value for the price. We just wish there were more games included, especially as other similar classic releases such as the SNES mini have seen as many as 30 titles included with its launch.
 
 ![Nintendo Game & Watch: Super Mario Bros.](https://www.lifewire.com/thmb/Te3HyEg18zLT9zKT-eZuFtev8So=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo_GameWatch_02-6af770f871344e16ad3f45320d46d52a.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Emily Isaacs
 
  For anyone looking to bring the Game & Watch home, they should be aware that while it brings the three included classic titles to life in a fun, exciting way, the Game & Watch doesn't add anything new to the Nintendo family. It caters to long-time Nintendo lovers and collectors, more than anything else.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Nintendo Game & Watch: Super Mario Bros. vs. Nintendo Switch
@@ -160,6 +156,10 @@ Lifewire / Emily Isaacs
 
  The Nintendo Game & Watch: Super Mario Bros. is a throwback to an older, simpler era of gaming that packs a wallop of a punch, bringing the challenge of the original Super Mario games and the original Game & Watch Ball title while making them accessible to a whole new generation of players. While we do wish Nintendo had included additional titles—who doesn’t want_more_ classic options when these are so fun—it’s no showstopper for enjoying this product.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Nintendo Switch Lite](https://www.lifewire.com/nintendo-switch-lite-review-4788015)
@@ -167,7 +167,7 @@ Lifewire / Emily Isaacs
 * [PlayStation 4 Pro](https://www.lifewire.com/playstation-4-pro-review-4707193)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -201,16 +201,22 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-essential-techniques-for-computer-based-vhs-image-transformation/"><u>[New] In 2024, Essential Techniques for Computer-Based VHS Image Transformation</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-master-the-art-of-broadcasting-optimal-cameras-for-your-twitch-channel-for-2024/"><u>[New] Master the Art of Broadcasting Optimal Cameras For Your Twitch Channel for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-bridging-the-gap-between-individual-images-using-picshot/"><u>[Updated] Bridging the Gap Between Individual Images Using Picshot</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-unlocking-the-code-a-guide-to-your-own-special-tiktok-hash/"><u>2024 Approved Unlocking the Code A Guide to Your Own Special TikTok Hash</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Xiaomi Redmi Note 12T Pro? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Oppo Reno 11F 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-apple-tv-4k-analysis-superior-hd-streaming-and-voice-assistant-navigation/"><u>In-Depth Apple TV 4K Analysis: Superior HD Streaming & Voice Assistant Navigation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/la-tecnica-ottimale-per-il-backup-dei-sistemi-operativi-windows-con-wd-my-cloud-da-windows-7-a-windows-11/"><u>La Tecnica Ottimale per Il Backup Dei Sistemi Operativi Windows Con WD My Cloud: Da Windows 7 a Windows 11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-twelve-south-compass-pro-dissected-superior-stability-through-smart-design/"><u>The Twelve South Compass Pro Dissected: Superior Stability Through Smart Design</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlocking-potential-the-all-encomp-groove-smartwatch-your-guide-to-the-samsung-gear-s3-frontier/"><u>Unlocking Potential: The All-Encomp Groove Smartwatch – Your Guide to the Samsung Gear S3 Frontier</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/webex-for-video-conferencing-insights-into-its-benefits-and-limitations/"><u>WebEx for Video Conferencing: Insights Into Its Benefits and Limitations</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-audiences-take-gopro-hero5-footage/"><u>[New] 2024 Approved Audience's Take GoPro Hero5 Footage</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-comprehensive-review-navigating-adobe-cloud-plus-comparing-rivals/"><u>[Updated] Comprehensive Review Navigating Adobe Cloud + Comparing Rivals</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-elevate-your-content-game-with-extended-instagram-videos/"><u>[Updated] Elevate Your Content Game with Extended Instagram Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-transform-stories-in-a-flash-free-extensions-and-mobile-magic-for-2024/"><u>[Updated] Transform Stories in a Flash – Free Extensions & Mobile Magic for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/mastering-instagram-stardom-in-just-nine-easy-tips/"><u>Mastering Instagram Stardom in Just Nine Easy Tips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-rough-trails-with-top-races-revolutionary-rc-rock-crawler/"><u>Navigating Rough Trails with Top Race's Revolutionary RC Rock Crawler</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/pedal-and-pound-uncovering-how-days-gone-revamps-post-apocalyptic-bikers-adventure/"><u>Pedal & Pound: Uncovering How 'Days Gone' Revamps Post-Apocalyptic Bikers Adventure</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/professional-insights-on-dji-mavic-pro-the-premier-tool-in-advanced-aerial-photography/"><u>Professional Insights on DJI Mavic ˈpro: The Premier Tool in Advanced Aerial Photography</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/rustic-country-themed-wallpaper-collection-high-resolution-backgrounds-and-imagery-for-inspiration/"><u>Rustic Country-Themed Wallpaper Collection - High-Resolution Backgrounds & Imagery for Inspiration</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/save-big-with-the-latest-oneplus-holiday-season-bargains/"><u>Save Big with the Latest OnePlus Holiday Season Bargains!</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/save-money-now-the-4-most-reliable-sources-for-filmora-discounts-for-2024/"><u>Save Money Now The 4 Most Reliable Sources for Filmora Discounts for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/score-big-savings-exclusive-prime-day-deals-on-tribit-speakers-and-earbuds-revealed/"><u>Score Big Savings: Exclusive Prime Day Deals on Tribit Speakers and Earbuds Revealed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-future-is-now-exploring-the-upgrades-in-amazons-latest-echo-generation/"><u>The Future Is Now: Exploring the Upgrades in Amazon's Latest Echo Generation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-future-of-computing-monterey-insights/"><u>The Future of Computing: Monterey Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-assessing-the-capabilities-of-the-rca-video-doorbell-camera/"><u>The Ultimate Review: Assessing the Capabilities of the RCA Video Doorbell Camera</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/two-effective-techniques-for-updating-applications-on-macos-detailed-guide/"><u>Two Effective Techniques for Updating Applications on macOS - Detailed Guide</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-easiest-video-editor-for-mac-make-impressive-videos-with-ease/"><u>Updated In 2024, Easiest Video Editor for Mac Make Impressive Videos with Ease</u></a></li>
 </ul></div>
 

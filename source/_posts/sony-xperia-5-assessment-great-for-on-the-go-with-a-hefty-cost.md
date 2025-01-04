@@ -1,7 +1,7 @@
 ---
 title: "Sony Xperia 5 Assessment: Great for On-The-Go with a Hefty Cost"
-date: 2024-08-19T16:25:34.742Z
-updated: 2024-08-20T16:25:34.742Z
+date: 2024-12-31T19:03:15.400Z
+updated: 2025-01-03T22:59:52.485Z
 categories:
   - BestProducts
 description: "This Article Describes Sony Xperia 5 Assessment: Great for On-The-Go with a Hefty Cost"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/0838ac8f5f2d8f067138531cc9f4dfd905cfa9adb
 ## Ubiquiti Amplifi HD Mesh Wi-Fi System
 
 ![Amplifi HD](https://www.lifewire.com/thmb/qzQaLlac--q8GkxuTKk83OA0RKQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_HeroSquare-fdb67079a06b415b98467919ec8e34a6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -66,8 +70,9 @@ Lifewire / Erika Rawes
  The Amplifi HD is a[Mesh Wi-Fi System](https://www.lifewire.com/best-mesh-wi-fi-network-systems-4139748) with a main router and separate mesh points that serve as satellite routers. The Amplifi system is supposed to extend Wi-Fi range, reduce dead zones, and provide better coverage. To see how Ubiquiti’s mesh system holds up to the demands of a household with multiple devices, I connected the Amplifi HD in my test home that contains roughly 50 Wi-Fi connected devices.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: A beautiful router with mismatched mesh points**
 
  The Amplifi HD Mesh System comes with a[long-range router](https://www.lifewire.com/best-long-range-routers-4122554) and two satellite mesh points. The router has a unique design. It’s small, cube-shaped, and it looks more like an alarm clock or smart display than a router. It doesn’t have antennas protruding from it as you see on most routers.
@@ -78,14 +83,8 @@ Lifewire / Erika Rawes
 
 ![Amplifi HD](https://www.lifewire.com/thmb/s87ZCkRIGWmpbjF2kUOXJRQtOl4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_02-1a111a806ad7495ba9f36d51121fe5b0.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## **Setup: Couldn’t get any easier**
 
  The setup for the Amplifi HD system is probably the easiest setup process I’ve encountered. The app walks you through the process step-by-step, with pictures to guide you on each instruction. The most difficult part was deciding where to place the two mesh points in my test home. I placed one in the far bedroom and one in my office, two rooms that notoriously experience drop-offs.
@@ -93,8 +92,9 @@ Lifewire / Erika Rawes
  By default, the app creates a dual (2.4 and 5Ghz) network, which directs traffic based on the most efficient pathways. You can create separate 2.4 and 5Ghz networks, or make other adjustments as you see fit though. You can change the band on the mesh points (from 2.4 to 5Ghz), create additional SSIDs, and more. For the purpose of testing, I used the default combined network and allowed the system to direct network traffic between bands.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Connectivity: Lags when you add too many devices**
 
  The Amplifi HD system is not Wi-Fi 6 capable.[It has 802.11ac](https://www.lifewire.com/wireless-standards-802-11a-802-11b-g-n-and-802-11ac-816553) , and it's backwards compatible. On the back of the router sit four gigabit LAN ports in addition to the WAN connection. There’s no multigig port, but the four ports were a welcome addition.
@@ -112,8 +112,9 @@ Lifewire / Erika Rawes
  The app creates a dual (2.4 and 5Ghz) network, which directs traffic based on the most efficient pathways.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Software: Amplifi App**
 
  In the Amplifi App, you can set up a guest network, manage devices, pause the internet, check the health of the system, and check your speeds on your entire network and on individual devices. You can optimize the priority level for each of your devices between normal, streaming, or gaming.
@@ -122,14 +123,15 @@ Lifewire / Erika Rawes
 
 ![Amplifi HD](https://www.lifewire.com/thmb/2X1DxWPlS1VXqnwsUCG5qviJXwc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_03-56584e48b76942519745c71443c2e8d5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 ## **Price: A little steep**
 
  The Amplifi HD system isn’t cheap. The package I tested, which came with the router and two mesh points, retails for $340\. You can find mesh systems for much less, and of course, some mesh systems are much more expensive. But, the Amplifi system’s design, easy setup, and feature set help justify the price.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Amplifi HD vs. Nest Wi-Fi**
 
@@ -159,14 +161,11 @@ Lifewire / Erika Rawes
 * Remote connect  Yes
 * What’s included  Amplifi HD Router, two mesh points, power and Ethernet cables, guides
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -175,4 +174,24 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-behind-the-scenes-of-podcast-scripts-tips-and-examples/"><u>[New] 2024 Approved Behind the Scenes of Podcast Scripts Tips and Examples</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/discover-the-premier-7-ai-prompt-services-online-today/"><u>Discover the Premier 7 AI Prompt Services Online Today</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/expert-solutions-to-prevent-tekken-ninja-from-not-starting-on-your-computer/"><u>Expert Solutions to Prevent Tekken Ninja From Not Starting on Your Computer</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-vivo-x-fold-2-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Vivo X Fold 2 Devices | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/from-basic-to-stunning-graphics-card-laptop-boost/"><u>From Basic to Stunning: Graphics Card Laptop Boost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-up-close-with-the-iphone-15-pro-a-detailed-walkthrough-of-apples-new-smartphone-masterpiece/"><u>Get Up Close with the iPhone 15 Pro: A Detailed Walkthrough of Apple's New Smartphone Masterpiece</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-motorola-moto-g-stylus-5g-2023-drfone-by-drfone-android/"><u>How to Screen Mirroring Motorola Moto G Stylus 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-10-iphone-camera-features-you-should-know-in-ios-11/"><u>In 2024, 10 iPhone Camera Features You Should Know in iOS 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-dell-xps-13-7390-the-ultimate-2-in-1-hybrid-laptop/"><u>In-Depth Analysis of the Dell XPS 13 (7390): The Ultimate 2-in-1 Hybrid Laptop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-why-fellowes-microban-wired-keyboard-is-a-top-contender-for-savvy-shoppers/"><u>In-Depth Analysis: Why Fellowes Microban Wired Keyboard Is a Top Contender for Savvy Shoppers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insiders-analysis-of-razers-stealth-nix-13-pioneering-ultrabook-excellence-unveiled/"><u>Insider's Analysis of Razer’s Stealth Nix 13: Pioneering Ultrabook Excellence Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insights-into-the-pros-and-cons-of-hosting-meetings-on-webex-online-tool/"><u>Insights Into the Pros and Cons of Hosting Meetings on WebEx Online Tool</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/madden-nfl-19-analysis-outstanding-features-amidst-growing-familiarity/"><u>Madden NFL 19 Analysis: Outstanding Features Amidst Growing Familiarity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-the-oculus-quist-2-premium-vr-adventures-for-a-fantastic-deal/"><u>Mastering the Oculus Quist 2: Premium VR Adventures for a Fantastic Deal!</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-contacts-from-oppo-find-n3-flip-by-fonelab-android-recover-contacts/"><u>Possible solutions to restore deleted contacts from Oppo Find N3 Flip.</u></a></li>
+<li><a href="https://apple-account.techidaily.com/top-notch-solutions-for-disabled-apple-id-from-apple-iphone-6s-plus-making-it-possible-by-drfone-ios/"><u>Top-Notch Solutions for Disabled Apple ID From Apple iPhone 6s Plus Making It Possible</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlock-your-disabled-apple-iphone-15-plus-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>Unlock Your Disabled Apple iPhone 15 Plus Without iTunes in 5 Ways | Dr.fone</u></a></li>
+</ul></div>
 

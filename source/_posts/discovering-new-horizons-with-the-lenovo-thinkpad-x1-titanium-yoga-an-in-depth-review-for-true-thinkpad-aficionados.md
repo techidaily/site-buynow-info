@@ -1,7 +1,7 @@
 ---
 title: Discovering New Horizons with the Lenovo ThinkPad X1 Titanium Yoga - An In-Depth Review for True ThinkPad Aficionados
-date: 2024-08-19T16:28:01.994Z
-updated: 2024-08-20T16:28:01.994Z
+date: 2025-01-03T12:07:01.276Z
+updated: 2025-01-04T07:09:00.274Z
 categories:
   - BestProducts
 description: This Article Describes Discovering New Horizons with the Lenovo ThinkPad X1 Titanium Yoga - An In-Depth Review for True ThinkPad Aficionados
@@ -13,9 +13,17 @@ thumbnail: https://www.lifewire.com/thmb/NWiT5azOzzAt8DUfASmbnwEKSqc=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/6eJwPC0xPwMxCh4aQhG73X9dkzU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -62,14 +70,6 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -80,11 +80,16 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup: Easier than most**
 
  Setting up the antenna is relatively intuitive. You just connect the antenna to the coaxial/antenna-in connection on your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) . The antenna has an easy-push connector, instead of a connector you have to twist onto the threading. This makes for easier setup because you don’t have to struggle behind your TV with trying to screw on the[coaxial cable](https://www.lifewire.com/coaxial-vs-optical-digital-cable-3134605) .
@@ -93,9 +98,6 @@ Lifewire / Erika Rawes
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ## **Performance: Almost two dozen channels**
 
  The Antop AT-127 supports UHF and VHF signals. Overall, it works pretty smoothly, though some channels might have look pixelated for a few seconds when you flip to them or take a second or two to fully load.
@@ -104,11 +106,12 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Range: Could be better**
 
  My test home is in a rural area, and there’s a lot of tree cover on the property. The omnidirectional Antop AT-127 has a 40-mile range, which was enough to pick up local channels from neighboring cities.
@@ -123,9 +126,6 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 ## **Antop AT-127 vs. AmazonBasics Flat TV Antenna**
@@ -138,9 +138,6 @@ Lifewire / Erika Rawes
 
  Although its range isn’t as long as some of its competitors, the Antop AT-127 picks up channels well and delivers clear high definition television.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  AT-127
@@ -157,14 +154,11 @@ Lifewire / Erika Rawes
 * Screen Resolution  1080p
 * Connectivity Options  Quick push “E-Z connect” F connector (coaxial cable)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,4 +167,24 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-the-choreography-of-audio-and-visuals-a-guide-to-editing-videos/"><u>[New] 2024 Approved The Choreography of Audio and Visuals A Guide to Editing Videos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-rx-fanfare-update-pack-for-2024/"><u>[Updated] RX Fanfare Update Pack for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-perfecting-mp4-files-with-srt-a-modern-methodology/"><u>2024 Approved Perfecting MP4 Files with SRT - A Modern Methodology</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-visual-storytelling-for-instagram-mastering-fcpx-edits/"><u>2024 Approved Visual Storytelling for Instagram Mastering FCPX Edits</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-blh4100-blade-fpv-rtf-indooroutdoor-copter-evaluation/"><u>Comprehensive BLH4100 Blade FPV RTF Indoor/Outdoor Copter Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-portable-lenovo-ideapad-320-featuring-lenovos-signature-keyboard-experience/"><u>Comprehensive Evaluation of the Portable Lenovo Ideapad ^320 - Featuring Lenovo’s Signature Keyboard Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/grand-slam-basketball-game-nba-2k19/"><u>Grand Slam Basketball Game: NBA 2K19</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-xiaomi-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Xiaomi</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/kobo-clara-hd-evaluation-your-perfect-portable-companion-for-book-lovers/"><u>Kobo Clara HD Evaluation: Your Perfect Portable Companion for Book Lovers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/learning-vector-artistry-an-overview-for-starters-and-software-picks-for-2024/"><u>Learning Vector Artistry An Overview for Starters & Software Picks for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/streamlined-selection-top-10-efficient-vimeo-downloaders/"><u>Streamlined Selection Top 10 Efficient Vimeo Downloaders</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/syma-x5c-rc-drone-evaluation-budget-friendly-beginners-choice/"><u>SYMA X5C RC Drone Evaluation: Budget-Friendly Beginner's Choice</u></a></li>
+<li><a href="https://article-files.techidaily.com/ultimate-collection-10-excellent-photo-background-alternators/"><u>Ultimate Collection 10 Excellent Photo-Background Alternators</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unleash-creativity-an-in-depth-look-at-makeblocks-mbot-programmable-robot-starter-kit/"><u>Unleash Creativity: An In-Depth Look at Makeblock's mBot Programmable Robot Starter Kit</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-and-flaws-of-the-criacr-bluetooth-fm-transmitter-cp24-a-tight-build-marred-by-shortcomings/"><u>Unveiling the Features and Flaws of the Criačr Bluetooth FM Transmitter CP24: A Tight Build Marred by Shortcomings</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-best-webm-to-mp4-converters-for-seamless-video-conversion-for-2024/"><u>Updated Best WebM to MP4 Converters for Seamless Video Conversion for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-expert-ev-owners-love-affordable-fast-in-car-charging-with-ankers-unbeatable-pricing-and-performance/"><u>Why Expert EV Owners Love Affordable, Fast In-Car Charging with Anker’s Unbeatable Pricing and Performance</u></a></li>
+</ul></div>
 

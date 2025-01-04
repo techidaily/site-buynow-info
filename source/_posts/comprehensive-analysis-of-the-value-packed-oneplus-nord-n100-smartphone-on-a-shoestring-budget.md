@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Analysis of the Value-Packed OnePlus Nord N100 Smartphone on a Shoestring Budget
-date: 2024-08-19T16:26:12.317Z
-updated: 2024-08-20T16:26:12.317Z
+date: 2025-01-03T02:56:27.052Z
+updated: 2025-01-04T03:59:30.914Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Analysis of the Value-Packed OnePlus Nord N100 Smartphone on a Shoestring Budget
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/KJAIO8w6Q8r7Fx2WWyQ5HS0Gidk=/400x300/fi
 ## Discover the Allure of Analog: A Comprehensive Look at the Withings Move's Features and Design
 
 3.8
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Withings Withings Move Hybrid Smartwatch
 
@@ -72,9 +76,6 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Slim and clean**
 
  We don’t typically think of[smartwatches](https://www.lifewire.com/an-introduction-to-smart-watches-3441381) as being nearly weightless, but the Withings Move is just that. Weighing in at just a little over one ounce, this watch is almost undetectable on the wrist.
@@ -91,11 +92,12 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/Qz1dlsE8jl99mXc7-kQ5LCVoiK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-3-b1e97631284d40829bd5714c59dc5f2a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## **Setup Process** :**As easy as 1-2-3**
 
  Given such a simple and clean design, it’s natural to expect the setup process to be the same. We found that to be the case.
@@ -107,8 +109,9 @@ Lifewire / Yoona Wagener
  First, we paired the Withings Move with our phone via Bluetooth, which was instantaneous. Next, we provided profile information for better activity metrics, downloaded an update, made sure the watch dials were working and the time was set correctly, and we were good to go.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Comfort: Light as a feather, even while sleeping**
 
  Some watches can feel heavy by the end of the day, but we didn’t encounter that weighed-down feeling with the Withings Move. The watch is really lightweight and the band is soft, flexible, and slim, which made sleeping with it a non-issue. It was also easy to achieve a good fit—especially for smaller wrists—thanks to the plentiful notches and the tab to keep the band in place.
@@ -120,6 +123,10 @@ Lifewire / Yoona Wagener
 ![Withings Move](https://www.lifewire.com/thmb/WIXFA6BpXvAMWLdKpJ_jmzZh6o4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-5-cbc0f43d847b453bbfae994f03374cdb.jpg)
 
  Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Limited activity tracking**
 
@@ -138,8 +145,9 @@ Lifewire / Yoona Wagener
 ![Withings Move](https://www.lifewire.com/thmb/vaUmI1isQP98tmL8uIZSghmAWGs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-6-259d8034cfb64485be60f9c5754fec79.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
 ## **Battery: Long-lasting and hassle-free**
@@ -149,6 +157,10 @@ Lifewire / Yoona Wagener
 ![Withings Move](https://www.lifewire.com/thmb/02bkMrpkzqBOue1ffhHNfQqaIuk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-4-df866fafd70a44c592e0e06e0ea53ae7.jpg)
 
  Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: An emphasis on general wellness**
 
@@ -162,18 +174,12 @@ Lifewire / Yoona Wagener
 
  There are also a number of other supplemental programs you can sign up for through the Health Connect app in order to up your general wellness. Most of these programs, which are free to join, require a specific type of Withings device, but others, like a meditation and pregnancy tracking program, don’t need any additional equipment.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## **Price: A bargain for the value**
 
  The Withings Move retails for $69.95, which is an attractive and affordable price for a hybrid smartwatch—most competitors tend to be well above $100\. While these other models, like the Fossil Harper and Fossil Q Commuter, typically come with more functionality like music storage or streaming, notifications, or taking a picture from your phone, there’s also a bigger price associated with those features.
 
  Those looking for a dressier and more substantial watch may find these Fossil models to be better alternatives. Other devices that are comparable in price, like the Fitbit Inspire Fitness Tracker, lack the analog watch qualities and look like designated activity trackers. The Withings Move splits the difference at a modest price.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Withings Move vs. Misfit Phase**
 
  The Misfit Phase is another hybrid smartwatch with a classic wristwatch look, maybe even more so than the Withings Move. Priced at around $175, the Misfit Phase is more expensive, but also comes with a few bonuses that the Withings Move lacks, like text notifications, playing and pausing music on your phone, and also taking selfies.
@@ -206,8 +212,6 @@ Lifewire / Yoona Wagener
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -215,4 +219,24 @@ Lifewire / Yoona Wagener
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-capture-and-share-the-essentials-for-posting-video-in-every-direction-on-fb/"><u>[New] Capture and Share The Essentials for Posting Video in Every Direction on FB</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-complete-evaluation-the-dji-inspire-1-unveiled/"><u>[New] In 2024, Complete Evaluation The DJI Inspire 1 Unveiled</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-prime-action-mic-choices-for-clear-videos/"><u>[New] In 2024, Prime Action Mic Choices for Clear Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-maximum-fps-impacting-low-motion-sequences/"><u>[Updated] In 2024, Maximum FPS Impacting Low-Motion Sequences</u></a></li>
+<li><a href="https://facebook.techidaily.com/amplifying-group-engagement-through-efficient-channels/"><u>Amplifying Group Engagement Through Efficient Channels</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-lenovo-thinkpad-x1-fold-a-game-changing-laptop-with-room-for-improvement/"><u>Evaluating the Lenovo ThinkPad X1 Fold: A Game-Changing Laptop with Room for Improvement</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-twelve-souths-bookbook-v2-case-design-for-your-macbook-is-it-clever/"><u>Evaluating Twelve South's BookBook V2 Case Design for Your MacBook - Is It Clever?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-amazonbasics-versatile-and-reliable-7-port-usb-30-hub/"><u>Expert Insights on AmazonBasics' Versatile and Reliable 7 Port USB 3.0 Hub</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-apple-ipad-pro-with-m1-processor-unleashing-new-potentials-in-tablet-technology/"><u>Expert Insights on Apple iPad Pro with M1 Processor – Unleashing New Potentials in Tablet Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-your-hands-on-savings-without-compromising-quality-the-moto-g-stylus-reviewed/"><u>Get Your Hands on Savings Without Compromising Quality – The Moto G Stylus Reviewed!</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/how-to-position-your-toolbar-at-the-top-in-a-flipbook-on-flipbuilder-a-user-guide/"><u>How to Position Your Toolbar at the Top in a Flipbook on FlipBuilder: A User Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-and-insights-on-apc-back-ups-pro-1500va-exceptional-power-backup-with-multiple-outlets-and-effortless-battery-replacement/"><u>In-Depth Analysis & Insights on APC Back-UPS Pro 1500VA - Exceptional Power Backup with Multiple Outlets & Effortless Battery Replacement</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-acer-chromebook-15-spacious-display-meets-reliability/"><u>In-Depth Analysis of the Acer Chromebook 15: Spacious Display Meets Reliability</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-experience-with-ampaqs-new-andes-1500-mobile-power-unit/"><u>In-Depth Review: Experience with Ampaq's New Andes 1500 Mobile Power Unit</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/mastering-cryptocurrency-investments-top-mistakes-to-avoid-for-successful-trades-insights-from-yl-software/"><u>Mastering Cryptocurrency Investments: Top Mistakes to Avoid for Successful Trades – Insights From YL Software</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-the-art-of-gpt-3-a-step-by-step-guide-to-utilizing-it-on-the-openai-platform/"><u>Mastering the Art of GPT-3: A Step-by-Step Guide to Utilizing It on the OpenAI Platform</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/revitalizing-databases-stellars-new-dawn/"><u>Revitalizing Databases: Stellar's New Dawn</u></a></li>
+</ul></div>
 

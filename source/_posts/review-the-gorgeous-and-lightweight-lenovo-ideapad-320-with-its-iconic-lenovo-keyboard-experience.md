@@ -1,7 +1,7 @@
 ---
 title: "Review: The Gorgeous & Lightweight Lenovo Ideapad 320 with Its Iconic Lenovo Keyboard Experience"
-date: 2024-08-19T16:28:08.746Z
-updated: 2024-08-20T16:28:08.746Z
+date: 2024-12-29T19:43:12.923Z
+updated: 2025-01-03T22:23:12.291Z
 categories:
   - BestProducts
 description: "This Article Describes Review: The Gorgeous & Lightweight Lenovo Ideapad 320 with Its Iconic Lenovo Keyboard Experience"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/bab37a5357094e09dd42f37d3cc78e25fe907bbcf
 ## Experience Comfort and Quality with the Fellowes Microban Wireless Keyboard – Budget Friendly
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fellowes Microban Split Design Keyboard
 
@@ -67,8 +71,9 @@ Lifewire / Emily Isaacs
  The Fellowes Microban Split Design Wired Keyboard is one of several Fellowes’ products geared towards businesses, thanks to its comfortable, ergonomic design and budget-friendly pricing. The inclusion of Microban antimicrobial protection technology, designed to prolong the life of your computer hardware by preventing damaging microbes from building up over time and causing deterioration, is an added bonus for the price. We tested this keyboard for over a week so read on to see what we discovered.
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Cleaner than the rest**
 
  Ergonomic keyboards are designed to encourage natural, neutral movements that put less strain on wrists and shoulders,[preventing repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) over time. This is especially important for people who spend large portions of their day in a home or office setting tethered to their computer.
@@ -85,9 +90,6 @@ Lifewire / Emily Isaacs
 
  Unlike competitor models which often use a mix of fabric, plastics, and in some instances, metals, the entirety of this keyboard is plastic—even down to the[wrist pad](https://www.lifewire.com/best-keyboard-wrist-rests-4172684) . While we did wish that the wrist pad was made of a more comfortable material, it wasn’t uncomfortable during use. Plus, a different material would likely impact the keyboard’s longevity, since the Microban antimicrobial coating needs to be put on an acrylic, non-porous surface in order to protect against common bacteria, yeasts, molds, and fungi.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## **Setup Process: Plug and play**
 
  The keyboard doesn’t arrive with much. It comes in a mid-size box with the keyboard itself and an accessory pamphlet that addresses some frequently asked questions regarding Microban technology. Setting up is quite easy. It’s a plug and play device, which means that when the keyboard is connected to the computer, the computer will recognize the device is there and you can begin using it immediately.
@@ -97,8 +99,9 @@ Lifewire / Emily Isaacs
  Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Features: Multimedia hotkeys for ease of use**
 
  The Fellowes features seven hotkeys for multimedia playback. These keys are located along the top of the keyboard and offer such functionality as mute, volume up, volume down, sleep, email, search, and one-touch internet access. We were disappointed that it didn’t include hotkeys for pausing, skipping forward, or skipping backward in multimedia.
@@ -110,16 +113,13 @@ Lifewire / Emily Isaacs
  It’s equipped with a 16-character buffer, which means that it can hold onto that many typed characters before they’re processed.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: A budget-friendly ergonomic keyboard**
 
  Ergonomic keyboards tend to retail anywhere from $50-$200\. The Fellowes Microban Split Wired Keyboard tends to retail for around $50, which puts this well at the budget end. Its low price point makes it a great introductory ergonomic keyboard, particularly if you’re unsure of what you want and are experimenting with different design choices.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ## **Fellowes Microban Split Design Wired Keyboard vs. Microsoft Sculpt Ergonomic Keyboard**
 
  The Fellowes keyboard faces stiff competition from other companies, notably Microsoft, which has been in the computer game for decades. Here, the Microsoft Sculpt Ergonomic Keyboard is the main competition. Generally retailing for around $80, nearly double the price of the Fellowes, the Sculpt follows a unique design akin to that of a manta ray. The two halves of the keyboard swoop upward, rising toward the middle, but not quite meeting thanks to an unfilled space between them. It looks strange, but it’s quite comfortable, especially thanks to its fabric wrist pad for extra comfort.
@@ -127,6 +127,10 @@ Lifewire / Emily Isaacs
 [Microsoft Sculpt Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-sculpt-ergonomic-keyboard-review-4780274)
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/9Ei30bgFst4sw8SynCxgEI_b-9I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_04-eff22d3b32274568890dd291e56daab5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -144,9 +148,6 @@ Lifewire / Emily Isaacs
 
  The Fellowes Microban Split Design Wired Keyboard is a good, albeit bulky, ergonomic keyboard designed to last. Its antimicrobial protection not only keeps germs, fungi, and bacteria at bay, but ensures the keyboard won’t deteriorate over time. While it may not be our first pick for home use, it’s a great choice if you’re on a budget or are an office working facing down cold and flu season.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Microban Split Design Keyboard
@@ -159,14 +160,11 @@ Lifewire / Emily Isaacs
 * Compatibility  As plug-and-play device with Windows OS
 * Warranty  3-year limited warranty
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -175,4 +173,26 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://common-error.techidaily.com/dil-error-no-msvcr120dll-found/"><u>[DIL] Error: No MSVCR120.dll Found</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-cost-free-webinar-software-for-recording-sessions/"><u>[New] 2024 Approved Cost-Free Webinar Software for Recording Sessions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-digital-storytelling-creating-compelling-gifs-for-2024/"><u>[New] Digital Storytelling Creating Compelling GIFs for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-niche-networking-on-youtube-from-phone-small-scale-approach/"><u>[Updated] Niche Networking on Youtube From Phone, Small-Scale Approach</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-amplify-your-content-speedy-instagram-fame/"><u>2024 Approved Amplify Your Content Speedy Instagram Fame</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-elevating-your-youtube-presence-through-famebit-inspired-sponsorships/"><u>2024 Approved Elevating Your YouTube Presence Through FameBit-Inspired Sponsorships</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-nokia-c12-pro-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Nokia C12 Pro Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dell-inspiron-3671-performance-analysis-solid-midrange-desktop-insights/"><u>Dell Inspiron 3671 Performance Analysis: Solid Midrange Desktop Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevating-your-viewing-pleasure-with-the-lg-oled-c9-65-an-in-depth-review-by-tech-experts/"><u>Elevating Your Viewing Pleasure with The LG OLED C9 65: An In-Depth Review by Tech Experts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-omnicharge-omni-20-multipurpose-power-bank-qi-wireless-and-more/"><u>Exploring the Omnicharge Omni ˈ20 Multipurpose Power Bank - Qi Wireless and More</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/function-first-features-inside-the-review-of-acer-xfa240-monitor/"><u>Function-First Features: Inside the Review of Acer XFA240 Monitor</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-how-ankers-superspeed-usb-3t-hub-fuels-all-your-tech-needs/"><u>In-Depth Analysis: How Anker's SuperSpeed USB 3.t Hub Fuels All Your Tech Needs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/intense-testing-jabras-superior-bluetooth-buddies/"><u>Intense Testing: Jabra's Superior Bluetooth Buddies</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lg-gram-156-inch-2018-review/"><u>LG Gram 15.6-Inch (2018) Review</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-nokia-c12-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Nokia C12 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/marvels-avengers-film-evaluation-average-yet-exceptional-feat/"><u>Marvel’s Avengers Film Evaluation: Average Yet Exceptional Feat</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/master-your-audio-projects-using-audacitys-powerful-tools-for-macos/"><u>Master Your Audio Projects Using Audacity's Powerful Tools for macOS</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/next-gen-recording-techniques-fusing-webcam-and-slideshows/"><u>Next-Gen Recording Techniques Fusing Webcam and Slideshows</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/performance-versus-price-the-complete-review-for-winegards-flatwave-antenna/"><u>Performance Versus Price: The Complete Review for Winegard's FlatWave Antenna</u></a></li>
+</ul></div>
 

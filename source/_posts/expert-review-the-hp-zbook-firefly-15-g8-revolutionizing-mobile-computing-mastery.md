@@ -1,7 +1,7 @@
 ---
 title: "Expert Review: The HP ZBook Firefly 15 G8 - Revolutionizing Mobile Computing Mastery"
-date: 2024-08-19T16:23:59.498Z
-updated: 2024-08-20T16:23:59.498Z
+date: 2024-12-29T07:44:04.856Z
+updated: 2025-01-03T20:20:30.020Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Review: The HP ZBook Firefly 15 G8 - Revolutionizing Mobile Computing Mastery"
@@ -66,8 +66,9 @@ Lifewire / Erika Rawes
  The Amplifi HD is a[Mesh Wi-Fi System](https://www.lifewire.com/best-mesh-wi-fi-network-systems-4139748) with a main router and separate mesh points that serve as satellite routers. The Amplifi system is supposed to extend Wi-Fi range, reduce dead zones, and provide better coverage. To see how Ubiquiti’s mesh system holds up to the demands of a household with multiple devices, I connected the Amplifi HD in my test home that contains roughly 50 Wi-Fi connected devices.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: A beautiful router with mismatched mesh points**
 
  The Amplifi HD Mesh System comes with a[long-range router](https://www.lifewire.com/best-long-range-routers-4122554) and two satellite mesh points. The router has a unique design. It’s small, cube-shaped, and it looks more like an alarm clock or smart display than a router. It doesn’t have antennas protruding from it as you see on most routers.
@@ -77,6 +78,10 @@ Lifewire / Erika Rawes
  The two satellite points are very simplistic. They are basic looking, oval-shaped devices with no ports. They plug into a wall outlet, and they have indicator lights to tell you the signal strength. The mesh points, aside from being the same matte-white color, don’t match very well with the main router. Fortunately, they sit in different areas of the home, so the mismatched design doesn’t have too much impact on the overall aesthetic.
 
 ![Amplifi HD](https://www.lifewire.com/thmb/s87ZCkRIGWmpbjF2kUOXJRQtOl4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_02-1a111a806ad7495ba9f36d51121fe5b0.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -95,8 +100,9 @@ Lifewire / Erika Rawes
  In my test home, speeds from my ISP max out at 500 Mbps. In the same room as the main router, Ookla measured the speed at 131 Mbps. The speed remained consistent throughout the home, even in rooms that typically experience drop offs with other routers. However, outside in the backyard, the speed reduced to 111 Mbps.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Key Features: A display screen**
 
  The touchscreen on the front of the main router can display the time, total GB, WAN and Router IP addresses, internet speeds, and port statuses. You touch the screen to cycle through the different screen options. The power cable connects via[USB-C](https://www.lifewire.com/usb-c-4149490) , and there’s a USB 2.0 port as well, but it doesn’t allow you to connect an external hard drive (the port is reserved for future use).
@@ -106,8 +112,9 @@ Lifewire / Erika Rawes
  The app creates a dual (2.4 and 5Ghz) network, which directs traffic based on the most efficient pathways.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Software: Amplifi App**
 
  In the Amplifi App, you can set up a guest network, manage devices, pause the internet, check the health of the system, and check your speeds on your entire network and on individual devices. You can optimize the priority level for each of your devices between normal, streaming, or gaming.
@@ -116,18 +123,16 @@ Lifewire / Erika Rawes
 
 ![Amplifi HD](https://www.lifewire.com/thmb/2X1DxWPlS1VXqnwsUCG5qviJXwc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_03-56584e48b76942519745c71443c2e8d5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: A little steep**
 
  The Amplifi HD system isn’t cheap. The package I tested, which came with the router and two mesh points, retails for $340\. You can find mesh systems for much less, and of course, some mesh systems are much more expensive. But, the Amplifi system’s design, easy setup, and feature set help justify the price.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ## **Amplifi HD vs. Nest Wi-Fi**
 
  A Nest Wi-Fi package sells for around the same price as the Amplifi system. However, with the Nest system, all of the components match, while the Amplifi router looks very different from its mesh points. The Nest system points also serve as Google Assistant speakers, and the system features some more advanced technologies (like WPA3 encryption). However, one big issue with the Nest system is that it only has two Ethernet ports, while the Amplifi router has four spare ports.
@@ -138,9 +143,6 @@ Lifewire / Erika Rawes
 
  The Amplifi HD mesh system is attractive and does provide coverage for a huge area, but it doesn’t deliver lightning-fast speeds in a home with dozens of connected devices.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Amplifi HD Mesh Wi-Fi System
@@ -159,14 +161,11 @@ Lifewire / Erika Rawes
 * Remote connect  Yes
 * What’s included  Amplifi HD Router, two mesh points, power and Ethernet cables, guides
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -175,4 +174,21 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-snapchat-enhancements-the-most-acclaimed-video-editing-tools/"><u>[New] 2024 Approved Snapchat Enhancements The Most Acclaimed Video Editing Tools</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-cold-games-2022s-ultimate-snowboard-dueling-display/"><u>2024 Approved Cold Games 2022'S Ultimate Snowboard Dueling Display</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-movavi-plus-review-a-detailed-look-at-its-version/"><u>2024 Approved Movavi Plus Review – A Detailed Look at Its Version</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-secure-and-unshakable-direct-url-addition-on-your-tiktok-profile/"><u>2024 Approved Secure & Unshakable Direct URL Addition on Your TikTok Profile</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-qanda-beyond-basic-usage/"><u>Instagram Q&A Beyond Basic Usage</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stay-active-with-fitbit-versa-3s-inbuilt-gps-and-comprehensive-health-apps-for-enhanced-motivation/"><u>Stay Active with Fitbit Versa 3'S Inbuilt GPS & Comprehensive Health Apps for Enhanced Motivation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/step-into-the-world-of-possibilities-with-minecraft-your-ultimate-guide-to-a-timeless-adventure/"><u>Step Into the World of Possibilities with Minecraft - Your Ultimate Guide to a Timeless Adventure</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-honor-100-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Honor 100 Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-lg-k51-smartphone-assessment-stylish-exterior-marred-by-slow-chip-technology/"><u>The LG K51 Smartphone Assessment: Stylish Exterior Marred by Slow Chip Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-lowdown-on-lgs-affordable-49-inch-4k-viewing-experience-with-the-um7300-model-review/"><u>The Lowdown on LG's Affordable 49-Inch 4K Viewing Experience with the UM7300 Model Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-philips-hf3505-alarm-clock-an-in-depth-review-for-a-better-wake-up-experience/"><u>The Philips HF3505 Alarm Clock – An In-Depth Review for a Better Wake-Up Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-sweet-spot-of-smartwatches-apple-watch-se-evaluation/"><u>The Sweet Spot of Smartwatches: Apple Watch SE Evaluation</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/2-video-grabber-online-to-download-any-video-you-like-for-2024/"><u>Top 12 Video Grabber Online to Download Any Video You Like for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-how-to-resolve-issues-with-non-functional-thaumaturge-feature/"><u>Troubleshooting Guide: How to Resolve Issues with Non-Functional Thaumaturge Feature</u></a></li>
+</ul></div>
 

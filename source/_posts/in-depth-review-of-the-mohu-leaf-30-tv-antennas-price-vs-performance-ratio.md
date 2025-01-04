@@ -1,7 +1,7 @@
 ---
 title: In-Depth Review of the Mohu Leaf 30 TV Antenna's Price Vs. Performance Ratio
-date: 2024-12-21T06:00:29.233Z
-updated: 2024-12-26T06:52:11.324Z
+date: 2025-01-02T12:32:02.101Z
+updated: 2025-01-04T04:03:44.786Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Review of the Mohu Leaf 30 TV Antenna's Price Vs. Performance Ratio
@@ -21,6 +21,10 @@ thumbnail: https://www.lifewire.com/thmb/bLtleSUHUny2HyUtrVdOZ9KgFSE=/400x300/fi
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/425lsqo6i1_7Vzb3ebrBxtVPgfM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -42,17 +46,9 @@ Lifewire / Zach Sweat
 
 4.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/JA4MI_SE7Alxl0MLR7rMoIVzKgI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -78,6 +74,10 @@ Lifewire / Zach Sweat
  We reviewed the original $150 Elite controller when it debuted years ago and loved nearly every aspect of it, but it wasn’t flawless suffering from the lack of a few key features and some durability issues. This is where the newly updated Elite Series 2 controller comes in. Listening to feedback provided by gamers on the weaknesses of Series 1, Microsoft has put out what is likely to be the last iteration of the[Xbox One controller,](https://www.lifewire.com/xbox-one-consoles-4156250) and it’s pretty much perfect—provided you’re willing to pay the hefty price tag.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/t8wI_yN2s_uIQ1leo87MmOnXxb4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-5-0c39ec4e89eb45b094471681efec0e7d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -107,11 +107,11 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/TRrezKVbAUPs2Rud3g4_iOHyxB8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-2-4b3f9d8acd1440089989378253d902f4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Comfort: Hefty, but darn comfy**
 
@@ -126,10 +126,6 @@ Lifewire / Zach Sweat
  The only real issue some users may see as a downside of this controller is that it’s quite a hefty device. The controller weighs 348 grams with all attachments, so it might take some getting used to compared to the 210 gram S controller. I personally love the bulk, as it feels premium, but it might not be for everyone.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/cS5fpyPSlqvyETs-nGxTtAB3vXU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-4-070b6c59b206457ba1068704bbe7bca9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -156,7 +152,7 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance/Durability: Enhanced performance and durability**
@@ -181,6 +177,10 @@ Lifewire / Zach Sweat
 
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Like buying a brand new console**
 
  Right now, the Elite Series 2 controller retails at an MSRP of $249.99, about $100 more than its predecessor. This price tag makes it not only the most expensive first-party controller around, but also nearly the cost of a brand new Xbox One S console (or three brand new titles). That can be a tough sell for your average gamer.
@@ -194,7 +194,7 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
@@ -243,18 +243,16 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-kinemaster-tutorials-for-amazing-memes-for-2024/"><u>[New] KineMaster Tutorials for Amazing Memes for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-test-flight-of-the-blade-e-flite-mcx2-remote-controlled-helicopter-top-rtf-choice/"><u>Comprehensive Test Flight of the Blade E-Flite mCX2 Remote Controlled Helicopter - Top RTF Choice</u></a></li>
-<li><a href="https://techtrends.techidaily.com/discover-fedora-40s-latest-enhancements-the-most-recent-advancements-in-this-popular-linux-distribution/"><u>Discover Fedora 40'S Latest Enhancements: The Most Recent Advancements in This Popular Linux Distribution</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/enhancing-ai-communications-for-bodybuilders/"><u>Enhancing AI Communications for Bodybuilders</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/essential-examination-adobe-lightroom-for-mobile-users/"><u>Essential Examination Adobe Lightroom for Mobile Users</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-oppo-a18-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Oppo A18 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/introducing-large-strong-studiofx-lighting-box/"><u>Introducing Large, Strong StudioFX Lighting Box</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/long-lasting-support-and-comfort-with-the-ergohead-mat-for-your-standing-desk-a-detailed-review/"><u>Long Lasting Support and Comfort with the Ergohead Mat for Your Standing Desk: A Detailed Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-gamer-satisfaction-with-the-budget-friendly-hp-omen-obelisk-in-depth-review/"><u>Maximizing Gamer Satisfaction with the Budget-Friendly HP OMEN Obelisk - In Depth Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/motorola-edgeplus-analysis-does-it-really-meet-premium-standards/"><u>Motorola Edge+ Analysis: Does It Really Meet Premium Standards?</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-tips-for-solving-2022-leaf-error-in-apex-legends-fix-guide/"><u>Troubleshooting Tips for Solving 2022 'Leaf' Error in Apex Legends - Fix Guide</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-resetting-your-samsung-television-easily/"><u>Ultimate Guide: Resetting Your Samsung Television Easily</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unlock-virtual-reality-at-unbeatable-prices-with-metas-latest-512gb-quest-3-package-top-rated/"><u>Unlock Virtual Reality at Unbeatable Prices with Meta's Latest 512GB Quest 3 Package - Top Rated !</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-freedom-on-facebook-10-tricks-to-sidestep-blockage/"><u>[New] In 2024, Freedom on Facebook 10 Tricks to Sidestep Blockage</u></a></li>
+<li><a href="https://extra-information.techidaily.com/accelerating-videos-an-easy-start-with-snapchat-for-2024/"><u>Accelerating Videos An Easy Start with Snapchat for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/fine-tuning-visibility-a-facebook-photos-primer/"><u>Fine-Tuning Visibility: A Facebook Photos Primer</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/maximize-your-productivity-with-our-picked-top-enote-taking-apps-for-the-latest-apple-tablets/"><u>Maximize Your Productivity with Our Picked Top eNote-Taking Apps for the Latest Apple Tablets</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/premium-e-reader-excellence-in-depth-amazon-kindle-oasis-assessment/"><u>Premium E-Reader Excellence: In-Depth Amazon Kindle Oasis Assessment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ready-your-mac-for-ventura-a-comprehensive-guide/"><u>Ready Your Mac for Ventura: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-how-does-the-budget-friendly-open-source-linksys-wrt19easily-meet-your-internet-needs/"><u>Review: How Does the Budget-Friendly, Open Source Linksys WRT19easily Meet Your Internet Needs?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rising-higher-than-ever-comprehensive-review-of-nokias-standout-mid-range-phone-the-72/"><u>Rising Higher Than Ever: Comprehensive Review of Nokia's Standout Mid-Range Phone, the 7.2</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/step-by-step-instructions-for-setting-up-sound-devices-in-the-computers-control-center-advice-from-experts-at-yl-software/"><u>Step-by-Step Instructions for Setting Up Sound Devices in the Computer’s Control Center - Advice From Experts at YL Software</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-ultimate-guide-to-streaming-mac-screens-to-hdtv-with-apples-airplay-feature/"><u>The Ultimate Guide to Streaming Mac Screens to HDTV with Apple's AirPlay Feature</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-honor-x9a-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Honor X9a | Dr.fone</u></a></li>
 </ul></div>
 

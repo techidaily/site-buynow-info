@@ -1,7 +1,7 @@
 ---
 title: "Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
-date: 2024-12-21T19:01:56.648Z
-updated: 2024-12-26T01:10:16.804Z
+date: 2025-01-02T10:59:13.280Z
+updated: 2025-01-04T10:42:26.784Z
 categories:
   - BestProducts
 description: "This Article Describes Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 ![Surviving Mars](https://www.lifewire.com/thmb/AjVVBONBD_MfQeA3voTlfDA2Jrc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -46,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 [View On Steampowered.com](https://store.steampowered.com/app/464920/Surviving%5FMars/) [View On G2a.com](https://www.g2a.com/en-us/surviving-mars-first-colony-edition-steam-key-global-i10000147752001?)
 
 3
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Paradox Interactive Surviving Mars
 
@@ -83,10 +79,14 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Humans have never been so annoying**
 
@@ -101,10 +101,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  In over twenty hours of gameplay, I learned the hard way that humans in this game are not only picky, but they demand the life of luxury the second they step off the rocket and into the dome. It didn’t matter that only twelve called a single dome home. It didn’t matter that there was barely enough of them to cover operating the grocery store and space bar. A lack of space for these amenities fell upon deaf ears. They wanted access to their art stores, electronics, and fine dining immediately. In that regard, I’m a little conflicted; as much as I wanted more shopping options for Mars, I realized not long after humans arrived that Haemimont Games, in reality, gave me a blessing by keeping a bland palate. Plus, more buildings and items become available as research, funding, and planetary discoveries allow.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -124,6 +120,10 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
@@ -133,7 +133,7 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: Other city-building games**
@@ -175,22 +175,24 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-expertly-choosing-the-leading-5-facebook-video-grabers/"><u>[New] Expertly Choosing the Leading 5 Facebook Video Grabers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-ultimate-profit-prodigy-in-the-digital-age/"><u>[New] In 2024, Ultimate Profit Prodigy in the Digital Age</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/op-6-youtube-outro-makers-lots-of-free-options-for-2024/"><u>[New] Top 6 YouTube Outro Makers-Lots of FREE Options for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-thermaltakes-massive-t-laptop-chiller-features-vs-expense/"><u>Comprehensive Review of Thermaltake's Massive T Laptop Chiller: Features Vs. Expense</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cost-effective-high-definition-petcube-cam-review/"><u>Cost-Effective High Definition - Petcube Cam Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ddpair-mini3s-delightful-adventure-in-dashcam-fun-a-must-read-review/"><u>DDPair Mini3's Delightful Adventure in Dashcam Fun - A Must-Read Review!</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-comprehensive-examination-the-future-of-photography-with-aurora-hdr/"><u>In 2024, Comprehensive Examination The Future of Photography with Aurora HDR?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/optimize-safety-and-performance-with-5-upgraded-lights/"><u>Optimize Safety & Performance with 5 Upgraded Lights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/optimizing-your-computer-setup-key-board-factors/"><u>Optimizing Your Computer Setup: Key Board Factors</u></a></li>
-<li><a href="https://common-error.techidaily.com/quick-solutions-to-audio-output-troubleshooting-in-windows-11-systems/"><u>Quick Solutions to Audio Output Troubleshooting in Windows 11 Systems</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/streamlabs-rival-tools-unveiled-for-2024/"><u>Streamlabs' Rival Tools Unveiled for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/taking-a-nostalgia-filled-journey-through-the-super-mario-bros-game-on-nintendos-legendary-game-and-watch-device-a-detailed-review/"><u>Taking a Nostalgia-Filled Journey Through the Super Mario Bros Game on Nintendo's Legendary Game & Watch Device: A Detailed Review</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138556014-9780486829944-the-fabric-of-dreams/"><u>The Fabric of Dreams | Free Book</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-perfect-marriage-of-sophistication-and-technology-a-comprehensive-review-of-the-skagen-falster-3-smartwatch/"><u>The Perfect Marriage of Sophistication & Technology: A Comprehensive Review of the Skagen Falster 3 Smartwatch</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-premiere-list-of-compact-disc-portables/"><u>The Premiere List of Compact Disc Portables</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/what-triggers-the-removal-of-an-epic-games-profile/"><u>What Triggers the Removal of an Epic Games Profile?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/winning-at-freefire-top-strategies-and-hashtags-shared/"><u>Winning at FreeFire Top Strategies and Hashtags Shared</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-critical-review-of-vlcs-capture-tools/"><u>[New] Critical Review of VLC's Capture Tools</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-open-library-legal-gaming-tracks-downloadable-for-2024/"><u>[New] Open Library Legal Gaming Tracks Downloadable for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-deconstructing-the-revenue-stream-of-tseries-in-youtube-economy/"><u>[Updated] 2024 Approved Deconstructing the Revenue Stream of TSeries in YouTube Economy</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-highly-recommended-extended-mouse-pads-list-find-the-best-fit/"><u>2024'S Highly Recommended Extended Mouse Pads List – Find the Best Fit</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/7-ways-to-lock-apps-on-iphone-xs-and-ipad-securely-by-drfone-ios/"><u>7 Ways to Lock Apps on iPhone XS and iPad Securely</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/acer-aspire-c27-sleek-design-meets-robust-performance-in-an-all-inclusive-desktop/"><u>Acer Aspire C27: Sleek Design Meets Robust Performance in an All-Inclusive Desktop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ankers-ultimate-usb-30-powerhouse-a-comprehensive-superspeed-hub-review/"><u>Anker's Ultimate USB 3.0 Powerhouse: A Comprehensive SuperSpeed Hub Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-the-bravery-of-jabra-bluetooth-earphones/"><u>Assessing the Bravery of Jabra Bluetooth Earphones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/choosing-your-console-in-depth-review-of-the-nintendo-switch-lite-versus-switch-oled/"><u>Choosing Your Console: In-Depth Review of the Nintendo Switch Lite Versus Switch OLED</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/compact-power-at-your-fingertips-the-ultimate-guide-to-the-audee-portable-compressor/"><u>Compact Power at Your Fingertips: The Ultimate Guide to the Audee Portable Compressor</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-the-mobvoi-ticwatch-pro-3-dual-screens-and-extended-endurance-reviewed/"><u>Comprehensive Guide to the Mobvoi TicWatch Pro 3: Dual Screens & Extended Endurance Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-compact-and-reliable-audew-portable-air-pump-functionality-unmatched/"><u>Comprehensive Review of the Compact and Reliable AUDEW Portable Air Pump - Functionality Unmatched</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722774985806-exploring-the-capabilities-a-thorough-analysis-of-the-docooler-usb-20-with-12-megapixels/"><u>Exploring the Capabilities: A Thorough Analysis of the Docooler USB 2.0 with 12 Megapixels!</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/from-compression-to-clarity-the-zip-srt-conversion/"><u>From Compression to Clarity The ZIP-SRT Conversion</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-samsung-galaxy-a34-5g-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Samsung Galaxy A34 5G? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-samsung-galaxy-s24-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Samsung Galaxy S24 Devices</u></a></li>
+<li><a href="https://win-blog.techidaily.com/overcome-cyberpunk-2077-lag-troubles-with-these-essential-optimization-steps/"><u>Overcome Cyberpunk 2077 Lag Troubles with These Essential Optimization Steps</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/revive-your-dark-aesthetic-solutions-for-restoring-facebooks-night-theme/"><u>Revive Your Dark Aesthetic: Solutions for Restoring Facebook's Night Theme</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-warframe-stalling-issues-a-comprehensive-guide/"><u>Troubleshooting Warframe Stalling Issues - A Comprehensive Guide</u></a></li>
 </ul></div>
 

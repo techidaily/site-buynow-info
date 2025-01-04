@@ -1,7 +1,7 @@
 ---
 title: From Afar, Hugs and Merriment with Petcube Bites 2
-date: 2024-12-22T02:52:01.792Z
-updated: 2024-12-26T04:29:42.747Z
+date: 2025-01-03T00:22:49.575Z
+updated: 2025-01-04T12:52:22.963Z
 categories:
   - BestProducts
 description: This Article Describes From Afar, Hugs and Merriment with Petcube Bites 2
@@ -17,6 +17,10 @@ thumbnail: https://www.lifewire.com/thmb/AveEElAwsJ-yfNPFL8X7KyXcAdA=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
@@ -43,10 +47,6 @@ Lifewire / Andy Zahn
 [View On Walmart $562](https://www.walmart.com/ip/Canon-PowerShot-SX70-HS-20-3MP-65x-Optical-Zoom-Digital-Point-Shoot-Camera/773178799?slfpid=3) [View On Adorama.com $699](https://www.adorama.com/icasx70.html) [View On B&H Photo Video $599](https://www.bhphotovideo.com/c/product/1435399-REG/canon%5F3071c001%5Fpowershot%5Fsx70%5Fhs%5Fdigital.html)
 
 4.3
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
@@ -85,7 +85,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Built to last, great to use**
@@ -109,6 +109,10 @@ Lifewire / Andy Zahn
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
 
@@ -142,10 +146,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -161,7 +161,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
@@ -178,10 +178,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -191,6 +187,10 @@ Lifewire / Andy Zahn
  There is also the option to connect to a[Canon printer](https://www.lifewire.com/best-canon-printers-4584899) and print your images directly from the camera. We found these features useful but also something of a hassle, since the process of connecting devices to the camera is pretty tedious.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Big brand, big price tag**
 
@@ -214,15 +214,15 @@ Lifewire / Andy Zahn
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Panasonic Lumix DC-FZ80](https://www.lifewire.com/panasonic-lumix-dc-fz80-review-4691071)
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -258,22 +258,19 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-vision-to-visuals-craft-your-story-with-youtube-editor/"><u>[New] In 2024, From Vision to Visuals Craft Your Story with YouTube Editor</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-webcam-buying-simplified-the-best-10-options/"><u>[New] Webcam Buying Simplified The Best 10 Options</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-revolutionizing-patient-engagement-with-creative-fb-strategies/"><u>[Updated] Revolutionizing Patient Engagement with Creative FB Strategies</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apples-premium-sound-option-max-airpods-reviewed/"><u>Apple's Premium Sound Option: Max AirPods Reviewed</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-tecno-camon-20-premier-5g-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Tecno Camon 20 Premier 5G Fingerprint Lock</u></a></li>
-<li><a href="https://network-issues.techidaily.com/bypassing-horizontal-distortion-a-diagnostic-strategy-for-portable-screens/"><u>Bypassing Horizontal Distortion: A Diagnostic Strategy for Portable Screens</u></a></li>
-<li><a href="https://win-manuals.techidaily.com/comment-retrouver-des-fichiers-egares-post-couper-et-coller-guide-complet-en-3-etapes/"><u>Comment Retrouver Des Fichiers Égarés Post-Couper Et Coller : Guide Complet en 3 Étapes</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-unleashing-the-power-of-razers-blade-pro-17-on-your-desk-or-lap/"><u>Comprehensive Review: Unleashing the Power of Razer's Blade Pro 17 on Your Desk or Lap</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/deciding-on-your-next-speaker-a-thorough-comparison-of-google-nest-audio-and-nest-mini/"><u>Deciding on Your Next Speaker: A Thorough Comparison of Google Nest Audio and Nest Mini</u></a></li>
-<li><a href="https://win-able.techidaily.com/dual-collision-dilemma-deciphering-it-takes-two-hits-for-pc-issues/"><u>Dual Collision Dilemma: Deciphering 'It Takes Two Hits' For PC Issues</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/from-fiction-to-reality-exploring-the-gap-between-strong-ai-and-its-weaker-counterpart/"><u>From Fiction to Reality: Exploring the Gap Between Strong AI and Its Weaker Counterpart</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/grand-escapades-redefined-in-the-heartwarming-tale-of-yokus-adventure/"><u>Grand Escapades Redefined in the Heartwarming Tale of Yoku’s Adventure</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Oppo Reno 8T 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reviewing-speed-and-style-gotraxs-gxl-v2-for-daily-city-rides-unleashed/"><u>Reviewing Speed and Style: Gotrax's GXL V2 for Daily City Rides Unleashed!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-2024-ergonomic-keyboard-picks-comfort-meets-productivity/"><u>Top 2024 Ergonomic Keyboard Picks: Comfort Meets Productivity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-tier-ergonomic-keyboards-for-optimal-typing/"><u>Top-Tier Ergonomic Keyboards for Optimal Typing</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unpacking-the-lenovo-tab-4-value-for-money-and-potential-drawbacks/"><u>Unpacking the Lenovo Tab 4: Value for Money and Potential Drawbacks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-clearing-imagery-the-canva-method-for-clean-bounds/"><u>[New] In 2024, Clearing Imagery The Canva Method for Clean Bounds</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-capturing-screenshots-like-a-pro-the-best-recorder-reviews/"><u>[Updated] 2024 Approved Capturing Screenshots Like a Pro The Best Recorder Reviews</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-prime-audio-alteration-tech-for-influencer-marketers/"><u>[Updated] 2024 Approved Prime Audio Alteration Tech for Influencer Marketers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-unifying-streams-simultaneous-capture-of-camplusscreen/"><u>[Updated] In 2024, Unifying Streams Simultaneous Capture of Cam+Screen</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/econostudio-kit-plus-ultra-lighting/"><u>EconoStudio Kit Plus Ultra Lighting</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-your-health-tracking-experience-discover-how-fitbit-sense-outshines-the-apple-watch/"><u>Elevate Your Health Tracking Experience: Discover How Fitbit Sense Outshines the Apple Watch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/essential-factors-to-ponder-pre-dvr-investment/"><u>Essential Factors to Ponder Pre-DVR Investment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exceptional-deals-on-the-oneplus-6t-top-notch-efficiency-explored/"><u>Exceptional Deals on the OnePlus 6T: Top-Notch Efficiency Explored</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-ultimate-jrpg-with-yakuza-like-a-dragon/"><u>Experience the Ultimate JRPG with Yakuza: Like a Dragon!</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-honor-100-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Honor 100 Phones? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/immediate-stop-for-windows-and-office-updates/"><u>Immediate Stop for Windows and Office Updates</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-concealed-identities-quick-tips-for-face-obscuration-in-images/"><u>In 2024, Concealed Identities Quick Tips for Face-Obscuration in Images</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-garmin-gpsmap-64st-a-multifunctional-guide-for-outdoor-enthusiasts-and-explorers/"><u>Reviewing the Garmin GPSMAP 64St: A Multifunctional Guide for Outdoor Enthusiasts and Explorers</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-for-snap-camera-connection-issues-input-unavailable/"><u>Troubleshooting Steps for Snap Camera Connection Issues: Input Unavailable</u></a></li>
 </ul></div>
 

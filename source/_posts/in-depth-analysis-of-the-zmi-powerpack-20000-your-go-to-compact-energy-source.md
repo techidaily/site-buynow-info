@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of the ZMI PowerPack 20000: Your Go-To Compact Energy Source"
-date: 2024-12-16T13:43:19.944Z
-updated: 2024-12-17T04:58:18.446Z
+date: 2024-12-29T20:15:41.128Z
+updated: 2025-01-04T10:14:36.671Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis of the ZMI PowerPack 20000: Your Go-To Compact Energy Source"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/381275c18c5ffabfab194a612a1683e1ab2c627fa
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/6eJwPC0xPwMxCh4aQhG73X9dkzU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -47,16 +43,12 @@ Lifewire / Erika Rawes
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -79,10 +71,6 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -92,6 +80,10 @@ Lifewire / Erika Rawes
  The antenna comes with a stand for placement on a desk or entertainment center. It also comes with double-sided adhesives, so you can hang it on a wall or window. The adhesives are extremely sticky—when I pulled the antenna off of my wall, the paint came off along with it.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/RWXekalxAMy_w61EH_Getqbfiy0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-2-24f94c63d6164dc7a54542cc1e4262c9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -111,6 +103,10 @@ Lifewire / Erika Rawes
 
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Range: Could be better**
@@ -122,7 +118,7 @@ Lifewire / Erika Rawes
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Mid-range**
@@ -130,6 +126,10 @@ Lifewire / Erika Rawes
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
 
 ![Antop AT-127](https://www.lifewire.com/thmb/Gyp2hHNkH22HeYhnm37WRKC_MHU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-4-baa9b55de12c4a91aa6baad4c8d86272.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -174,17 +174,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-optimal-gear-for-frame-by-frame-photography/"><u>[New] 2024 Approved Optimal Gear for Frame-by-Frame Photography</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-best-practices-in-choosing-the-perfect-format-for-youtube-videos/"><u>[Updated] In 2024, Best Practices in Choosing the Perfect Format for YouTube Videos</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-optimal-screen-record-settings-for-facetime-conversations-for-2024/"><u>[Updated] Optimal Screen Record Settings for FaceTime Conversations for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/apple-slashes-the-price-of-their-latest-m2-mac-mini-to-an-all-time-low-at-only-479-insights/"><u>Apple Slashes the Price of Their Latest M2 Mac Mini to an All-Time Low at Only $479 - Insights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/applecareplus-worth-it-understanding-the-benefits-versus-the-price-tag/"><u>AppleCare+ Worth It? Understanding the Benefits Versus the Price Tag</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/beyond-enhanced-graphics-exploring-the-full-potential-of-the-new-playstation-5/"><u>Beyond Enhanced Graphics: Exploring the Full Potential of the New PlayStation 5</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/creating-characters-crafting-chronicles-gpts-sixfold-strategy/"><u>Creating Characters, Crafting Chronicles: GPT's Sixfold Strategy</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-ultimate-connectivity-with-mobvoi-ticwatch-pro-4g-your-definitive-guide/"><u>Experience Ultimate Connectivity with Mobvoi Ticwatch Pro 4G - Your Definitive Guide</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ios-177-launching-soon-why-choosing-it-over-ios-18-could-be-wiser-tips-by-zdnet/"><u>IOS 17.7 Launching Soon! Why Choosing It Over iOS 18 Could Be Wiser - Tips by ZDNET</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/mastering-conversion-effective-ways-to-transform-rm-rmvb-videos-when-handbrake-falls-short/"><u>Mastering Conversion: Effective Ways to Transform RM RMVB Videos When HandBrake Falls Short</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-logitech-c92t-pro-hd-webcam-exceptional-video-quality-reviewed/"><u>The Ultimate Guide to the Logitech C92t Pro HD Webcam: Exceptional Video Quality Reviewed</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-essential-airpods-pro-gadgets-and-cases-a-comprehensive-review-by-techradar/"><u>Top Essential AirPods Pro Gadgets & Cases : A Comprehensive Review by TechRadar</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-youtubes-vs-dailymentions-spotting-key-differences/"><u>[New] In 2024, YouTubes Vs. DailyMentions Spotting Key Differences</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-new-age-influencers-8-youtubes-swift-surge/"><u>2024 Approved New-Age Influencers 8 YouTube's Swift Surge</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/6l275p2plus5bcg5pon5l2c57o757uf6lplusb56e76iez5paw56gs5lu2ic3kuidmraxkuidmraxmjifljzc/"><u>轻松将操作系统迁移至新硬件 -一步一步指南</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-comprehensive-review-of-samsungs-new-galaxy-s24-ultra-smartphone/"><u>A Comprehensive Review of Samsung's New Galaxy S24 Ultra Smartphone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-critical-review-of-google-maps-application-version-compatible-with-iphone/"><u>A Critical Review of Google Maps Application Version Compatible with iPhone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ace-your-collection-with-the-finest-external-bd-drives/"><u>Ace Your Collection with the Finest External BD Drives</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/achieve-lightning-fast-connectivity-across-your-household-with-orbis-wifi-6-tri-band-mesh-network-our-full-system-review/"><u>Achieve Lightning Fast Connectivity Across Your Household with Orbi's WiFi 6 Tri-Band Mesh Network - Our Full System Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/achieve-your-fitness-goals-easily-using-fitbit-versa-3s-built-in-gps-and-wellness-software-for-daily-encouragement/"><u>Achieve Your Fitness Goals Easily Using Fitbit Versa 3'S Built-In GPS & Wellness Software for Daily Encouragement.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722784222784-elite-choices-in-nano-gaming-rigs-find-your-perfect-match/"><u>Elite Choices in Nano Gaming Rigs - Find Your Perfect Match</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-itel-s23plus-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Itel S23+ | Dr.fone</u></a></li>
+<li><a href="https://win-web3.techidaily.com/how-tough-reviews-sparked-significant-microsoft-privacy-updates-for-better-protection-cybersecuritydigest/"><u>How Tough Reviews Sparked Significant Microsoft Privacy Updates for Better Protection | CyberSecurityDigest</u></a></li>
+<li><a href="https://win-popular.techidaily.com/identifying-and-fixing-computer-hardware-issues-expert-advice-from-yl-computing/"><u>Identifying & Fixing Computer Hardware Issues: Expert Advice From YL Computing</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-or-disabled-from-apple-iphone-6s-7-mehtods-you-cant-miss-by-drfone-ios/"><u>In 2024, Apple ID Locked or Disabled From Apple iPhone 6s? 7 Mehtods You Cant-Miss</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722764162414-leading-pc-auditory-devices-find-your-perfect-fit-here/"><u>Leading PC Auditory Devices : Find Your Perfect Fit Here</u></a></li>
+<li><a href="https://discover-able.techidaily.com/navigating-gpu-troubles-when-to-consider-replacement-expert-advice-by-yl-computing-and-yl-software/"><u>Navigating GPU Troubles: When to Consider Replacement - Expert Advice by YL Computing & YL Software</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722808430181-star-wars-squadrons-an-exciting-odyssey-into-the-heart-of-spectacular-interstellar-combat/"><u>Star Wars: Squadrons – An Exciting Odyssey Into the Heart of Spectacular Interstellar Combat.</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-art-of-creating-smooth-audio-cuts/"><u>The Art of Creating Smooth Audio Cuts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722729489368-top-rated-htpc-systems-your-ultimate-guide/"><u>Top Rated HTPC Systems - Your Ultimate Guide!</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The AmazonBasics High-Security Shredder Unveiled: A Detailed Look at the 12-Sheet Micro Cut Innovation."
-date: 2024-08-11T00:20:06.209Z
-updated: 2024-08-12T00:20:06.209Z
+date: 2024-12-28T16:23:57.978Z
+updated: 2025-01-04T12:26:38.383Z
 categories:
   - BestProducts
 description: "This Article Describes The AmazonBasics High-Security Shredder Unveiled: A Detailed Look at the 12-Sheet Micro Cut Innovation."
@@ -13,11 +13,12 @@ thumbnail: https://thmb.techidaily.com/edd57a156bbf7df4d7711f42029b2540d33e03363
 
 4
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Beantech Bitwatch S1 Plus
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/JogmBSjTGQl_gqbjuX8prgeJJPA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
 
  Lifewire / Emily Ramirez
@@ -40,14 +41,8 @@ thumbnail: https://thmb.techidaily.com/edd57a156bbf7df4d7711f42029b2540d33e03363
 
 4
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Beantech Bitwatch S1 Plus
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/RIxQYWLMnyHkO9IcguCoRX11EbY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
 
  Lifewire / Emily Ramirez
@@ -73,11 +68,12 @@ thumbnail: https://thmb.techidaily.com/edd57a156bbf7df4d7711f42029b2540d33e03363
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/8rMhc1Lk5yFRFW4Zlt2K9cmPdFo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-4-01d7e5ff51aa47008d803513064f4a7a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design and Software: A surprising amount of features in this chunky watch**
 
  The most outstanding feature of the Bitwatch’s design is its chunkiness. For those with small wrists, this smartwatch looks ridiculous. Furthermore, the included bands are too small in comparison to the watch, giving the overall design a cheap feel. When you wear this watch, you will notice it weighing your wrists down, taunting you to take it off. But as ugly as the Bitwatch is, it is a functional little watch. It has a power button and volume buttons, as well as a strong vibration motor. Its touchscreen works without a problem, and the app layout is intuitive to understand.
@@ -88,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/edd57a156bbf7df4d7711f42029b2540d33e03363
 
  While it doesn’t have[NFC](https://www.lifewire.com/what-is-nfc-832715) or GPS, it does have a speaker, and you can send basic messages with the watch. The Bitwatch S1 is surprisingly robust for those who want to dip their toes into the smartwatch experience, with many of the features that mid-tier smartwatches possess.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Easy, but unexplained**
 
  Setting up the Bitwatch works as you’d expect. Pair it via the Bluetooth on your phone and download the Beantech app. It works with both Android and iOS, so you should have no difficulty. Alerts will show up in the remote notifier app, and apps such as the calendar are not synced with your phone’s calendar apps, so keep that in mind if you’d like to add any events, notifications, or alarms to your watch.
@@ -97,8 +97,9 @@ thumbnail: https://thmb.techidaily.com/edd57a156bbf7df4d7711f42029b2540d33e03363
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: You get what you pay for**
 
  The Bitwatch’s low price tag shows in its performance, unfortunately. The Siri app is just that: it interfaces with Siri, meaning that voice commands are iOS-exclusive. Notification handling on the device can get confusing also. You find notifications in the Remote Notifier app, and dismissing them on the Bitwatch does not dismiss them on your phone.
@@ -109,16 +110,14 @@ thumbnail: https://thmb.techidaily.com/edd57a156bbf7df4d7711f42029b2540d33e03363
 
  If you’d like to listen to calls or music through the speaker, you will miss a lot of information— think of those jingles they play when you’re on hold for a phone call. At least the screen is big and easy to read, and the notifications_do_ work. It’s good enough for someone that wants to get a feel to a smartwatch experience, but there are better options for a little more money if you can afford it.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/7GtX2IU-w4sJA-BTqQtHQThxaJo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-3-ade31135cd9d4fe0b6b01286941d2652.jpg)
 
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Battery: It last longer than most flagship smartwatches**
 
  The battery life on the Bitwatch is excellent. With regular usage (GPS, heart rate, Bluetooth all on), we got between two and three days of use before we had to recharge. Charging is a little annoying, though, since it uses a snapping charger base that’s difficult to remove.
@@ -155,14 +154,11 @@ thumbnail: https://thmb.techidaily.com/edd57a156bbf7df4d7711f42029b2540d33e03363
 * Battery Capacity  Unknown; 2 days in field testing
 * Waterproof  No
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -171,4 +167,22 @@ thumbnail: https://thmb.techidaily.com/edd57a156bbf7df4d7711f42029b2540d33e03363
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-unlocking-the-full-spectrum-of-vlc-player-capabilities/"><u>[Updated] Unlocking the Full Spectrum of VLC Player Capabilities</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-restore-lost-details-4-premiere-pro-methods-for-iphone-hdr-footage/"><u>2024 Approved Restore Lost Details 4 Premiere Pro Methods for iPhone HDR Footage</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-top-five-excellent-cameras-for-high-fidelity-movies/"><u>2024 Approved Top Five Excellent Cameras for High Fidelity Movies</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On OnePlus Ace 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/is-the-vatican-embracing-modern-technology-with-pope-franciss-email-usage/"><u>Is the Vatican Embracing Modern Technology with Pope Francis's Email Usage?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/media-caption-compiler-for-2024/"><u>Multimedia Caption Compiler for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/solving-the-msxml4dll-missing-file-dilemma-a-comprehensive-guide/"><u>Solving the 'Msxml4.dll' Missing File Dilemma: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-screen-for-amazon-prime-fans-a-detailed-review-of-toshibas-55lf711u20-fire-tv-smart-tv/"><u>The Best Screen for Amazon Prime Fans? A Detailed Review of Toshiba's 55LF711U20 Fire TV Smart TV</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-lenovo-thinkpad-x1n-tablet-reimagined-a-well-executed-2-in-1-with-an-impressive-keyboard-feature/"><u>The Lenovo ThinkPad X1n Tablet Reimagined: A Well-Executed 2-in-1 with an Impressive Keyboard Feature</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-new-conversation-king-assessing-googles-ai-vs-chatgpt/"><u>The New Conversation King? Assessing Google's AI Vs. ChatGPT</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-lensdirect-glasses-that-combat-blue-light-while-accommodating-prescription-needs/"><u>The Ultimate Guide to Choosing LensDirect Glasses that Combat Blue Light While Accommodating Prescription Needs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-lenovos-budget-tablet-m10-fhd-plus-with-vibrant-screen-2020-model/"><u>The Ultimate Guide to Lenovo's Budget Tablet, M10 FHD Plus with Vibrant Screen (2020 Model)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-amazons-latest-innovation-echo-show-10-gen-3-your-companion-that-follows-you-around/"><u>The Ultimate Review of Amazon's Latest Innovation - Echo Show 10, Gen 3 - Your Companion That Follows You Around</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-showdown-google-nest-audio-against-the-apple-homepod/"><u>The Ultimate Showdown: Google Nest Audio Against the Apple HomePod</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unlock-the-secrets-of-effortless-editing-for-windows-11-videos-for-2024/"><u>Unlock the Secrets of Effortless Editing for Windows 11 Videos for 2024</u></a></li>
+</ul></div>
 

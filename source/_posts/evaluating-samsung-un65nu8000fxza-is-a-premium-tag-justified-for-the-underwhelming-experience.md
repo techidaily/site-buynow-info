@@ -1,7 +1,7 @@
 ---
 title: Evaluating Samsung UN65NU8000FXZA - Is a Premium Tag Justified for the Underwhelming Experience?
-date: 2024-12-20T21:34:02.224Z
-updated: 2024-12-25T21:54:05.074Z
+date: 2025-01-01T23:22:02.947Z
+updated: 2025-01-04T07:56:48.833Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating Samsung UN65NU8000FXZA - Is a Premium Tag Justified for the Underwhelming Experience?
@@ -21,6 +21,10 @@ thumbnail: https://www.lifewire.com/thmb/-VS2-Etc0zkaOlIkOJ7aMJ5ymJo=/400x300/fi
 ## Alienware Aurora R9
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/SBirmVys72S63lQd4lWukO_gXRw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -79,7 +83,7 @@ Lifewire / Zach Sweat
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wRBNGBQw39Gc3PVZ6i0PJB4LuWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-08-406d659ae21641d2b9df53303e8f6d76.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -117,7 +121,7 @@ Lifewire / Zach Sweat
  From here, you can either fine tune your new PC’s looks within the settings menu or keep things as they are. If you’re using a monitor with a higher refresh rate or resolution, it’s also a good idea to ensure your PC is fully utilizing this by perusing the display settings and options. After all, nobody likes finding out they’ve been stuck on 60Hz with their display that’s capable of hitting 144Hz.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Results may vary**
@@ -138,10 +142,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Gaming: From ok to amazing, if you have the cash**
 
  Much like performance in everyday tasks, your performance in gaming is based on what hardware your Aurora features. You can go all the way up to a monsterous gaming rig with a GTX 2080, or all the way down to our little base model with a GTX 1650, so it’s up to you how much performance you’re willing to pay for.
@@ -158,6 +158,10 @@ Lifewire / Zach Sweat
 
  Your gaming performance in relation to the Aurora is subject to your hardware, peripherals and network speeds if playing an online game, so choose the best model you can afford within your budgetary restrictions and keep in mind how you plan to use your PC.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Audio: Decent prebuilt performance and surround sound**
 
  A quality audio setup is something often overlooked when it comes to computers, but it’s something that can really add to the overall enjoyment of your PC. Immersive soundscapes in games and movies, astounding dynamic range in music and crisp, clear dialogue combine to separate the mediocre computers from the great.
@@ -169,10 +173,6 @@ Lifewire / Zach Sweat
  If you’ve got a beefy external audio setup with lots of speakers, you’re in luck, as the R9 features tons of ports for your equipment. Ports on the back include a center/subwoofer output, rear surround output, side surround output and two coaxial S/PDIF ports for connecting an amplifier, speakers or a TV for digital audio output through a coaxial cable.
 
  Although true audiophiles will still want to stick with a DAC, or digital-to-analog converter, the Aurora R9 packs in pretty decent audio options for most users.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Network: Solid Ethernet, average Wi-Fi**
 
@@ -205,7 +205,7 @@ Lifewire / Zach Sweat
  For RGB fans, the AlienFX hardware and software provides tons of potential combinations with up to 16.8 million color options. Users can take full control of the external RGB along the front and sides of the tower in addition to supported peripherals. Themes you create can also be saved and assigned to specific games, which is a pretty sweet perk.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Not the best bang for your buck**
@@ -222,6 +222,10 @@ Lifewire / Zach Sweat
 
  Overall, the price of the R9 is ok at best, and you do get some nice software features from Alienware, but it’s still cheaper to build your own.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Alienware Aurora R9 vs. Dell G5 5090**
 
  Comparing two gaming PCs in a head-to-head competition is difficult due to the sheer amount of potential hardware configurations, but Dell also offers prebuilts outside the Alienware brand that are similar.
@@ -237,10 +241,6 @@ Lifewire / Zach Sweat
  **A quality prebuilt, but not the most frugal.**
 
  With a distinct design that only Alienware can pull off, the Aurora R9 is a futuristic-looking prebuilt PC with a lot of good, but a bit of extra cost. If you love Alienware or the look of the R9, it’s not a bad option, but it’s certainly not the most frugal.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -270,24 +270,22 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-the-editors-guide-to-flawless-frame-acceleration/"><u>[New] 2024 Approved The Editor's Guide to Flawless Frame Acceleration</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-how-to-see-youtube-liked-comments/"><u>[New] How to See YouTube Liked Comments</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-iphone-and-android-compared-top-youtube-app-analysis-for-2024/"><u>[Updated] IPhone & Android Compared Top YouTube App Analysis for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-unveiling-the-top-6-head-mounts-expert-reviews-for-action-photography/"><u>2024 Approved Unveiling The Top 6 Head Mounts Expert Reviews for Action Photography</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/aquasound-check-unshakable-deep-water-performance/"><u>AquaSound Check: Unshakable Deep Water Performance</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/easy-fixes-for-the-most-frequent-television-glitches-you-may-encounter/"><u>Easy Fixes for the Most Frequent Television Glitches You May Encounter</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-my-desktops-readiness-for-macos-sonoma/"><u>Evaluating My Desktop's Readiness for macOS Sonoma</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-picks-ultimate-guide-to-the-most-effective-wi-fi-expanders/"><u>Expert Picks: Ultimate Guide to the Most Effective Wi-Fi Expanders</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/must-have-android-apps-for-enhanced-chromebook-functionality/"><u>Must-Have Android Apps for Enhanced Chromebook Functionality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/oculus-quest-2-and-elite-gearbag-with-power-reserve-in-depth-product-analysis/"><u>Oculus Quest 2 & Elite Gearbag with Power Reserve - In-Depth Product Analysis</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/revolutionize-your-prints-the-ultimate-guide-to-cura-enhancements/"><u>Revolutionize Your Prints: The Ultimate Guide to Cura Enhancements</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-alluring-sony-ps-lx310bt-reviewed-turntable/"><u>The Alluring Sony PS-LX310BT Reviewed Turntable</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-poco-m6-pro-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Poco M6 Pro 4G | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unparalleled-audio-experience-premiere-wired-headphones-of-2024/"><u>Unparalleled Audio Experience: Premiere Wired Headphones of 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-pros-and-cons-of-the-radpower-radcity-n-plus-electric-hybrid-cycle/"><u>Unveiling the Pros and Cons of the RadPower RadCity N + Electric Hybrid Cycle</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/vanguard-vision-heavyweight-stabilizer-reviewed/"><u>Vanguard Vision: Heavyweight Stabilizer Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/why-premium-membership-on-linkedin-could-be-your-winning-move/"><u>Why Premium Membership on LinkedIn Could Be Your Winning Move</u></a></li>
-<li><a href="https://fox-within.techidaily.com/1728508251080-windows-11c/"><u>セキュアディスカッション：Windows 11でCドライブを安全に削除するためのトリプル戦略</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-rediscovering-the-past-with-your-camera-roll-on-snapchat/"><u>[New] 2024 Approved Rediscovering the Past with Your Camera Roll on Snapchat</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-customize-spotify-turn-off-suggested-podcast-additions-for-2024/"><u>[New] Customize Spotify Turn Off Suggested Podcast Additions for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-iphones-premier-video-tools-pick-cameo-over-filmorago/"><u>[Updated] 2024 Approved IPhone's Premier Video Tools Pick Cameo Over FilmoraGo?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-non-standard-windows-media-processors/"><u>[Updated] Non-Standard Windows Media Processors</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-optimal-performance-desktops-today/"><u>[Updated] Optimal Performance Desktops Today</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-fujitsu-scansnap-ix1400-assessment-ideal-device-for-personal-workspaces-and-smbs/"><u>Comprehensive Fujitsu ScanSnap iX1400 Assessment: Ideal Device for Personal Workspaces & SMBs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-netgeer-orbi-overview-leading-the-market-in-wireless-technology/"><u>Comprehensive Netgeer Orbi Overview: Leading the Market in Wireless Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-oneplus-nord-n10-5g-analysis-why-you-shouldnt-overlook-it/"><u>Comprehensive OnePlus Nord N10 5G Analysis - Why You Shouldn't Overlook It</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cubefit-terramat-analysis-transform-your-standing-time-into-fitness-gains/"><u>CubeFit TerraMat Analysis: Transform Your Standing Time Into Fitness Gains</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cutting-edge-noise-dampening-headsets-24/"><u>Cutting-Edge Noise Dampening Headsets '24</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dont-miss-the-best-savings-of-the-year-on-premium-samsung-gadgets-prime-deals-awaiting/"><u>Don't Miss the Best Savings of the Year on Premium Samsung Gadgets – Prime Deals Awaiting</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-robustness-and-vivid-4k-clarity-of-sunbriteveranda-55-hdtv-on-your-porch-or-patio/"><u>Experience the Robustness and Vivid 4K Clarity of SunBriteVeranda 55 HDTV on Your Porch or Patio</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/from-s10plus-to-s20-unveiling-key-features-that-set-samsungs-latest-phones-apart/"><u>From S10+ to S20: Unveiling Key Features That Set Samsung's Latest Phones Apart</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Honor 70 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/quantifying-rainfall-in-cryptocurrency-trading-mastering-fund-rate-arbitrage-with-yl-computings-expert-guide/"><u>Quantifying Rainfall in Cryptocurrency Trading: Mastering Fund Rate Arbitrage with YL Computing's Expert Guide</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-the-binkw32dll-file-not-found-issue-a-step-by-step-guide/"><u>Resolving the 'binkw32.dll' File Not Found Issue: A Step-by-Step Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Oppo Find N3 Flip | Dr.fone</u></a></li>
 </ul></div>
 

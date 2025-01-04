@@ -1,7 +1,7 @@
 ---
 title: Top Ergonomic Keyboard Picks for Optimal Comfort
-date: 2024-08-19T16:23:47.574Z
-updated: 2024-08-20T16:23:47.574Z
+date: 2025-01-01T10:45:59.570Z
+updated: 2025-01-03T21:09:57.726Z
 categories:
   - BestProducts
 description: This Article Describes Top Ergonomic Keyboard Picks for Optimal Comfort
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/ae8RaGxhezzEqpugk1_Oz8ylJxo=/400x300/fi
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/mk2ndJKMrOgGOYfE8uNwJVYkaTk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
 
@@ -38,9 +42,17 @@ Lifewire / Nick Jaynes
 
 4.5
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/kUpys0K04ePH0SuEfAENz--MXSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
 
@@ -63,9 +75,6 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ## **Design: All-plastic, but sturdy and subtle**
 
  The Anker PowerDrive 2 might not be the sharpest or most cutting-edge looking in-car USB charger, but what it lacks in visual pizazz, it more than makes up for in sturdiness.
@@ -79,8 +88,9 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Fast charging for demanding devices**
 
  The best part of the Anker PowerDrive 2 is its charging. It has the ability to charge iPads simultaneously without getting overheated thanks to its PowerIQ and VoltageBoost technology. Each USB port can output a maximum 5V/2.4A, for a total of 24W. That’s in line with other car[chargers](https://www.lifewire.com/best-wireless-phone-chargers-4138571) we tested, but the PowerIQ technology can help identify device and deliver the fastest possible charge. This also gives you some overvoltage protection to make sure something like a smartwatch doesn’t fry when you plug it in.
@@ -92,18 +102,15 @@ Lifewire / Nick Jaynes
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
 
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Middle of the pack**
 
  The list price of $14.99 is positioned in the mid-range of the USB charger market, which ranges from just a few dollars to upwards of $50 for some fancier chargers. However, Anker PowerDrive 2 can be had for a discounted price on some websites. Considering the fact that the Anker PowerDrive 2 includes both the fast-charger and a 3-foot micro USB cable, it is well priced for the marketplace.
 
  Lifewire / Nick Jaynes
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## **Competition: A handful of rivals**
 
  The RAVPower 24W charger is one of Anker’s main rivals. It has a metal exterior, a lower price tag, and theoretically identical power output. However, its construction is far less robust. In fact, its metal outside easily separates from the internal components easily making Anker a better pick for longevity.
@@ -118,10 +125,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  PowerDrive 2 24W Dual USB Car Charger
@@ -139,8 +142,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -148,4 +149,26 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-21-edition-deep-dive-unraveling-vegas-pros-complexities-for-2024/"><u>[New] '21 Edition Deep-Dive Unraveling Vegas Pro’s Complexities for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-finding-perfect-dronescopic-stability-a-gimbal-guide/"><u>[New] Finding Perfect Dronescopic Stability A Gimbal Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-paving-the-way-the-trailblazing-ladies-of-online-video-content/"><u>[New] In 2024, Paving the Way The Trailblazing Ladies of Online Video Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-what-you-need-to-know-about-vanishing-shorts-thumbnails-on-youtube/"><u>[Updated] In 2024, What You Need to Know About Vanishing Shorts Thumbnails on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-best-starting-points-on-youtube-top-16-opener-list-for-growth/"><u>2024 Approved Best Starting Points on YouTube Top 16 Opener List for Growth</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/achieve-better-engagement-with-websites-optimized-using-the-cookiebot-platform/"><u>Achieve Better Engagement with Websites Optimized Using the Cookiebot Platform</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-zmi-powerpack-20000-the-ultimate-portable-energy-solution/"><u>Expert Analysis of the ZMI PowerPack 20000 - The Ultimate Portable Energy Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-evaluation-pros-and-cons-of-pioneers-bdr-xd05b-blu-ray-burning-device/"><u>Expert Evaluation: Pros and Cons of Pioneer's BDR-XD05B Blu-Ray Burning Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-how-the-samsung-galaxy-watch-active-is-revolutionizing-personal-health-monitoring/"><u>Expert Review: How the Samsung Galaxy Watch Active Is Revolutionizing Personal Health Monitoring</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-take-on-the-creative-labs-sound-blaster-zxr-2013-a-must-have-for-audio-enthusiasts/"><u>Expert Take on the Creative Lab's Sound Blaster ZxR (2013) - A Must-Have for Audio Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-best-features-in-nixplay-seed-smart-frames/"><u>Exploring the Best Features in Nixplay Seed Smart Frames</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/garmin-forerunner-745-review-a-premium-multisport-fitness-tracker/"><u>Garmin Forerunner 745 Review: A Premium Multisport Fitness Tracker</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-tab-s5e-top-of-the-line-android-tablet-unveiled/"><u>In-Depth Analysis of the Samsung Galaxy Tab S5e: Top-of-the-Line Android Tablet Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-apples-homepod-mini-features-on-music-and-siri/"><u>In-Depth Evaluation of Apple's HomePod Mini: Features on Music & Siri</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-mlb-the-show-19-analysis-beautiful-sportscraft-meets-unforeseen-role-playing-elements/"><u>In-Depth MLB The Show 19 Analysis: Beautiful Sportscraft Meets Unforeseen Role-Playing Elements</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/techniques-for-writing-eye-catching-podcast-summaries/"><u>Techniques for Writing Eye-Catching Podcast Summaries</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/trouble-free-gaming-diagnosing-and-repairing-problematic-video-cards-by-yl-software-experts/"><u>Trouble-Free Gaming: Diagnosing and Repairing Problematic Video Cards by YL Software Experts</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-advanced-audio-cleanup-tactics-to-remove-unwanted-elements-from-your-video-content/"><u>Updated 2024 Approved Advanced Audio Cleanup Tactics to Remove Unwanted Elements From Your Video Content</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-free-online-video-editing-made-easy-a-jaycut-user-guide/"><u>Updated 2024 Approved Free Online Video Editing Made Easy A Jaycut User Guide</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Analysis of Netgear's Powerline Kit with 1200 Mbps: Does Bulky Build Compromise Performance?"
-date: 2024-08-19T16:27:41.243Z
-updated: 2024-08-20T16:27:41.243Z
+date: 2024-12-30T02:03:34.052Z
+updated: 2025-01-03T17:38:32.780Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Analysis of Netgear's Powerline Kit with 1200 Mbps: Does Bulky Build Compromise Performance?"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/78f06b81f7c57e1e88ac6a7fa4601f5ae07cf7d31
 ## Netgear Powerline PL1200
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LJwkWIKV_tIoZmxEqV9kr7ByA1Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_HeroSquare-d40232740fc34cdbb9b7197a7bda177d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jordan Oloman
 
@@ -35,6 +39,10 @@ Lifewire / Jordan Oloman
 [View On Amazon $93](https://www.amazon.com/NETGEAR-PowerLINE-1200-Gigabit-PL1200-100PAS/dp/B00S6DBGJM/?tag=lifewire-onsite-prod-20&ascsubtag=4775706%7Cnd7ef9f90fead488fa5331864dc7d135e18%7CB00S6DBGJM) [View On Walmart $95](https://www.walmart.com/ip/POWERLINE-1200/45611933) [View On Best Buy $48](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-powerline-ac1200-gigabit-ethernet-adapter-2-pack-white%2F4002029.p%3FskuId%3D4002029)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Netgear Powerline PL1200
 
@@ -81,13 +89,11 @@ Lifewire / Jordan Oloman
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LMrQEcpONDZxLUfoMW6U8sX4dQw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_02-a8557f722ac84f29b6efb2a763d22a3c.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Lifewire / Jordan Oloman
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process: Delightfully quick and efficient**
 
  The Netgear Powerline 1200 is a dream to start, since all it takes is plugging the devices in for them to work. Simply place one near your router, attach the Ethernet cable, then head to the room where you want to expand the network and do the same there, attaching the Ethernet to a console, smart TV or electronic device with an internet connection.
@@ -102,14 +108,12 @@ Lifewire / Jordan Oloman
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LvSmrJJnFItVzQEAPCzBexfSn2M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_03-8fb5af44f82449b49fc780fd23bcb2af.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Jordan Oloman
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: A solid improvement**
 
  Using the device across our living room and bedroom, in two different setups across the course of a month, we found that the Netgear Powerline kit gave us a reliable upgrade to internet efficiency. Our initial connection speed (as per[Speedtest](https://www.speedtest.net/) ) offered a 68.4Mbps download speed, with 3.60Mbps upload speed, and sub-10-millisecond ping. The Netgear kit with an Ethernet cable attached to our laptop afforded us an 88Mbps download speeds and 6Mbps upload speeds.
@@ -122,16 +126,14 @@ Lifewire / Jordan Oloman
 
  You can create a secure and powerful network that boasts a dramatic upgrade in efficacy, all for a low price point, with a setup process that is actually plug and play.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: Affordable for what you get**
 
  Out of the adapters we tested, the Netgear Powerline 1200 was one of the cheaper ones on Amazon, ranging between $70-$85\. You can see why when you study the design and the many aesthetic flaws that come with this product. Besides the fact it is bulky and doesn’t play nice with other plugs, it’s a reliable means to improve your home network through the wonders of Powerline. It’s still quite a hard sell at this price compared to other products that hover around the same and offer more ports and socket functionality, but it’s still a worthwhile purchase if you just want to plug and play.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Netgear Powerline 1200 vs. TP-Link AV2000 Powerline Adapter**
 
  Comparing the Netgear Powerline 1200 kit to the TP-Link Powerline AV2000, there are some noticeable pros and cons. The TP-Link kit performs better speed-wise, has serviceable cables, lets you use the socket and doesn’t obstruct other plugs. However, the setup process isn’t as simple and we found some easily-fixed, but frustrating issues with connectivity.
@@ -161,8 +163,6 @@ Lifewire / Jordan Oloman
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -170,4 +170,17 @@ Lifewire / Jordan Oloman
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-asus-bw-16d1x-u-stylish-appeal-with-unique-characteristics/"><u>Evaluating the Asus BW-16D1X-U: Stylish Appeal with Unique Characteristics</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/exploring-the-chic-and-efficient-swagtrn-swagger-electric-scooter-experience/"><u>Exploring the Chic and Efficient Swagtrn Swagger Electric Scooter Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-apples-latest-pint-sized-marvel-the-ipad-mini-5-stands-up-to-review/"><u>How Apple's Latest Pint-Sized Marvel, The iPad Mini 5, Stands Up to Review</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/o-transform-brainstorms-into-youtube-channel-names/"><u>How To Transform Brainstorms Into YouTube Channel Names</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-quick-ways-to-transfer-contacts-from-apple-iphone-15-pro-to-iphone-withwithout-itunes-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Quick Ways to Transfer Contacts from Apple iPhone 15 Pro to iPhone With/Without iTunes | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-the-artisans-path-to-precision-zooming-on-kinemaster/"><u>In 2024, The Artisan’s Path to Precision Zooming on Kinemaster</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/premium-photos-in-the-finest-display-frame/"><u>Premium Photos in the Finest Display Frame</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/step-by-step-guide-adding-programs-from-the-microsoft-store-onto-your-windows-10-pc/"><u>Step-by-Step Guide: Adding Programs From the Microsoft Store Onto Your Windows 10 PC</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-all-new-dell-xps-13-7390-a-flexible-elegant-ultrabook-that-redefines-portability/"><u>The All-New Dell XPS 13 (7390): A Flexible, Elegant Ultrabook That Redefines Portability</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-reduce-mpeg2-file-size-a-guide-to-using-virtualdub/"><u>Updated 2024 Approved Reduce MPEG2 File Size A Guide to Using VirtualDub</u></a></li>
+</ul></div>
 

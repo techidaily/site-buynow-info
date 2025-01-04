@@ -1,7 +1,7 @@
 ---
 title: "LightZone Impressions: Comprehensive Darkroom Toolset Across Windows/Mac/Linux Platforms"
-date: 2024-12-18T21:00:49.165Z
-updated: 2024-12-26T06:52:42.547Z
+date: 2025-01-02T10:37:49.220Z
+updated: 2025-01-03T23:06:03.186Z
 categories:
   - BestProducts
 description: "This Article Describes LightZone Impressions: Comprehensive Darkroom Toolset Across Windows/Mac/Linux Platforms"
@@ -51,7 +51,7 @@ Lifewire / Jeremy Laukkonen
 ![Xbox Series S](https://www.lifewire.com/thmb/wlG_GrSmQPVex-VRt3ap4hsTP-s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -79,10 +79,6 @@ Lifewire / Jeremy Laukkonen
 
  This console is remarkably compact and has a surprisingly low price point. Gamers looking for a[4K UHD in HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) experience will need to pay a premium for the Series X, but the Xbox Series S offers an enticing alternative if you’re looking to save some money or haven’t yet made the jump to 4K.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Sleek and compact**
 
  The Xbox Series S is small, and it's almost impossible to oversell that point. I had seen pictures and videos of the console and the spec sheet, but I was still surprised at how compact this thing was when I unboxed it. It's smaller than the Xbox One S, and Microsoft bills it as "our smallest Xbox ever." That's especially noteworthy since Microsoft and Sony went exceptionally big with their flagship consoles, the Series X and PlayStation 5.
@@ -90,7 +86,7 @@ Lifewire / Jeremy Laukkonen
 ![Xbox Series S](https://www.lifewire.com/thmb/3-mUIkkRYilM5F2tvCYMPXtW1Ew=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1-04d996bcdfbb489d84e8945e4c475713.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
@@ -108,6 +104,10 @@ Lifewire / Jeremy Laukkonen
  I highly recommend setting up the Xbox Series S with the help of the Xbox app. It massively streamlines the process, makes it easier to connect to Wi-Fi since you don’t need to type out your password with the Xbox’s on-screen keyboard, and even pre-loads the Series S with settings from your old Xbox One if you had one.
 
  I ended up wiping the console back to factory settings a few times while I put it through its paces, so I also tried the traditional setup method after circling back. It’s similar to setting up an Xbox One; not that difficult or time-consuming, but the app option is better.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Rock solid 1440p gaming**
 
@@ -182,7 +182,7 @@ Lifewire / Jeremy Laukkonen
  An overhaul of the dashboard is currently in the works, and we expect it to arrive in 2023.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Controller: Iteration more than innovation**
@@ -202,13 +202,13 @@ Lifewire / Jeremy Laukkonen
 ![Xbox Series S](https://www.lifewire.com/thmb/MZdEnnFWPzhGzv_P5GO8byAY5qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3-dd9458b294e74205acad2ff6fee33913.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Jaw-droppingly low**
@@ -220,6 +220,10 @@ Lifewire / Jeremy Laukkonen
  One nice thing about the Xbox Series X|S is that when you buy a new console, you typically have a bunch of add-ons to worry about that drive the price up. For example, you might have to purchase several controllers to support multiplayer, which adds up to $60 or more per controller. Since the Series S supports most Xbox One peripherals, owners don’t have to worry about the added expense of buying extra controllers.
 
  One expense you may need to budget is a high-speed USB 3.1 drive. The console is perfectly usable without an external drive, but expect to uninstall games regularly to make more space if you limit yourself to the onboard storage.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Xbox Series S vs. PS5 Digital**
 
@@ -234,10 +238,6 @@ Lifewire / Jeremy Laukkonen
  **An affordable alternative for those without a 4K television.**
 
  The Xbox Series S might be a bit of a step back from the Xbox One X in performance, but the fact is that it’s a next-gen console that plays next-gen games with some impressive hardware and an unreal price tag. Gamers in search of the best graphics possible will want to look at the Xbox Series X instead, but gamers who haven’t yet made the 4K plunge, parents in need of an affordable console for their kids, or anyone looking to save money will all find something to like here.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -281,21 +281,15 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-perfect-audio-the-10-premier-podcast-mics/"><u>[New] 2024 Approved Perfect Audio The 10 Premier Podcast Mics</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-enhancing-zooms-visual-clarity-tips-and-tricks/"><u>[New] Enhancing Zoom's Visual Clarity Tips and Tricks</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-ascending-with-aerial-artistry-9-top-editors-for-diverse-levels/"><u>[New] In 2024, Ascending with Aerial Artistry 9 Top Editors For Diverse Levels</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-crafting-success-the-premier-list-of-ai-namesmiths-for-2024/"><u>[Updated] Crafting Success The Premier List of AI Namesmiths for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-easy-way-to-change-and-upgrade-iphones-ringtones/"><u>[Updated] In 2024, The Easy Way to Change and Upgrade iPhone's Ringtones</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dive-into-the-world-of-caixun-a-75-inch-4k-android-tv-review-with-a-budget-twist/"><u>Dive Into the World of Caixun: A 75-Inch, 4K Android TV Review with a Budget Twist</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-linksys-velop-mesh-wifi-system/"><u>Expert Analysis of the Linksys Velop Mesh WiFi System</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-z-edge-z3-plus-affordable-intelligence-on-the-road-captured-in-a-cam/"><u>Expert Analysis of Z-Edge Z3 Plus: Affordable Intelligence on the Road Captured in a Cam</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-avoid-and-fix-phasmophobia-game-glitches-the-2024-edition/"><u>How to Avoid and Fix Phasmophobia Game Glitches: The 2024 Edition</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-repair-an-unresponsive-fire-stick-controller-quickly-and-easily/"><u>How to Repair an Unresponsive Fire Stick Controller Quickly and Easily</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-legacy-of-memories-scanning-and-storing-vintage-photographs/"><u>In 2024, The Legacy of Memories Scanning and Storing Vintage Photographs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-review-is-the-ipad-pro-better-than-the-surface-pro-for-you/"><u>In-Depth Review: Is the iPad Pro Better Than the Surface Pro for You?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/movil-sin-costo-cambiar-mxf-a-formato-wav-con-gratuitidad/"><u>Móvil Sin Costo: Cambiar MXF a Formato WAV Con Gratuitidad</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/netgears-powerline-av-1200-reviewed-a-comprehensive-look-at-performance-amidst-sturdy-build/"><u>Netgear's Powerline AV 1200 Reviewed: A Comprehensive Look at Performance Amidst Sturdy Build</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlock-doorstep-convenience-with-the-budget-friendly-remobell-your-ultimate-guide/"><u>Unlock Doorstep Convenience with the Budget-Friendly RemoBell: Your Ultimate Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-a-review-on-tp-links-ac1200-wifi-extender-model-re3-305/"><u>Unveiling the Power: A Review on TP-Link's AC1200 WiFi Extender Model RE3 305</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1-seamless-integration-transferring-your-data-from-pst-to-gmail-with-and-without-using-outlook/"><u>1. Seamless Integration: Transferring Your Data From PST to Gmail - With and Without Using Outlook</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/common-causes-of-systolic-dysfunction-include-ischemic-heart-disease-and-dilated-cardiomyopathies-which-can-damage-the-myocardial-tissue/"><u>Common Causes of Systolic Dysfunction Include Ischemic Heart Disease and Dilated Cardiomyopathies, Which Can Damage the Myocardial Tissue.</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/cutting-the-wire-for-win11-setup/"><u>Cutting the Wire for Win11 Setup</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-way-to-set-up-your-arduino-with-windows-driver-installation/"><u>Easy Way to Set Up Your Arduino with Windows Driver Installation</u></a></li>
+<li><a href="https://article-helps.techidaily.com/the-essential-compilation-top-10-budget-friendly-lut-sources/"><u>The Essential Compilation Top 10 Budget-Friendly LUT Sources</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-essential-guide-to-the-lg-um7300-a-thrifty-buyers-dream-for-a-49-4k-tv/"><u>The Essential Guide to the LG UM7300: A Thrifty Buyer's Dream for a 49 4K TV</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-your-perfect-7-port-usb-3er-insights-from-the-amazonbasics-hub-evaluation/"><u>The Ultimate Guide to Choosing Your Perfect 7-Port USB 3.er: Insights From the AmazonBasics Hub Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-your-workout-routine-an-expert-analysis-of-samsung-galaxy-watch-active-as-a-fitness-companion/"><u>Transform Your Workout Routine: An Expert Analysis of Samsung Galaxy Watch Active as a Fitness Companion</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-the-syma-107g-hobby-quadcopter-a-complete-review-for-enthusiasts/"><u>Unboxing and Testing the Syma 107G Hobby Quadcopter: A Complete Review for Enthusiasts</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-s-best-android-video-editors-free-paid-and-everything-in-between/"><u>Updated In 2024, S Best Android Video Editors Free, Paid, and Everything in Between</u></a></li>
 </ul></div>
 
