@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Kobo Libra H2O Assessment: The Ultimate Guide to Wave-Resistant eBooks"
-date: 2024-08-11T00:13:45.350Z
-updated: 2024-08-12T00:13:45.350Z
+date: 2025-01-08T18:48:35.323Z
+updated: 2025-01-10T16:25:03.733Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Kobo Libra H2O Assessment: The Ultimate Guide to Wave-Resistant eBooks"
@@ -14,8 +14,9 @@ thumbnail: https://thmb.techidaily.com/9332c7608a3b7c0a804f93bd3e8889a390304fede
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Antop AT-127
 
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/6eJwPC0xPwMxCh4aQhG73X9dkzU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
@@ -40,12 +41,17 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Antop AT-127
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![Antop AT-127 Atenna](https://www.lifewire.com/thmb/c44ZzplZZa-lUcjT4Z7AcaJ3E9w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Antop-AT-127-TV-Antenna-1-b5be49369e424350bd31563dfdc4828d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -68,9 +74,6 @@ Lifewire / Erika Rawes
 
 [TV antennas](https://www.lifewire.com/choosing-over-the-air-antenna-for-hdtv-4586507) , like the Antop AT-127, are a great way to get local channels without paying a monthly fee. As streaming services have become commonplace, some subscribers don’t have access to live TV and broadcast channels. Some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) provide advanced features, but their designs leave something to be desired. I tested the attractive Antop AT-127 Antenna for a week to see if its design, setup, and performance make it a worthy option.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Reversible faux wood finish**
 
  The Antop AT-127 is one of the better-looking antennas I’ve come across. It’s a thin, plastic rectangular antenna that measures 13 inches wide by nine inches tall. At 0.02 inches in thickness, it’s almost paper-thin, but the plastic feels sturdy enough to withstand regular wear and tear.
@@ -83,9 +86,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup: Easier than most**
 
  Setting up the antenna is relatively intuitive. You just connect the antenna to the coaxial/antenna-in connection on your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) . The antenna has an easy-push connector, instead of a connector you have to twist onto the threading. This makes for easier setup because you don’t have to struggle behind your TV with trying to screw on the[coaxial cable](https://www.lifewire.com/coaxial-vs-optical-digital-cable-3134605) .
@@ -94,20 +94,17 @@ Lifewire / Erika Rawes
 
  The antenna has an easy-push connector, instead of a connector you have to screw onto the coax threading.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## **Performance: Almost two dozen channels**
 
  The Antop AT-127 supports UHF and VHF signals. Overall, it works pretty smoothly, though some channels might have look pixelated for a few seconds when you flip to them or take a second or two to fully load.
 
  The attached coax cable isn’t as long as I’ve seen on other similarly-priced antennas, but it is long enough (10 feet) to place the antenna up high without an extender.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Antop AT-127](https://www.lifewire.com/thmb/5o1YIUg5PeQto5h_Mm6uuK9o5JQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Antop-AT-127-TV-Antenna-3-7f7ec909a6b944cabe60862b51a6ba2b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -120,8 +117,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  The omnidirectional Antop AT-127 has a 40-mile range, enough to pick up local channels from neighboring cities.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Mid-range**
 
  The Antop AT-127 retails for $35, which is middle of the road for an indoor TV antenna with the Antop’s specs. Some 50-mile (or longer) range antennas sell for as little as $20 or as much as $100, but the cheaper antennas usually don’t look as nice as the AT-127.
@@ -156,14 +154,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Screen Resolution  1080p
 * Connectivity Options  Quick push “E-Z connect” F connector (coaxial cable)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -172,4 +167,26 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-beginners-blueprint-for-ipad-time-lapse-videos/"><u>[Updated] In 2024, Beginner's Blueprint for iPad Time-Lapse Videos</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-reveal-every-detail-the-leading-clear-image-apps/"><u>2024 Approved Reveal Every Detail The Leading Clear Image Apps</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-vivo-y55s-5g-2023-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Vivo Y55s 5G (2023) to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dead-simple-lighting-with-tt560-speedlite/"><u>Dead-Simple Lighting with TT560 Speedlite</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-portable-sonos-compact-uncompromising-sound/"><u>Discovering Portable Sonos: Compact, Uncompromising Sound</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevating-your-slumber-experience-the-ultimate-guide-to-the-ihome-zenergy-sleep-enhancer/"><u>Elevating Your Slumber Experience: The Ultimate Guide to the IHome Zenergy Sleep Enhancer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-a-comprehensive-review-of-the-ring-battery-doorbell-proplus/"><u>Expert Insights: A Comprehensive Review of the Ring Battery Doorbell Pro+</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-toms-computer-gear-a-comprehensive-guide-to-latest-hardware-solutions/"><u>Exploring Tom's Computer Gear: A Comprehensive Guide to Latest Hardware Solutions</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-ensure-optimal-performance-upgrading-ati-radeon-graphics-drivers-on-windows-machines/"><u>How To Ensure Optimal Performance: Upgrading ATI Radeon Graphics Drivers on Windows Machines</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-track-a-lost-apple-iphone-6-for-free-drfone-by-drfone-virtual-ios/"><u>How to Track a Lost Apple iPhone 6 for Free? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-activation-lock-and-icloud-account-from-iphone-6-plus-by-drfone-ios/"><u>How to Unlock iCloud Activation Lock and iCloud Account From iPhone 6 Plus?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-motorola-edge-2023-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Motorola Edge 2023 to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-the-world-of-high-tech-a-comprehensive-review-of-the-alienware-aurora-r9-by-dell-where-form-meets-function-in-gaming-computers/"><u>Inside the World of High-Tech: A Comprehensive Review of the Alienware Aurora R9 by Dell, Where Form Meets Function in Gaming Computers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-the-vintage-netgear-c3000-still-a-top-choice-a-detailed-review-on-its-functionality-today/"><u>Is the Vintage Netgear C3000 Still a Top Choice? A Detailed Review on Its Functionality Today</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-user-review-mastering-microsoft-onenote-through-the-powerful-features-of-onetastic-add-in/"><u>The Ultimate User Review: Mastering Microsoft OneNote Through the Powerful Features of Onetastic Add-In</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-6-online-stores-offering-high-quality-televisions/"><u>Top 6 Online Stores Offering High-Quality Televisions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-visual-potential-a-review-of-powershot-sx70-the-zoomers-dream/"><u>Unlocking Visual Potential: A Review of PowerShot SX70, The Zoomer's Dream</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unveiling-the-truth-how-many-hours-does-your-apple-watchs-battery-last/"><u>Unveiling the Truth: How Many Hours Does Your Apple Watch's Battery Last?</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/wireless-charging-techniques-for-when-youre-out-of-juice-and-without-a-charger/"><u>Wireless Charging Techniques for When You're Out of Juice and Without a Charger</u></a></li>
+</ul></div>
 

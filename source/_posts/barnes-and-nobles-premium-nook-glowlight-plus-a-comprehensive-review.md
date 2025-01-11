@@ -1,7 +1,7 @@
 ---
 title: Barnes & Noble's Premium Nook GlowLight Plus - A Comprehensive Review
-date: 2024-12-29T12:02:56.020Z
-updated: 2025-01-04T10:53:37.885Z
+date: 2025-01-04T02:39:11.184Z
+updated: 2025-01-10T23:50:17.781Z
 categories:
   - BestProducts
 description: This Article Describes Barnes & Noble's Premium Nook GlowLight Plus - A Comprehensive Review
@@ -19,12 +19,16 @@ thumbnail: https://www.lifewire.com/thmb/jfgwfkiNAIzXpA4nS7szHYRVXHo=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazon Luna
 
 ![Amazon Luna](https://www.lifewire.com/thmb/D9MecP2109T2iYhabM0CPBRirFA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_Hero_Square-cced3e5a3d3e4d24af1b85a59c76932d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -50,7 +54,7 @@ Lifewire / Jeremy Laukkonen
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazon Luna
@@ -58,7 +62,7 @@ Lifewire / Jeremy Laukkonen
 ![Amazon Luna](https://www.lifewire.com/thmb/NT3lnZ3hOwaGUbS2tHARE7zRT1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_Hero_Square-cced3e5a3d3e4d24af1b85a59c76932d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -102,6 +106,10 @@ Lifewire / Jeremy Laukkonen
 
 ![Amazon Luna](https://www.lifewire.com/thmb/jNDwaMGOVuF5UIISPsmdb5uQdGU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_04-985a4419a93945d2879b09d61fafae5a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
  In addition to the offset analog sticks, the Luna controller also features a fairly standard array of buttons. A somewhat mushy directional pad sits below the left analog stick, and four familiar face buttons sit above the right stick. The triggers are fairly shallow but feel responsive, and shoulder buttons are easily accessed without moving your fingers off the triggers. In addition to the standard array, the Luna controller also includes a microphone button to access Alexa.
@@ -113,10 +121,6 @@ Lifewire / Jeremy Laukkonen
  In terms of ports, the Luna controller includes a USB-C port for charging and connectivity and a 3.5mm port for plugging in your favorite set of headphones or earbuds. At the back, you’ll find a removable battery cover, as the controller is powered by two AA batteries.
 
  Overall, the Luna controller has quickly become one of my favorite alternatives to the Xbox One or Xbox Series X/S controller; the only real issues being the mushy d-pad and the texture of the analog sticks. I ended up snapping on some performance thumb grips, which worked great.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Setup Process: Quick and easy
 
@@ -131,10 +135,6 @@ Lifewire / Jeremy Laukkonen
  If you do opt to link your controller to your Amazon account when you buy it, and you already own other Amazon devices like[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) that are connected to your Wi-Fi connection, then you can take advantage of Amazon’s Wi-Fi simple setup that shaves some time off the setup process. Otherwise, you just use the Luna controller app on your Android or iPhone to hook the controller up to Wi-Fi.
 
  After the initial setup process, your Luna controller is ready to go regardless of platform. Power on the controller, launch the Luna app or website, and everything automatically connects without any additional work or input.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Performance: Impressive game streaming, but no 4K
 
@@ -168,15 +168,15 @@ Lifewire / Jeremy Laukkonen
 
 ![Amazon Luna](https://www.lifewire.com/thmb/NBB1N6qtwbtdjrUgwr1YaBaTuBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon_Luna_02-37837bf860d244d3ab11ff01f37c609c-db472e204ada4ccca88e7510eacfae34.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Jeremy Laukkonen
 
  For some reason, the fighting category is populated by titles like the rogue-like shooter Everspace and the co-op brawler River City Girls. No actual fighting games, though. The horror category was empty until Amazon scored Resident Evil 7 Gold Edition and also saddled gorefest pixel art platformer Valfaris with the horror tag.
 
  It’s clear that Amazon is working to bring a nice mix of games to the service, but the depth and breadth of the titles you can access with a basic subscription remain the biggest question as Luna moves through beta and toward general launch.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Price: Affordable fee reflects the thin library
 
@@ -238,24 +238,22 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/updated-top-6-must-try-instagram-reel-apps-for-2024/"><u>[Updated] Top 6 Must-Try Instagram Reel Apps for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/20-must-have-devices-for-a-perfect-holiday/"><u>20 Must-Have Devices for a Perfect Holiday</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-closer-look-at-the-logitech-pro-hd-1080p-webcam-performance-and-quality-review/"><u>A Closer Look at the Logitech Pro HD 1080P Webcam: Performance and Quality Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-comprehensive-guide-benefits-and-limitations-of-pidgin-im-platform/"><u>A Comprehensive Guide: Benefits and Limitations of Pidgin IM Platform</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-guide-to-linkedins-premier-learning-courses-available-in-2-instruction/"><u>A Guide to LinkedIn’s Premier Learning Courses Available in 2# Instruction:</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-visual-and-narrative-home-run-unveiling-the-layers-of-mlb-the-show-19s-rpg-features/"><u>A Visual and Narrative Home Run: Unveiling the Layers of MLB The Show 19'S RPG Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/acer-chromebook-r-11-sleek-design-and-ultra-portability-insights/"><u>Acer Chromebook R 11 - Sleek Design & Ultra Portability Insights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722645575186-beyond-the-lens-range-canon-powershot-sx70-hs-superzoom-reviewed/"><u>Beyond the Lens Range - Canon PowerShot SX70 HS Superzoom Reviewed</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elevating-video-experience-non-youtube-hubs-explained-for-2024/"><u>Elevating Video Experience Non-Youtube Hubs Explained for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/expanding-your-workspace-a-guide-to-connecting-two-monitors-on-macos/"><u>Expanding Your Workspace: A Guide to Connecting Two Monitors on macOS</u></a></li>
-<li><a href="https://win-help.techidaily.com/free-online-conversion-transforming-audio-interchange-file-aif-to-mpeg-1-audio-layer-iii-mp3-with-movavi/"><u>Free Online Conversion: Transforming Audio Interchange File (AIF) to MPEG-1 Audio Layer III (MP3) with Movavi</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/free-range-gpt-on-windows-the-freedom-path/"><u>Free-Range GPT on Windows: The Freedom Path</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-identify-missing-or-malfunctioning-drivers-with-windows-device-manager-on-windows-11-and-10-by-drivereasy-guide/"><u>How to identify missing or malfunctioning drivers with Windows Device Manager on Windows 11 & 10</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Realme 10T 5G | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-on-apple-iphone-11-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock On Apple iPhone 11 Online</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722737298351-is-the-apeman-c450-the-best-value-in-dashcams-rigorous-budget-camera-assessment-inside/"><u>Is the Apeman C450 the Best Value in Dashcams? Rigorous Budget Camera Assessment Inside</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970354-9781088253144-memories-that-the-wind-brings/"><u>Memories that the wind brings | Free Book</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722467005450-top-free-and-paid-substitutes-for-microsoft-office/"><u>Top Free & Paid Substitutes for Microsoft Office</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/understanding-the-windows-10-battery-status-tool-a-comprehensive-guide/"><u>Understanding the Windows 10 Battery Status Tool - A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-dispatching-dreadful-green-screen-distortion-on-mac-editing-sessions/"><u>[New] 2024 Approved Dispatching Dreadful Green Screen Distortion on Mac-Editing Sessions</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-premier-free-srt-to-video-subtitle-tools/"><u>[New] The Premier Free SRT to Video Subtitle Tools</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-innovate-your-intonation-ranking-the-best-audio-modification-apps-for-mobile/"><u>[Updated] 2024 Approved Innovate Your Intonation Ranking the Best Audio Modification Apps for Mobile</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-professional-analysis-full-potential-of-screenflow-for-mac/"><u>[Updated] Professional Analysis Full Potential of ScreenFlow for Mac</u></a></li>
+<li><a href="https://some-tips.techidaily.com/a-deep-dive-into-the-iphone-exs-hardware-marvels-and-why-it-may-not-justify-an-upgrade-for-you-gadgetpundit/"><u>A Deep Dive Into the iPhone eX's Hardware Marvels and Why It May Not Justify an Upgrade for You | GadgetPundit</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazfit-helio-ring-find-out-how-much-when-it-drops-and-whats-inside/"><u>Amazfit Helio Ring - Find Out How Much, When It Drops, and What's Inside!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-basics-sleek-tablet-support-reviewed-the-ultimate-travel-companion/"><u>Amazon Basics' Sleek Tablet Support Reviewed: The Ultimate Travel Companion!</u></a></li>
+<li><a href="https://article-helps.techidaily.com/chatgpt-plus-is-it-a-smart-investment-top-5-benefits-to-consider/"><u>ChatGPT Plus: Is It a Smart Investment? Top 5 Benefits to Consider!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/cutting-edge-video-production-windows-11s-moviemaker-toolkit-for-2024/"><u>Cutting-Edge Video Production Windows 11'S Moviemaker Toolkit for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/demons-souls-revisited-enhanced-visuals-and-the-quintessential-gaming-experience/"><u>Demons' Souls Revisited: Enhanced Visuals and the Quintessential Gaming Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-opulence-through-sound-h8i-headphones/"><u>Experience Opulence Through Sound: H8i Headphones</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-the-art-of-virtual-visuals-zooms-step-by-step-filters-guide/"><u>In 2024, Mastering the Art of Virtual Visuals Zoom's Step-By Step Filters Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/master-your-art-with-the-giant-canvas-of-the-htiu-kamvas-gt-191-drawing-tablet-in-depth-analysis/"><u>Master Your Art with the Giant Canvas of the HTIU Kamvas GT-191 Drawing Tablet - In-Depth Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-anker-superspeed-usb-30-hub-assessment-the-ultimate-charging-and-data-transfer-solution/"><u>Top Rated Anker SuperSpeed USB 3.0 Hub Assessment: The Ultimate Charging and Data Transfer Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-madden-19-insights-incredible-modes-yet-showing-signs-of-age/"><u>Unveiling Madden 19 Insights: Incredible Modes Yet Showing Signs of Age</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unveiling-the-essence-filmoras-top-10-enchanting-features-for-2024/"><u>Unveiling the Essence Filmora’s Top 10 Enchanting Features for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-style-and-performance-of-taotronics-latest-tt-dl16-modern-led-lamp/"><u>Unveiling The Style & Performance of TaoTronics' Latest TT-DL16 Modern LED Lamp</u></a></li>
 </ul></div>
 

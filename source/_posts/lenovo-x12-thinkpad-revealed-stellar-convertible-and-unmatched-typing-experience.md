@@ -1,7 +1,7 @@
 ---
 title: "Lenovo X12 ThinkPad Revealed: Stellar Convertible and Unmatched Typing Experience"
-date: 2024-08-11T00:12:52.626Z
-updated: 2024-08-12T00:12:52.626Z
+date: 2025-01-08T23:48:30.656Z
+updated: 2025-01-10T17:38:06.870Z
 categories:
   - BestProducts
 description: "This Article Describes Lenovo X12 ThinkPad Revealed: Stellar Convertible and Unmatched Typing Experience"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/bc6f4f4702b6e60012b5010e4893a71a61ca7a6c3
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Mobvoi TicWatch Pro 3 GPS
 
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/wXSOotjbAduhYyUz7IKsUnjxMCY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_HeroSquare-666cef27669e4f4ea53d69a546098b20.jpg)
@@ -41,12 +38,17 @@ Lifewire / Yoona Wagener
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Mobvoi TicWatch Pro 3 GPS
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/N-GQ6pPXvhJw5LQ_NHsY_n8NkZQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_HeroSquare-666cef27669e4f4ea53d69a546098b20.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -78,13 +80,6 @@ Lifewire / Yoona Wagener
 
  The all-black build and face design gives this watch a sporty feel, extended by the two large buttons that serve as handy controls for launching workouts or waking the display. This display is also touch-responsive, which I found functioned well generally. There were moments when taps and swipes didn't seem to register immediately. These incidents were infrequent and minor when compared to the general user-friendliness of the device.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ## Comfort: Bulky for extended wear
 
  The TicWatch Pro 3 shed some weight from its previous iteration, making it slimmer and lighter overall, according to Mobvoi. Still, the stainless steel face isn't exactly light at 1.48 ounces. The display also measures nearly 1.9 inches across and about 0.5 inches deep. Those dimensions presented challenges for my 5.5-inch wrist.
@@ -99,12 +94,17 @@ No advertising on the website.
 
  One surprising and slightly disappointing aspect of the design is the watch's lack of durability. Though it's safe for swimming, I avoided showering with it after consulting the product documentation and forums. Contrary to the IP68 rating, Mobvoi doesn't recommend this for use in the shower or any contact with soapy water—and won't offer a replacement if you experience performance issues after doing so.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Mobvoi TicWatch Pro 3 GPS](https://www.lifewire.com/thmb/dmQpg73jtc8s6Xxx-CSGe6DOKEc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mobvoi_TicWatch_Pro_3_GPS_04-262f4af125a04f3fab6055508f2c6d3b.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Performance: A well-rounded wearable
 
@@ -139,9 +139,9 @@ Lifewire / Yoona Wagener
  The TicWatch Pro 3 does have 8GB of onboard storage, which makes this watch attractive for Android smartphone users who want to use it for onboard music storage. Apps like NavMusic make this easy. Android users also have easier control over and access to third-party fitness, productivity, and other useful apps from the[Google Play](https://www.lifewire.com/what-is-google-play-1616720) store than iOS users—who will likely find this a bit clunky to manage.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Battery: Solid 72-hour longevity
 
  Mobvoi touts the 72-hour battery life of the TicWatch Pro 3 in smart mode, and it delivers. I used the TicWatch Pro 3 exclusively in this highly connected mode, including a workout a day, and this watch was still chugging along by day three. Of course, battery performance always varies depending on usage. I didn't run any extra apps, store and play music, or leave the display to the always-on setting, which all helped me reach the three-day mark.
@@ -156,9 +156,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Price: A bit costly for those missing a few premium features
 
  The TicWatch Pro 3 retails for nearly $300, a considerable investment on par with some[smartphones](https://www.lifewire.com/best-smartphones-4043781) . It's also steep considering that, unlike some premium wearables, this watch lacks an ECG monitor or other wellness bells and whistles. Fit personalization isn't as generous as some wearables, either.
@@ -167,9 +164,6 @@ Lifewire / Yoona Wagener
 
  Though the strap is replaceable, the size of the display could be prohibitively unwieldy. But for an Android smartphone user who can find a great fit, this watch promises well-rounded connectivity and fitness tracking.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Mobvoi TicWatch Pro 3 GPS vs. Samsung Galaxy Watch3
 
  Another timepiece-inspired smartwatch to consider is the Samsung Galaxy Watch3\. Size-wise, it's smaller, with 1.2-inch and 1.4-inch case options. Instead of Wear OS, the Watch3 runs on Tizen OS, which is really friendliest to Samsung Galaxy phones—but is widely compatible with Android and iOS mobile devices. The fitness/wellness suite also surpasses the TicWatch Pro 3 with advanced metrics such as built-in SPO2, VO2 max, and ECG monitoring. The Watch3 also takes the lead where durability is concerned with military-grade toughness against drops, dust, and water.
@@ -191,8 +185,9 @@ Lifewire / Yoona Wagener
 * [Mobvoi TicWatch Pro 4G LTE](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  TicWatch Pro 3 GPS
@@ -213,14 +208,11 @@ Lifewire / Yoona Wagener
 * Water Resistance  IP68
 * Connectivity  Bluetooth, Wi-Fi
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -229,4 +221,18 @@ Lifewire / Yoona Wagener
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-dynamic-editing-mastering-effects-on-tiktok-content/"><u>[New] 2024 Approved Dynamic Editing Mastering Effects on TikTok Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-key-conduct-criteria-in-the-youtube-sphere/"><u>[New] 2024 Approved Key Conduct Criteria in the YouTube Sphere</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-complete-sdr-to-hdr-upgrade-blueprint/"><u>[New] 2024 Approved The Complete SDR to HDR Upgrade Blueprint</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-in-pursuit-of-dreamscapes-vr-travel-unleashed/"><u>[Updated] In Pursuit of Dreamscapes VR Travel Unleashed</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-quicktime-magic-precise-timelapse-shots-with-samsung/"><u>2024 Approved Quicktime Magic Precise Timelapse Shots with Samsung</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/balancing-cost-and-quality-with-rexing-v1-dashcam-a-trustworthy-road-companion/"><u>Balancing Cost & Quality with Rexing V1 DashCam - A Trustworthy Road Companion</u></a></li>
+<li><a href="https://win-able.techidaily.com/effective-fixes-for-persistent-gameplay-interruptions-on-the-pc-metro-exodus-ultimate-dx12-edition/"><u>Effective Fixes for Persistent Gameplay Interruptions on the PC Metro Exodus Ultimate DX12 Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/efficient-performance-testing-for-hps-15-amd-laptop-does-it-deliver-on-price-point-and-productivity/"><u>Efficient Performance Testing for HP's 15 AMD Laptop: Does It Deliver on Price Point and Productivity?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-perfect-gym-buddy-for-techies-unveiling-the-power-of-the-samsung-galaxy-fit/"><u>The Perfect Gym Buddy for Techies: Unveiling the Power of the Samsung Galaxy Fit!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-drone-experience-awaits-in-our-in-depth-review-of-dji-air-2s/"><u>The Ultimate Drone Experience Awaits in Our In-Depth Review of DJI Air 2S</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-10-password-cracking-tools-for-motorola-razr-40-ultra-by-drfone-android/"><u>Top 10 Password Cracking Tools For Motorola Razr 40 Ultra</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Power On the Go with Elite's Enhanced Oculus Quest 2 Strap - Featuring Integrated Charger & Durable Carrying Case Review
-date: 2024-12-31T09:44:35.538Z
-updated: 2025-01-04T10:31:02.292Z
+date: 2025-01-05T20:07:52.215Z
+updated: 2025-01-11T07:24:22.008Z
 categories:
   - BestProducts
 description: This Article Describes Power On the Go with Elite's Enhanced Oculus Quest 2 Strap - Featuring Integrated Charger & Durable Carrying Case Review
@@ -44,16 +44,12 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Netgear Nighthawk RAX120 12-Stream AX6000 Wi-Fi 6 Router
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/_gP-SgRbIGXPYdlmqqhNJSxhmSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_HeroSquare-61fda9713bb44c89bf3c2f1f74386bee.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -82,10 +78,6 @@ Lifewire / Erika Rawes
 
  The[Netgear](https://www.lifewire.com/best-netgear-routers-4159862) Nighthawk RAX120 is supposed to provide lightning-fast speeds while serving as one of the[best long-range wireless routers](https://www.lifewire.com/best-long-range-routers-4122554) currently on the market. Fully loaded with[Wi-Fi 6 technology](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , smart home connectivity, and a slew of other features, the AX12 should be an ideal router for small businesses, very large homes, or for homes with multiple devices. I tested the Netgear Nighthawk RAX120 to see how well it performs in the real world.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Batman’s router**
 
  The Netgear Nighthawk RAX120 has a futuristic design—angular, with clean lines. It looks like a cross between a spaceship and the Batmobile. It’s matte black and rectangular, but instead of the multiple antennas you’d typically see protruding from the top of a Nighthawk router, it has two wing-like extensions that come from each side.
@@ -95,6 +87,10 @@ Lifewire / Erika Rawes
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/fw0FJuD9bAOkQEHuAZ9OFq5toXk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_05-2a03227466354aad82fe55b884b76ac6-4d18f476974a44b081aafc943a8e56b1.jpg)
 
 Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup: Quick and easy**
 
@@ -112,11 +108,11 @@ Lifewire / Erika Rawes
 
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/y2V4Ncx3Z1ul8B-4lsc_IeiyCRQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_04-9e452ddedd2b4a46893fddd147c06d4f.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Network performance: Stellar**
 
@@ -129,6 +125,10 @@ Lifewire / Erika Rawes
  Final Verdict
 
  The RAX120 is backward compatible with 802.11a/b/g/n/ac as well, so it’ll work with virtually all of your devices, Wi-Fi 6 or not.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Key Features: Quality hardware, lacks antivirus**
 
@@ -149,10 +149,14 @@ Lifewire / Erika Rawes
 ![Netgear Nighthawk AX12](https://www.lifewire.com/thmb/MPwp1LtMC7Ua30t8VnJy7bjuqn4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NetGear_LongRangeRouters_Nighthawk_RAX120_02-94fbae95ca5d4851a1cf40b197da4161.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Expensive**
 
@@ -167,10 +171,6 @@ Lifewire / Erika Rawes
  **A cool looking router that’s faster and more powerful than you probably need.**
 
  The Nighthawk RAX120 performs impressively, but it‘s costly and lacks some user-friendly features like strong parental controls and easy-to-manage antivirus, so it’ll be more desirable for those with heavier networking demands than the average user.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -210,22 +210,20 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-must-have-talker-alteration-tech-for-content-makers/"><u>[New] In 2024, Must-Have Talker Alteration Tech for Content Makers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-best-asmr-microphones/"><u>2024 Approved Best ASMR Microphones</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-the-years-most-memorable-youtube-music-dance-clips/"><u>2024 Approved The Year's Most Memorable YouTube Music Dance Clips</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-proficient-content-for-short-form-video-best-edits-reviewed-for-2024/"><u>Craft Proficient Content for Short-Form Video Best Edits Reviewed for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dissecting-status-bt-budget-friendly-albeit-with-minor-shortcomings/"><u>Dissecting Status BT: Budget-Friendly, Albeit with Minor Shortcomings</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dont-disregard-this-upcoming-smartphone-a-detailed-review-of-the-oneplus-nord-n10-5g/"><u>Don't Disregard This Upcoming Smartphone: A Detailed Review of the OnePlus Nord N10 5G</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/enhance-your-connectivity-with-the-miniature-orlink-u631-wi-fi-dongle/"><u>Enhance Your Connectivity with the Miniature ORLINK U631 Wi-Fi Dongle</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/establishing-connectivity-how-to-create-a-network-id-for-the-nintendo-3ds/"><u>Establishing Connectivity: How to Create a Network ID for the Nintendo 3DS</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-picks-high-performance-cable-modemrouter-duos-dominating-the-market/"><u>Expert Picks: High-Performance Cable Modem/Router Duos Dominating the Market</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-ensure-compatibility-with-updated-epson-xp-640-drivers-in-windows-environments/"><u>How to Ensure Compatibility with Updated Epson XP-640 Drivers in Windows Environments</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-c67-5g-phone-without-pin-by-drfone-android/"><u>How to Unlock Realme C67 5G Phone without PIN</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Realme 11 5G? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Poco X5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-panasonic-hc-wxf991/"><u>In-Depth Look at Panasonic HC-WXF991</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-ampace-andes-150cu-portable-power-unit-performance-and-convenience-combined/"><u>In-Depth Look at the Ampacē Andes 150Cu Portable Power Unit: Performance and Convenience Combined</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-the-apple-iphone-se-2020-where-value-meets-performance/"><u>In-Depth Review of the Apple iPhone SE (2020) - Where Value Meets Performance</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/cting-your-shoot-selecting-quality-equipment-for-2024/"><u>Perfecting Your Shoot Selecting Quality Equipment for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazing-savings-exclusive-samsung-products-on-prime-day-offer/"><u>Amazing Savings: Exclusive Samsung Products on Prime Day Offer</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/boost-your-pcs-speed-a-step-by-step-guide-on-upgrading-hardware-yl-tech-solutions/"><u>Boost Your PC's Speed: A Step-by-Step Guide on Upgrading Hardware - YL Tech Solutions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-amazons-fire-tablet-with-apples-ipad-making-the-right-purchase-decision/"><u>Comparing Amazon's Fire Tablet with Apple's iPad: Making the Right Purchase Decision</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/deciphering-nlps-role-versus-mls-role/"><u>Deciphering NLP's Role Versus ML's Role</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-belgian-tongue-conundrum/"><u>Decoding the Belgian Tongue Conundrum</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/easy-to-operate-and-effective-expert-review-on-the-tp-link-re305-for-ac1200-networks/"><u>Easy to Operate and Effective: Expert Review on the TP-Link RE305 for AC1200 Networks</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-perform-a-dns-cleanup-on-your-mac-detailed-instructions/"><u>How to Perform a DNS Cleanup on Your Mac - Detailed Instructions</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insta360s-one-x2-a-pioneer-in-waterproof-360-cameras/"><u>Insta360's One X2: A Pioneer in Waterproof 360 Cameras</u></a></li>
+<li><a href="https://blog-min.techidaily.com/ios-17-upgrade-analysis-can-expected-improvements-tackle-known-issues/"><u>IOS 17 Upgrade Analysis: Can Expected Improvements Tackle Known Issues?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reimagining-the-smart-speaker-experience-with-the-4th-gen-amazon-echo-dot/"><u>Reimagining the Smart Speaker Experience with the 4Th Gen Amazon Echo Dot</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/the-ultimate-guide-to-podcast-introduction-skills/"><u>The Ultimate Guide to Podcast Introduction Skills</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/uncovering-the-best-in-tracking-technology-a-deep-dive-into-the-garmin-forerunner-45-for-runners/"><u>Uncovering the Best in Tracking Technology: A Deep Dive Into the Garmin Forerunner 45 for Runners</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-title-the-enigmatic-world-of-fibonacci-sequences-and-their-mathematical-implications-in-modern-science/"><u>Updated 2024 Approved Title The Enigmatic World of Fibonacci Sequences and Their Mathematical Implications in Modern Science</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/versatile-moko-compact-bluetooth-keyboard-portable-and-lightweight-design/"><u>Versatile MoKo Compact Bluetooth Keyboard: Portable & Lightweight Design</u></a></li>
 </ul></div>
 

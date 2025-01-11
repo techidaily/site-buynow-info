@@ -1,7 +1,7 @@
 ---
 title: Unboxing the Dell G5 5090 - A Budget-Friendly Powerhouse for Gamers with Extensive Customization Options
-date: 2024-08-11T00:15:42.143Z
-updated: 2024-08-12T00:15:42.143Z
+date: 2025-01-07T20:55:33.140Z
+updated: 2025-01-11T00:22:37.930Z
 categories:
   - BestProducts
 description: This Article Describes Unboxing the Dell G5 5090 - A Budget-Friendly Powerhouse for Gamers with Extensive Customization Options
@@ -14,11 +14,16 @@ thumbnail: https://www.lifewire.com/thmb/4i3fdmdcd1swkbkMP9bxOi3Nexc=/400x300/fi
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1byone Amplified Digital HDTV Antenna
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/pWXHOnFpWCs9EltKF9bRUP_y5aU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -40,14 +45,8 @@ Lifewire / Jonno Hill
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ## 1byone Amplified Digital HDTV Antenna
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/y6y0rP_H9I7oHwldUMIq-18GrFw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
 
 Lifewire / Jonno Hill
@@ -77,15 +76,16 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Vanilla**
 
  The 1byone Digital Amplified Indoor Antenna uses a flat rectangular design similar to other powered indoor antennas on the market. The 13.25 x 9.25 inch antenna surface is roughly in line with most of the other products I looked at in this category, the only real difference being that the 1byone has a much more rigid surface.
 
  Being a powered antenna, the 1byone uses an external amplifier to boost the signal. This box contains a coaxial input attached via the included 16.5ft cable, and has a power input, which can be supplied by the TV itself if it can support USB power. Otherwise, 1byone includes a USB power adapter.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup: Fairly intuitive**
 
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas. Simply attach the 16.5ft coaxial cable to the external amplifier, connect the power to a USB power source, and then attach the coaxial cable from the amplifier to your TV.
@@ -102,17 +102,18 @@ Lifewire / Jonno Hill
 
  1byone makes no specific promises about the range of their antenna, although they do cite users having positive experiences from as far as 48 miles away in their customer testimonials. Given how many factors impact the effective range, I think it is somewhat wise not to make any promises. Nonetheless, this is clearly a device that will be best suited for people living in or near major metropolitan areas.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/6y-ITpY8n7xf8BteMqdJjYm-paU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_05-178a02351af040cc89c86169b88a6de2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: A great deal**
 
  The 1byone Digital Amplified Indoor Antenna costs just $25, making it the least expensive option out of the antennas I tested. It picked up all the major channels that I would actually watch, and didn’t have any issues with the signal. So from my perspective, why would I pay more? I think buyers would probably be best served by seeing if an antenna like this works for them. If you discover you need something more substantial, feel free to move on to a pricier option.
@@ -142,14 +143,11 @@ Lifewire / Jonno Hill
 * Indoor/Outdoor  Indoor
 * Warranty  One year limited
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,4 +156,20 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-amazing.techidaily.com/achieve-optimal-performance-with-newly-released-nvidia-quadro-rtx-asterisk-8000-graphics-card-drivers-for-win-11-8-and-7/"><u>Achieve Optimal Performance with Newly Released Nvidia Quadro RTX Asterisk 8000 Graphics Card Drivers for Win 11, 8 & 7</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-kindle-vs-amazon-fire-tablet-unraveling-their-distinct-features/"><u>Amazon Kindle Vs. Amazon Fire Tablet: Unraveling Their Distinct Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ensure-regular-meals-for-your-pet-made-easy-with-arfs-automatic-feeders/"><u>Ensure Regular Meals for Your Pet Made Easy With Arf’s Automatic Feeders</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/flashback-filmmaking-essential-retro-vhs-techniques-for-modern-videos-for-2024/"><u>Flashback Filmmaking Essential Retro VHS Techniques for Modern Videos for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Honor Magic 6 Pro? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-samsung-galaxy-tab-s7plus-assessment-the-ultimate-in-android-tablet-performance/"><u>In-Depth Samsung Galaxy Tab S7+ Assessment - The Ultimate in Android Tablet Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-monster-hunter-world-how-to-take-on-the-games-most-dangerous-foes/"><u>Mastering 'Monster Hunter: World' - How to Take on the Game's Most Dangerous Foes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/optimal-gear-for-pacing-your-jog-reviewing-the-superior-running-watches-of-this-year/"><u>Optimal Gear for Pacing Your Jog: Reviewing the Superior Running Watches of This Year</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/simple-guide-to-record-unrooted-android-sounds-for-2024/"><u>Simple Guide to Record Unrooted Android Sounds for 2024</u></a></li>
+<li><a href="https://fox-within.techidaily.com/successful-steps-to-cloning-drives-with-macrium-reflect-despite-size-variations/"><u>Successful Steps to Cloning Drives with Macrium Reflect Despite Size Variations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-things-to-review-before-investing-in-an-off-contract-cellular-gadget/"><u>Top Things to Review Before Investing in an Off-Contract Cellular Gadget</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-of-the-line-slim-and-contemporary-outdoor-55-sealocus-4k-television-evaluation/"><u>Top-of-the-Line Slim & Contemporary Outdoor 55 Sealocus 4K Television Evaluation</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/traversing-codegpt-an-ai-that-could-change-software-development/"><u>Traversing CodeGPT: An AI That Could Change Software Development</u></a></li>
+</ul></div>
 

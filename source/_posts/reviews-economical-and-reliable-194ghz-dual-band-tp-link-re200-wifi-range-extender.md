@@ -1,7 +1,7 @@
 ---
 title: "Reviews: Economical and Reliable 1,9/4GHz Dual Band TP-Link RE200 WiFi Range Extender"
-date: 2024-08-11T00:16:26.949Z
-updated: 2024-08-12T00:16:26.949Z
+date: 2025-01-05T21:50:23.266Z
+updated: 2025-01-10T17:25:17.329Z
 categories:
   - BestProducts
 description: "This Article Describes Reviews: Economical and Reliable 1,9/4GHz Dual Band TP-Link RE200 WiFi Range Extender"
@@ -13,15 +13,8 @@ thumbnail: https://thmb.techidaily.com/87eef5cf587ac33a0581d68baadab4d33ca4c311a
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Max Oak](https://www.lifewire.com/thmb/CeiJTW7zTopZdtR_zhtXz9_P-Mw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
 
 Lifewire / Gannon Burgett
@@ -44,11 +37,12 @@ Lifewire / Gannon Burgett
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Max Oak](https://www.lifewire.com/thmb/0sYGw-7sF6j5aqPA13sWjU-Y2b4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
 
 Lifewire / Gannon Burgett
@@ -73,11 +67,19 @@ Lifewire / Gannon Burgett
 
  While there's no shortage of options on the market, there aren’t many that can keep you going for days. That’s not the case with the MaxOak 50000mAh, an absolutely massive and robust charger that attempts to be the jack of all when it comes to charging gadgets on the go. It’s power comes at the cost of massive size and the charging ports aren’t too fast, but if you need tons of power, this is the battery pack to get.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Bulky for travelers**
 
  First and foremost, this thing is a tank. At 2.77 pounds, it weighs many times more than most smartphones and nearly as much as most compact laptops. It also measures in at 8.1 x 5.3 x 1.3 inches (HWD), making it quite the behemoth to lug around. A small detail regarding the weight of the MaxOak is that it isn't balanced. The side without the ports holds a fair bit more weight than the side with the various ports. It's not a significant detail, but one you might notice with time.
 
 ![Max Oak](https://www.lifewire.com/thmb/SHsB9QkFaBbOrU6sw55TzNOqC7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_4Web-5c8ff4adc9e77c0001ff0b36.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -99,10 +101,11 @@ Lifewire / Gannon Burgett
 
  The MaxOak 50000mAh manages to charge at a decent rate considering its capacity, but we would’ve liked to see more high-powered ports for speedier charging. We charged and fully drained the MaxOak power bank five times and charging took roughly six to eight hours per recharge with an average of seven hours and fifteen minutes.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Max Oak](https://www.lifewire.com/thmb/FlP4JZUVLoJ3DjKoSRUIFuf1peY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_6Web-5c8ff3e6c9e77c0001a926ff.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -116,16 +119,14 @@ Lifewire / Gannon Burgett
 
  Moving onto laptops, our ASUS X555LA was able to be charged four and a half times from 0% with the MaxOak power bank, with an average charge time of three hours or so. The ASUS X555LA has a relatively small battery compared to most laptops, which means it falls in line with MaxOak’s claims that its power bank can charge a laptop two times over give or take a little.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Right down the middle**
 
  The MaxOak 50000mAh power bank comes in at $135.99 at the time of this review. This is a reasonable price when taking into consideration how much battery capacity you're getting with it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Competition: One in the same**
 
  In terms of pure capacity, the MaxOak doesn't have much competition. There are only two other 50000mAh power banks on Amazon: the Crave PowerPack and the[Renogy power bank](https://www.amazon.com/Renogy-50000mAh-Portable-Generator-External/dp/B07CQCMZ4Q/?tag=lifewire-onsite-prod-20&ascsubtag=4589398%7Cn970af9c77c9d48e5afeadf350862a65723%7C) and all of them use the_exact_ same design, just with different branding.
@@ -163,14 +164,11 @@ Lifewire / Gannon Burgett
 * Warranty  One year
 * Compatibility  Android, iOS
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -179,4 +177,22 @@ Lifewire / Gannon Burgett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-8-efficient-free-video-chat-platforms-available-for-pc-and-mac-for-2024/"><u>[New] 8 Efficient, Free Video Chat Platforms Available for PC and MAC for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-instantly-stream-youtube-content-on-facebook-auto-play-guide-for-2024/"><u>[New] Instantly Stream YouTube Content on Facebook Auto-Play Guide for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/avigate-through-youtube-content-with-flexibility/"><u>[New] Navigate Through YouTube Content with Flexibility</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-framed-to-impress-your-guide-to-tweets-in-high-definition/"><u>2024 Approved Framed to Impress Your Guide to Tweets in High Definition</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-step-by-step-crafting-memes-with-kinemaster/"><u>2024 Approved Step-by-Step Crafting Memes with KineMaster</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/analyzing-the-oneplus-8t-impressive-speed-overshadowed-by-patchy-photography/"><u>Analyzing the OnePlus 8T: Impressive Speed Overshadowed by Patchy Photography</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/download-the-speedy-mpv-media-player-compatible-with-windows-10-and-7/"><u>Download the Speedy MPV Media Player - Compatible with Windows 10 and 7</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-protecting-your-privacy-how-to-remove-apple-id-from-apple-iphone-11-pro-by-drfone-ios/"><u>In 2024, Protecting Your Privacy How To Remove Apple ID From Apple iPhone 11 Pro</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-quick-guide-crafting-youtube-thumbnails-on-your-phone/"><u>In 2024, Quick Guide Crafting YouTube Thumbnails on Your Phone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-the-best-video-collage-creators-for-iphone-and-ipad/"><u>New 2024 Approved The Best Video Collage Creators for iPhone and iPad</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/protect-your-mobile-experience-6-stellar-iphone-antivirus-tools-ranked/"><u>Protect Your Mobile Experience: 6 Stellar iPhone Antivirus Tools Ranked</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/syma-x8d-f9x-v2-quadcopter-test-flight-budget-friendly-aerial-fun/"><u>Syma X8D-F9X V2 Quadcopter Test Flight - Budget Friendly Aerial Fun</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tp-link-av2000-surveillance-system-reviewed-top-notch-speeds-with-mediocre-aesthetics/"><u>TP-Link AV2000 Surveillance System Reviewed: Top-Notch Speeds with Mediocre Aesthetics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/uncovering-the-strength-of-nokia-72-a-review-of-a-rising-star-in-affordable-smartphones/"><u>Uncovering the Strength of Nokia 7.2 - A Review of a Rising Star in Affordable Smartphones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-seamless-connectivity-with-our-detailed-look-at-google-naster-nest-wi-fi/"><u>Unveiling the Power of Seamless Connectivity with Our Detailed Look at Google Naster Nest Wi-Fi</u></a></li>
+</ul></div>
 

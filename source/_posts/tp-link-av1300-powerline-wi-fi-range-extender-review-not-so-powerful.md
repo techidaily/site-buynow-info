@@ -1,7 +1,7 @@
 ---
 title: "TP-Link AV1300 Powerline Wi-Fi Range Extender Review: Not So Powerful"
-date: 2024-08-11T00:15:16.777Z
-updated: 2024-08-12T00:15:16.777Z
+date: 2025-01-04T23:28:28.805Z
+updated: 2025-01-10T18:35:30.474Z
 categories:
   - BestProducts
 description: "This Article Describes TP-Link AV1300 Powerline Wi-Fi Range Extender Review: Not So Powerful"
@@ -38,14 +38,8 @@ Alice Newcome-Beill / Lifewire
 
 4.9
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Apple MacBook Pro 13-inch (M1, 2020)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![MacBook Pro 13-inch](https://www.lifewire.com/thmb/TqAmFtyGvc2unYMhCqBwCNA1p1o=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Macbook_Pro_M1_2020_04-4d24391cc1a74240a35da5017f4f6a79.jpg)
 
 Alice Newcome-Beill / Lifewire
@@ -74,20 +68,14 @@ _We purchased the MacBook Pro_   _so our reviewer could test out the laptop. Kee
 
  Apart from opening the door to running apps natively on the MacOS, this also adds a surprising amount of speed and makes the new MacBook Pro a game-changer in the world of high-powered[laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) . Along with its superior performance, you get an impressive battery life and the great-feeling keyboard and touchpad you’ve come to expect from Apple. The overall performance blew me away during my weeks of testing.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ![MacBook Pro 13-inch](https://www.lifewire.com/thmb/ntkaAZ17MhOZeQmWB7CyrNXS5BE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Macbook-Pro_1M1_2020_03-d4cbb9b7ef82466fa52ba32c1244fc78.jpg)
 
  Alice Newcome-Beill / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Design: If it ain't broke
 
  Apple has changed very little in terms of aesthetics, keeping all the substantial changes relegated under the hood this year. The measurements from the[previous generation 13-inch MacBook Pro](https://www.lifewire.com/apple-macbook-pro-13-inch-2019-review-4770116) remain virtually unchanged, measuring a modest 0.6x12x8.5 inches (HWD) and weighing in at 3 pounds. It’s just light enough that you can confidently carry it while open from room to room when life inevitably makes an impromptu appearance on your Zoom meeting.
@@ -104,11 +92,16 @@ No advertising on the website.
 
 ![MacBook Pro 13-inch](https://www.lifewire.com/thmb/lK3rf00vNHfwVLaFF5D2swcqn_k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Macbook_Pro_M1_2020_02-a8fa9e03fafd477fb2423dfa9453b1bb.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Alice Newcome-Beill / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Touchpad: A soft touch
 
  While it didn't feel mushy, the "barely-there" haptic response on the touchpad initially left me wishing for something a little punchier. But Apple has done quite a bit more than just provide us with a large singular button here.
@@ -130,8 +123,9 @@ No advertising on the website.
  Alice Newcome-Beill / Lifewire
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Performance: Get up and go
 
  As a lifelong PC user and Mac skeptic, I was continually astounded with the whip-smart responsiveness and performance of Apple's new laptop. The model I tested had 16GB RAM and a 2TB SSD, giving me plenty of storage and RAM for multitasking and productivity, but there are cheaper configurations available.
@@ -160,27 +154,18 @@ No advertising on the website.
 
  This shift represents an effort on the part of Apple to prove that it can once again innovate in the realm of computing now that it has more control over the overall architecture being used in its systems. While this new silicon boasts some truly impressive boosts to performance overall, there is a small drawback in that some apps that you lean on for productivity may not be fully optimized to work with the M1, even with the improvements brought by Big Sur.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Battery: This fruit has juice
 
  Another of the more noticeable improvements to the MacBook Pro is the extended battery life. I’m happy to report that in my testing, running a[4K](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) movie at maximum brightness on loop, it took the MacBook a little over 18 hours to deplete its charge. This makes Apple's latest laptop one of the best laptops for battery life currently available. What's even more amazing is how quickly it can be topped off. From being completely drained, we were able to boot up and get fully charged using the included adapter in just under an hour and a half.
 
  I was surprised to find the MacBook more than holding its own in gaming benchmarks, matching or exceeding the performance offered by many Windows ultrabooks like the HP Spectre x360.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Software: Big Sur optimized better than ever
 
  The M1 chip also allows the MacBook to run apps that are normally reserved for iPadOS. While this doesn't necessarily sound all that exciting on paper, it does open up some interesting possibilities. This greatly expands the software library available to the[MacOS](https://www.lifewire.com/what-is-macos-4691239) and helps to corral all of Apple's hardware into a singular ecosystem.
 
  The new MacBook can still use applications built on the Intel x86 architecture like Slack and Chrome through the built-in Rosetta 2 emulator almost seamlessly. Of course, it isn't quite as fast as native applications, but any slowdown is hardly noticeable.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Price: A bargain at twice the price
 
  Starting at $1,299, going all the way up to $2,300 for the highest-end configuration, the MacBook Pro with the M1 processor offers incredible value. By comparison, a 13-inch MacBook that uses a 10th gen intel processor costs roughly $400 more and can't really match the performance offered by the M1 CPU. Adopting this new hardware also seems to have cut away much of the premium we see associated with Apple products, achieving price parity with many of the ultrabooks outside of the Apple ecosystem.
@@ -189,7 +174,15 @@ No advertising on the website.
 
 ![MacBook Pro 13-inch](https://www.lifewire.com/thmb/laPPg5mKf354wXXqoaU3Vz_jRuM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Macbook_Pro_M1_2020_04-4d24391cc1a74240a35da5017f4f6a79.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Alice Newcome-Beill / Lifewire
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Apple MacBook Pro (M1) vs. HP Spectre x360
 
@@ -215,6 +208,10 @@ No advertising on the website.
 * [Apple 13-inch MacBook Air (2020)](https://www.lifewire.com/best-laptops-to-buy-4043650)
 * [Apple iPad Air 4](https://www.lifewire.com/apple-ipad-air-4-review-5091874)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  MacBook Pro 13-inch (M1, 2020)
@@ -233,14 +230,11 @@ No advertising on the website.
 * Battery Capacity  58.2 Wh
 * Ports  2x Thunderbolt 4 (USB-C), 3.5mm headphone jack
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -249,4 +243,24 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-how-to-handle-accidental-reflections-in-video-conversations/"><u>[New] In 2024, How To Handle Accidental Reflections in Video Conversations</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-slippery-surfaces-olympic-winners-of-22-for-2024/"><u>[New] Slippery Surfaces Olympic Winners of '22 for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-best-practices-in-digital-media-capturing-for-2024/"><u>[Updated] Best Practices in Digital Media Capturing for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-explore-interaction-tips-for-uploading-videos-from-twitter-snapchat/"><u>[Updated] In 2024, Explore Interaction Tips for Uploading Videos From Twitter (Snapchat)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazons-economical-sound-experience-a-review-of-basic-soundbar/"><u>Amazon's Economical Sound Experience: A Review of Basic Soundbar</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/crafting-a-new-reality-in-torment-a-comprehensive-guide-to-science-fiction-rpg-and-its-unique-setting-in-numenera/"><u>Crafting a New Reality in Torment: A Comprehensive Guide to Science Fiction RPG and Its Unique Setting in Numenera</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-visual-brilliance-of-a-65-lg-oled-c9-smart-tv-in-4k-clarity-why-this-is-every-enthusiasts-dream/"><u>Exploring the Visual Brilliance of a 65 LG OLED C9 Smart TV in 4K Clarity: Why This Is Every Enthusiast's Dream</u></a></li>
+<li><a href="https://win11.techidaily.com/historical-code-to-contemporary-computing-windows-7-to-11-activation/"><u>Historical Code to Contemporary Computing: Windows 7 to 11 Activation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-the-new-apple-ipad-os-changes-the-game-a-deep-dive-into-enhanced-efficiency/"><u>How the New Apple iPad OS Changes the Game: A Deep Dive Into Enhanced Efficiency</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-track-imei-number-of-vivo-y27-4g-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Vivo Y27 4G Through Google Earth?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/new-era-in-smart-home-tech-an-in-depth-review-of-the-fourth-generation-echo-dot/"><u>New Era in Smart Home Tech: An In-Depth Review of the Fourth Generation Echo Dot</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/score-the-best-discounts-on-oneplus-phones-this-prime-day/"><u>Score the Best Discounts on OnePlus Phones This Prime Day</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-online-arena-of-nhl-19-an-intriguing-gaming-journey-unveiled/"><u>The Online Arena of NHL 19: An Intriguing Gaming Journey Unveiled</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-get-noticed-with-a-professional-video-resume-top-4-makers/"><u>Updated In 2024, Get Noticed with a Professional Video Resume Top 4 Makers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-apples-vision-pro-should-be-on-your-shopping-list/"><u>Why Apple's Vision Pro Should Be on Your Shopping List</u></a></li>
+</ul></div>
 

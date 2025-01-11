@@ -1,7 +1,7 @@
 ---
 title: Syma S107G RC Helicopter Review
-date: 2024-12-31T11:12:17.562Z
-updated: 2025-01-04T11:07:20.126Z
+date: 2025-01-05T21:33:05.535Z
+updated: 2025-01-10T18:06:19.171Z
 categories:
   - BestProducts
 description: This Article Describes Syma S107G RC Helicopter Review
@@ -18,17 +18,9 @@ thumbnail: https://www.lifewire.com/thmb/P-8UxsMZel3cjt1hVtk4iOKfgsw=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/NltNTWtb6Y6gHFCHDQXlLsrWKTI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -55,6 +47,10 @@ Lifewire / Andy Zahn
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -104,15 +100,15 @@ Lifewire / Andy Zahn
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
 
@@ -122,10 +118,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Autofocus: Blazing fast**
 
  We were shocked by how fast and consistent the autofocus is in the SX70 HS, even in low-light situations. It rarely fails to lock on to your intended subject, and focus tracking works flawlessly.
@@ -133,6 +125,10 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -165,7 +161,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
@@ -198,10 +194,6 @@ Lifewire / Andy Zahn
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Competition: Dominating from the middle ground**
 
  Canon hasn’t tried to push any boundaries with the SX70 HS. Instead, it plays it safe and just does everything very well. Two of its main competitors in the superzoom arena, Panasonic and Nikon, offer intriguing alternatives by either cutting costs or offering groundbreaking technological advances.
@@ -218,11 +210,19 @@ Lifewire / Andy Zahn
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Panasonic Lumix DC-FZ80](https://www.lifewire.com/panasonic-lumix-dc-fz80-review-4691071)
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -258,22 +258,24 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-how-to-secretly-browse-instagram-stories-on-desktop-and-mobile-devices-for-free/"><u>[New] In 2024, How to Secretly Browse Instagram Stories on Desktop and Mobile Devices (For Free)</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-top-5-tools-for-enhancing-web-videos/"><u>[New] In 2024, Top 5 Tools for Enhancing Web Videos</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-optimal-storage-expansion-for-sony-a7c-for-2024/"><u>[New] Optimal Storage Expansion for Sony A7C for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-behind-the-headset-todays-vr-tomorrows-trials/"><u>[Updated] Behind the Headset Today's VR, Tomorrow's Trials</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-top-notch-animated-text-settings-for-2024/"><u>[Updated] Top-Notch Animated Text Settings for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ace-your-marathon-with-our-picks-top-running-watches-of-the-year-2024/"><u>Ace Your Marathon with Our Picks: Top Running Watches of the Year 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722606875617-samsung-ru7300-the-ultimate-guide-for-choosing-a-shape-shifting-smart-tv-with-quality-display/"><u>Samsung RU7300: The Ultimate Guide for Choosing a Shape-Shifting Smart TV with Quality Display.</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/struggling-with-airdrop-on-windows-11-discover-top-notch-alternatives/"><u>Struggling with AirDrop on Windows 11? Discover Top-Notch Alternatives</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-truth-behind-4-compelling-arguments-to-purchase-walmartplus/"><u>The Truth Behind 4 Compelling Arguments to Purchase Walmart+</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-8-point-guide-for-buying-a-high-quality-tablet-today/"><u>The Ultimate 8-Point Guide for Buying a High-Quality Tablet Today</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-holy-stone-remote-control-cars-perfect-for-kids-and-families/"><u>The Ultimate Guide to Holy Stone Remote Control Cars - Perfect for Kids and Families</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transferez-facilement-un-fichier-pgm-en-format-bmp-sans-couts-mouvavi/"><u>Transférez Facilement Un Fichier PGM en Format BMP Sans Coûts - Mouvavi</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/ultimate-audio-guide-to-the-top-5-4k-recording-microphones/"><u>Ultimate Audio Guide to the Top 5 4K Recording Microphones</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-versatile-and-lightweight-samsung-galaxy-chromebook-2-your-next-work-companion/"><u>Ultimate Guide to the Versatile & Lightweight Samsung Galaxy Chromebook 2: Your Next Work Companion</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-review-microsofts-finest-the-revolutionary-surface-laptop-4/"><u>Unboxing Review: Microsoft's Finest - The Revolutionary Surface Laptop 4</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-the-fresh-acer-r11-chrombook-design-and-features-analyzed/"><u>Unboxing the Fresh Acer R11 Chrombook: Design & Features Analyzed</u></a></li>
-<li><a href="https://windows11.techidaily.com/unheard-voices-in-meet-solving-windows-microphone-problems/"><u>Unheard Voices in Meet: Solving Windows Microphone Problems</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-boost-income-secrets-to-successful-youtube-shorts-earning/"><u>[New] In 2024, Boost Income Secrets to Successful YouTube Shorts Earning</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-navigating-through-numbers-a-full-guide-for-measuring-youtube-success/"><u>[New] In 2024, Navigating Through Numbers A Full Guide for Measuring YouTube Success</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-effortless-edits-with-windows-11-photoshop-guide-for-2024/"><u>[Updated] Effortless Edits with Windows 11 Photoshop Guide for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-elevating-effects-a-tiktok-guide/"><u>[Updated] Elevating Effects A TikTok Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-harness-freedom-with-top-rated-android-editing-apps/"><u>[Updated] In 2024, Harness Freedom with Top-Rated Android Editing Apps</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-social-media-sensations-most-liked-and-watched-amazon-originals/"><u>2024 Approved The Social Media Sensations Most Liked & Watched Amazon Originals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-ambient-ws-2902a-osprey-weather-station-a-comprehensive-review-with-plenty-of-perks/"><u>Affordable Ambient WS-2902A Osprey Weather Station: A Comprehensive Review with Plenty of Perks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazfit-helio-ring-overview-specs-breakdown-plus-purchase-price-forecast/"><u>Amazfit Helio Ring Overview: Specs Breakdown + Purchase Price Forecast</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/building-worlds-in-torment-how-tides-of-numenera-elevates-science-fiction-rpg-through-rich-storytelling/"><u>Building Worlds in Torment: How Tides of Numenera Elevates Science Fiction RPG Through Rich Storytelling</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/diving-into-the-new-world-of-watch-dogs-legion-series-in-our-exclusive-review/"><u>Diving Into the New World of Watch Dogs: Legion Series in Our Exclusive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dji-phantom-cuestion-de-unos-pies-hacia-la-perfeccion-version-20-analisis-en-profundidad/"><u>DJI Phantom Cuestión De Unos Pies Hacia La Perfección - Versión 2.0 Análisis en Profundidad</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/dousing-disruptive-dance-in-your-acer-screen/"><u>Dousing Disruptive Dance in Your Acer Screen</u></a></li>
+<li><a href="https://common-error.techidaily.com/exploring-the-role-of-msdia80dll-file-in-your-system-do-you-need-to-retain-it/"><u>Exploring the Role of msdia80.dll File in Your System - Do You Need to Retain It?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-videos-and-music-files-from-iphone-se-2022-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Photos, Videos & Music Files from iPhone SE (2022) | Stellar</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/huaweis-mediapad-m5-tablet-reviewed-a-showcase-of-superior-picture-and-performance/"><u>Huawei's MediaPad M5 Tablet Reviewed: A Showcase of Superior Picture and Performance</u></a></li>
+<li><a href="https://win11.techidaily.com/next-level-windows-paving-the-ai-way-forward/"><u>Next-Level Windows: Paving the AI Way Forward</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-and-features-breakdown-the-highly-secure-micro-cut-shredder-by-amazonbasics-for-confidential-paper-destruction/"><u>Review & Features Breakdown: The Highly Secure Micro-Cut Shredder by AmazonBasics for Confidential Paper Destruction</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-lenovo-ideapad-130s-delving-into-its-limited-battery-life-and-unexpectedly-usable-design/"><u>Reviewing the Lenovo IdeaPad 130S: Delving Into Its Limited Battery Life and Unexpectedly Usable Design</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/which-should-you-choose-a-side-by-side-look-at-google-nest-audio-and-apple-homepod/"><u>Which Should You Choose? A Side-by-Side Look at Google Nest Audio and Apple HomePod</u></a></li>
 </ul></div>
 

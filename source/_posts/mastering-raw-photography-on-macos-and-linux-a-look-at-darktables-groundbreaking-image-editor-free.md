@@ -1,7 +1,7 @@
 ---
 title: "Mastering Raw Photography on macOS & Linux: A Look at Darktable's Groundbreaking Image Editor (Free)"
-date: 2024-12-30T10:38:07.774Z
-updated: 2025-01-04T07:50:07.444Z
+date: 2025-01-04T09:29:38.146Z
+updated: 2025-01-11T07:50:02.575Z
 categories:
   - BestProducts
 description: "This Article Describes Mastering Raw Photography on macOS & Linux: A Look at Darktable's Groundbreaking Image Editor (Free)"
@@ -18,13 +18,13 @@ thumbnail: https://thmb.techidaily.com/d6abae0f7e3d8fb5f7c3d204845ee10283f20e49e
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## SunBriteTV Weatherproof Outdoor 55-Inch Veranda (2nd Gen)
 
 ![SunBriteTV 55-Inch Veranda 4K TV](https://www.lifewire.com/thmb/SbA6fOgyA9EEgVGvd2P96Gc5Jqw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SunBrite_55inch_OutdoorTV_2LW4154865_HERO_Square-c68f638988064b98b6d844f1c9b06c47.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -47,10 +47,6 @@ Lifewire / Gannon Burgett
 ## SunBriteTV Weatherproof Outdoor 55-Inch Veranda (2nd Gen)
 
 ![SunBriteTV 55-Inch Veranda 4K TV](https://www.lifewire.com/thmb/srDs47vmZPXcVAqFGXrMcO_CJi8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SunBrite_55inch_OutdoorTV_2LW4154865_HERO_Square-c68f638988064b98b6d844f1c9b06c47.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -87,6 +83,10 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Durability: Come hell or high water**
 
  Ultimately, testing the durability of the SunBrite 55 Veranda is something only time will be able to prove. However, after more than a month of near-daily use (and abuse), I’ve struggled to find anything this TV can’t handle, even in the chilling winters of northern Michigan.
@@ -94,10 +94,6 @@ Lifewire / Gannon Burgett
  Yes, the Veranda is meant to be used in full shade, where it will likely be somewhat protected, but I still took the time to throw snow, water, mud, and even salty snow at it to see how it held up. No matter what was stuck to it, it all came off with a quick rinse of the hose. The only thing I did notice is that the protective screen on the front of the TV is prone to scratching. In my attempt to smear some dirt on the screen, I managed to rub a rock against the front cover and in doing so gave the TV a nice little scratch on the front.
 
  That said, the abuse I put it through is anything but normal and so long as you aren’t literally grinding dirt into the screen or throwing rocks at it, I can’t see how this thing won’t hold up for years to come, be it rain or shine.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Fairly straightforward**
 
@@ -108,6 +104,10 @@ Lifewire / Gannon Burgett
  The good news is there are some smaller devices now that you could easily plug into the TV and house right inside the water-resistant compartment, such as a[Google Chromecast](https://www.lifewire.com/set-up-google-chromecast-5323335) or[Amazon Fire TV Stick](https://www.lifewire.com/amazon-fire-tv-4152887) . It’s worth noting that the all-metal frame the TV is housed in, definitely impacts the wireless range of such devices.
 
 ![SunBriteTV 55-Inch Veranda 4K TV](https://www.lifewire.com/thmb/OXDu2alZGi-BU3sWsISvhfwGSDo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/SunBrite_55inch_OutdoorTV_2LW4154865_11_Horiz-b20abbf925284d3fb1936ceb762e3fe1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
@@ -132,7 +132,7 @@ Lifewire / Gannon Burgett
  Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Not cheap, but worth it**
@@ -142,7 +142,7 @@ Lifewire / Gannon Burgett
  For better or worse, its $2,000 price is roughly middle-of-the-line as far as outdoor TVs go and if you have the cash to spare, I can guarantee it’ll be a worthwhile luxury purchase if you enjoy spending your time outside in the sun (or snow, in my case).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **SunBriteTV 55-inch Veranda vs Sealoc Lanai LG 7-series**
@@ -190,22 +190,22 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-dimming-down-music-effortlessly-on-computers-macos-and-windows/"><u>[New] 2024 Approved Dimming Down Music Effortlessly on Computers (macOS & Windows)</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-mastering-screen-capture-bandicam-vs-camtasia-battle/"><u>[New] 2024 Approved Mastering Screen Capture Bandicam Vs. Camtasia Battle</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-importance-of-diversity-and-inclusion-in-market-research-samples/"><u>[Updated] In 2024, The Importance of Diversity & Inclusion in Market Research Samples</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/brilliant-backdrops-using-light-to-enchant-audiences-for-2024/"><u>Brilliant Backdrops Using Light to Enchant Audiences for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-amazon-halo-a-deep-dive-into-personal-health-and-fitness-monitoring/"><u>Discover Amazon Halo: A Deep Dive Into Personal Health and Fitness Monitoring</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/economical-setup-budget-friendly-showcase-with-dreams-tv/"><u>Economical Setup, Budget-Friendly Showcase with Dream's Tv</u></a></li>
-<li><a href="https://win-tricks.techidaily.com/effortless-strategies-to-copy-gmail-correspondence-onto-google-drive-learn-the-best-techniques/"><u>Effortless Strategies to Copy Gmail Correspondence Onto Google Drive – Learn the Best Techniques!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-sturdy-build-and-straightforward-installation-an-insightful-review-of-acurites-pro-model-01036m/"><u>Evaluating the Sturdy Build & Straightforward Installation: An Insightful Review of AcuRite's Pro Model - 01036M</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-the-classic-charm-of-withings-move-the-perfect-blend-of-traditional-and-modern-in-a-smartwatch/"><u>Experience the Classic Charm of Withings Move - The Perfect Blend of Traditional and Modern in a Smartwatch</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-classic-innovation-in-lg-watch-style-a-deep-dive-into-wear-os-version-20/"><u>Exploring Classic Innovation in LG Watch Style – A Deep Dive Into Wear OS Version 2.0</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/exploring-the-similarities-between-vision-pros-latest-controller-design-and-apple-pencil-exclusive-analysis/"><u>Exploring the Similarities Between Vision Pro's Latest Controller Design & Apple Pencil Exclusive Analysis</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-narrative-nexus-cutting-edge-storytelling-channels-of-the-year/"><u>In 2024, Narrative Nexus Cutting-Edge Storytelling Channels of the Year</u></a></li>
-<li><a href="https://os-tips.techidaily.com/in-depth-analysis-of-the-ugreen-5000mah-magnetic-charger-pad-does-it-spark-anxiety/"><u>In-Depth Analysis of the Ugreen 5000mAh Magnetic Charger Pad: Does It Spark Anxiety?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-battery-powered-google-wireless-nest-doorbell-performance/"><u>In-Depth Analysis: Battery Powered Google Wireless Nest Doorbell Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-fitbit-charge-4-when-aesthetics-and-utility-unite/"><u>In-Depth Look at the Fitbit Charge 4: When Aesthetics and Utility Unite</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/kidizoom-cam-series-joyful-exploration/"><u>Kidizoom Cam Series: Joyful Exploration</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/the-ultimate-list-of-top-5-no-cost-wma-editor-programs-available-online-and-offline/"><u>The Ultimate List of Top 5 No-Cost WMA Editor Programs Available Online & Offline</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-advanced-tools-for-efficiently-converting-xmlssattml-to-srt/"><u>[New] Advanced Tools for Efficiently Converting XML/SSA/TTML to SRT</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-insider-tips-for-documenting-your-favorite-games-on-ps4-for-2024/"><u>[New] Insider Tips for Documenting Your Favorite Games on PS4 for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-superior-strategies-for-unrestricted-space-allocation/"><u>2024 Approved Superior Strategies for Unrestricted Space Allocation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-watch-series-4-analysis-enhanced-excellence-unveiled/"><u>Apple Watch Series 4 Analysis: Enhanced Excellence Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-top-smart-audio-devices-dominating/"><u>Discover the Top Smart Audio Devices Dominating</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/exciting-news-for-apple-developers-enhance-your-code-with-our-latest-complimentary-ai-upgrades-zdnet/"><u>Exciting News for Apple Developers: Enhance Your Code with Our Latest Complimentary AI Upgrades | ZDNet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expertly-selected-top-combo-modems-with-routers-for-the-year-2024/"><u>Expertly Selected Top Combo Modems with Routers for the Year 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/football-manager-2021-for-windows-solving-common-pc-performance-issues/"><u>Football Manager 2021 for Windows - Solving Common PC Performance Issues</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-a-nokia-c300-easily-by-drfone-android/"><u>How To Unlock a Nokia C300 Easily?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-google-pixel-8-pro-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Google Pixel 8 Pro FRP</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-imac-with-apples-new-m1-processor-visual-upgrade-and-enhanced-performance/"><u>In-Depth Analysis of iMac with Apple's New M1 Processor: Visual Upgrade & Enhanced Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lamicall-s-tablet-stand-review-designed-with-functionality-in-mind/"><u>Lamicall S Tablet Stand Review: Designed With Functionality In Mind</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Nokia C300 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-lenovos-ideapad-130s-balancing-useful-features-against-limited-processing-ability/"><u>Review of Lenovo's IdeaPad 130S: Balancing Useful Features Against Limited Processing Ability</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/space-shooter-and-smiles-exploring-the-entertaining-storyline-and-mechanics-of-the-outer-worlds/"><u>Space, Shooter and Smiles: Exploring the Entertaining Storyline & Mechanics of The Outer Worlds</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/symas-budget-marvel-the-107g-rc-helicopter-unleashed-a-complete-product-evaluation-and-insights/"><u>Syma's Budget Marvel: The 107G RC Helicopter Unleashed – A Complete Product Evaluation and Insights</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-flaws-of-ai-chatbots-top-8-issues-with-gpt/"><u>The Flaws of AI Chatbots: Top 8 Issues with GPT</u></a></li>
 </ul></div>
 

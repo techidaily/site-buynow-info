@@ -1,7 +1,7 @@
 ---
 title: "Expert Critique on Star Wars: Squadrons – A Deep Dive Into Epic Galactic Fights"
-date: 2024-12-31T17:32:58.935Z
-updated: 2025-01-03T21:59:57.079Z
+date: 2025-01-03T17:35:41.388Z
+updated: 2025-01-10T18:07:47.234Z
 categories:
   - BestProducts
 description: "This Article Describes Expert Critique on Star Wars: Squadrons – A Deep Dive Into Epic Galactic Fights"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -46,13 +42,13 @@ Lifewire / Todd Braylor
 
 3.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/sfbFkL8zI4goROALJ4BAsKN18us=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -75,10 +71,6 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -95,6 +87,10 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Range: Impressive detection**
 
  The Passport S55 features Enhanced Radar Protection that delivers long-distance range for laser and radar bands, including K and Ka bands, widely used microwave frequencies for police radar guns. It reliably delivers on its promise of long-distance sensitivity. While testing the S55 in Highway mode I received Ka-band alerts over a mile and a half out from where I approached a highway patrol parked on the median of the interstate. This range was on par with much more expensive models.
@@ -102,7 +98,7 @@ Lifewire / Todd Braylor
  It reliably delivers on its promise of long-distance sensitivity.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
@@ -113,15 +109,15 @@ Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
@@ -134,6 +130,10 @@ Lifewire / Todd Braylor
  **A basic radar detector that's ideal for beginners or anyone on a budget.**
 
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -164,22 +164,17 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-captivating-viewers-with-youtubes-visual-polishing/"><u>[New] 2024 Approved Captivating Viewers with Youtube's Visual Polishing</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-the-ultimate-list-of-powerful-pc-screencasters/"><u>[New] The Ultimate List of Powerful PC Screencasters</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-mastering-the-art-of-instagram-filter-use/"><u>[Updated] Mastering the Art of Instagram Filter Use</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-physical-security-measures/"><u>[Updated] Physical Security Measures</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-feature-a-podcast-in-one-quick-snap/"><u>2024 Approved Feature a Podcast in One Quick Snap</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722781585364-a-guide-to-economic-warfare-and-empire-expansion-in-offworld-trading-company-insights-from-a-veteran-player/"><u>A Guide to Economic Warfare and Empire Expansion in Offworld Trading Company: Insights From a Veteran Player</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-minimalists-take-ufos-deciphered-by-aminy/"><u>A Minimalist's Take: UFOs Deciphered by Aminy</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apples-compact-marvel-in-depth-analysis-of-the-ipad-mini-5/"><u>Apple's Compact Marvel: In-Depth Analysis of the iPad Mini 5</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722776264700-approach-recall-the-imaging-techniques-mentioned-and-their-sensitivity-to-changes-in-bone/"><u>Approach: Recall the Imaging Techniques Mentioned and Their Sensitivity to Changes in Bone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/experience-unmatched-travel-planning-with-bings-innovative-ai-concierge/"><u>Experience Unmatched Travel Planning with Bing's Innovative AI Concierge</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-tecno-spark-10c-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Tecno Spark 10C Pattern Lock if Forgotten? 6 Ways</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-realme-12plus-5g-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Realme 12+ 5G</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-the-secret-to-viral-lip-sync-videos-5-must-try-apps/"><u>New The Secret to Viral Lip Sync Videos 5 Must-Try Apps</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/uninterrupted-victories-discovering-the-perfectly-paired-apc-gaming-ups-unit-review/"><u>Uninterrupted Victories: Discovering the Perfectly Paired APC Gaming UPS Unit Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlock-affordable-finds-in-your-area-explore-oodles-gratis-community-listings/"><u>Unlock Affordable Finds in Your Area - Explore Oodle's Gratis Community Listings!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlocking-speed-and-connectivity-discover-the-best-in-home-internet-with-googles-wifi-reviewed/"><u>Unlocking Speed and Connectivity: Discover the Best in Home Internet with Google's Wifi Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/why-the-lg-oled-c9-65-4k-smart-tv-is-a-game-changer-for-home-theater-buffs-a-detailed-insight/"><u>Why the LG OLED C9 65 4K Smart TV Is a Game Changer for Home Theater Buffs: A Detailed Insight.</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ow-to-edit-youtube-videos-in-windows-movie-maker-for-2024/"><u>[New] How to Edit YouTube Videos in Windows Movie Maker for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-value-4k-photography-equipment-for-2024/"><u>Best Value 4K Photography Equipment for 2024</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/calibration-frequency-is-influenced-by-usage-rate-precision-importance-manufacturers-guidelebackground-and-industry-regulations/"><u>Calibration Frequency Is Influenced by Usage Rate, Precision Importance, Manufacturer's Guidelebackground, and Industry Regulations.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-microsoft-sculpt-ergo-keyboard-assessment-unbeatable-quality-at-a-fair-price/"><u>Comprehensive Microsoft Sculpt Ergo Keyboard Assessment - Unbeatable Quality at a Fair Price</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/crafting-successful-fitness-goals-through-gpt/"><u>Crafting Successful Fitness Goals Through GPT</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-resurrected-world-in-depth-review-of-7-days-to-die/"><u>Exploring the Resurrected World: In-Depth Review of '7 Days to Die'</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Vivo G2 | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-honor-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Honor FRP Locks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-robotics-at-home-discover-how-makeblocks-mbot-kit-empowers-young-innovators/"><u>Mastering Robotics at Home? Discover How Makeblock's mBot Kit Empowers Young Innovators</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-essential-checklist-for-choosing-a-lightweight-compact-tablet/"><u>The Essential Checklist for Choosing a Lightweight, Compact Tablet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-tp-links-deco-p9-for-effortless-mesh-wi-fi-setup/"><u>The Ultimate Review of TP-Link's Deco P9 for Effortless Mesh Wi-Fi Setup</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-tutorial-how-to-screen-record-or-screenshot-on-ps4/"><u>Ultimate Tutorial: How to Screen Record or Screenshot on PS4</u></a></li>
 </ul></div>
 

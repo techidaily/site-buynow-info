@@ -1,7 +1,7 @@
 ---
 title: "Cost-Effective Networking Gear Spotlight: The Capabilities of the TP-Link Archer C50"
-date: 2025-01-01T01:54:52.583Z
-updated: 2025-01-03T20:20:31.572Z
+date: 2025-01-08T08:12:52.943Z
+updated: 2025-01-10T17:59:01.400Z
 categories:
   - BestProducts
 description: "This Article Describes Cost-Effective Networking Gear Spotlight: The Capabilities of the TP-Link Archer C50"
@@ -18,17 +18,9 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Docooler USB 2.0 12 Megapixel
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/9tSqTK9OEckACvQEhU5iBbHvMfM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_HERO_1LW4065141_7_Final_Square-bd507bc5d1d646f9a0d8d7466601f569.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / James Huenink
 
@@ -50,6 +42,10 @@ Lifewire / James Huenink
 [View On Amazon](https://www.amazon.com/dp/B00OB883F6/?tag=lifewire-onsite-prod-20&ascsubtag=4784227%7Cnb8fa7df8bea04ca4a06f94beab613f8802%7CB00OB883F6)
 
 1.4
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Docooler USB 2.0 12 Megapixel
 
@@ -80,10 +76,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Flimsy and difficult to use**
 
  The first thing we noticed about the Docooler USB 2.0 12 Megapixel is how cheap it feels. The camera itself has a plastic, silver housing with a shiny silver focus ring on the end. It feels like it could break at any moment. The base is made of a transparent plastic, which is also available in blue and black. The plastic is so rigid that we expect it to break under regular use. Every time we adjusted the camera, the plastic creaked like a rusty door in a haunted house. Even in our short testing period, the joints started getting loose. We had to check several times just to make sure it wasn’t broken.
@@ -91,10 +83,6 @@ Lifewire / James Huenink
  The base looks like a binder clip with a hinge on the back end. The front of the camera houses the focus ring, which twists to focus in or out but doesn’t turn very smoothly. When we used it for the first time, it didn’t feel like it was supposed to rotate at all. Just like everything else, the focus ring feels like it will crack or fall out at any moment. One side of the clip has a squishy pad to keep the camera from slipping when it’s mounted on a smooth surface. The two are connected by a ball joint, which allows the camera to spin around 360 degrees and tilt approximately 15 degrees forward or backward or side to side.
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/a_8Gd66JN0RtfWzKKcRq95S8EmY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_6_Final_Horiz-1dd3a45479614483b0f4f5883f27094a.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / James Huenink
 
@@ -116,6 +104,10 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Underwhelming performance in video and audio**
 
  We used[Photobooth](https://www.lifewire.com/how-to-turn-on-camera-on-mac-4175436) and[Skype](https://www.lifewire.com/how-to-make-hd-skype-calls-3426508) to test out the video and audio performance using the webcam for recording and[conference calls](https://www.lifewire.com/top-free-web-conferencing-tools-2377241) . It was difficult to position the Docooler USB 2.0 12 Megapixel correctly, because by the time we clipped it on and sat down, the camera had slipped out of position. This happened several times before we finally resigned ourselves to using a tilted camera in our calls.
@@ -128,9 +120,17 @@ Lifewire / James Huenink
 
  The audio performance of the Docooler USB 2.0 12 Megapixel was also lackluster. The built-in microphone produced poor quality sound, and when we tested it on Skype, voices were both muffled and echoey. People on the other end could understand what we were saying, but it was an unpleasant experience.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Cheap price, even cheaper webcam**
 
  The Docooler USB 2.0 12 Megapixel is the most inexpensive webcam you can buy, ranging from $8 up to around $15, but there’s a reason it’s priced so low. The image and audio quality are both terrible, and the camera is difficult to use.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Falls short**
 
@@ -147,7 +147,7 @@ Lifewire / James Huenink
  The Docooler USB 2.0 12 Megapixel is one of the most inexpensive cameras on the market for a reason. This camera doesn’t come close to delivering what it promises, meaning it's not worth even the trifle you'd pay for it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -182,22 +182,20 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-overcoming-anxiety-in-your-camera-lens-youtube-wisdom/"><u>[New] In 2024, Overcoming Anxiety in Your Camera Lens YouTube Wisdom</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-industry-insights-top-10-handheld-hd-playback-units/"><u>[Updated] Industry Insights Top 10 Handheld HD Playback Units</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-pixels-in-perfection-tweeting-at-full-hd-quality/"><u>[Updated] Pixels in Perfection Tweeting at Full HD Quality</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-upgrade-webcam-videos-with-simple-editing-techniques/"><u>[Updated] Upgrade WebCam Videos with Simple Editing Techniques</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-youtubes-new-look-shorts-now-on-screen/"><u>[Updated] YouTube's New Look - Shorts Now on Screen</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/5-best-external-blu-ray-drives-for-enhanced-media-experience-2024/"><u>5 Best External Blu-Ray Drives for Enhanced Media Experience - 202^4</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/advance-windows-10-features-home-to-professional-shift/"><u>Advance Windows 10 Features: Home to Professional Shift</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/analog-wonders-with-no-cables-at-lp60xbt-insight/"><u>Analog Wonders with No Cables: AT-LP60XBT Insight</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apple-watch-vs-fitbit-a-detailed-comparison-of-series-9-and-charge-6-models/"><u>Apple Watch Vs. Fitbit: A Detailed Comparison of Series 9 and Charge 6 Models</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/avoiding-common-mistakes-when-buying-a-smart-tv/"><u>Avoiding Common Mistakes When Buying a Smart TV</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/epic-battles-and-dynamic-choreography-for-tiktoks-for-2024/"><u>Epic Battles & Dynamic Choreography for TikToks for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-call-logs-from-motorola-moto-g14-by-fonelab-android-recover-call-logs/"><u>How to retrieve erased call logs from Motorola Moto G14?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-conquer-chrome-multitasking-learn-to-utilize-pip-effectively/"><u>In 2024, Conquer Chrome Multitasking Learn to Utilize PIP Effectively</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-text-transcription-software/"><u>Top Rated Text Transcription Software</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-samsung-galaxy-s24-ultra-initial-thoughts-and-features/"><u>Unveiling the Samsung Galaxy S24 Ultra: Initial Thoughts and Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/virtually-hug-your-pets-petcubes-new-adventure-awaits/"><u>Virtually Hug Your Pets: Petcube's New Adventure Awaits</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/zoom-for-broadcasts-bridging-the-gap-to-fb-live/"><u>ZOOM for Broadcasts Bridging the Gap to FB Live</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-highpoint-design-suite-examination/"><u>[Updated] Highpoint Design Suite Examination</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-bridging-the-media-gap-coordinating-vids-on-twitter-and-tumblr/"><u>[Updated] In 2024, Bridging the Media Gap Coordinating Vids on Twitter & Tumblr</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/aquaresonance-scan-reliable-soundproof-audio/"><u>AquaResonance Scan: Reliable Soundproof Audio</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/essential-tech-tools-to-enhance-your-sleep-experience-tonight/"><u>Essential Tech Tools to Enhance Your Sleep Experience Tonight</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/excellence-on-a-budget-comprehensive-review-of-the-tp-link-archer-c7-router/"><u>Excellence on a Budget: Comprehensive Review of the TP-Link Archer C7 Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-joy-of-pets-at-your-fingertips-with-petcube-bites-2/"><u>Experience the Joy of Pets at Your Fingertips with Petcube Bites 2</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-implement-nvidias-nvenc-in-handbrake-a-step-by-step-guide/"><u>How to Implement NVIDIA's NVENC in HandBrake - A Step-by-Step Guide!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-mov-files-of-moto-g23-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and MOV files of Moto G23 using Video Repair Utility on Windows?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-itel-a70-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-pro-tips-for-streaming-and-screening-netflix-on-mac/"><u>In 2024, Pro-Tips for Streaming & Screening Netflix on Mac</u></a></li>
+<li><a href="https://fox-links.techidaily.com/prime-mobile-tools-to-enhance-dji-drone-imagery-for-2024/"><u>Prime Mobile Tools to Enhance DJi Drone Imagery for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-tutorial-for-swift-installation-of-wacom-intuos-creative-pads-software/"><u>Step-by-Step Tutorial for Swift Installation of Wacom Intuos Creative Pad's Software</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-6-sources-to-shop-for-high-quality-computers-and-laptops/"><u>The Best 6 Sources to Shop for High-Quality Computers and Laptops</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-winegard-fl5500a-solid-signal-strength-meets-premium-pricing-analysis/"><u>Unboxing the Winegard FL5500A: Solid Signal Strength Meets Premium Pricing Analysis</u></a></li>
 </ul></div>
 

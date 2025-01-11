@@ -1,7 +1,7 @@
 ---
 title: "Nikon's W100: A Rugged, Price-Conscious Choice"
-date: 2025-01-02T01:03:50.714Z
-updated: 2025-01-04T03:30:19.217Z
+date: 2025-01-04T09:08:49.585Z
+updated: 2025-01-10T16:55:25.276Z
 categories:
   - BestProducts
 description: "This Article Describes Nikon's W100: A Rugged, Price-Conscious Choice"
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/73f7ebc207fbc00d83c0c8e87f26e999ea76fd79d
 ![New Bee LC-B41](https://www.lifewire.com/thmb/xwUsYAgIVW9583_9I35ND4f0SsQ=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/NewBee_BluetoothHeadsets_LCB41_HeroSquare-2ff9227981ee4cce88d0dccaf0bae6c7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -75,15 +75,15 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Small and inconspicuous**
 
  The New Bee is relatively small, measuring a little over two inches in length and about 0.6 inches wide. It comes in three different colors: black, white, or gold. The exterior finish is glossy, and it has silver trim that gets thicker at the rounded off bottom portion of the headset. Overall, this headset looks more like a typical electronic device than some of the other units I’ve tested.
 
  There are three hard button controls on the New Bee, which are ideally located for the easiest possible access. On one side sits a physical on and off slider switch, and the other side has a volume control switch. The brand name “New Bee” is printed along the front of the glossy surface, and you press on the front glossy surface of the headset to answer and end calls. Since the call button is so large, it’s easier to answer a call while you’re performing other tasks.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Comfort: Wears well for long periods**
 
@@ -94,7 +94,7 @@ Lifewire / Erika Rawes
  The ear cushions are soft and comfortable, and they don’t feel “forced.” Each ear cushion has a loop that helps it stay in the ear, but the loop is flexible, so it doesn’t push against the curves in your ear.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Sound Quality: Better for calls than music**
@@ -117,12 +117,16 @@ Lifewire / Erika Rawes
 
  New Bee features HD voice and CVC (clear voice capture) 6.0 noise cancellation.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A budget headset under $20**
 
  The price tag is insanely affordable. You can buy the New Bee LC-41 headset for around $17, which is an excellent value considering the battery life and all of the included accessories.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **New Bee LC-41 vs. Jabra Steel**
@@ -136,10 +140,6 @@ Lifewire / Erika Rawes
 **One of the better entry-level Bluetooth headsets.**
 
  The New Bee LC-41 isn’t perfect, but because it offers so much for so little, most people will be happy with the device.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -165,22 +165,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-essential-guide-top-10-steps-for-instructors-on-youtube-channels/"><u>[New] 2024 Approved Essential Guide Top 10 Steps for Instructors on YouTube Channels</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-enhance-videos-with-easy-apple-music-integration/"><u>[Updated] In 2024, Enhance Videos with Easy Apple Music Integration</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/2024s-leading-home-entertainment-pcs-ranked-for-optimal-movie-experience/"><u>2024'S Leading Home Entertainment PCs Ranked for Optimal Movie Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/5-best-distance-wifi-routers-to-upgrade-your-home-network/"><u>5 Best Distance WiFi Routers to Upgrade Your Home Network</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/8-things-to-consider-when-buying-a-tablet/"><u>8 Things to Consider When Buying a Tablet</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-unique-blend-of-fun-and-protection-the-ddpai-mini3-dashcam-reviewed/"><u>A Unique Blend of Fun and Protection: The DDpai Mini3 Dashcam Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722599126716-asus-chromebook-flip-c302ca-outstanding-budget-laptop-with-remarkable-versatility-reviewed/"><u>Asus Chromebook Flip C302CA: Outstanding Budget Laptop with Remarkable Versatility Reviewed!</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/budget-savvy-shoppers-best-cameras/"><u>Budget-Savvy Shoppers' Best Cameras</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722766616161-discover-the-ultimate-pc-sound-solutions-elite-card-picks-for-2eby2024/"><u>Discover the Ultimate PC Sound Solutions: Elite Card Picks for 2Eby2024!</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/ensure-optimal-performance-with-fresh-nvidia-geforce-mx150-driver-downloads-for-windows-systems/"><u>Ensure Optimal Performance with Fresh Nvidia GeForce MX150 Driver Downloads for Windows Systems</u></a></li>
-<li><a href="https://win-cheats.techidaily.com/how-can-you-quickly-enhance-your-pcs-performance-without-downloading-additional-programs-insights-by-yl-computing/"><u>How Can You Quickly Enhance Your PC's Performance Without Downloading Additional Programs? - Insights by YL Computing</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-realme-gt-5-pro-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Realme GT 5 Pro?</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/profi-tipps-zur-wiedergewinnung-von-verschwundenen-panasonic-lumix-fotos-mithilfe-von-myrecover/"><u>Profi-Tipps Zur Wiedergewinnung Von Verschwundenen Panasonic Lumix Fotos Mithilfe Von MyRecover</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722606418065-pros-and-cons-of-roku-vs-amazon-fire-tv-stick-find-out-which-one-suits-you-best/"><u>Pros & Cons of Roku vs Amazon Fire TV Stick: Find Out Which One Suits You Best!</u></a></li>
-<li><a href="https://driver-download.techidaily.com/step-by-step-guide-updating-nvidia-software-for-optimal-performance-on-surface-book/"><u>Step-by-Step Guide: Updating NVIDIA Software for Optimal Performance on Surface Book</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722538649938-top-rated-trial-run-on-the-innovative-linksys-velop-networking-solution/"><u>Top-Rated Trial Run on the Innovative Linksys Velop Networking Solution!</u></a></li>
-<li><a href="https://driver-install.techidaily.com/uncompromising-webcam-software-for-windows/"><u>Uncompromising Webcam Software for Windows</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-the-complete-process-to-document-real-time-chats-for-2024/"><u>[New] The Complete Process to Document Real-Time Chats for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-follow-up-formula-climbing-to-1k-monthly-instagram-likes-for-2024/"><u>[New] The Follow-Up Formula Climbing to 1K Monthly Instagram Likes for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-is-there-money-in-evaluating-merchandise-vids/"><u>2024 Approved Is There Money in Evaluating Merchandise Vids?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-cost-effective-fitbit-versa-smartwatch/"><u>Comprehensive Analysis of the Cost-Effective Fitbit Versa Smartwatch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-clearstream-2v-dual-use-hd-tv-antenna-high-quality-despite-its-ugly-design/"><u>Expert Analysis of the ClearStream 2V Dual-Use HD TV Antenna - High Quality Despite Its Ugly Design</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/flagship-features-with-a-touch-of-simplicity-an-expert-analysis-of-the-google-pixel-5/"><u>Flagship Features with a Touch of Simplicity: An Expert Analysis of the Google Pixel 5</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-tecno-spark-20-proplus-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Tecno Spark 20 Pro+ Location by Number | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-posting-videos-on-twitter-step-by-step/"><u>In 2024, Posting Videos on Twitter Step-by-Step</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/indoor-and-outdoor-excellence-the-clearstream-2v-hdtv-antenna-performance-breakdown-and-design-critique/"><u>Indoor & Outdoor Excellence: The ClearStream #2V HDTV Antenna Performance Breakdown and Design Critique</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/introducing-the-razer-book-13-a-game-changing-compact-device-analyzed/"><u>Introducing the Razer Book 13: A Game-Changing Compact Device Analyzed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-applecare-plus-essential-discover-5-advantages-of-an-extended-plan/"><u>Is AppleCare Plus Essential? Discover 5 Advantages of an Extended Plan</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-it-possible-to-rejuvenate-a-laptops-central-processor/"><u>Is It Possible to Rejuvenate a Laptop's Central Processor?</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/paradox-launcher-error-solutions-how-to-ensure-smooth-gameplay/"><u>Paradox Launcher Error Solutions - How To Ensure Smooth Gameplay</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solutions-for-binkw32dll-file-absent-issue-easy-fix-guide/"><u>Solutions for Binkw32.DLL File Absent Issue – Easy Fix Guide</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/solved-move-from-oneplus-nord-ce-3-lite-5g-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Solved Move from OnePlus Nord CE 3 Lite 5G to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-verdict-on-lg-k92s-value-for-money-with-its-5g-capabilities/"><u>The Verdict on LG K92's Value for Money with Its 5G Capabilities</u></a></li>
+<li><a href="https://win-premium.techidaily.com/troubleshooting-your-unrecognized-gpu-comprehensive-guide-by-yl-computing/"><u>Troubleshooting Your Unrecognized GPU - Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultraportable-and-budget-friendly-microsoft-surface-laptop-go-analysis/"><u>Ultraportable & Budget-Friendly Microsoft Surface Laptop Go Analysis</u></a></li>
+<li><a href="https://fox-http.techidaily.com/weaving-words-wisely-uncovering-the-top-8-writing-schools-for-2024/"><u>Weaving Words Wisely Uncovering the Top 8 Writing Schools for 2024</u></a></li>
 </ul></div>
 

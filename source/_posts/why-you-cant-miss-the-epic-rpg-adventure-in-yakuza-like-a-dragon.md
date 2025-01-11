@@ -1,7 +1,7 @@
 ---
 title: "Why You Can't Miss the Epic RPG Adventure in 'Yakuza: Like A Dragon'"
-date: 2025-01-02T20:10:47.457Z
-updated: 2025-01-04T05:58:20.840Z
+date: 2025-01-06T19:59:20.727Z
+updated: 2025-01-11T09:21:08.517Z
 categories:
   - BestProducts
 description: "This Article Describes Why You Can't Miss the Epic RPG Adventure in 'Yakuza: Like A Dragon'"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/dcd52c68a0261301dc49a434565ff933798115ab3
 ## SEGA Yakuza: Like a Dragon
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/a-p7jLzGh5XDa5UjESh5w8kXrPk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_HeroSquare-ea84381e359846e6951c77b6f7e7c5a0.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -72,6 +68,10 @@ Lifewire / Erika Rawes
 
  The[best PC games](https://www.lifewire.com/best-pc-games-4147292) offer something unique that keeps you coming back for more. Yakuza: Like a Dragon takes the standard Yakuza formula and stands it on its head, moving the fighting system from real-time to turn-based and making this entry to the series feel like a true JRPG. I played Yakuza: Like a Dragon[on PC](https://www.lifewire.com/best-pc-games-4147292) to find out if these changes make this game better or worse. Should you play the new Yakuza or skip it? Read on to check out my full review of Yakuza: Like a Dragon.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Setting and Plot: A very long intro
 
  Yakuza: Like a Dragon places you in the shoes of Ichiban Kasuga, a young Yakuza upstart who was raised as an orphan in a Soap House by the owner and the women who worked there. Kasuga gets into a bit of trouble with a Yakuza family but is saved by Masumi Arakawa, the patriarch of the Arakawa family. Because of this, Kasuga pledges his life to Arakawa, promising to repay the debt.
@@ -79,7 +79,7 @@ Lifewire / Erika Rawes
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/Mo4mMH944CddmYJTyCxtMRxK9-k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_05-e59c99ba9bd249e7a2241f532dd742dc.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -89,10 +89,6 @@ Lifewire / Erika Rawes
  All of the aforementioned story takes place in what could be called the introductory stages of the game. The intro was incredibly slow and took around five to six hours. Finally, after the long intro, it felt like I was getting into the real meat where the world opens up. Even after the long preamble, I was still introduced to new items, concepts, and parts of the game. It felt like a lot of handholding, which was frustrating at times.
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/_ksFqEWrm3B3MbfrBujuNtLpcXw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_03-37ca82f2a4cd42c4ad65f34e2ca63b68.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -116,10 +112,6 @@ Lifewire / Erika Rawes
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/ZvcwNcecc79umImvw53CUJlLvIc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_02-6396bcd8866c4a479331a02e160eb890.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Erika Rawes
 
  The moves are creative and fun to use. After selecting the attack, timed button presses may increase the attack’s effectiveness or provide you with bonus damage. When you need a true power attack, you can use your phone to call PoundMates, which is a special “Summoning” move that calls in an ally to do massive damage. There are tons of PoundMates in the game, from a diaper-wearing adult man to a poisonous lobster named Nancy, and calling these special attacks is part of what makes Yakuza fun to play.
@@ -129,10 +121,6 @@ Lifewire / Erika Rawes
  There’s a job system, which will let you change the different abilities of your team. This lets you customize your party to fill different roles, like healer or tank. However, in Yakuza, you’ll find some rather interesting jobs. There’s gear as well, but this is pretty standard fare. You’ll encounter a ton of diversions and side quests. Some of the minigames are innovative and comical, but some are also very benign.
 
  This[PC game](https://www.lifewire.com/pc-gaming-reviews-4689600) plays just like it should, and the controls are top-notch. Everything just works, which is a rare feat these days. You should be able to finish the main story in around 45 to 55 hours, depending on how fast you run through it, but I highly recommend taking your time and enjoying all the wonderful diversions available.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Graphics: Excellent visuals
 
@@ -148,11 +136,19 @@ Lifewire / Erika Rawes
 
 Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Price: The typical $60
 
  The base version of Yakuza: Like a Dragon comes in at $60 like most new titles. The price is reasonable for the amount of gameplay. However, you have two other purchase options as well. The Hero Edition, which costs $70, includes the Job Set and the Management Mode set and features two extra jobs and three sets of Management mode employees.
 
  The Legendary Hero edition costs $90, and it includes both previously listed sets, as well as the Crafting Mat, Stat Boost, Karaoke, and Ultimate Costume sets. These are all nice bonuses and can certainly add to the experience, but you will also find more than enough gameplay in the base game.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Yakuza: Like a Dragon vs. Dragon Quest Series
 
@@ -163,6 +159,10 @@ Lifewire / Erika Rawes
 **An entertaining and addictive JRPG.**
 
  A well-crafted masterpiece. Yakuza: Like a Dragon falls into the must-play category for anyone who loves a good story, JRPGs, or a wild game that will make you laugh. It’s definitely a departure from the rest of the series, but that contributes to a lot of the fun and uniqueness of the game.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -198,18 +198,19 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Oppo Find N3 Flip | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-deep-dive-into-the-value-proposition-of-netflix/"><u>A Deep Dive Into the Value Proposition of Netflix</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-new-era-for-portable-computing-unboxing-the-2020-macbook-pro-with-m1-chip-13-inch-review/"><u>A New Era for Portable Computing - Unboxing the 2020 MacBook Pro with M1 Chip (13-Inch Review)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/acer-aspire-e-15-top-pick-in-affordable-laptops/"><u>Acer Aspire E 15 - Top Pick in Affordable Laptops</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722488292357-analye-and-interpret-data/"><u>Analye and Interpret Data:</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722759915827-expert-insights-on-the-escort-max-360-a-full-featured-radar-detector-with-reliable-gps-intelligent-alerts-and-more/"><u>Expert Insights on the Escort Max 360: A Full-Featured Radar Detector with Reliable GPS, Intelligent Alerts and More</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Oppo Find X6 Pro | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-honor-play-40c-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Honor Play 40C | Dr.fone</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/how-to-stop-your-pc-from-freezing-fixing-windows-10-and-eboots-bsod-error-0xc000021a/"><u>How to Stop Your PC From Freezing: Fixing Windows 10 & Eboot's BSoD (Error 0xC000021A)</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/journey-blueprint-top-picks-of-seven-ai-apps-for-free-travel-planning/"><u>Journey Blueprint: Top Picks of Seven AI Apps for FREE Travel Planning</u></a></li>
-<li><a href="https://games-able.techidaily.com/ps5-ignition-simplified-in-six-steps/"><u>Ps5 Ignition Simplified in Six Steps</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722956294471-speedy-setup-find-and-download-compatible-webcam-drivers-for-windows-7-free/"><u>Speedy Setup: Find & Download Compatible Webcam Drivers for Windows 7 | FREE!</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-to-activate-and-utilize-androidve-quick-settings-for-maximum-efficiency/"><u>Step-by-Step Guide to Activate and Utilize Android've Quick Settings for Maximum Efficiency</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-best-composers-for-the-ultimate-video-photographic-symphony/"><u>[Updated] Best Composers for the Ultimate Video-Photographic Symphony</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-the-next-level-in-monitor-technology-a-deep-dive-into-p2715qs-wonders/"><u>[Updated] The Next Level in Monitor Technology - A Deep Dive Into P2715Q's Wonders</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-virtual-venture-gears-choosing-best-metaverse-headsets/"><u>2024 Approved Virtual Venture Gears Choosing Best Metaverse Headsets</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-vivo-t2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Vivo T2 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-tab-s6-features-s-pen-and-dex-mode/"><u>In-Depth Analysis of the Samsung Galaxy Tab S6 Features - S Pen & Dex Mode</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/insignia-ns-4-43df710na19-the-cost-effective-way-to-enjoy-ultra-hd-streaming-with-alexa-integration/"><u>Insignia NS-4 43DF710NA19: The Cost-Effective Way to Enjoy Ultra HD Streaming with Alexa Integration</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insignia-ns-4ns-df710nacd-exploring-the-affordable-fire-tv-edition-with-alexa-and-ultra-hd-capabilities/"><u>Insignia NS-4nS-Df710NACd: Exploring the Affordable Fire TV Edition with Alexa and Ultra HD Capabilities</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-motion-mastery-best-apps-for-android-and-ios-devices/"><u>New 2024 Approved Motion Mastery Best Apps for Android and iOS Devices</u></a></li>
+<li><a href="https://driver-download.techidaily.com/quick-and-simple-download-of-razer-mamba-controller-drivers-do-it-right-away/"><u>Quick & Simple Download of Razer Mamba Controller Drivers – Do It Right Away!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-bargain-for-quality-4k-action-capture-akaso-ek7000/"><u>The Best Bargain for Quality 4K Action Capture - AKASO EK7000</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-samsung-galaxy-note-3-debut-schedule-capabilities-and-cost-breakdown/"><u>The Samsung Galaxy Note 3 Debut: Schedule, Capabilities & Cost Breakdown</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-top-racing-rc-rock-crawler-a-comprehensive-off-road-videocamera/"><u>Ultimate Guide to the Top Racing RC Rock Crawler: A Comprehensive Off-Road Videocamera</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/uncovering-the-excellence-of-the-acer-aspire-e-15-where-affordability-meets-quality/"><u>Uncovering the Excellence of the Acer Aspire E 15 - Where Affordability Meets Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unraveling-the-mobvoi-ticwatch-pro-3-superior-gps-capabilities-meet-enhanced-dual-display-longevity-in-our-test-drive/"><u>Unraveling the Mobvoi TicWatch Pro 3: Superior GPS Capabilities Meet Enhanced Dual Display Longevity in Our Test Drive</u></a></li>
 </ul></div>
 

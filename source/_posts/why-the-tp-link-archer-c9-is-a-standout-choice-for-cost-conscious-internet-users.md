@@ -1,7 +1,7 @@
 ---
 title: Why the TP-Link Archer C9 Is a Standout Choice for Cost-Conscious Internet Users
-date: 2025-01-02T02:15:57.049Z
-updated: 2025-01-03T17:48:01.194Z
+date: 2025-01-06T03:58:30.937Z
+updated: 2025-01-11T09:28:12.615Z
 categories:
   - BestProducts
 description: This Article Describes Why the TP-Link Archer C9 Is a Standout Choice for Cost-Conscious Internet Users
@@ -23,7 +23,7 @@ thumbnail: https://www.lifewire.com/thmb/Lx2f3YRa-pwJ1Nv40SYu0xGx-xs=/400x300/fi
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/NyMNso4w7RvAOB9yPKnTs3aeA94=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Acer-Predator-Triton-300-SE-Gaming-Laptop-1-d6f9eeb5a43845a9a328125976c835b0.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
@@ -49,17 +49,9 @@ Lifewire / Matthew S. Smith
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Acer Predator Triton 300 SE
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/Coi6EdMOwuyjB7rdhov_hsKrHmo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Acer-Predator-Triton-300-SE-Gaming-Laptop-1-d6f9eeb5a43845a9a328125976c835b0.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -90,10 +82,6 @@ Lifewire / Matthew S. Smith
 
  Acer’s Predator Triton 300 SE is, in many respects, a mid-range gaming laptop, but it succeeds at one very important task: it delivers Nvidia RTX 3060 Max-Q at a reasonable price, and it’s actually in stock not just at, but sometimes below, MSRP. Its value pricing helps the Triton 300 SE stand out against attractive competitors like the Asus ROG Zephyrus G14.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Design: Small but sturdy
 
  I’m surprised Acer didn’t slap a “Pro” label on the Predator Triton 300 SE. The spec sheet might scream gaming, but the laptop’s look and feel has more in common with[business laptops](https://www.lifewire.com/best-laptops-to-buy-4043650) . The aluminum exterior and simple silver interior keep this laptop subtle. It’s a bit dull, actually, compared to the sleek elegance of[Razer’s Book 13](https://www.lifewire.com/razer-book-13-review-5176895) or the brash look of[Asus’ ROG Zephyrus G14](https://www.lifewire.com/asus-zephyrus-g14-review-a-no-compromises-gaming-laptop-5084841) .
@@ -109,6 +97,10 @@ Lifewire / Matthew S. Smith
 Lifewire / Matthew S. Smith
 
  All the laptop’s ports are placed near the front of the chassis. You’ll have to deal with tangled cables more often than with a laptop that places most ports on the rear. I found this annoying when using an external mouse, as cables jutting from the laptop’s flanks often bumped my hand while playing games.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What’s New: This one is special
 
@@ -130,10 +122,6 @@ Lifewire / Matthew S. Smith
 
  There’s one downside: poor viewing angles. This is unusual in a modern laptop, though I’ve noticed this trait in many high-refresh laptop displays. I can’t give the Triton 300 SE too much flak for this given its otherwise excellent performance.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Performance: Great for games, ok for everything else
 
  The Acer Predator Triton 300 SE’s most unusual feature is its Intel Core i7-11375H processor. It’s odd because it has just four cores (running eight threads) but is still sold as a top-tier component. The Core i7-11375H has higher minimum and maximum clock speeds than the comparable Intel Core i7-1165G7 found in thinner notebooks. The i7-11375H can clock as high as 5GHz. My review unit also had 16GB of RAM and a 512GB solid-state hard drive.
@@ -141,10 +129,6 @@ Lifewire / Matthew S. Smith
  PCMark 10 hit an overall score of 5,534\. Geekbench 5 turned in a single-core score of 1,418 and a multi-core score of 4,493\. The Geekbench 5 multi-core score is behind the curve;[new AMD Ryzen 7 5000-series laptops](https://www.lifewire.com/amd-vs-intel-which-processor-is-best-for-you-4780276) can almost double that result. This will disappoint content creators who use CPU-dependent applications. The Acer Triton 300 SE won’t keep up with AMD-powered rivals, like the Asus ROG Zephyrus G14, in such workloads.
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/_blPSVdy574t15clSGhbK6JH68o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-4-5a097b76e29b4ee985eee421ed6d0fe8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Matthew S. Smith
 
@@ -156,6 +140,10 @@ Lifewire / Matthew S. Smith
 
  For me, the Triton 300 SE is easily fast enough: it can handle most games at an average of 60 frames per second (fps), and often much higher, at 1080p resolution. I wouldn’t recommend the Triton 300 SE if you plan to use an external 1440p or 4K monitor, however. Pushing a higher pixel count will lead to sub-60fps performance in most demanding games.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Productivity: All business
 
  The Acer Predator Triton 300 SE’s business-like design carries over to the keyboard and mouse. Key feel is good, with significant key travel and firm bottoming action, and the spacious layout will be comfortable for most users.
@@ -166,9 +154,17 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/IiMzYmVU-_I6PnObn0bkjyCzqUk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-3-7cae0e5d13154048bbc93c40976706ca.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Matthew S. Smith
 
  The touchpad is about four inches wide and two and a half inches deep. That’s not bad for a gaming laptop, but average for a productivity machine, and it can feel cramped. It’s responsive and rejects any quick, unintended brush by a palm or thumb. It’s smooth when using multi-touch gestures like two-finger scroll or pinch-to-zoom.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Audio: Packing a punch
 
@@ -190,6 +186,10 @@ Lifewire / Matthew S. Smith
 
  Acer’s Predator Triton 300 SE straddles the line between entertainment and productivity in its design, but the camera falls short of its professional aspirations. It’s a tiny 720p pinhole camera that squeezes between the display and the top bezel. Video quality is grainy in all but the brightest rooms and uneven lighting can easily confuse it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Battery: Ouch
 
  It’s easy to pack the Acer Predator Triton 300 SE in a bag for travel, but keeping it charged is a different story. This is a powerful laptop yet, due to its size, it contains a modest 60 watt-hour battery. That would be fine in a laptop without discrete graphics, but this is a gaming laptop.
@@ -204,10 +204,6 @@ Lifewire / Matthew S. Smith
 
 ![Acer Predator Triton 300 SE](https://www.lifewire.com/thmb/RSfl2dEVmErlvh3BUUFcxqsbt9w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Acer-Predator-Triton-300-SE-Gaming-Laptop-2-c5eed4bfe7e44014952b5503566097d9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Matthew S. Smith
 
 ## Software: Planet what now?
@@ -218,9 +214,17 @@ Lifewire / Matthew S. Smith
 
  The laptop comes with Norton antivirus installed. It’s eager to remind you of its presence whenever you download a file or visit an unfamiliar website. The antivirus is easy to uninstall, but its presence takes away from what otherwise feels like a special laptop in Acer’s Predator line.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Price: An outstanding value
 
  Acer sells the Predator Triton 300 SE for $1,400, and it sometimes sells for $1,350 at Best Buy. This is an outstanding price for a laptop packing Nvidia’s RTX 3060\. There’s only a few competitors with the RTX 3060, such as MSI’s GF65 Thin, that can be purchased for less right now. The MSI GF65 manages to undercut the Triton 300 SE by using an older Intel chip and just 8GB of RAM.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Acer Predator Triton 300 SE vs. Asus ROG Zephyrus G14
 
@@ -245,10 +249,6 @@ Lifewire / Matthew S. Smith
 * [Microsoft Surface Laptop 3](https://www.lifewire.com/microsoft-surface-laptop-3-review-5069584)
 * [Dell XPS 13 2-in-1 Laptop](https://www.lifewire.com/dell-xps-13-2-in-1-laptop-review-4795686)
 * [Microsoft Surface Laptop 2](https://www.lifewire.com/microsoft-surface-laptop-2-review-4779760)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -284,21 +284,22 @@ Lifewire / Matthew S. Smith
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-instagram-ready-guide-to-cropping-and-exporting-videos-for-2024/"><u>[New] Instagram-Ready Guide to Cropping & Exporting Videos for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-audiocapture-pro-a-comprehensive-guide-and-test-for-2024/"><u>[Updated] AudioCapture Pro A Comprehensive Guide & Test for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-guide-to-viral-instagram-unboxing-vids/"><u>2024 Approved The Ultimate Guide to Viral Instagram Unboxing Vids</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-comprehensive-review-of-the-fun-filled-ddpair-mini3-dashcam-experience/"><u>A Comprehensive Review of the Fun-Filled DDPair Mini3 Dashcam Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/auditory-pleasure-unlocked-by-paww-wavesound-3-analysis/"><u>Auditory Pleasure Unlocked by Paww Wavesound 3 Analysis</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/breaking-down-the-samsung-galaxy-s24-ultra-early-thoughts-from-tech-insiders/"><u>Breaking Down the Samsung Galaxy S24 Ultra: Early Thoughts From Tech Insiders</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cheap-and-fast-why-ankers-powerdrive-is-unmatched-for-efficient-in-car-charging-solutions/"><u>Cheap and Fast: Why Anker’s PowerDrive Is Unmatched for Efficient In-Car Charging Solutions.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-genius-widecam-f100-discussing-image-clarity-and-audible-echo-issues/"><u>Comprehensive Review of Genius WideCam F100 - Discussing Image Clarity and Audible Echo Issues</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/downloading-youtubes-iconic-icons-via-web-windowsmac-methods-for-2024/"><u>Downloading YouTube's Iconic Icons via Web, Windows/Mac Methods for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/elevate-your-feed-with-these-507-killer-instagram-captions-of-2024/"><u>Elevate Your Feed with These 507 Killer Instagram Captions of 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/free-up-space-on-your-pc-how-to-delete-cache-and-cookies-in-windows-10-systems/"><u>Free up Space on Your PC: How to Delete Cache and Cookies in Windows 10 Systems</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Meizu 21 Pro | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/navigating-instagrams-repost-policy/"><u>Navigating Instagram's Repost Policy</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ering-youtube-success-stories-via-tubebuddy-for-2024/"><u>Pioneering YouTube Success Stories via TubeBuddy for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-midland-lxt500vp3-series-advanced-radio-features-meet-underwhelming-performance/"><u>Unveiling the Midland LXT500VP3 Series: Advanced Radio Features Meet Underwhelming Performance?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/wallets-best-friend-for-sound-a-review-on-oneplus-buds/"><u>Wallet's Best Friend for Sound - A Review on OnePlus Buds</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-samsung-galaxy-s8-in-depth-4k-phone-analysis/"><u>[New] Samsung Galaxy S8 In-Depth 4K Phone Analysis</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-share-the-laughs-right-top-gif-saver-for-twitter/"><u>[New] Share the Laughs Right Top GIF Saver for Twitter</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-edgeresolve-pixelperfect-booster-windowsmacos/"><u>[Updated] EdgeResolve PixelPerfect Booster (Windows/MacOS)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-optimal-youtube-aesthetics-for-maximum-engagement/"><u>[Updated] Navigating Optimal YouTube Aesthetics for Maximum Engagement</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-studio-setup-starters-top-17-lights-and-more/"><u>[Updated] Studio Setup Starters - Top 17 Lights & More</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Vivo Y78+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-elevate-thumbnails-fantasy-elements-added/"><u>In 2024, Elevate Thumbnails Fantasy Elements Added</u></a></li>
+<li><a href="https://howto.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-vivo-y100i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Vivo Y100i | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/step-by-step-strategies-for-successful-youtube-srt-downloads-for-2024/"><u>Step-by-Step Strategies for Successful YouTube SRT Downloads for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-65-televisions-a-comprehensive-guide/"><u>Top Rated 65 Televisions : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-live-tv-and-streaming-options/"><u>Top Rated Live TV and Streaming Options</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-ranking-ereader-devices-a-comprehensive-guide/"><u>Top-Ranking eReader Devices : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-ranking-gaming-notebooks-in-2nnd-year-of-2024/"><u>Top-Ranking Gaming Notebooks in 2Nnd Year of 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-ranking-portable-hard-drives-a-comprehensive-guide/"><u>Top-Ranking Portable Hard Drives : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-affordable-headphones-your-ultimate-guide/"><u>Top-Rated Affordable Headphones : Your Ultimate Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-bluetooth-tracking-devices-your-ultimate-guide/"><u>Top-Rated Bluetooth Tracking Devices : Your Ultimate Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-ddr4-memory-modules-of-2024/"><u>Top-Rated DDR4 Memory Modules of 2024</u></a></li>
 </ul></div>
 

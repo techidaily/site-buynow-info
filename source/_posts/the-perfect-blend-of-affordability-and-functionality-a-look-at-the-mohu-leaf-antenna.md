@@ -1,7 +1,7 @@
 ---
 title: The Perfect Blend of Affordability & Functionality - A Look at the Mohu Leaf Antenna
-date: 2024-08-11T00:14:22.270Z
-updated: 2024-08-12T00:14:22.270Z
+date: 2025-01-07T08:11:51.845Z
+updated: 2025-01-10T23:30:51.994Z
 categories:
   - BestProducts
 description: This Article Describes The Perfect Blend of Affordability & Functionality - A Look at the Mohu Leaf Antenna
@@ -13,13 +13,17 @@ thumbnail: https://www.lifewire.com/thmb/bLtleSUHUny2HyUtrVdOZ9KgFSE=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Samsung Galaxy Tab S6
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/7WjwLLZiPJKJZWhXlUSo8gCOtSY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_S6_HeroSquare-041c0f1331604f5199eb280d31cb1fe8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -43,9 +47,17 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Samsung Galaxy Tab S6
 
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/il4lPBPvRiNVh03WGsCMkN0U0SU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_S6_HeroSquare-041c0f1331604f5199eb280d31cb1fe8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -76,16 +88,18 @@ Lifewire / Erika Rawes
 
  The Galaxy Tab S6 has a USB-C connector, but no 3.5 mm headphone jack. There’s a microSD card slot on the side to expand your storage to 512 MB, although this is becoming increasingly unnecessary as cloud storage applications become more commonplace.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/VjADXw7yUZHkkKXdcHBM8o70Ywc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_Tab_S6_02-4011b3ea196f44e2a7a111bae1212dc2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Display: 10.5-inch Super AMOLED**
 
  You can usually rely on Samsung devices to have top-notch display quality, and the Tab S6 is no different. The super AMOLED display is crisp and clear. The text is sharp, and the colors are bright and vivid. The 10.5-inch display feels large enough to watch shows and movies or to use as a hybrid when you connect the keyboard case.
@@ -98,16 +112,10 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Qualcomm 855**
 
  The Tab S6 has the Qualcomm 855 processor, which is a pretty solid mobile CPU. It comes in two versions: one version with 128GB of storage and 6 GB of RAM, and one version with 256 GB of storage and 8 GB of RAM. I tested the former version. On PCMark Work 2.0, the lower level Tab S6 scored a 9022\. On Geekbench 5, the Tab S6 scored a single core score of 747 and a multi-core score of 2,518\. It’s multi-core scores come in very close to the A12 Bionic chip in the iPad (2019).
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/TIUmjQSMgpAJw4W3I6fcgiYY1BM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_Tab_S6_06-cc64b6b41e8f4420b9fe38d223541b52.jpg)
 
  Lifewire / Erika Rawes
@@ -128,9 +136,6 @@ Lifewire / Erika Rawes
 
  I do wish the Galaxy Tab S6 had a headphone jack. I was able to purchase a USB-C to 3.5 mm adapter on Amazon for about $10, but it would have been nice to have a 3.5 mm jack available.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Network: No Wi-Fi 6**
 
  The Tab S6 supports Bluetooth version 5.0 and 802.11a/b/g/n/ac Wi-Fi networks, and you can connect it on the 2.4 and 5 GHz bands. I live in a suburb outside of Raleigh, NC, and my network speeds max out at 400 Mbps. I have a Wi-Fi 6 capable router, but the Galaxy Tab S6 doesn’t support Wi-Fi 6\.
@@ -141,18 +146,12 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Camera: Dual rear cameras**
 
  The Tab S6 has dual rear cameras, and a single front-facing camera. It has a 13 MP camera and a 5 MP camera on the back, and an 8 MP camera on the front. For a tablet, the camera quality is actually pretty good. It’s not as good as your typical flagship phone, but it’s better than you’d expect on a hybrid tablet. Photos are surprisingly clean and detailed, so you could absolutely get a good group pic at the office, or snap a clear pic of a document you need to send.
 
  The Tab S6 can take UHD video (3840x2160) at 30 FPS with the rear camera and FHD (1920x1080) at 30 FPS with the front cam, and it has a few cool software features like a food mode, pro mode, night mode, and hyperlapse. You can also create an AR emoji and take advantage of additional features like Bixby Vision.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Battery: Worse than the Tab S4**
 
  The Tab S6 has a serviceable battery capacity. The 7040 mAh battery lasts for up to 15 hours play time. The S Pen does take some of the Tab’s battery, but it doesn’t affect the battery life to a noticeable degree. I was able to use the S6 on and off for most of the day, and I still had some battery leftover for the next day. The Galaxy Tab S4 had a slightly better 7300 mAh battery that lasted for up to 16 hours of play time. I was surprised to see that the Tab S6 had less battery capacity than its predecessor.
@@ -167,15 +166,16 @@ Lifewire / Erika Rawes
 
 ![Samsung Galaxy Tab S6](https://www.lifewire.com/thmb/C7-02cY18jujcl8-9vfJim9_H_M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung_Galaxy_Tab_S6_05-2f0768554c044e18bedec871758e51ef.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
 ## **Price: On the high end**
 
  The Galaxy Tab S6 sells for $649 for the 128 gig version, which is pricey for an android tablet. But, considering the S Pen is included in the package, the price is a bit more reasonable.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Samsung Galaxy Tab S6 vs. Samsung Galaxy Tab A (2020)**
 
  The Galaxy Tab S6 is designed for productivity, photo editing, drawing, and multipurpose use. It offers fast processing, an optional keyboard case, and features like Samsung DeX to promote even more efficiency.[The Galaxy Tab A](https://www.lifewire.com/samsung-galaxy-tab-a-2020-review-5072672) (view on[Amazon](https://www.amazon.com/dp/B07Q3T2RZF/?tag=lifewire-onsite-prod-20&ascsubtag=5072677%7Cnb09ddd4fc2484a1da2aba73369114b5911%7C) ) is a budget tablet that’s good for communication and on-the-go entertainment. The Tab A works in cellular networks, and it doesn’t provide the processing power or productivity features you get with the Tab S6\. The Tab A is not compatible with the S Pen either.
@@ -186,9 +186,6 @@ Lifewire / Erika Rawes
 
  The Galaxy Tab S6 is one of the better 10-inch tablets available.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Galaxy Tab S6
@@ -213,8 +210,6 @@ Lifewire / Erika Rawes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -222,4 +217,18 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-premier-selector-master-your-video-grabs/"><u>[New] The Premier Selector Master Your Video Grabs</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-honor-x9a-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-leading-mesh-wireless-network-solutions/"><u>Discover the Leading Mesh Wireless Network Solutions</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/enhancing-visual-performance-how-to-upgrade-samsung-monitor-software-on-windows/"><u>Enhancing Visual Performance: How to Upgrade Samsung Monitor Software on Windows</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-powerful-ring-doorbell-proplus-unit/"><u>In-Depth Analysis of the Powerful Ring Doorbell Pro+ Unit</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-assessing-the-performance-and-size-of-stanley-j5c09-compact-disc-drive/"><u>In-Depth Review: Assessing the Performance and Size of Stanley J5C09 Compact Disc Drive</u></a></li>
+<li><a href="https://fox-http.techidaily.com/safe-methods-to-fast-forward-in-spotify-files/"><u>Safe Methods to Fast-Forward in Spotify Files</u></a></li>
+<li><a href="https://extra-information.techidaily.com/speeding-up-your-streams-the-netflix-efficiency-guide/"><u>Speeding Up Your Streams The Netflix Efficiency Guide</u></a></li>
+<li><a href="https://win11.techidaily.com/strategies-to-conquer-access-denied-saving-problems-windows/"><u>Strategies to Conquer 'Access Denied' Saving Problems, Windows</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-upsides-and-downsides-of-choosing-pidgin-for-online-communication/"><u>The Upsides & Downsides of Choosing Pidgin for Online Communication</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/vimeo-and-youtube-a-compreayer-of-their-core-philosophies/"><u>Vimeo and YouTube A Compreayer of Their Core Philosophies</u></a></li>
+</ul></div>
 

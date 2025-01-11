@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Look: Is the Google Pixelbook Go Worth Its Premium Cost?"
-date: 2025-01-03T05:56:42.473Z
-updated: 2025-01-03T16:56:19.056Z
+date: 2025-01-04T22:53:06.429Z
+updated: 2025-01-11T08:33:22.331Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Look: Is the Google Pixelbook Go Worth Its Premium Cost?"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Apple iMac 21.5-inch 4K
 
@@ -46,12 +42,16 @@ Lifewire / Gannon Burgett
 4
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Apple iMac 21.5-inch 4K
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/hOzU-Ut_6g-s5JwzT08s3wa0tSo=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4045927-1-625cb1ba7a894cc38db8565dd81072b3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -79,10 +79,6 @@ Lifewire / Gannon Burgett
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/TCcSm-nkER9HhHM8YIPMWbaezRA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-4-fa6cf253bfd44ab991c366691b68bdf5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Gannon Burgett
 
 ## **Design: Beautiful, with room for improvements**
@@ -101,6 +97,10 @@ Lifewire / Gannon Burgett
 
  Lifewire / Gannon Burgett
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: One plug and you’re good to go**
 
  One of Apple’s core tenets is simplicity, and the 4K iMac is no exception to this rule. Inside the box is the computer itself and a box which contains the Magic Keyboard and Magic Mouse 2\. Additional components include the power connection for the computer, a Lightning cable for charging the mouse and keyboard, and a small package of documentation.
@@ -108,6 +108,10 @@ Lifewire / Gannon Burgett
  Setting up the iMac is as simple as unwrapping it from its protective cover, setting it on the desk, plugging it in with the included power cord, and pressing the power button. As it boots up, we turned on the Magic Keyboard and Magic Mouse 2\. By the time the iMac was to the setup screen — a process that took approximately 60 seconds — the two were already paired with the computer and ready to be used.
 
  Going through the setup process took us approximately five minutes, which included setting up our iCloud account and getting the various login settings in place. We opted to set this up as a new computer, but there’s also the ability to set it up from an Apple Time Capsule backup or transfer content from a PC via USB. The amount of time those options take will vary depending on the device you’re transferring the information from as well as the amount of data being transferred.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Display: Bright, brilliant, and ready to shine**
 
@@ -122,7 +126,7 @@ Lifewire / Gannon Burgett
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/IKZ75jBAosAG3M1Py_-E0ElYAfM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-5-a705ea67b88b4cf694c53e4715a9aceb-f57b3be92a934d8ab579d90728e23fe8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
@@ -142,6 +146,10 @@ Lifewire / Gannon Burgett
  In the Geekbench tests, the iMac scored 4,866 on the single core test, 14,151 on the multi-core test, and 56,974 on the OpenCL score. This falls in line with other iMacs of the same specifications and hovers around other computers with similar specifications. In Cinebench, the iMac achieved 93.86 frames per second in the OpenGL test and a score of 584 cb in the CPU test.
 
  All-in-all, the iMac seems to punch right at or above its specifications when compared to similar hardware. It’s not going to be pumping out 8K footage, but for basic 4K video editing and image post-processing, the graphics card is more than enough. As for productivity, there’s not much you can throw at the iMac that it can’t handle. The only thing we noticed slowing down the computer was the 8GB of RAM when we had over a dozen applications open, but that can be fixed by upgrading to the 16GB or 32GB model (although it’s not a cheap upgrade).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Network: Fast and reliable**
 
@@ -165,19 +173,11 @@ Lifewire / Gannon Burgett
 
  Unlike Windows, macOS doesn’t come with any bloatware either. There’s a number of pre-installed apps developed by Apple, including four new ones borrowed from Apple’s mobile operating system, iOS, but most of the pre-installed apps are the standard array of programs you’d expect to see on any modern computer.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: The Apple tax is real**
 
  The 21.5-inch 4K iMac we tested with the aforementioned specifications retails for $1,499\. Compared to other Windows PCs with similar specifications, the iMac is without pricey for the specs it offers. However, this is par for the course with Apple, so much so that the term “Apple tax” has become a commonly-used phrase. What you’re paying for is the entire package, wrapped up in one of the best-looking frames out there.
 
  Could you build a PC with better specs for far less money? Absolutely. But it won’t be running macOS and it certainly won’t be as slim and streamlined as the iMac. If you’re invested in the Apple ecosystem and don’t need to shell out for the more expensive 27-inch 5K iMac, the 21.5-inch 4K iMac is priced much more reasonably and still has plenty to offer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: A unique option in a small market**
 
@@ -197,15 +197,15 @@ Lifewire / Gannon Burgett
 
  The 21.5-inch 4K iMac is a solid all-in-one computer that packs a lot of power into a tiny, well-designed package. It’s not going to blow anyone away on benchmarks and it’s not cheap for the internal components you’re getting, but it has a lot to offer for multimedia and productivity. That’s not to mention the sheer convenience of having everything simply work out of the box.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Microsoft Surface Studio 2](https://www.lifewire.com/microsoft-surface-studio-2-review-4689102)
 * [Alienware Aurora R7](https://www.lifewire.com/alienware-aurora-r7-review-4689097)
 * [Lenovo ThinkCentre M720 Tower](https://www.lifewire.com/lenovo-thinkcentre-m720-tower-review-4776238)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -238,24 +238,24 @@ Lifewire / Gannon Burgett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-easy-screencasting-techniques-systematic-guidebook/"><u>[New] Easy Screencasting Techniques Systematic Guidebook</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-beyond-boundaries-the-five-pinnacle-cloud-storage-innovations/"><u>[Updated] In 2024, Beyond Boundaries The Five Pinnacle Cloud Storage Innovations</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-the-art-of-crafting-exceptional-instagram-ringtone-alerts-a-compreeved-guide-for-2024/"><u>[Updated] The Art of Crafting Exceptional Instagram Ringtone Alerts A Compreeved Guide for 2024</u></a></li>
-<li><a href="https://win-studio.techidaily.com/a-comprehensive-guide-to-fujifilms-autosave-function-and-rescuing-your-disappeared-photos/"><u>A Comprehensive Guide to Fujifilm's AutoSave Function and Rescuing Your Disappeared Photos</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/crafting-dissolves-with-ableton-live/"><u>Crafting Dissolves with Ableton Live</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/expert-tips-for-effortless-screen-recording-on-android/"><u>Expert Tips for Effortless Screen Recording on Android</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-from-the-apple-iphone-12-mini-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock From the Apple iPhone 12 mini Without Previous Owner?</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-perpetual-screen-snapshot/"><u>In 2024, Perpetual Screen Snapshot</u></a></li>
-<li><a href="https://common-error.techidaily.com/maximizing-storage-solutions-for-insufficient-storage-available-messages/"><u>Maximizing Storage: Solutions for 'Insufficient Storage Available' Messages</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/navigating-computer-hardware-with-tom-your-ultimate-guide/"><u>Navigating Computer Hardware with Tom: Your Ultimate Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/pros-and-cons-of-iphone-vs-samsung-which-mobile-device-wins-your-vote/"><u>Pros and Cons of iPhone Vs. Samsung - Which Mobile Device Wins Your Vote?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revisiting-the-classics-the-samsung-galaxy-tab-s3-review/"><u>Revisiting the Classics: The Samsung Galaxy Tab S3 Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionize-your-childs-playtime-experience-with-the-amazing-and-smart-wonder-workshop-dash-toy/"><u>Revolutionize Your Child’s Playtime Experience with the Amazing and Smart Wonder Workshop Dash Toy!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/samsungs-sound-revolution-the-galaxy-buds-pro-story/"><u>Samsung's Sound Revolution: The Galaxy Buds Pro Story</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/say-goodbye-to-overfeeding-with-arf-pets-smart-feeder-solution/"><u>Say Goodbye to Overfeeding with Arf Pets Smart Feeder Solution</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sb210-by-soundbot-an-insightful-review-of-its-high-quality-audio-performance-in-cold-season/"><u>SB210 by Soundbot - An Insightful Review of Its High-Quality Audio Performance in Cold Season</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-pros-and-cons-of-using-a-premium-charger-a-closer-look-at-the-mophie-ac-powerstation/"><u>The Pros and Cons of Using a Premium Charger: A Closer Look at the Mophie AC Powerstation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-test-of-speed-exploring-the-capabilities-of-the-netgear-nighthawk-x1amo-ad7200-router/"><u>The Ultimate Test of Speed: Exploring the Capabilities of the Netgear Nighthawk X1amo AD7200 Router</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/transforming-personal-computing-with-the-imac-m1-chip-an-immersive-review-of-enhanced-graphics-and-power/"><u>Transforming Personal Computing with the iMac M1 Chip: An Immersive Review of Enhanced Graphics and Power</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-choosing-prime-audio-editors-for-youtube-creators/"><u>[New] In 2024, Choosing Prime Audio Editors for YouTube Creators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ynchronize-content-releases-with-audience-activity-cycles-for-2024/"><u>[New] Synchronize Content Releases with Audience Activity Cycles for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-erase-background-noises-with-ease-using-audacity-tools/"><u>[Updated] 2024 Approved Erase Background Noises with Ease Using Audacity Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-instantaneously-record-and-image-on-the-go-iphone-edition/"><u>[Updated] Instantaneously Record & Image on the Go - iPhone Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-ipad-vs-ipad-air-key-features-and-specifications/"><u>Comparing iPad Vs. IPad Air: Key Features & Specifications</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-xiaomi-13t-pro-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Xiaomi 13T Pro Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/master-pc-gameplay-by-seamlessly-integrating-controller-and-mouse/"><u>Master PC Gameplay by Seamlessly Integrating Controller and Mouse</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/mastering-file-relocation-expert-tips-for-seamless-transfers-within-windows-11/"><u>Mastering File Relocation: Expert Tips for Seamless Transfers Within Windows 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-through-books-seamlessly-an-in-depth-analysis-of-the-new-amazon-kindle-paperwhite-7th-gen/"><u>Navigating Through Books Seamlessly: An In-Depth Analysis of the New Amazon Kindle Paperwhite 7Th Gen</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/practical-experience-with-innovative-arlo-home-defense-mechanism/"><u>Practical Experience with Innovative Arlo Home Defense Mechanism</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rediscovering-fun-in-fortnite-battle-royale-detailed-reviews-of-a-newly-exciting-season/"><u>Rediscovering Fun in Fortnite Battle Royale: Detailed Reviews of a Newly Exciting Season</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-rayman-legends-delivers-a-flawlessly-engineered-classic-side-scrolling-gameplay/"><u>Review: Rayman Legends Delivers a Flawlessly Engineered Classic Side-Scrolling Gameplay</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/score-the-best-bargains-prime-day-savings-on-high-quality-tribit-sound-systems/"><u>Score the Best Bargains: Prime Day Savings on High-Quality Tribit Sound Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/setting-up-a-personalized-nintendo-network-account-for-3ds-gaming/"><u>Setting Up a Personalized Nintendo Network Account for 3DS Gaming</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/shattering-expectations-the-exceptionally-fluid-performance-of-amazon-lunas-service/"><u>Shattering Expectations: The Exceptionally Fluid Performance of Amazon Luna's Service</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/sprint-through-slow-videos-best-8-android-choices-for-2024/"><u>Sprint Through Slow Videos Best 8 Android Choices for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-pros-and-cons-of-prompt-engineering-as-a-job-understanding-its-legitimacy-with-key-indicators/"><u>The Pros and Cons of Prompt Engineering as a Job: Understanding Its Legitimacy with Key Indicators</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-list-the-leading-game-consoles-compared/"><u>Ultimate List: The Leading Game Consoles Compared</u></a></li>
 </ul></div>
 

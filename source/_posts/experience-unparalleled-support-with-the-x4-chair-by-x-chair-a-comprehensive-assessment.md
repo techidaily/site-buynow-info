@@ -1,7 +1,7 @@
 ---
 title: "Experience Unparalleled Support with the X4 Chair by X-Chair: A Comprehensive Assessment"
-date: 2024-12-31T13:48:02.692Z
-updated: 2025-01-03T17:58:11.760Z
+date: 2025-01-06T17:28:46.475Z
+updated: 2025-01-11T07:47:19.758Z
 categories:
   - BestProducts
 description: "This Article Describes Experience Unparalleled Support with the X4 Chair by X-Chair: A Comprehensive Assessment"
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/d558a627b87b79877888fadd197a60bce9f9f1882
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## HP Omen Obelisk
@@ -47,7 +47,7 @@ Lifewire / Jonno Hill
 4
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## HP Omen Obelisk
@@ -83,7 +83,7 @@ Lifewire / Jonno Hill
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/OXMiCXvzh8P7esVvbjPoSorzoxM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-2-7b14850c2ca84af39d5fd116ab483d5d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
@@ -120,6 +120,10 @@ Lifewire / Jonno Hill
 
  The Omen comes equipped with a 1TB[NVMe SSD](https://www.lifewire.com/what-is-m2-833453) and 32GB of DDR4 2666 memory. This is definitely more RAM than games alone will call for, but it’s merely an adequate amount of RAM for some creative professionals working with more demanding software like Adobe After Effects. Keep in mind though, even those that don’t normally need a lot of RAM can still benefit from having more. Among other things, it gives you the luxury of keeping all of your browser tabs and background applications running without having to start juggling applications on and off, which can be helpful from a productivity standpoint.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Gaming** :**Great for the most demanding titles**
 
  Gaming performance is great on the HP OMEN Obelisk thanks to the Nvidia GTX GeForce 2080 Super and Intel i9-9900K combo. I tested a number of games on my 3440x1440 monitor to get a sense of performance. To put this in perspective, this resolution is roughly 60 percent of the pixels of a 4K monitor.
@@ -136,15 +140,15 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Network** :**Great speeds, but software that doesn’t do much**
 
  The HP Omen Obelisk has gigabit LAN and a Wi-Fi 5 (2x2) networking, the latter supporting a maximum speed of 866 Mbps. Everything functioned smoothly from a networking standpoint during my tests.
 
  I made a point to try out the Network Booster software found in the OMEN Command Center and didn’t see anything tremendously useful, unfortunately. I tried setting the priority of Steam to “Low” and downloading a game, but the game still downloaded at my maximum internet speed. I took it one step further and toggled the “Block” option for Steam, and tried to resume the download, but Steam kept on downloading at the maximum speed. The software was successful in blocking Chrome when that option was switched on, however.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Just enough options**
 
@@ -156,10 +160,6 @@ Lifewire / Jonno Hill
 
  The option to overclock your system has you first run a nondescript benchmark, which produces a score with no reference point (to establish a baseline). While it’s nice to have the option, this really,_sincerely_ isn’t a system you want to be overclocking. The i9-9900K CPU already runs alarmingly hot, even with its pre-installed water cooling solution. There also isn’t enough room for anything beyond a 120mm AIO watercooler, and not nearly enough clearance for a popular air heatsink like the Noctua NH-D15.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Highly competitive**
 
  The HP OMEN Obelisk with the same specs as this one can be found for around $2,000, at least when it’s in stock. Despite a lot of flaws that I can point to a nit-pick about, the price is one of the main reasons I still consider the OMEN to be a solid deal. I went through the trouble of parting out a similar build on PCPartPicker, going as far as to cut corners where I usually wouldn’t, and still arrived at just under $1800 before tax.
@@ -169,7 +169,7 @@ Lifewire / Jonno Hill
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/J3cZUfrEy-ALtFpRbDRhw7FZI8M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-4-f78d504d7bd348eca19b7e65b4d10289.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
@@ -220,18 +220,22 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-how-to-double-down-on-your-youtube-success-in-a-month-for-2024/"><u>[New] How to Double Down on Your YouTube Success in a Month for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-from-struggling-youtuber-to-industry-leader-the-hub-of-creator-studios-wisdom/"><u>[New] In 2024, From Struggling Youtuber to Industry Leader The Hub of Creator Studio's Wisdom</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-screenmasterelite-11-an-experts-recording-guide-for-2024/"><u>[New] ScreenMasterElite 11 An Expert's Recording Guide for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-essential-online-capture-for-tech-enthusiasts/"><u>[Updated] Essential Online Capture for Tech Enthusiasts</u></a></li>
-<li><a href="https://win-able.techidaily.com/comprehensive-guide-to-troubleshooting-and-stabilizing-everspace-ii-on-computer-systems/"><u>Comprehensive Guide to Troubleshooting and Stabilizing Everspace II on Computer Systems</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722560130464-discover-the-must-have-game-in-yakuza-like-a-dragon/"><u>Discover the Must-Have Game in Yakuza: Like a Dragon!</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/elite-screen-grabber-for-windows-10/"><u>Elite Screen Grabber for Windows 10</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-poco-m6-pro-4g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Poco M6 Pro 4G to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/installazione-facile-winxvideo-ai-percelli-auto-comprensione-su-mobile-android-e-ios/"><u>Installazione Facile WinxVideo AI: Percelli Auto-Comprensione Su Mobile Android E iOS</u></a></li>
-<li><a href="https://some-tips.techidaily.com/iphone-fix-apple-greenlights-refurbishing-old-components-for-selective-repair-services-insights-from-zdnet/"><u>IPhone Fix: Apple Greenlights Refurbishing Old Components for Selective Repair Services - Insights From ZDNet</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722429925301-maximize-your-indoor-viewing-with-the-amplified-hd-antenna-from-1byone-digital-top-budget-pick-reviewed/"><u>Maximize Your Indoor Viewing with the Amplified HD Antenna From 1byOne Digital - Top Budget Pick Reviewed!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722683417521-top-ranking-evaluation-of-microsoft-surface-laptop-4-exceptional-quality/"><u>Top Ranking Evaluation of Microsoft Surface Laptop 4 - Exceptional Quality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722797342426-unleash-your-potential-with-fitbit-versa-3-comprehensive-wellness-applications-and-built-in-gps-for-maximum-motivation/"><u>Unleash Your Potential with Fitbit Versa 3: Comprehensive Wellness Applications and Built-In GPS for Maximum Motivation!</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-overcoming-handheld-videography-instability-on-gopro/"><u>[New] Overcoming Handheld Videography Instability on GoPro</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-unveiling-the-tricks-for-flawless-file-imports-on-windows-10/"><u>[Updated] 2024 Approved Unveiling the Tricks for Flawless File Imports on Windows 10</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-masterclass-selecting-christian-streaming-platforms/"><u>2024 Approved Masterclass Selecting Christian Streaming Platforms</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-amazonbasics-cross-cut-paper-shredder-6-sheets-per-pass-evaluation/"><u>Budget-Friendly AmazonBasics Cross-Cut Paper Shredder - 6 Sheets Per Pass Evaluation</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-solutions-for-a-non-operational-diagnostic-policies-program/"><u>Effective Solutions for a Non-Operational Diagnostic Policies Program</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-value-a-comprehensive-look-at-the-samsung-galaxy-tab-s3/"><u>Evaluating Value: A Comprehensive Look at the Samsung Galaxy Tab S3</u></a></li>
+<li><a href="https://games-able.techidaily.com/exploring-the-potential-of-steam-deck-for-pc-gaming/"><u>Exploring the Potential of Steam Deck for PC Gaming</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/how-to-successfully-undertake-off-site-backup-and-restoration-in-case-of-a-system-booting-issue-a-step-by-step-guide/"><u>How to Successfully Undertake Off-Site Backup and Restoration in Case of a System Booting Issue: A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-community-builders-gamer-youtubers/"><u>In 2024, Community Builders Gamer YouTubers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-guide-to-prime-gopro-protectors-top-10-reviewed/"><u>In 2024, Guide to Prime GoPro Protectors - Top 10 Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-tp-links-av1300-powerline-wi-fi-booster-performance-insights/"><u>In-Depth Analysis of TP-Link's AV1300 Powerline Wi-Fi Booster: Performance Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-gaming-performance-how-to-update-your-video-card/"><u>Maximizing Gaming Performance: How to Update Your Video Card</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/troubleshooting-clonezilla-overcoming-challenges-with-large-disks-and-bad-sectors/"><u>Troubleshooting Clonezilla: Overcoming Challenges with Large Disks and Bad Sectors</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-cheap-and-enjoyable-karaoke-experiences-across-usa/"><u>Ultimate Guide to Cheap and Enjoyable Karaoke Experiences Across USA</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-the-eufy-t8200-the-ultimate-no-subscription-smart-doorbell/"><u>Unboxing and Testing the Eufy T8200: The Ultimate No-Subscription Smart Doorbell</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-razer-blade-stealth-n-performance-breakthrough-at-13-inches/"><u>Unboxing the Razer Blade Stealth N-Performance Breakthrough at 13 Inches</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-value-of-sonys-reasonably-priced-xbr65x850f-65-4k-led-smart-tv/"><u>Unpacking the Value of Sony's Reasonably Priced XBR65X850F 65 4K LED Smart TV</u></a></li>
 </ul></div>
 

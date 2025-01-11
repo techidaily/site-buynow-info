@@ -1,7 +1,7 @@
 ---
 title: Critical Review of the Viair 88P Mobile Air Compressor - Incredible Force, Yet Some Trade-Offs
-date: 2024-12-29T23:06:58.586Z
-updated: 2025-01-03T22:44:21.962Z
+date: 2025-01-04T19:44:04.248Z
+updated: 2025-01-10T16:57:52.248Z
 categories:
   - BestProducts
 description: This Article Describes Critical Review of the Viair 88P Mobile Air Compressor - Incredible Force, Yet Some Trade-Offs
@@ -18,16 +18,12 @@ thumbnail: https://www.lifewire.com/thmb/ZevQObLlQ-0zecghfgF1_QfuuRw=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
@@ -75,6 +71,10 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -91,6 +91,10 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Range: Impressive detection**
 
  The Passport S55 features Enhanced Radar Protection that delivers long-distance range for laser and radar bands, including K and Ka bands, widely used microwave frequencies for police radar guns. It reliably delivers on its promise of long-distance sensitivity. While testing the S55 in Highway mode I received Ka-band alerts over a mile and a half out from where I approached a highway patrol parked on the median of the interstate. This range was on par with much more expensive models.
@@ -98,7 +102,7 @@ Lifewire / Todd Braylor
  It reliably delivers on its promise of long-distance sensitivity.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Not exactly enhanced**
@@ -110,7 +114,7 @@ Lifewire / Todd Braylor
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: You get what you pay for**
@@ -118,10 +122,6 @@ Lifewire / Todd Braylor
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
 
  You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Escort Passport S55 vs. Uniden DFR9 Super long-range Radar/Laser Detector**
 
@@ -164,22 +164,17 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-bridging-photos-and-video-in-pixiz-a-comprehensive-guide/"><u>[New] Bridging Photos & Video in Pixiz A Comprehensive Guide</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-leading-sites-unveiled-acquiring-personalized-ringtone-files-from-youtube/"><u>[Updated] In 2024, Leading Sites Unveiled Acquiring Personalized Ringtone Files From Youtube</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dying-light-game-analysis-cooperative-zombie-adventure-with-parkour-mechanics/"><u>Dying Light Game Analysis: Cooperative Zombie Adventure with Parkour Mechanics</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elevate-your-experience-with-asus-rog-gt-cc5300-a-review-catered-to-gamers-and-tech-connoisseurs/"><u>Elevate Your Experience with Asus ROG GT-CC5300 - A Review Catered to Gamers & Tech Connoisseurs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elevate-your-setup-today-top-tier-dell-screen-advanced-anc-headset-and-ultrasharp-camera-technology/"><u>Elevate Your Setup Today: Top-Tier Dell Screen, Advanced ANC Headset, and UltraSharp Camera Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/endurance-and-elegance-in-play-the-complete-review-of-the-mavix-m9-gaming-chair-experience/"><u>Endurance and Elegance in Play: The Complete Review of the Mavix M9 Gaming Chair Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ergodriven-topo-mat-review-a-step-towards-a-comfortable-and-healthy-office-life-with-the-best-standing-desk-accessory/"><u>Ergodriven Topo Mat Review: A Step Towards a Comfortable and Healthy Office Life with the Best Standing Desk Accessory.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-tp-link-re2n-ac750-range-extender-a-great-value-option-for-enhanced-wifi-coverage/"><u>Evaluating the TP-Link RE2n AC750 Range Extender: A Great Value Option for Enhanced WiFi Coverage</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-and-evaluate-the-new-amazon-fire-hd-0-eighth-generation-a-highly-competitive-economical-choice-for-beginners/"><u>Experience and Evaluate the New Amazon Fire HD ^0 (Eighth Generation) - A Highly Competitive, Economical Choice for Beginners</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/explore-petcubes-affordable-high-responsive-pet-monitor/"><u>Explore Petcube's Affordable High Responsive Pet Monitor</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/hook-listeners-first-introductory-podcast-lines-for-2024/"><u>Hook Listeners First Introductory Podcast Lines for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/navigating-auto-sticker-setup-glitches-and-resolutions/"><u>Navigating Auto Sticker Setup Glitches & Resolutions</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-from-zero-to-hero-how-to-find-and-add-free-sound-effects-to-your-final-cut-pro-projects/"><u>New 2024 Approved From Zero to Hero How to Find and Add Free Sound Effects to Your Final Cut Pro Projects</u></a></li>
-<li><a href="https://blog-min.techidaily.com/unexplained-silence-in-vlc-media-player-in-depth-troubleshooting-steps-for-a-full-sound-recovery/"><u>Unexplained Silence in VLC Media Player? In-Depth Troubleshooting Steps for a Full Sound Recovery</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-virtuoso-access-to-premium-dj-video-samples-for-2024/"><u>Vinyl Virtuoso Access to Premium DJ Video Samples for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Nokia C110? | Dr.fone</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/404-page-not-found/"><u>お待たせしました: 404違い Page Not Found - なぜコンテンツを検索できないのか</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-follow-your-favorites-top-6-mobile-apps-for-downloading-youtube-beats-for-2024/"><u>[New] Follow Your Favorites Top 6 Mobile Apps for Downloading YouTube Beats for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-find-out-the-best-8-youtube-engagement-tools/"><u>[Updated] 2024 Approved Find Out The Best 8 Youtube Engagement Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-in-depth-tips-for-srt-file-production-mastery/"><u>[Updated] 2024 Approved In-Depth Tips for SRT File Production Mastery</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/1728487188234-refs/"><u>详细指南：如何使用ReFS进行数据区回复，并防止数据丢失</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/guide-on-how-to-permanently-end-amazon-prime-service-and-obtain-reimbursement/"><u>Guide on How To Permanently End Amazon Prime Service And Obtain Reimbursement</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-vrr-makes-gaming-smoother-by-fixing-screen-flickers-on-your-display/"><u>How VRR Makes Gaming Smoother by Fixing Screen Flickers on Your Display.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/identifying-current-subscribers-a-guide-for-streaming-platforms-such-as-netflix-and-spotify/"><u>Identifying Current Subscribers: A Guide for Streaming Platforms Such as Netflix and Spotify</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Motorola Edge+ (2023)? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/increase-xbox-series-storage-capacity-effortlessly-using-seagates-external-add-on/"><u>Increase Xbox Series Storage Capacity Effortlessly Using Seagate's External Add-On</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/introducing-nvidias-new-all-in-one-application-the-evolution-from-control-panel-and-geforce-experience/"><u>Introducing Nvidia’s New All-in-One Application: The Evolution From Control Panel & GeForce Experience</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/popularitys-palette-ig-story-filter-guide/"><u>Popularity's Palette IG Story Filter Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-rated-iphone-applications-of-2023-as-recommended-by-apple-a-comprehensive-guide/"><u>Top Rated iPhone Applications of 2023 as Recommended by Apple: A Comprehensive Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Level Up Your Retro Experience: Instructions for Increasing Game Selection on NES Classic"
-date: 2025-01-03T13:18:04.103Z
-updated: 2025-01-04T03:27:31.375Z
+date: 2025-01-06T07:50:25.148Z
+updated: 2025-01-11T04:51:25.145Z
 categories:
   - BestProducts
 description: "This Article Describes Level Up Your Retro Experience: Instructions for Increasing Game Selection on NES Classic"
@@ -18,16 +18,12 @@ thumbnail: https://thmb.techidaily.com/6a865e452463a91a0991eeba9d7367cf47a6e9f95
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Raspberry Pi 400
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/Gmg1bX1GHP4gGx2wCClYDURkzKI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Raspberry-Pi-400-Mini-PC-1-2e3e0817c1ad4570a7c3a8d70b7e991b.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Erika Rawes / Lifewire
@@ -95,6 +91,10 @@ Erika Rawes / Lifewire
 
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/7BA0HRUVuCSmbiMi4uyFWkXVuKg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-3-58854ebe9d964ccc984e44f77619fa1a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Erika Rawes / Lifewire
 
  The Pi 400 just includes the keyboard PC, but if you go with the Pi 400 kit, it includes a USB mouse, a power supply, a mini HDMI to HDMI cable, a guide on how to use the Pi, and most importantly, a microSD card with the Raspberry Pi OS (formerly Rasbian) pre-installed. The kit also provides a full-sized SD card adapter for transferring and loading software from your main computer. The PC-in-a-keyboard design makes the Pi 400 Kit less like a computer you have to build, and more like a PC you can start using right out of the box. It also means the Pi can compete with other, more expensive mini PCs.
@@ -103,10 +103,6 @@ Erika Rawes / Lifewire
 
  On the back of the Pi 400, you’ll find a slot for the microSD card, as well as all of the ports. It has two micro HDMI slots, three USB slots (two 3.0 and one 2.0), a horizontal 40-pin GPIO header, and the port for the power supply. The power button is on the keyboard itself—press F10 to power on the Pi, and press Fn + F10 to power it off.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Setup Process: Easier than previous Pi models
 
  The Raspberry Pi 400 is still...well, a[Raspberry Pi](https://www.lifewire.com/raspberry-pi-4102621) . It isn’t a traditional PC in the sense that it doesn’t have full capabilities like a typical laptop,[desktop computer](https://www.lifewire.com/best-desktop-pcs-4045927) , or even mini computer. The Pi is just a computer—it doesn’t even have an operating system unless you add one (fortunately, this Pi includes the OS with the kit). Even when you add the OS, the Pi has a relatively barebones interface. The whole purpose of a Raspberry Pi is to be whatever you want it to be—a personal computer, a smart home controller, a gaming system, or whatever else you can think of.
@@ -114,10 +110,6 @@ Erika Rawes / Lifewire
  The keyboard made setup easier, as did the additional accessories in the kit. I just had to put the microSD card in the keyboard's slot, connect the mouse and power supply, connect the keyboard to a monitor, and power on the Pi. After some updates, I was up and running.
 
  The whole purpose of a Raspberry Pi is to be whatever you want it to be—a personal computer, a smart home controller, a gaming system, or whatever else you can think of.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Projects: Keyboard helps in some ways, hinders in others
 
@@ -132,7 +124,7 @@ Erika Rawes / Lifewire
 Erika Rawes / Lifewire
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Display: Dual mini HDMI ports
@@ -149,17 +141,29 @@ Erika Rawes / Lifewire
 
  The PC-in-a-keyboard design makes the Pi 400 Kit less like a computer you have to build, and more like a PC you can start using right out of the box.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Gaming: Minecraft Pi, RetroPie, and more
 
  The Raspberry Pi 400 Kit with the included Raspberry Pi OS card has a few games preloaded, like Soccer, Boing, Bunner, and Minecraft Pi. Minecraft Pi lets you build Minecraft style, while also learning about programming languages.
 
  You can turn your Raspberry Pi 400 into a RetroPie gaming system, where you can play classic games from Nintendo, Nintendo 64, Sega, Atari, and more. I created a RetroPie using a Raspberry Pi 3 a few years back, and I’d have to connect a keyboard for any updates or changes. The new keyboard form factor makes things a bit easier with the Pi 400\.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Productivity: LibreOffice and helpful accessories
 
  The Kit with the included Raspberry Pi OS has LibreOffice applications preloaded. You get LibreOffice Base, Calc, Draw, Impress, Math, and Writer. This is helpful for homework, work, keeping track of your command lines, basic word processing, or for creating spreadsheets.
 
  The accessories tab includes a PDF viewer and a calculator, as well as a text editor and an SD card copier. You also have a basic web browser—plenty of tools to get you started.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Audio: Bluetooth connectivity
 
@@ -169,10 +173,6 @@ Erika Rawes / Lifewire
 
 Erika Rawes / Lifewire
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Network: Ethernet or dual-band Wi-Fi
 
  The Pi 400 has dual-band Wi-Fi, so you can connect it to a 2.4GHz or 5GHz network. It also has Bluetooth, as well as a[Gigabit Ethernet port](https://www.lifewire.com/definition-of-gigabit-ethernet-816338) for wired connectivity.
@@ -180,7 +180,7 @@ Erika Rawes / Lifewire
  Here at my home in the Research Triangle in North Carolina, my Wi-Fi speeds max out at 400Mbps. I was able to get respectable speeds on this mini PC, with around 100Mbps upload and 30Mbps download. I did not attempt a hardwired connection.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Camera: No CSI port, but you can use a USB webcam
@@ -197,10 +197,6 @@ Erika Rawes / Lifewire
 
  Although the Raspberry Pi OS is basic, the included applications make this an ideal computer for a beginner who wants to learn basic computer programming skills. The interface includes a direct connection to the Pi site, where you can find numerous project ideas from 3D print templates to robotics projects.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Price: An amazing value
 
  Unless you’re well-versed in using a Pi, I would not suggest going with the Pi 400 alone. It’s best to go with the kit. The Pi 400 kit costs around $100, and that’s a great price considering everything you get. It makes an excellent gift for a young techie or anyone who wants to learn more about computers or automation.
@@ -208,6 +204,10 @@ Erika Rawes / Lifewire
 ![Raspberry Pi 400](https://www.lifewire.com/thmb/sgM6gDaZx8bgvwHPPRkrZjgH9oA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Raspberry-Pi-400-Mini-PC-4-c9378702644a4e77b8a5e58985d72993.jpg)
 
 Erika Rawes / Lifewire
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Raspberry Pi 400 Kit vs. Arduino Student Kit
 
@@ -253,17 +253,16 @@ Erika Rawes / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://hardware-help.techidaily.com/free-download-updated-drivers-for-enhanced-performance-of-amd-radeon-rx-skte-on-windows-platforms/"><u>[Free Download] Updated Drivers for Enhanced Performance of AMD Radeon RX ˈsɪktə on Windows Platforms</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-films-best-shot-techniques-top-5-essentials/"><u>[Updated] In 2024, Film's Best Shot Techniques Top 5 Essentials</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-make-a-youtube-intro-with-best-youtube-intro-makers/"><u>[Updated] In 2024, How to Make a YouTube Intro With Best YouTube Intro Makers</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-perfecting-tiktok-habit-how-to-share-videos-from-macpc/"><u>[Updated] In 2024, Perfecting TikTok' Habit How to Share Videos From MAC/PC</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-guide-to-no-cost-melodies-for-content-makers-for-2024/"><u>[Updated] The Ultimate Guide to No-Cost Melodies for Content Makers for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-test-drive-poweradd-pilot-pro2-unmatched-charging-capabilities-for-all-gadgets/"><u>Comprehensive Test Drive: POWERADD Pilot Pro2 – Unmatched Charging Capabilities for All Gadgets</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discovering-the-gloom-a-comprehensive-review-of-bloodborne/"><u>Discovering the Gloom: A Comprehensive Review of Bloodborne</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discovering-viber-out-insights-and-reviews-for-smart-users/"><u>Discovering Viber Out: Insights and Reviews for Smart Users</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elevate-your-gaming-experience-on-samsung-qled-q60r-4k-television-expert-review/"><u>Elevate Your Gaming Experience on Samsung QLED Q60R 4K Television - Expert Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-ring-doorbell-pro-max-is-it-worth-upgrading/"><u>Expert Insights on the Ring Doorbell Pro Max – Is It Worth Upgrading?</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-asus-rog-phone-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/how-to-upgrade-logitech-mk700mk710-mouse-software-steps-and-links/"><u>How to Upgrade Logitech MK700/MK710 Mouse Software: Steps & Links</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtubes-updated-monetization-playbook/"><u>[New] YouTube's Updated Monetization Playbook</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-journey-through-the-top-10-sites-offering-an-array-of-impressive-3d-texts/"><u>2024 Approved Journey Through The Top 10 Sites Offering an Array of Impressive 3D Texts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bose-qc30-balancing-efficacy-and-imperfections/"><u>Bose QC30: Balancing Efficacy and Imperfections</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-apple-homepod-mini-evaluation-sound-quality-voice-assistant-and-additional-features/"><u>Comprehensive Apple HomePod Mini Evaluation: Sound Quality, Voice Assistant & Additional Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-how-does-the-latest-generation-amazon-fire-hd-eight-stack-up-in-affordability-and-performance/"><u>Comprehensive Review: How Does The Latest Generation Amazon Fire HD Eight Stack Up in Affordability and Performance?</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/exploring-windows-control-panel-features-a-comprehensive-guide-by-yl-computing/"><u>Exploring Windows Control Panel Features: A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-oppo-a18-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Oppo A18 Is Unlocked</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-iphone-video-mastery-from-fast-to-extremely-slow-motion-content/"><u>In 2024, IPhone Video Mastery From Fast to Extremely Slow Motion Content</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-step-by-step-audio-augmentation-for-quality-video-files-on-quicktime/"><u>New Step-by-Step Audio Augmentation for Quality Video Files on QuickTime</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-balance-of-safety-and-speed-in-cat-s42-smartphone-assessment/"><u>The Balance of Safety and Speed in Cat S42 Smartphone Assessment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/xbox-controller-revolution-our-expert-take-on-why-the-elite-series-is-a-gamepad-legend/"><u>Xbox Controller Revolution: Our Expert Take on Why the Elite Series ² Is a Gamepad Legend</u></a></li>
 </ul></div>
 

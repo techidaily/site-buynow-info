@@ -1,7 +1,7 @@
 ---
 title: "Review of the Tiny Titans: How the Rugged Unihertz Atom XL Packs a Punch"
-date: 2025-01-03T02:18:23.864Z
-updated: 2025-01-03T20:42:08.021Z
+date: 2025-01-03T17:55:45.039Z
+updated: 2025-01-11T05:06:28.262Z
 categories:
   - BestProducts
 description: "This Article Describes Review of the Tiny Titans: How the Rugged Unihertz Atom XL Packs a Punch"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 ## Withings Withings Move Hybrid Smartwatch
 
 ![Withings Move](https://www.lifewire.com/thmb/lRf4MewZgHR7jJoirox43xON-Ds=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4161013-1-a308b649704344f6b5fd15dc900e5742.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -81,10 +77,6 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Slim and clean**
 
  We don’t typically think of[smartwatches](https://www.lifewire.com/an-introduction-to-smart-watches-3441381) as being nearly weightless, but the Withings Move is just that. Weighing in at just a little over one ounce, this watch is almost undetectable on the wrist.
@@ -101,7 +93,15 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/Qz1dlsE8jl99mXc7-kQ5LCVoiK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-3-b1e97631284d40829bd5714c59dc5f2a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process** :**As easy as 1-2-3**
 
@@ -113,6 +113,10 @@ Lifewire / Yoona Wagener
 
  First, we paired the Withings Move with our phone via Bluetooth, which was instantaneous. Next, we provided profile information for better activity metrics, downloaded an update, made sure the watch dials were working and the time was set correctly, and we were good to go.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Comfort: Light as a feather, even while sleeping**
 
  Some watches can feel heavy by the end of the day, but we didn’t encounter that weighed-down feeling with the Withings Move. The watch is really lightweight and the band is soft, flexible, and slim, which made sleeping with it a non-issue. It was also easy to achieve a good fit—especially for smaller wrists—thanks to the plentiful notches and the tab to keep the band in place.
@@ -122,10 +126,6 @@ Lifewire / Yoona Wagener
  We did notice that both the front and back of the watch face scratched easily over the course of a week, and suspect this could be a bigger issue for those who are harder on their accessories.
 
 ![Withings Move](https://www.lifewire.com/thmb/WIXFA6BpXvAMWLdKpJ_jmzZh6o4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-5-cbc0f43d847b453bbfae994f03374cdb.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
 
@@ -147,10 +147,6 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Battery: Long-lasting and hassle-free**
 
  The Withings Move is reported to have a battery life of up to 18 months, and we really enjoyed that aspect over the week we tested it. Unlike typical smartwatches, we didn’t have to worry about draining the battery and recharging. The internal battery is a typical replaceable watch battery, and the user guide offers directions for removal and replacement when the time comes.
@@ -158,14 +154,10 @@ Lifewire / Yoona Wagener
 ![Withings Move](https://www.lifewire.com/thmb/02bkMrpkzqBOue1ffhHNfQqaIuk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-4-df866fafd70a44c592e0e06e0ea53ae7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Software: An emphasis on general wellness**
 
@@ -185,6 +177,10 @@ Lifewire / Yoona Wagener
 
  Those looking for a dressier and more substantial watch may find these Fossil models to be better alternatives. Other devices that are comparable in price, like the Fitbit Inspire Fitness Tracker, lack the analog watch qualities and look like designated activity trackers. The Withings Move splits the difference at a modest price.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Withings Move vs. Misfit Phase**
 
  The Misfit Phase is another hybrid smartwatch with a classic wristwatch look, maybe even more so than the Withings Move. Priced at around $175, the Misfit Phase is more expensive, but also comes with a few bonuses that the Withings Move lacks, like text notifications, playing and pausing music on your phone, and also taking selfies.
@@ -198,6 +194,10 @@ Lifewire / Yoona Wagener
 **Best for those who prefer the analog experience.**
 
  The Withings Move is a strong entry-level fitness tracker for the person who wants to track activities without going all-in on a smartwatch. It’s inexpensive, sporty, and subtle, which makes it compelling for those who don’t want to be distracted by notifications and all the hands-on features smartwatches bring to the table.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -226,22 +226,18 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-enjoyable-footage-recorder-test-for-2024/"><u>[New] Enjoyable Footage Recorder Test for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/reedom-from-popups-discover-the-top-7-android-adblock-apps/"><u>[New] Freedom From Popups? Discover the Top 7 Android AdBlock Apps</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-optimizing-your-home-studio-for-online-broadcasts-for-2024/"><u>[New] Optimizing Your Home Studio for Online Broadcasts for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-rise-above-struggles-10-empowering-movies-for-life/"><u>[New] Rise Above Struggles 10 Empowering Movies for Life</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-honor-magic-6-pro-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Honor Magic 6 Pro ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Meizu 21 | Dr.fone</u></a></li>
-<li><a href="https://data-recovery.techidaily.com/1720600609120-stellar-windows/"><u>Stellar データリカバリー: Windows用で最適、無料データ復元ツール</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-handy-audew-compressor-reviewed-compact-design-meets-functionality/"><u>The Handy Audew Compressor Reviewed - Compact Design Meets Functionality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-practical-mastery-of-acers-xfa240-more-than-just-looks/"><u>The Practical Mastery of Acer's XFA240 - More Than Just Looks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-2023-gaming-selection-for-your-steam-deck/"><u>The Ultimate 2023 Gaming Selection for Your Steam Deck</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-nintendo-switch-analysis-why-its-the-ultimate-handheld-gaming-device/"><u>Top Nintendo Switch Analysis: Why It's the Ultimate Handheld Gaming Device</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-prime-day-offers-on-apples-save-big-now/"><u>Top Prime Day Offers on Apples - Save Big Now</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-tablets-face-off-exploring-pros-and-cons-of-ipad-air-4-vs-galaxy-tab-s7plus/"><u>Top Tablets Face-Off: Exploring Pros and Cons of iPad Air 4 vs Galaxy Tab S7+</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-document-and-photo-scanning-machines-in-2e24/"><u>Top-Rated Document & Photo Scanning Machines in 2E24</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-resolving-e06-e43-and-related-pregnancy-test-codes/"><u>Ultimate Guide: Resolving E06, E43 & Related Pregnancy Test Codes</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-yn560iv-speedy-flash-manual-masterclass-discounted/"><u>Ultimate YN560IV Speedy Flash, Manual Masterclass Discounted</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/win10-ultimate-screenshot-and-video-capture-kit-for-2024/"><u>Win10 Ultimate Screenshot & Video Capture Kit for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-pro-youtuber-essentials-studio-choice-over-beta-alternative/"><u>[Updated] 2024 Approved Pro YouTuber Essentials Studio Choice Over Beta Alternative</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-social-media-success-iphone-360-video-filming-guide/"><u>[Updated] Social Media Success IPhone 360 Video Filming Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-superior-5-web-video-capture-kits/"><u>[Updated] Superior 5 Web Video Capture Kits</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mix-mastery-syncing-audio-to-windows-11-videos/"><u>2024 Approved Mix Mastery Syncing Audio to Windows 11 Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-essence-of-insta-bokeh-a-step-by-step-guide/"><u>2024 Approved The Essence of Insta Bokeh - A Step-by-Step Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/all-about-blue-screens-a-thorough-breakdown-of-critical-system-error-codes/"><u>All About Blue Screens: A Thorough Breakdown of Critical System Error Codes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/detailed-analysis-unveiling-the-lenovo-yoga-a940s-capabilities/"><u>Detailed Analysis: Unveiling the Lenovo Yoga A940's Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-newly-launched-stylish-acer-chromebook-r11/"><u>Expert Analysis of the Newly Launched Stylish Acer Chromebook R11</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Infinix Hot 40 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-secure-success-in-win11-meetings-with-advanced-zooming-techniques/"><u>In 2024, Secure Success in Win11 Meetings with Advanced Zooming Techniques</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-vyncs-robust-monitoring-service-with-multi-level-subscription-model/"><u>In-Depth Look at VyNCs' Robust Monitoring Service with Multi-Level Subscription Model</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-budget-champion-an-in-depth-review-of-tp-links-archer-a6/"><u>Unveiling the Budget Champion: An In-Depth Review of TP-Link's Archer A6...</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/1728480033130-windows-107/"><u>データが消える危険性：Windows 10アップデート後に注意！7つの至極重要な対策</u></a></li>
 </ul></div>
 

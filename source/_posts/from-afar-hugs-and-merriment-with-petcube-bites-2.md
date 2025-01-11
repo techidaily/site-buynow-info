@@ -1,7 +1,7 @@
 ---
 title: From Afar, Hugs and Merriment with Petcube Bites 2
-date: 2025-01-03T00:22:49.575Z
-updated: 2025-01-04T12:52:22.963Z
+date: 2025-01-03T19:39:33.171Z
+updated: 2025-01-10T18:10:25.184Z
 categories:
   - BestProducts
 description: This Article Describes From Afar, Hugs and Merriment with Petcube Bites 2
@@ -19,7 +19,7 @@ thumbnail: https://www.lifewire.com/thmb/AveEElAwsJ-yfNPFL8X7KyXcAdA=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
@@ -84,10 +84,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -104,15 +100,15 @@ Lifewire / Andy Zahn
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
 
@@ -130,6 +126,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Photo Quality: Great colors, average resolution**
 
  We love the warm, natural color tone that[Canon cameras](https://www.lifewire.com/best-new-canon-cameras-493499) produce, and the SX70 HS doesn’t disappoint. Its photos are vibrant and it captures particularly nice portraits.
@@ -146,6 +146,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -161,7 +165,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
@@ -188,15 +192,15 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
 
  You can find similar image quality in[other superzoom cameras](https://www.lifewire.com/best-ultra-zoom-cameras-493676) that cost much less, and it does seem that to some extent you are paying extra for the Canon brand name.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Dominating from the middle ground**
 
@@ -219,10 +223,6 @@ Lifewire / Andy Zahn
 * [Panasonic Lumix DC-FZ80](https://www.lifewire.com/panasonic-lumix-dc-fz80-review-4691071)
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -258,19 +258,22 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-clearing-imagery-the-canva-method-for-clean-bounds/"><u>[New] In 2024, Clearing Imagery The Canva Method for Clean Bounds</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-capturing-screenshots-like-a-pro-the-best-recorder-reviews/"><u>[Updated] 2024 Approved Capturing Screenshots Like a Pro The Best Recorder Reviews</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-prime-audio-alteration-tech-for-influencer-marketers/"><u>[Updated] 2024 Approved Prime Audio Alteration Tech for Influencer Marketers</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-unifying-streams-simultaneous-capture-of-camplusscreen/"><u>[Updated] In 2024, Unifying Streams Simultaneous Capture of Cam+Screen</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/econostudio-kit-plus-ultra-lighting/"><u>EconoStudio Kit Plus Ultra Lighting</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elevate-your-health-tracking-experience-discover-how-fitbit-sense-outshines-the-apple-watch/"><u>Elevate Your Health Tracking Experience: Discover How Fitbit Sense Outshines the Apple Watch</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/essential-factors-to-ponder-pre-dvr-investment/"><u>Essential Factors to Ponder Pre-DVR Investment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exceptional-deals-on-the-oneplus-6t-top-notch-efficiency-explored/"><u>Exceptional Deals on the OnePlus 6T: Top-Notch Efficiency Explored</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-the-ultimate-jrpg-with-yakuza-like-a-dragon/"><u>Experience the Ultimate JRPG with Yakuza: Like a Dragon!</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-honor-100-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Honor 100 Phones? | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/immediate-stop-for-windows-and-office-updates/"><u>Immediate Stop for Windows and Office Updates</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-concealed-identities-quick-tips-for-face-obscuration-in-images/"><u>In 2024, Concealed Identities Quick Tips for Face-Obscuration in Images</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-garmin-gpsmap-64st-a-multifunctional-guide-for-outdoor-enthusiasts-and-explorers/"><u>Reviewing the Garmin GPSMAP 64St: A Multifunctional Guide for Outdoor Enthusiasts and Explorers</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-for-snap-camera-connection-issues-input-unavailable/"><u>Troubleshooting Steps for Snap Camera Connection Issues: Input Unavailable</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-streamlined-steps-simplifying-fishy-voice-swaps-on-windows-pcs/"><u>[New] 2024 Approved Streamlined Steps Simplifying Fishy Voice Swaps on Windows PCs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-a-step-by-step-approach-to-lut-application-in-ae-for-2024/"><u>[New] A Step-by-Step Approach to LUT Application in AE for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-step-into-professionalism-aiseesofts-screen-recording-made-accessible/"><u>[New] In 2024, Step Into Professionalism Aiseesoft's Screen Recording Made Accessible</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-practices-for-checking-and-editing-your-sites-pages-before-publishing-online/"><u>Best Practices for Checking and Editing Your Site's Pages Before Publishing Online</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-new-faces-of-zombie-survival-7-days-to-die-game-review-on-monster-makeovers-and-endless-sandbox-exploration/"><u>Discover the New Faces of Zombie Survival: '7 Days to Die' Game Review on Monster Makeovers and Endless Sandbox Exploration</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-apple-m4-processor-released-information-exciting-features-and-capabilities/"><u>Explore the Apple M4 Processor: Released Information, Exciting Features & Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-cheapest-cell-network-packages-of-2024-ranked-for-your-wallets-sake/"><u>Explore the Cheapest Cell Network Packages of 2024 - Ranked for Your Wallet's Sake</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-crystal-clear-channels-for-less-the-amazonbasics-tv-signal-enhancer-unveiled/"><u>Get Crystal Clear Channels for Less - The AmazonBasics TV Signal Enhancer Unveiled</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-xiaomi-civi-3-disney-100th-anniversary-edition-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on Xiaomi Civi 3 Disney 100th Anniversary Edition</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-motorola-moto-g23-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Motorola Moto G23 to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-mastering-the-craft-of-looped-visuals-for-social-media-success/"><u>In 2024, Mastering the Craft of Looped Visuals for Social Media Success</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/spotlight-on-sea-tech-a-critical-look-at-their-external-blu-ray-writing-device-performance/"><u>Spotlight on Sea Tech: A Critical Look at Their External Blu-Ray Writing Device Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-smartwatches-the-ultimate-list/"><u>Top-Rated Smartwatches : The Ultimate List</u></a></li>
+<li><a href="https://techidaily.com/unlock-iphone-se-screen-lock-without-password-by-drfone-ios-unlock-ios-unlock/"><u>Unlock iPhone SE screen lock without password</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-ultra-speed-connectivity-an-in-depth-look-at-the-netgear-nighthawk-x10-ad7200-router/"><u>Unlocking Ultra-Speed Connectivity: An In-Depth Look at the Netgear Nighthawk X10 (AD7200) Router</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/update-and-download-epson-et-3760-print-driver-for-windows-a-comprehensive-tutorial/"><u>Update & Download Epson ET-3760 Print Driver for Windows: A Comprehensive Tutorial</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1726029922893-youtube/"><u>YouTubeで鮮明な画質の動画投稿手順</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Discover Why the Affordable Asus Chromebook Flip C302CA Is a Game-Changer for Budget Tech Enthusiasts
-date: 2024-08-11T00:14:27.669Z
-updated: 2024-08-12T00:14:27.669Z
+date: 2025-01-06T20:23:44.104Z
+updated: 2025-01-11T09:21:55.822Z
 categories:
   - BestProducts
 description: This Article Describes Discover Why the Affordable Asus Chromebook Flip C302CA Is a Game-Changer for Budget Tech Enthusiasts
@@ -15,10 +15,6 @@ thumbnail: https://www.lifewire.com/thmb/-h8zmA3SBGc82aPgPw2ilbsTz3E=/400x300/fi
 
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ![Max Oak](https://www.lifewire.com/thmb/CeiJTW7zTopZdtR_zhtXz9_P-Mw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
 
 Lifewire / Gannon Burgett
@@ -42,8 +38,9 @@ Lifewire / Gannon Burgett
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
 ![Max Oak](https://www.lifewire.com/thmb/0sYGw-7sF6j5aqPA13sWjU-Y2b4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
@@ -70,9 +67,6 @@ Lifewire / Gannon Burgett
 
  While there's no shortage of options on the market, there aren’t many that can keep you going for days. That’s not the case with the MaxOak 50000mAh, an absolutely massive and robust charger that attempts to be the jack of all when it comes to charging gadgets on the go. It’s power comes at the cost of massive size and the charging ports aren’t too fast, but if you need tons of power, this is the battery pack to get.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Bulky for travelers**
 
  First and foremost, this thing is a tank. At 2.77 pounds, it weighs many times more than most smartphones and nearly as much as most compact laptops. It also measures in at 8.1 x 5.3 x 1.3 inches (HWD), making it quite the behemoth to lug around. A small detail regarding the weight of the MaxOak is that it isn't balanced. The side without the ports holds a fair bit more weight than the side with the various ports. It's not a significant detail, but one you might notice with time.
@@ -89,9 +83,6 @@ Lifewire / Gannon Burgett
 
  Charging the device is done via a small 16.8-volt 2.5A plug-in style port on the opposite side of the power button. Overall, the design is roughly what you'd expect from a 50000mAh laptop battery charger. Yes, it's heavy, yes it's quite beefy in size, but it comes with the territory.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Simple to start, but yet another adapter to carry around**
 
  Setting up the MaxOak laptop battery charger is as simple as it gets. After removing it from its unbranded cardboard box, it's simply a matter of plugging it in and getting it charged up completely. Our device came charged at roughly 50% based on the onboard[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) battery indicator, but to complete our tests we wanted it charged entirely, which leads us to our biggest complaint about this charger.
@@ -99,8 +90,9 @@ Lifewire / Gannon Burgett
  The point of a charger is to have extra battery power on hand when needed so you don't have to carry around unnecessary cables when traveling. Unfortunately, the MaxOak battery pack doesn't use any kind of USB or standardized port. Rather than charging it with a[USB Type-C](https://www.lifewire.com/usb-c-4149490) or even a micro-USB port, the MaxOak battery pack relies on its own proprietary power supply that's nearly as large as most laptop chargers. Sure, the 50000mAh onboard is likely enough that you could leave both the battery pack charger and your laptop charger behind for most events, but eventually you'll run out of juice and rather than reaching for a cable you would probably already have in your bag, you're stuck bringing along a proprietary charger.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Charging Speed and Battery: Slow and steady wins this race**
 
  The MaxOak 50000mAh manages to charge at a decent rate considering its capacity, but we would’ve liked to see more high-powered ports for speedier charging. We charged and fully drained the MaxOak power bank five times and charging took roughly six to eight hours per recharge with an average of seven hours and fifteen minutes.
@@ -119,9 +111,17 @@ Lifewire / Gannon Burgett
 
  Moving onto laptops, our ASUS X555LA was able to be charged four and a half times from 0% with the MaxOak power bank, with an average charge time of three hours or so. The ASUS X555LA has a relatively small battery compared to most laptops, which means it falls in line with MaxOak’s claims that its power bank can charge a laptop two times over give or take a little.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Right down the middle**
 
  The MaxOak 50000mAh power bank comes in at $135.99 at the time of this review. This is a reasonable price when taking into consideration how much battery capacity you're getting with it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: One in the same**
 
@@ -139,15 +139,16 @@ Lifewire / Gannon Burgett
 
  Overall, the MaxOak 50000mAh is a decent power bank with massive capacity. However, it isn't designed with newer computers and devices in mind. If you have an older laptop on hand that isn't a MacBook (the MaxOak doesn't support any MagSafe connectors) or doesn't use USB Type-C for charging, it'll get the job done. But if your smartphone or laptop is newer and relies on more recent and powerful connections, you're going to want to look elsewhere.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Jackery PowerBar Battery Pack](https://www.lifewire.com/jackery-powerbar-battery-pack-review-4589480)
 * [ChargeTech 27000mAh Battery Pack](https://www.lifewire.com/chargetech-27000mah-battery-pack-review-4589409)
 * [Anker PowerCore+ 26800 Battery Pack Bundle](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  185Wh/50000mAh External Battery Power Bank
@@ -163,14 +164,11 @@ Lifewire / Gannon Burgett
 * Warranty  One year
 * Compatibility  Android, iOS
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -179,4 +177,24 @@ Lifewire / Gannon Burgett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-master-your-photos-the-prime-selection-of-no-cost-editors/"><u>[New] 2024 Approved Master Your Photos The Prime Selection of No-Cost Editors</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ivoting-passions-into-profits-your-vlogs-revenue-roadmap-for-2024/"><u>[New] Pivoting Passions Into Profits Your Vlog's Revenue Roadmap for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-how-to-create-a-lifestyle-video-to-inspire-your-audience/"><u>[Updated] How to Create a Lifestyle Video to Inspire Your Audience</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-honor-magic-vs-2-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Honor Magic Vs 2 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/imagesphere-xd-stellar-performance-for-excessive-expense/"><u>ImageSphere XD: Stellar Performance for Excessive Expense</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-optimizing-content-visibility-premier-tracking-applications-for-youtubers/"><u>In 2024, Optimizing Content Visibility - Premier Tracking Applications for YouTubers</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/is-the-free-windows-10-update-still-available-on-microsofts-website/"><u>Is the Free Windows 10 Update Still Available on Microsoft's Website?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mmock-1000a-car-revitalizer-analysis-a-deep-dive-into-an-exceptional-18000mah-charger/"><u>MMOCK 1000A Car Revitalizer Analysis - A Deep Dive Into an Exceptional 18000mAh Charger</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/os-melhores-ferramentas-publicas-top-9-para-a-criacao-de-discos-oticos-em-computadores-desktopportatil/"><u>Os Melhores Ferramentas Públicas Top 9 Para a Criação De Discos Óticos Em Computadores Desktop/Portátil</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/performance-breakdown-the-pros-and-cons-of-garmin-forerunner/"><u>Performance Breakdown: The Pros and Cons of Garmin Forerunner 지오너 클린</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-cult-of-the-lamb-freezing-issues-a-guide-for-pc-users/"><u>Resolving Cult of the Lamb Freezing Issues: A Guide for PC Users</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-secret-laptop-upgrade-you-never-knew-about-that-boosts-performance-like-never-before-find-out-more/"><u>The Secret Laptop Upgrade You Never Knew About That Boosts Performance Like Never Before - Find Out More!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-connectivity-game-changer-4-compelling-starlink-perks/"><u>The Ultimate Connectivity Game-Changer? 4 Compelling Starlink Perks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-rechargeable-battery-chargers-in-2marketing-course2024/"><u>Top Rated Rechargeable Battery Chargers in 2#Marketing-Course_2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-dell-xps-13-9300-2-in-1-laptop-evaluation-exceptional-power-and-features/"><u>Ultimate Dell XPS 13 (9300) 2-in-1 Laptop Evaluation: Exceptional Power & Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlock-affordable-entertainment-with-karaoke-usa-less-than-150-for-endless-singing-joy/"><u>Unlock Affordable Entertainment with Karaoke USA: Less Than $150 for Endless Singing Joy!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-superior-voice-activated-gadgets-dominating-2024/"><u>Unveiling the Superior Voice-Activated Gadgets Dominating 2024</u></a></li>
+</ul></div>
 

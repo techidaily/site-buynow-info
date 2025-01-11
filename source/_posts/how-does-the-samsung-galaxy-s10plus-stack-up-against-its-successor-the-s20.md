@@ -1,7 +1,7 @@
 ---
 title: How Does the Samsung Galaxy S10+ Stack Up Against Its Successor, the S20?
-date: 2024-08-11T00:13:39.941Z
-updated: 2024-08-12T00:13:39.941Z
+date: 2025-01-08T07:22:45.711Z
+updated: 2025-01-11T07:53:34.578Z
 categories:
   - BestProducts
 description: This Article Describes How Does the Samsung Galaxy S10+ Stack Up Against Its Successor, the S20?
@@ -13,9 +13,17 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
 4.5
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Samsung Galaxy Fit
 
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/UbU9fom8autjrPBW79fdJpbGiu8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_04LW4161013-1-760c721cdfb74062a7b7a34dffa00d9e.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
 
@@ -37,14 +45,8 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Samsung Galaxy Fit
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/RBJ_qd0-iPj3u7qSA3GAXNn2byQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_04LW4161013-1-760c721cdfb74062a7b7a34dffa00d9e.jpg)
 
  Lifewire / Yoona Wagener
@@ -74,10 +76,11 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
  We tested the Samsung Galaxy Fit on its ability to track workouts and how comfortable it is as a 24/7 accessory.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/Tf5FJJb3h1iBWaZIkx-ZF7NeOTg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-6-b9990e3655e34e2ca712150225748ab6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
 
@@ -98,25 +101,19 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
  Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup Process** :**Speedy and to the point**
 
  Other than the watch itself, the only other equipment is a wireless charging dock. Charging to 100 percent is recommended at setup, and it took us about 40 minutes for the device to charge in full from about 70 percent charged out of the box.
 
  After that, we downloaded the compatible app for the device, called Galaxy Fit. We were able to pair the device in just a few seconds. We also had to download the Samsung Health app in order to access our activity data.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/E_Ki7o6LChwW9AdtjDKL2L1lHjw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-4-abd906dedc9c440188c23a5aabdfebe0.jpg)
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Comfort: Almost undetectable**
 
  Like the[Samsung Galaxy Watch Active](https://www.lifewire.com/samsung-galaxy-watch-4174640) , this device also features a tucked-in strap. The difference is that there’s a little pin with a round head instead of the straight pin that most watch buckles have. This detail makes for an extremely close fit that verges on almost too close.
@@ -131,16 +128,14 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
  So while it was mostly comfortable for general wear and during exercise activities, we found that the fit suffered from being either too tight or too loose because the adjustments weren’t incremental enough. It was hard to find a just-right middle ground.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ![Samsung Galaxy Fit](https://www.lifewire.com/thmb/SRdpyMKwwNLE2m_Dnn2o9thnpQ8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/04LW4161013-3-40a8d98ca4a04e7c9b5b18531df43e6f.jpg)
 
  Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: High marks for accuracy**
 
  Since fitness tracking is really the name of the game for this device, we had high hopes that it would perform well. We weren’t disappointed by what we found. We were pleased with its ability to automatically track running, swimming, and sleep activities.
@@ -193,6 +188,10 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 
  The Samsung Galaxy Fit is an appealing option for those who want a bit of smartwatch functionality and a heavy emphasis on exercise monitoring—without shelling out too much money. The fit, ironically, may be the largest issue. But if you’re able to find the right size, this may be everything you want in a fitness tracker.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Samsung Galaxy Watch Active](https://www.lifewire.com/samsung-galaxy-watch-active-review-4766873)
@@ -200,8 +199,9 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 * [Apple Watch Series 4](https://www.lifewire.com/apple-watch-series-4-review-4769752)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Galaxy Fit
@@ -217,14 +217,11 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
 * Connectivity  Bluetooth 5.0 (LE only)
 * Warranty  1 year
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -233,4 +230,22 @@ thumbnail: https://www.lifewire.com/thmb/apDEtc9cV7FGuqXhEfaq62UShJI=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/updated-iconic-iphone-meme-creations/"><u>[Updated] Iconic iPhone Meme Creations</u></a></li>
+<li><a href="https://blog-min.techidaily.com/h266/"><u>「H266エンコーディング手順を解説します：高速処理が可能な最適ソフトウェア」</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-linked-insight-merging-instagram-and-tiktok/"><u>2024 Approved Linked Insight Merging Instagram & TikTok</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-bypass-activation-lock-on-iphone-12-pro-by-drfone-ios/"><u>3 Effective Ways to Bypass Activation Lock on iPhone 12 Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-the-fitbit-charge-3-is-it-still-worth-buying-in-depth-review/"><u>Assessing the Fitbit Charge 3: Is It Still Worth Buying ? - In-Depth Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bluetooth-enabled-moko-versatile-collapsible-keyboard-for-on-the-go-users/"><u>Bluetooth-Enabled MoKo Versatile Collapsible Keyboard for On-the-Go Users</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Vivo Y100 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-meizu-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Meizu Phone that is Locked?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-leading-edge-windows-podcast-tools-our-top-8-choices/"><u>In 2024, Leading Edge Windows Podcast Tools Our Top 8 Choices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-netgear-nighthawk-rax120-speeds-that-outpace-all-rivals/"><u>In-Depth Analysis of the Netgear Nighthawk RAX120: Speeds That Outpace All Rivals</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016323661-quick-fixes-for-a-silent-pc-get-your-computer-speakers-working-now/"><u>Quick Fixes for a Silent PC – Get Your Computer Speakers Working Now</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-budget-guide-exploring-the-features-of-the-alcatel-joy-tab-2/"><u>The Ultimate Budget Guide: Exploring the Features of the Alcatel Joy Tab 2</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-resource-for-boosting-your-intel-based-imac-efficiency/"><u>The Ultimate Resource for Boosting Your Intel-Based iMac Efficiency</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-nubia-red-magic-8s-proplus-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Nubia Red Magic 8S Pro+ to Gmail | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/vital-tips-for-optimal-router-shopping-decisions/"><u>Vital Tips for Optimal Router Shopping Decisions</u></a></li>
+</ul></div>
 

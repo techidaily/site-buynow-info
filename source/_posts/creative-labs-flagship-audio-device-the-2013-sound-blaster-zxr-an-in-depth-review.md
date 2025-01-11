@@ -1,7 +1,7 @@
 ---
 title: "Creative Lab's Flagship Audio Device, the 2013 Sound Blaster ZXR: An In-Depth Review"
-date: 2025-01-01T07:38:32.943Z
-updated: 2025-01-04T12:06:13.128Z
+date: 2025-01-10T05:35:48.411Z
+updated: 2025-01-10T23:01:45.237Z
 categories:
   - BestProducts
 description: "This Article Describes Creative Lab's Flagship Audio Device, the 2013 Sound Blaster ZXR: An In-Depth Review"
@@ -44,10 +44,6 @@ Lifewire / Emily Ramirez
 
 2.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
@@ -77,7 +73,7 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -86,10 +82,6 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
@@ -97,6 +89,10 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process/Installation: Easy install, irritating setup**
 
@@ -108,11 +104,11 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
- Lifewire / Emily Ramirez
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Emily Ramirez
 
 ## **Audio: Excellent sound**
 
@@ -122,10 +118,14 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: Lots of options with mixed utility**
@@ -166,7 +166,7 @@ Lifewire / Emily Ramirez
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -207,24 +207,24 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-streaming-software-spectacle-choosing-between-virusmix-and-castpro/"><u>[New] In 2024, Streaming Software Spectacle Choosing Between VirusMix and CastPro</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-uncomplicated-podcast-live-master-the-art-of-livestreaming/"><u>[New] In 2024, Uncomplicated Podcast Live Master the Art of Livestreaming</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/roven-techniques-for-crafting-impactful-youtube-video-content/"><u>[New] Proven Techniques for Crafting Impactful YouTube Video Content</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-beginners-guide-to-streaming-on-fb-live-2023/"><u>[Updated] 2024 Approved Beginner's Guide to Streaming on FB Live, 2023</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-cutting-edge-strategies-for-youtube-split-screen-videos-for-2024/"><u>[Updated] Cutting-Edge Strategies for YouTube Split-Screen Videos for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-how-to-add-fonts-to-after-effects/"><u>[Updated] How to Add Fonts to After Effects?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/compact-comfort-in-every-step-with-the-samsung-galaxy-fit2-your-all-in-one-activity-tracker/"><u>Compact Comfort in Every Step with the Samsung Galaxy Fit2 - Your All-in-One Activity Tracker</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-imo-messenger-evaluation-and-customer-feedback/"><u>Comprehensive Imo Messenger Evaluation and Customer Feedback</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-netgear-c3700-the-ideal-hybrid-device/"><u>Comprehensive Review of Netgear C3700 - The Ideal Hybrid Device</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/deciding-on-smart-sound-heres-how-google-nest-audio-stacks-up-againse-mini/"><u>Deciding on Smart Sound? Here’s How Google Nest Audio Stacks Up Againse Mini</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/detailed-review-and-comparison-is-mapmyride-right-for-you/"><u>Detailed Review and Comparison: Is MapMyRide Right for You?</u></a></li>
-<li><a href="https://discover-cheats.techidaily.com/easy-access-to-tvzion-shows-save-and-stream-seasons-as-mp4movavi-using-the-reliable-tvzion-downloader-tool/"><u>Easy Access to TVZion Shows: Save and Stream Seasons as MP4/MOV/AVI Using the Reliable TVZion Downloader Tool</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-googles-advanced-wifi-offering-a-user-friendly-and-efficient-mesh-network-for-broadband-environments/"><u>Evaluating Google's Advanced Wifi Offering: A User-Friendly and Efficient Mesh Network for Broadband Environments</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-synology-rt2600ac-a-wi-fi-router-combining-extended-range-with-parental-oversight-capabilities/"><u>Evaluating Synology RT2600ac - A Wi-Fi Router Combining Extended Range with Parental Oversight Capabilities</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-jaco-smartpro-the-best-choice-for-efficient-and-convenient-digital-tire-inflation/"><u>Evaluating the Jaco SmartPro: The Best Choice for Efficient and Convenient Digital Tire Inflation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-the-motorola-one-5g-ace-outstanding-fast-connectivity-and-robust-battery-life-reviewed-here/"><u>Experience the Motorola One 5G Ace: Outstanding Fast Connectivity & Robust Battery Life Reviewed Here!</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2647085-9780750951517-haunted-st-albans/"><u>Haunted St Albans | Free Book</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-vivo-y36-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Vivo Y36 Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-insiders-look-at-vlc-functionality-on-macbooks/"><u>In 2024, Insider's Look at VLC Functionality on MacBooks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/torment-tides-of-numenera-reviewed-a-deep-dive-into-an-rpg-rich-with-worldbuilding-wonders/"><u>'Torment: Tides of Numenera' Reviewed: A Deep Dive Into an RPG Rich with Worldbuilding Wonders</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-decode-the-reverse-masterful-snapchat-techniques/"><u>[New] Decode the Reverse Masterful Snapchat Techniques</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-sonic-pixels-turning-sound-into-visual-storytelling/"><u>[New] Sonic Pixels Turning Sound Into Visual Storytelling</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Oppo A1 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-gopro-vs-sony-battle-royale-for-ultimate-action-cameras/"><u>2024 Approved GoPro Vs. Sony Battle Royale for Ultimate Action Cameras</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/applecare-plus-review-assessing-its-value-for-money-and-peace-of-mind/"><u>AppleCare Plus Review: Assessing Its Value for Money & Peace of Mind</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-byb-e4n30-led-pendant-lamp-assessment-luxurious-swing-arm-feature/"><u>Comprehensive BYB E4n30 LED Pendant Lamp Assessment: Luxurious Swing Arm Feature</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/decorate-and-differentiate-personalizing-your-calendar-in-windows-outlook/"><u>Decorate and Differentiate: Personalizing Your Calendar in Windows Outlook</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/demons-souls-review/"><u>Demon's Souls Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dissecting-the-motorola-edgeplus-experience-does-it-meet-flagship-criteria/"><u>Dissecting the Motorola Edge+ Experience: Does It Meet Flagship Criteria?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gaming-portable-masterpiece-the-case-for-steam-deck/"><u>Gaming Portable Masterpiece? The Case for Steam Deck</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hits-of-the-future-best-2024-exercise-tracks/"><u>Hits of the Future: Best 2024 Exercise Tracks</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-google-pixel-fold-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Google Pixel Fold Without the Home Button | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-messages-from-apple-iphone-x-to-other-iphone-all-ios-versions-drfone-by-drfone-transfer-from-ios/"><u>How To Transfer Messages From Apple iPhone X to other iPhone All iOS Versions | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-accelerated-sizing-youtube-content-for-macs/"><u>In 2024, Accelerated Sizing YouTube Content for MACs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/introducing-amazon-halo-a-next-level-fitness-tracker-breaking-boundaries-in-personal-care/"><u>Introducing Amazon Halo: A Next-Level Fitness Tracker Breaking Boundaries in Personal Care</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lg-24lh4830-pu-smart-tv-review/"><u>LG 24LH4830-PU Smart TV Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/robust-and-reliable-an-in-depth-look-into-the-asus-chromebook-c2-for-educational-use/"><u>Robust & Reliable: An In-Depth Look Into the Asus Chromebook C2# for Educational Use</u></a></li>
+<li><a href="https://fox-that.techidaily.com/simple-steps-for-a-careful-restart-on-apples-mobile-device/"><u>Simple Steps for a Careful Restart on Apple's Mobile Device</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Ultimate LG Gram 17 Assessment: Light as a Feather Yet Power-Packed"
-date: 2025-01-01T13:21:43.504Z
-updated: 2025-01-03T16:50:55.532Z
+date: 2025-01-08T19:38:37.242Z
+updated: 2025-01-11T02:31:02.215Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate LG Gram 17 Assessment: Light as a Feather Yet Power-Packed"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/4494210181b361ed33c42bb9503adb4d12c1be013
 ## Razer Book 13
 
 ![Razer Book 13](https://www.lifewire.com/thmb/VaOshLbjt_41gksIyYfg24DF6KM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_HeroSquare-80401fcfbef94a1b8444cd0832388aac.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -47,10 +43,6 @@ Lifewire / Andy Zahn
 [View On Amazon](https://www.amazon.com/dp/B08LP734G3/?tag=lifewire-onsite-prod-20&ascsubtag=5176895%7Cnf0e7737a413045878ab8a2384bc1f06617%7CB08LP734G3) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6442337.p) [View On Adorama.com](https://www.adorama.com/rz0903571em2.html)
 
 4.9
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Razer Book 13
 
@@ -82,6 +74,10 @@ Lifewire / Andy Zahn
 
  An[ultrabook](https://www.lifewire.com/best-laptops-to-buy-4043650) is typically a thing of compromises, and if you want a laptop that’s thin and light, power is often sacrificed. However, the Razer Book 13 challenges that stereotype and offers a sleek and attractive alternative to other high-end[ultra-portables](https://www.lifewire.com/best-lightweight-laptops-to-buy-4065134) . I tested it for 40 hours to find if it can live up both to its stunning ultrabook looks and Razer’s prowess in building high-powered gaming laptops.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Design: Beauty in minimalism
 
  Razer is known for their flashy gaming-focused laptops, mice, and keyboards that are clearly marketed towards gamers, but they have always also employed a certain degree of restraint over some more exuberant gaming products. With the Book 13, that restraint is pushed even further with only a few tasteful reminders of the laptop’s gaming heritage—the twisted snaky Razer logo on the top, and of course RGB backlighting for the keyboard.
@@ -102,17 +98,21 @@ Lifewire / Andy Zahn
 
  There’s not a lot to say about setting up the Razer Book 13\. It’s just a standard install of Windows 10 Home with no surprises along the way so you can be up and running in just a few minutes.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Display: Positively stunning
 
  The Razer Book 13 configuration we tested comes with an absolutely gorgeous 13.5-inch UHD 60Hz display that is both very color accurate and provides stunning visuals. This is great for both creative tasks that require color accuracy, and for media consumption. The 16:10 aspect ratio is definitely tailored for productivity. The bezel is attractively thin, and the screen is made of Gorilla Glass 6, making it highly scratch resistant.
 
 ![Razer Book 13](https://www.lifewire.com/thmb/C308jEtLYxnwMp68uF5Sd-2hjyA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_02-4da7b450ac1c4b879f1b0bebfa9815b5.jpg)
 
-Lifewire / Andy Zahn
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Lifewire / Andy Zahn
 
 ## Performance: Lean and mean
 
@@ -126,25 +126,25 @@ Lifewire / Andy Zahn
 
  The Book 13 is equipped with a 512GB SSD. This is good enough, but it would have been nice to have a full terabyte of storage.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Software: No bloat
 
  I’m pleased to report that the Book 13 is pretty much free of bloat. Aside from the usual bits and bobs you get with Windows 10 Home, the laptop does come with Razer Synapse installed, which is absolutely essential as it allows you to control the customizable RGB backlighting in the keyboard, among a few other useful functions.
 
 ![Razer Book 13](https://www.lifewire.com/thmb/hKfA1c1e0-bRVVhMU22PtI2GewM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_03-23b08f335541443ebe1e7d7763140eca.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Connectivity: The latest and greatest
 
  With[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , the Book 13 had no trouble taking full advantage of my home network. It provides a fast and reliable connection, and Bluetooth 5.0 is available as well.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Battery: Juice for the day
 
@@ -153,10 +153,6 @@ Lifewire / Andy Zahn
 ![Razer Book 13](https://www.lifewire.com/thmb/6yYQ1e8vR0Ldvs2GP61CrvFy3zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_05-1c8a8e1bdd78413fb72cc6307a07ea40.jpg)
 
 Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Audio: Big sound for a small laptop
 
@@ -167,6 +163,10 @@ Lifewire / Andy Zahn
 Lifewire / Andy Zahn
 
  It’s particularly good in the mids and highs, but as you’d expect, loses something in the bass range. However, it’s more than adequate for listening to music, gaming, or watching movies.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Camera: Competent webcam
 
@@ -181,7 +181,7 @@ Lifewire / Andy Zahn
  This is a premium, ultra-portable device designed more for professional work, and its ability to game is basically a nice bonus. Considering the competition from Dell and Apple, it’s not unreasonably priced.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Razer Book 13 vs. Dell XPS 13 7390 2-in-1
@@ -234,24 +234,24 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-understanding-film-a-beginners-guide-to-essential-shots/"><u>[New] Understanding Film A Beginner's Guide to Essential Shots</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-depth-shots-the-art-of-closing-in-on-movies/"><u>[Updated] In-Depth Shots The Art of Closing in on Movies</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unlocking-the-power-of-android-time-lapses/"><u>[Updated] Unlocking the Power of Android Time-Lapses</u></a></li>
-<li><a href="https://fox-tls.techidaily.com/effizientes-datei-management-auf-dem-mac-simplifiziere-das-kopieren-und-einfugen-von-dokumenten/"><u>Effizientes Datei-Management Auf Dem Mac: Simplifiziere Das Kopieren Und Einfügen Von Dokumenten</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ensure-that-the-tone-remains-supportive-and-encouraging-without-diminishing-any-treatment-options-value/"><u>Ensure that the Tone Remains Supportive and Encouraging without Diminishing Any Treatment Options' Value.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ergohead-anti-fatigue-mat-test-results-top-rated-for-lasting-comfort-during-prolonged-use/"><u>Ergohead Anti-Fatigue Mat Test Results: Top Rated for Lasting Comfort During Prolonged Use</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-next-gen-visuals-with-our-in-depth-analysis-of-the-ps4-pros-4k-capabilities/"><u>Experience Next-Gen Visuals with Our In-Depth Analysis of the PS4 Pro's 4K Capabilities</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-unmatched-performance-the-2021-review-of-apples-macbook-pro-16-inch-model/"><u>Experience Unmatched Performance: The 2021 Review of Apple's MacBook Pro 16-Inch Model</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-breakdown-and-critique-of-the-lenovo-yoga-a940-ultrabook-experience/"><u>Expert Breakdown and Critique of the Lenovo Yoga A940 Ultrabook Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-depths-of-narrative-and-setting-torment-tides-of-numenera-sci-fi-rpg-insights/"><u>Exploring the Depths of Narrative and Setting - 'Torment: Tides of Numenera' Sci-Fi RPG Insights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-ultimate-htpcs-of-2024-for-unmatched-cinema-experience-at-home/"><u>Exploring the Ultimate HTPCs of 2024 for Unmatched Cinema Experience at Home</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/get-acquainted-with-mods-cutting-edge-hassle-free-sidecar-electric-bicycle/"><u>Get Acquainted with Mod's Cutting-Edge, Hassle-Free Sidecar Electric Bicycle</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-15-pro-to-other-iphone-13-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 15 Pro To Other iPhone 13 devices? | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-lava-blaze-curve-5g-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Lava Blaze Curve 5G FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-mobvoi-ticwatch-pro-3s-long-lasting-battery-and-advanced-gps-features/"><u>In-Depth Analysis of Mobvoi TicWatch Pro 3'S Long-Lasting Battery and Advanced GPS Features</u></a></li>
-<li><a href="https://review-topics.techidaily.com/mkv-playback-issues-on-xiaomi-redmi-note-12-pro-4g-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV playback issues on Xiaomi Redmi Note 12 Pro 4G</u></a></li>
-<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Infinix Smart 8 HD | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-economics-of-successful-podcasting-for-2024/"><u>The Economics of Successful Podcasting for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/unlock-new-possibilities-the-importance-of-installing-ios-153-on-your-smartphone-today/"><u>Unlock New Possibilities - The Importance of Installing iOS 15.3 on Your Smartphone Today</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-recording-winning-calls-a-complete-guide-free-vs-paid-for-windows-and-mac-users/"><u>[New] In 2024, Recording Winning Calls A Complete Guide (Free vs Paid) for Windows & Mac Users</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-properly-merging-webcam-feed-with-desktop-screen/"><u>[Updated] 2024 Approved Properly Merging Webcam Feed with Desktop Screen</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-timeless-thread-triumphs-reddits-all-time-fave-list-top-10/"><u>[Updated] 2024 Approved Timeless Thread Triumphs Reddit’s All-Time Fave List (Top 10)</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-top-10-ps5-external-hard-drives/"><u>[Updated] Top 10 PS5 External Hard Drives</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-best-free-cloud-options-get-unlimited-storage-1tbplus/"><u>2024 Approved Best Free Cloud Options Get Unlimited Storage (1TB+)</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/correct-driver-stop-minecraft-crashes/"><u>Correct Driver, Stop Minecraft Crashes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhancing-streaming-platforms-the-urgent-call-for-improved-cropping-features/"><u>Enhancing Streaming Platforms: The Urgent Call for Improved Cropping Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-a-new-era-in-digital-assistance-as-an-ai-powered-bot-enhances-your-google-photos-browsing-experience/"><u>Experience a New Era in Digital Assistance as an AI-Powered Bot Enhances Your Google Photos Browsing Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-video-games-understanding-the-differences-between-metroidvania-and-search-action-blends/"><u>Exploring Video Games: Understanding the Differences Between Metroidvania and Search-Action Blends</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/failed-to-play-mkv-movies-on-redmi-note-12-pro-4g-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Failed to play MKV movies on Redmi Note 12 Pro 4G</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gaming-savvy-strategies-for-snagging-consoles-at-optimal-prices-and-times/"><u>Gaming Savvy: Strategies for Snagging Consoles at Optimal Prices & Times</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/guide-to-installing-non-google-store-applications-on-your-android-tv/"><u>Guide to Installing Non-Google Store Applications on Your Android TV</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-whatsapp-chat-history-from-iphone-11-pro-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How To Recover Whatsapp Chat History From iPhone 11 Pro | Stellar</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-remove-outdated-demo-games-from-steam-a-step-by-step-guide/"><u>How to Remove Outdated Demo Games From Steam: A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-this-weeks-tech-news-the-evolution-of-new-windows-laptops-and-behind-the-scenes-look-at-spotifys-future-plans/"><u>Inside This Week’s Tech News: The Evolution of New Windows Laptops and Behind-the-Scenes Look at Spotify's Future Plans</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-xbox-series-xs-performance-a-guide-to-clearing-extra-space/"><u>Maximizing Xbox Series X|S Performance: A Guide to Clearing Extra Space</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/meet-the-rivian-r3-your-new-favorite-electric-crossover-with-a-captivating-design/"><u>Meet the Rivian R3: Your New Favorite Electric Crossover with a Captivating Design</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/save-on-entertainment-verizons-myhome-internet-now-offers-a-special-streaming-package/"><u>Save on Entertainment: Verizon's MyHome Internet Now Offers a Special Streaming Package</u></a></li>
+<li><a href="https://some-tips.techidaily.com/unveiling-the-upgrades-expert-review-of-the-new-generation-3-apple-airpods-with-comprehensive-comparisons-insights-from-zdnet/"><u>Unveiling the Upgrades: Expert Review of the New Generation 3 Apple AirPods with Comprehensive Comparisons | Insights From ZDNET</u></a></li>
 </ul></div>
 

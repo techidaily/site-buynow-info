@@ -1,7 +1,7 @@
 ---
 title: "Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
-date: 2025-01-02T10:59:13.280Z
-updated: 2025-01-04T10:42:26.784Z
+date: 2025-01-08T05:28:35.405Z
+updated: 2025-01-11T03:24:20.792Z
 categories:
   - BestProducts
 description: "This Article Describes Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 ![Surviving Mars](https://www.lifewire.com/thmb/AjVVBONBD_MfQeA3voTlfDA2Jrc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -79,14 +79,10 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Humans have never been so annoying**
 
@@ -121,7 +117,7 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Decent for what you get**
@@ -133,7 +129,7 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: Other city-building games**
@@ -147,6 +143,10 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  **A interesting new take on city-builders, if you can stomach the micromanagement.**
 
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -175,24 +175,17 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-critical-review-of-vlcs-capture-tools/"><u>[New] Critical Review of VLC's Capture Tools</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-open-library-legal-gaming-tracks-downloadable-for-2024/"><u>[New] Open Library Legal Gaming Tracks Downloadable for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-deconstructing-the-revenue-stream-of-tseries-in-youtube-economy/"><u>[Updated] 2024 Approved Deconstructing the Revenue Stream of TSeries in YouTube Economy</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/2024s-highly-recommended-extended-mouse-pads-list-find-the-best-fit/"><u>2024'S Highly Recommended Extended Mouse Pads List – Find the Best Fit</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/7-ways-to-lock-apps-on-iphone-xs-and-ipad-securely-by-drfone-ios/"><u>7 Ways to Lock Apps on iPhone XS and iPad Securely</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/acer-aspire-c27-sleek-design-meets-robust-performance-in-an-all-inclusive-desktop/"><u>Acer Aspire C27: Sleek Design Meets Robust Performance in an All-Inclusive Desktop</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ankers-ultimate-usb-30-powerhouse-a-comprehensive-superspeed-hub-review/"><u>Anker's Ultimate USB 3.0 Powerhouse: A Comprehensive SuperSpeed Hub Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/assessing-the-bravery-of-jabra-bluetooth-earphones/"><u>Assessing the Bravery of Jabra Bluetooth Earphones</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/choosing-your-console-in-depth-review-of-the-nintendo-switch-lite-versus-switch-oled/"><u>Choosing Your Console: In-Depth Review of the Nintendo Switch Lite Versus Switch OLED</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/compact-power-at-your-fingertips-the-ultimate-guide-to-the-audee-portable-compressor/"><u>Compact Power at Your Fingertips: The Ultimate Guide to the Audee Portable Compressor</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-the-mobvoi-ticwatch-pro-3-dual-screens-and-extended-endurance-reviewed/"><u>Comprehensive Guide to the Mobvoi TicWatch Pro 3: Dual Screens & Extended Endurance Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-compact-and-reliable-audew-portable-air-pump-functionality-unmatched/"><u>Comprehensive Review of the Compact and Reliable AUDEW Portable Air Pump - Functionality Unmatched</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722774985806-exploring-the-capabilities-a-thorough-analysis-of-the-docooler-usb-20-with-12-megapixels/"><u>Exploring the Capabilities: A Thorough Analysis of the Docooler USB 2.0 with 12 Megapixels!</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/from-compression-to-clarity-the-zip-srt-conversion/"><u>From Compression to Clarity The ZIP-SRT Conversion</u></a></li>
-<li><a href="https://change-location.techidaily.com/home-button-not-working-on-samsung-galaxy-a34-5g-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Samsung Galaxy A34 5G? Here Are Real Fixes | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-samsung-galaxy-s24-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Samsung Galaxy S24 Devices</u></a></li>
-<li><a href="https://win-blog.techidaily.com/overcome-cyberpunk-2077-lag-troubles-with-these-essential-optimization-steps/"><u>Overcome Cyberpunk 2077 Lag Troubles with These Essential Optimization Steps</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/revive-your-dark-aesthetic-solutions-for-restoring-facebooks-night-theme/"><u>Revive Your Dark Aesthetic: Solutions for Restoring Facebook's Night Theme</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-warframe-stalling-issues-a-comprehensive-guide/"><u>Troubleshooting Warframe Stalling Issues - A Comprehensive Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-navigating-the-insider-features-of-zoom-software-for-windows-11/"><u>[New] Navigating the Insider Features of Zoom Software for Windows 11</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-best-chosen-templates-for-viral-ae-content/"><u>[Updated] Best Chosen Templates for Viral AE Content</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-decoding-the-meaning-behind-fbs-blue-status-indicator/"><u>2024 Approved Decoding the Meaning Behind FB's Blue Status Indicator</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-woven-wisdom-expertise-in-loom-recordings/"><u>2024 Approved Woven Wisdom Expertise in Loom Recordings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boosting-your-blog-traffic-with-buyselladscom-a-comprehensive-guide/"><u>Boosting Your Blog Traffic with BuySellAds.com: A Comprehensive Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/dells-best-kept-academic-secret-how-students-can-save-big-with-exclusive-offers/"><u>Dell's Best-Kept Academic Secret: How Students Can Save Big with Exclusive Offers!</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-professional-guide-to-moving-videos-from-youtube-to-dailymotion/"><u>In 2024, Professional Guide to Moving Videos From YouTube to Dailymotion</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/mac-dvd-rip-20-windowsdvd/"><u>Mac DVD-Rip ベストフリーソフト 20件のランキング - Windows以外でも問題なくDVDをバックアップする方法</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/oneplus-8t-analysis-fast-performance-dimmed-by-inconsistent-camera-quality/"><u>OnePlus 8T Analysis: Fast Performance Dimmed by Inconsistent Camera Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-fitbit-charge-6-real-world-use-performance-and-comparisons-with-previous-models/"><u>The Ultimate Guide to Fitbit Charge 6: Real-World Use, Performance & Comparisons with Previous Models</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-kindle-oasis-2019-enjoying-books-just-like-on-paper/"><u>The Ultimate Guide to the Kindle Oasis 2019: Enjoying Books Just Like On Paper!</u></a></li>
+<li><a href="https://network-issues.techidaily.com/upgrade-intel-graphics-3000-driver-seamless-integration-into-windows-10/"><u>Upgrade Intel Graphics 3000 Driver: Seamless Integration Into Windows 10.</u></a></li>
 </ul></div>
 

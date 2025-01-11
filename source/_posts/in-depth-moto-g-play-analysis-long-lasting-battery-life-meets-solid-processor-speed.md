@@ -1,7 +1,7 @@
 ---
 title: In-Depth Moto G Play Analysis - Long-Lasting Battery Life Meets Solid Processor Speed
-date: 2024-12-30T08:58:31.183Z
-updated: 2025-01-04T05:42:15.828Z
+date: 2025-01-09T21:06:03.982Z
+updated: 2025-01-11T03:45:40.438Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Moto G Play Analysis - Long-Lasting Battery Life Meets Solid Processor Speed
@@ -19,7 +19,7 @@ thumbnail: https://www.lifewire.com/thmb/HEdY5z0upwUmisddzAWTi0WyYpQ=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
@@ -51,10 +51,6 @@ thumbnail: https://www.lifewire.com/thmb/HEdY5z0upwUmisddzAWTi0WyYpQ=/400x300/fi
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/AfRhNgqeOD7JfcVqpjzm5LwPSB4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
 [View On Amazon $185](https://www.amazon.com/dp/B07T89YZWD?tag=lifewire-onsite-prod-20&ascsubtag=4846125%7Cn35b11b2c61b54fa1a2d951691d1a61ed04%7CB07T89YZWD) [View On Walmart $379](https://www.walmart.com/ip/NETGEAR-Nighthawk-AX6000-Dual-Band-WiFi-Wireless-6-Mesh-Range-Extender-EAX80-100NAS/122370265) [View On Best Buy $197](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-nighthawk-ax6000-ax8-dual-band-wi-fi-6-range-extender-black%2F6359409.p%3FskuId%3D6359409)
@@ -79,10 +75,6 @@ thumbnail: https://www.lifewire.com/thmb/HEdY5z0upwUmisddzAWTi0WyYpQ=/400x300/fi
 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -90,6 +82,10 @@ thumbnail: https://www.lifewire.com/thmb/HEdY5z0upwUmisddzAWTi0WyYpQ=/400x300/fi
  With very large sides, the front is really just a small panel with light-up LED indicators showing connectivity details and which Ethernet ports are in use. There’s also a small WPS button beneath the LED panel for easy connectivity with a router. On the wider back panel are the four wired[Ethernet ports](https://www.lifewire.com/what-is-an-ethernet-port-817546) for plugging in devices such as game consoles and computers, as well as a USB 3.0 port, DC power port, and the power button itself.
 
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Avoid the app**
 
@@ -102,10 +98,6 @@ thumbnail: https://www.lifewire.com/thmb/HEdY5z0upwUmisddzAWTi0WyYpQ=/400x300/fi
  Over and over, the setup process wouldn’t complete… and then it finally did. I ran into similar issues with the other Netgear extenders, in which setup processes didn’t work as expected on the first or second time, but this was a much longer and more arduous ordeal. Finally, however, I got the Nighthawk AX8 up and running. From there, you’ll need to find a new location for the extender—roughly halfway between the router and your Wi-Fi dead zone is ideal, but play around with positioning if you’re not getting the results you seek.
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -125,6 +117,10 @@ thumbnail: https://www.lifewire.com/thmb/HEdY5z0upwUmisddzAWTi0WyYpQ=/400x300/fi
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -132,6 +128,10 @@ thumbnail: https://www.lifewire.com/thmb/HEdY5z0upwUmisddzAWTi0WyYpQ=/400x300/fi
  It’s billed as an “8-stream” device, so it should be able to handle several simultaneous media streams at once, with a billed max speed of 4.8Gbps on the 5GHz band and 1.2Gbps on the 2.4GHz band. It has[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) (multiple users, multi-in multi-out) and beamforming capabilities, promising expanded range of up to 2,500 square feet and support for 30+ simultaneous devices.
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: More than most**
 
@@ -150,7 +150,7 @@ thumbnail: https://www.lifewire.com/thmb/HEdY5z0upwUmisddzAWTi0WyYpQ=/400x300/fi
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -179,19 +179,24 @@ thumbnail: https://www.lifewire.com/thmb/HEdY5z0upwUmisddzAWTi0WyYpQ=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-ignite-your-imagination-a-look-at-the-leading-6-nft-makers/"><u>[New] Ignite Your Imagination - A Look at the Leading 6 NFT Makers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-ultimate-guide-to-making-money-on-youtube-average-required-views/"><u>[Updated] In 2024, The Ultimate Guide to Making Money on YouTube Average Required Views</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-craft-professional-tiktoks-mastery-of-numerical-changes/"><u>2024 Approved Craft Professional TikToks Mastery of Numerical Changes</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-smart-investment-an-insightful-review-of-the-highly-capable-tp-link-archer-a9-router-for-less-than-100/"><u>A Smart Investment: An Insightful Review of the Highly Capable TP-Link Archer A9 Router for Less than $100</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/assessing-acid-pro-top-alternative-software/"><u>Assessing ACID Pro Top Alternative Software</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/city-building-crash-lands-onto-mars-to-create-whirlwinds-of-good-fun/"><u>City-Building Crash Lands Onto Mars to Create Whirlwinds of Good Fun</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elite-picks-a-guide-to-the-worlds-best-8-mobile-games/"><u>Elite Picks: A Guide to the World’s Best 8 Mobile Games</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-tutorial-on-projecting-your-laptop-screen-onto-a-tv-through-hdmi/"><u>Step-by-Step Tutorial on Projecting Your Laptop Screen Onto a TV Through HDMI</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/steps-for-identifying-fake-chatgpt-websites-and-action-plan-when-found/"><u>Steps for Identifying Fake ChatGPT Websites & Action Plan When Found</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722712558809-the-definitive-guide-to-the-tcl-50s425-a-stellar-mix-of-quality-affordability-and-advanced-features-in-a-50-inch-4k-roku-tv-for-2019/"><u>The Definitive Guide to the TCL 50S425: A Stellar Mix of Quality, Affordability & Advanced Features in a 50-Inch 4K Roku TV for 2019</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-port-reset-failures-with-usb-devices-on-windows-10-systems/"><u>Troubleshooting Port Reset Failures with USB Devices on Windows 10 Systems</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/k-the-secrets-capturing-apple-devices-for-engaging-videos/"><u>Unlock the Secrets Capturing Apple Devices for Engaging Videos</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/vive-cosmos-reviewed-top-tier-vr-headset-facing-intense-competition/"><u>Vive Cosmos Reviewed: Top-Tier VR Headset Facing Intense Competition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722709000262-why-the-alienware-aurora-r11-reigns-supreme-in-2nnd-anniversary-pc-review/"><u>Why the Alienware Aurora R11 Reigns Supreme in 2Nnd-Anniversary PC Review</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-mastering-graphics-a-guide-to-a-flourishing-career/"><u>[New] In 2024, Mastering Graphics A Guide to a Flourishing Career</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unlocking-the-power-of-partnerships-a-guide-to-monetizing-instagram-posts-for-2024/"><u>[New] Unlocking the Power of Partnerships A Guide to Monetizing Instagram Posts for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-groundbreaking-films-in-the-vr-world/"><u>[Updated] Groundbreaking Films in the VR World</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-essential-selection-11-child-friendly-beginner-level-waterproof-cams/"><u>[Updated] In 2024, Essential Selection 11 Child-Friendly, Beginner-Level Waterproof Cams</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-manycam-recorder-review/"><u>[Updated] In 2024, ManyCam Recorder Review</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/7-best-apps-to-go-live-on-youtube-from-iphone-or-android/"><u>7 Best Apps to Go Live on YouTube From iPhone or Android</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-roku-streaming-stick-with-massive-media-catalog-expert-review/"><u>Affordable Roku Streaming Stick with Massive Media Catalog – Expert Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-how-garmin-vivosmart/"><u>Discover How Garmin Vivosmart</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/dissecting-disadvantages-a-vr-analysis/"><u>Dissecting Disadvantages A VR Analysis</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/how-will-instagrams-algorithm-update-transform-feeds/"><u>How Will Instagram’s Algorithm Update Transform Feeds?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/identifying-top-economical-iosandroid-live-streaming-tools/"><u>Identifying Top Economical iOS/Android Live Streaming Tools</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-total-insight-into-vscos-photography-ecosystem/"><u>In 2024, Total Insight Into VSCO's Photography Ecosystem</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-swapping-out-phone-power-worthwhile/"><u>Is Swapping Out Phone Power Worthwhile?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/macbook-pro-13-fintie-case-tested-unveiling-strengths-in-durability-and-cost-efficiency/"><u>MacBook Pro 13 Fintie Case Tested: Unveiling Strengths in Durability & Cost-Efficiency</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-keeping-your-pc-chill-on-a-budget-topmate-c302-laptop-cooler-analyzed/"><u>The Ultimate Guide to Keeping Your PC Chill on a Budget: TopMate C302 Laptop Cooler Analyzed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-your-workstation-with-ergotopics-superior-anti-fatigue-mat-the-essential-addition-to-any-standing-desk-setup/"><u>Transform Your Workstation With Ergotopic's Superior Anti-Fatigue Mat, The Essential Addition to Any Standing Desk Setup</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/user-experience-review-navigating-through-apples-ebook-platform/"><u>User Experience Review: Navigating Through Apple's eBook Platform</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/vive-cosmos-assessment-exceptional-vr-gear-amidst-intense-market-rivalry/"><u>Vive Cosmos Assessment: Exceptional VR Gear Amidst Intense Market Rivalry</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-the-upgraded-google-nest-hub-gen-2-deserves-consideration-and-why-a-camera-would-enhance-it/"><u>Why the Upgraded Google Nest Hub (Gen 2) Deserves Consideration, and Why a Camera Would Enhance It</u></a></li>
 </ul></div>
 

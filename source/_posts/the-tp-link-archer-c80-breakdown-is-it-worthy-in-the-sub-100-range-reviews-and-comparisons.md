@@ -1,7 +1,7 @@
 ---
 title: "The TP-Link Archer C80 Breakdown: Is It Worthy in the Sub-$100 Range? - Reviews & Comparisons"
-date: 2025-01-03T10:38:38.352Z
-updated: 2025-01-03T20:14:43.998Z
+date: 2025-01-07T18:47:53.869Z
+updated: 2025-01-10T18:13:26.481Z
 categories:
   - BestProducts
 description: "This Article Describes The TP-Link Archer C80 Breakdown: Is It Worthy in the Sub-$100 Range? - Reviews & Comparisons"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/ba04435a9c29d64e6b54466059bc1d63c6b55c0d2
 ## Microsoft Xbox Series S
 
 ![Xbox Series S](https://www.lifewire.com/thmb/AIM68phvq5X0vRf1yv3G8I9S2ic=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -55,7 +51,7 @@ Lifewire / Jeremy Laukkonen
 ![Xbox Series S](https://www.lifewire.com/thmb/wlG_GrSmQPVex-VRt3ap4hsTP-s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -89,6 +85,10 @@ Lifewire / Jeremy Laukkonen
 
 ![Xbox Series S](https://www.lifewire.com/thmb/3-mUIkkRYilM5F2tvCYMPXtW1Ew=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1-04d996bcdfbb489d84e8945e4c475713.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
  The overall form factor of the Series S is similar to the Xbox One S, but the Series S lacks an optical drive and includes a massive circular vent on one side. This striking design choice has drawn comparisons to a speaker and a washing machine. It also bears a passing resemblance to Microsoft’s[adaptive controller](https://www.lifewire.com/what-is-the-xbox-adaptive-controller-4707753) , which is boxy, white, and features two large black circular pads. This aesthetic might not be for everyone, but I like how it stands next to my television.
@@ -96,7 +96,7 @@ Lifewire / Jeremy Laukkonen
  Aside from the bold vent grill, the Series S doesn’t break any new ground regarding design choices. It has sturdy rubber feet on two sides, so you can lay it flat or stand it up on end, as has become more or less standard with home consoles. It feels pretty sturdy in both positions.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easier than ever before**
@@ -108,6 +108,10 @@ Lifewire / Jeremy Laukkonen
  I highly recommend setting up the Xbox Series S with the help of the Xbox app. It massively streamlines the process, makes it easier to connect to Wi-Fi since you don’t need to type out your password with the Xbox’s on-screen keyboard, and even pre-loads the Series S with settings from your old Xbox One if you had one.
 
  I ended up wiping the console back to factory settings a few times while I put it through its paces, so I also tried the traditional setup method after circling back. It’s similar to setting up an Xbox One; not that difficult or time-consuming, but the app option is better.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Rock solid 1440p gaming**
 
@@ -132,7 +136,7 @@ Lifewire / Jeremy Laukkonen
  Load times were negligible in each game I played, which I expected from a super-fast NVME SSD storage system. Some games had more noticeable load times than others, but not enough to disrupt gameplay.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Games: Microsoft still has an exclusivity problem**
@@ -171,10 +175,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Xbox Series S](https://www.lifewire.com/thmb/_GSxQvNgtJMhoyNl62qlg671Qvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2-25991056c5c2486695923f7c1b61c7b5.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
  When downloading over Wi-Fi, I rarely saw over 150Mbps (compared to the 350Mbps I measured on my HP Spectre x360 laptop in the same room and at the same time). Curiously, the Series S download speed tanked, down to the lower double digits, while I was running speed tests on my laptop. Similarly, download speeds dive into the low teens whenever a game runs, even in the background.
@@ -182,10 +182,6 @@ Lifewire / Jeremy Laukkonen
  When connected via Ethernet, the Series S reported 880Mbps down and 65Mbps up on the network status screen. That’s right on the money in terms of what I see directly at my Eero router. Actual download speeds topped out at 500Mbps and typically hung out between 270 and 320Mbps.
 
  The bottom line is that the Series S provided fairly unimpressive download speeds over Wi-Fi but tore it up when connected via Ethernet. You’ll want to connect this all-digital console via Ethernet to a fast internet connection.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Software and User Interface: Familiar and cozy**
 
@@ -209,11 +205,11 @@ Lifewire / Jeremy Laukkonen
 
 ![Xbox Series S](https://www.lifewire.com/thmb/MZdEnnFWPzhGzv_P5GO8byAY5qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3-dd9458b294e74205acad2ff6fee33913.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Jaw-droppingly low**
 
@@ -238,6 +234,10 @@ Lifewire / Jeremy Laukkonen
  **An affordable alternative for those without a 4K television.**
 
  The Xbox Series S might be a bit of a step back from the Xbox One X in performance, but the fact is that it’s a next-gen console that plays next-gen games with some impressive hardware and an unreal price tag. Gamers in search of the best graphics possible will want to look at the Xbox Series X instead, but gamers who haven’t yet made the 4K plunge, parents in need of an affordable console for their kids, or anyone looking to save money will all find something to like here.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -281,22 +281,24 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-crafting-a-unique-online-presence-youtube-edition/"><u>[New] 2024 Approved Crafting a Unique Online Presence YouTube Edition</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-youtube-mastery-perfecting-edits-on-published-videos/"><u>[New] YouTube Mastery Perfecting Edits on Published Videos</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-how-to-record-and-save-your-workscreen-on-windows-8/"><u>[Updated] How to Record and Save Your Workscreen on Windows 8</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/british-english-vs-american-english-differences-spelling-pronunciation-and-more/"><u>British English vs American English Differences: Spelling, Pronunciation and More</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-affordable-hisense-40h5590f-with-smart-features/"><u>Comprehensive Analysis of the Affordable Hisense 40H5590F with Smart Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-why-tech-enthusiasts-are-raving-about-lgs-stunning-65-inch-oled-c9-smart-television/"><u>Discover Why Tech Enthusiasts Are Raving About LG's Stunning 65-Inch OLED C9 Smart Television!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discovering-excellence-with-linksys-wrt3200acm-an-acclaimed-contender-among-top-of-the-line-open-source-routers/"><u>Discovering Excellence with Linksys WRT3200ACM - An Acclaimed Contender Among Top-of-the-Line Open Source Routers</u></a></li>
-<li><a href="https://win-able.techidaily.com/effortless-solutions-to-stop-chrome-from-crashing-on-windows-10/"><u>Effortless Solutions to Stop Chrome From Crashing on Windows 10</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elevate-your-internet-experience-with-asus-zenwifi-xt8-ax6-6600-expert-review-and-insights/"><u>Elevate Your Internet Experience with ASUS ZenWiFi XT8 (AX6 6600): Expert Review & Insights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-a-budget-friendly-nokia-n71-exceptional-screen-quality-and-photo-capabilities-revealed/"><u>Experience a Budget-Friendly Nokia N7.1 – Exceptional Screen Quality and Photo Capabilities Revealed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-is-the-docooler-usb-20-with-12mp-a-photography-game-changer/"><u>Expert Review: Is the Docooler USB 2.0 with 12MP a Photography Game Changer?</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/experts-take-on-vivacut-full-video-editing-review-24/"><u>Expert's Take on VivaCut Full Video Editing Review '24</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/fashion-memes-for-social-sharing-via-adobe/"><u>Fashion Memes for Social Sharing via Adobe</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/fifa-19-review/"><u>FIFA 19 Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/imac-with-m1-chip-redefined-power-meets-style-an-in-depth-analysis-and-visual-guide/"><u>IMac with M1 Chip Redefined: Power Meets Style – An In-Depth Analysis and Visual Guide</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/top-rated-laptops-for-seamless-video-editing-in-depth-tests-and-reviews-by-tech-experts/"><u>Top-Rated Laptops for Seamless Video Editing: In-Depth Tests & Reviews by Tech Experts</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-dissecting-disney-disguises-the-goofy-trek/"><u>[New] In 2024, Dissecting Disney Disguises 'The Goofy Trek'</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-photo-edits-skewed-caption-creation/"><u>[New] Photo Edits Skewed Caption Creation</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-how-to-optimize-your-channels-with-youtubes-featured-spotlight-for-2024/"><u>[Updated] How to Optimize Your Channels with YouTube’s Featured Spotlight for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-iconic-open-world-games-to-commit-to/"><u>[Updated] Iconic Open World Games to Commit To</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-unleash-the-power-of-your-lost-iphone-x/"><u>[Updated] In 2024, Unleash the Power of Your Lost iPhone X</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-ultimate-action-cam-editing-solutions-for-2024/"><u>[Updated] Ultimate Action Cam Editing Solutions for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/city-construction-fun-with-cities-skylines-the-ultimate-addictive-urban-builder-simulator/"><u>City Construction Fun with Cities: Skylines - The Ultimate Addictive Urban Builder Simulator</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dissecting-the-features-and-flaws-of-google-stadia-for-better-gaming-experience/"><u>Dissecting the Features and Flaws of Google Stadia for Better Gaming Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-of-the-lg-stylo-6-a-perfect-blend-of-style-and-functionality-with-stylus/"><u>Expert Review of the LG Stylo 6: A Perfect Blend of Style & Functionality with Stylus</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/find-your-match-choosing-an-ideal-apc-ups-for-enhanced-gaming-performance/"><u>Find Your Match: Choosing an Ideal APC UPS for Enhanced Gaming Performance</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-10-preferred-online-photo-background-swappers/"><u>In 2024, 10 Preferred Online Photo Background Swappers</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-initiate-internet-income-low-cost-youtube-channel-buys/"><u>In 2024, Initiate Internet Income Low-Cost YouTube Channel Buys</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-unlock-device-agnostic-techniques-for-professional-filming/"><u>In 2024, Unlock Device-Agnostic Techniques for Professional Filming</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-assassins-creed-valhalla-a-deep-dive-into-its-spectacular-viking-chronicles-and-historical-quests/"><u>Inside Assassin's Creed: Valhalla - A Deep Dive Into Its Spectacular Viking Chronicles and Historical Quests</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/inside-gpt-4all-working-mechanism-explained-in-simple-terms/"><u>Inside GPT-4All: Working Mechanism Explained in Simple Terms</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/softbox-innovation-showcase-2024s-best/"><u>Softbox Innovation Showcase - 2024'S Best</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-latest-apple-ipad-enhanced-productivity-through-innovative-ipados-integration/"><u>The Ultimate Guide to the Latest Apple iPad: Enhanced Productivity Through Innovative IPadOS Integration</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-review-why-the-new-apple-watch-series-4-sets-a-higher-standard/"><u>Top Review: Why the New Apple Watch Series 4 Sets a Higher Standard</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-apple-iphone-12-mini-showcasing-power-and-potential-in-compact-design/"><u>Unpacking the Apple iPhone 12 Mini: Showcasing Power and Potential in Compact Design</u></a></li>
 </ul></div>
 

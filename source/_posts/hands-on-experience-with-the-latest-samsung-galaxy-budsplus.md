@@ -1,7 +1,7 @@
 ---
 title: Hands-On Experience with the Latest Samsung Galaxy Buds+
-date: 2025-01-02T20:50:01.483Z
-updated: 2025-01-03T19:06:50.386Z
+date: 2025-01-06T04:00:17.555Z
+updated: 2025-01-11T00:44:24.929Z
 categories:
   - BestProducts
 description: This Article Describes Hands-On Experience with the Latest Samsung Galaxy Buds+
@@ -42,12 +42,16 @@ Lifewire / Erika Rawes
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Amazon Echo Dot (4th Gen)
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/wkHXB7KTws9HfL-i1yYYsWIMm5w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Amazon-Echo-Dot-4th-Generation-1-fc73a047312d4d588ffcbeae7bdd3368.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
@@ -86,15 +90,15 @@ Lifewire / Erika Rawes
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/HELf_jWdoxnVe1w7XOL9sC7GoO8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-4-f100069b4b7d40dc8661b1614e150934.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
  The 4th Gen Dot still has a 3.5 mm output jack, which I was really pleased to see. Google’s Nest Mini (2nd Gen) lacks a 3.5 mm jack. However, unlike Google’s newest mini smart speaker, the Echo Dot does not have a keyhole mount for mounting on a wall. The speaker is meant for placement on a flat surface, as evidenced by the rubberized bottom that prevents slipping and helps the Echo Dot stay in place.
 
  Overall, I really appreciate the design of the new Dot. Modern and elegant, it fits into my living room, kitchen, or bedroom, as it doesn’t have a cold feel that takes away from the space. The 4th-Gen Dot is made from environmentally conscious materials like post-consumer recycled plastics and fabrics, thus securing it a “Climate Pledge Friendly” tag on Amazon.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Easy as ever**
 
@@ -102,11 +106,11 @@ Lifewire / Erika Rawes
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/dVUkRuy5SxFHmCHXxSseZY5tjhw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-3-320d298cdb18405d9d326c272464ef0d.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Sound Quality: A front-firing speaker**
 
@@ -120,11 +124,11 @@ Lifewire / Erika Rawes
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/UFZM9HpoakK6sRg-7Vm2W8uLIQ8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-6-with-Clock-86c91da96d4043369f0a4e97b22c4209.jpg)
 
- Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Erika Rawes
 
 ## **Features: The same Alexa**
 
@@ -139,7 +143,7 @@ Lifewire / Erika Rawes
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/bnVMEDjyf8t4zDkpRwr4-5msD2s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-7-with-Clock-9b93a56f3d0049c5a2064cd4b21c7cb5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -167,10 +171,6 @@ Lifewire / Erika Rawes
 **Primarily a design upgrade.**
 
  The new Echo Dot is a great speaker at a great price, but it’s not worth an upgrade if you already have the 3rd-gen Dot unless you’re going with the clock version. For first time buyers, it's a no-brainer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -204,19 +204,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-navigating-the-challenges-of-remote-podcasting/"><u>[New] In 2024, Navigating the Challenges of Remote Podcasting</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-optimal-low-price-nintendo-simulations/"><u>[New] Optimal Low-Price Nintendo Simulations</u></a></li>
-<li><a href="https://change-location.techidaily.com/additional-tips-about-sinnoh-stone-for-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Vivo S17 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-the-lenovo-ideapad-excellence-in-design-and-functionality/"><u>Comprehensive Guide to the Lenovo Ideapad: Excellence in Design and Functionality</u></a></li>
-<li><a href="https://games-able.techidaily.com/cutting-excess-from-your-ps5-club-selections/"><u>Cutting Excess From Your PS5 Club Selections</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-why-acer-aspire-e-15-is-crowned-as-the-finest-choice-for-thrifty-tech-enthusiasts-seeking-premium-performance/"><u>Discover Why Acer Aspire E 15 Is Crowned as the Finest Choice for Thrifty Tech Enthusiasts Seeking Premium Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/fujitsu-scansnap-ix1600-review-a-robust-desktop-scanner-for-documents/"><u>Fujitsu ScanSnap iX1600 Review: A Robust Desktop Scanner for Documents</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-pro-level-motion-capture-cameras-with-satellite-position-tracking/"><u>In 2024, Pro-Level Motion Capture Cameras with Satellite Position Tracking</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/reactivating-facebooks-dark-theme-a-simple-guide/"><u>Reactivating Facebook's Dark Theme: A Simple Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-the-remastered-demons-souls-elevated-aesthetics-with-intact-original-brilliance/"><u>Review of the Remastered Demon's Souls: Elevated Aesthetics with Intact Original Brilliance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-trustworthy-basics-of-ups-in-depth-review-of-the-cyberpower-cp685avrg/"><u>The Trustworthy Basics of UPS: In-Depth Review of the Cyberpower CP685AVRG</u></a></li>
-<li><a href="https://fox-http.techidaily.com/trim-the-excess-a-beginners-guide-to-simple-video-cuts-in-windows-for-2024/"><u>Trim the Excess A Beginner's Guide to Simple Video Cuts in Windows for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/ultimate-audio-capture-guide-best-ten-for-spotify-enthusiasts-for-2024/"><u>Ultimate Audio Capture Guide Best Ten for Spotify Enthusiasts for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ws-2902a-osprey-ambient-weather-station-comprehensive-review-and-high-value-pack/"><u>WS-2902A Osprey Ambient Weather Station - Comprehensive Review & High Value Pack</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-nailing-the-perfect-shot-a-guide-to-instagram-videos/"><u>[Updated] 2024 Approved Nailing the Perfect Shot A Guide to Instagram Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-ignite-views-effective-strategies-for-optimizing-youtube-collaborations-for-2024/"><u>[Updated] Ignite Views Effective Strategies for Optimizing YouTube Collaborations for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-web-integration-adding-youtube-playlists-easily/"><u>[Updated] Web Integration Adding YouTube Playlists Easily</u></a></li>
+<li><a href="https://fox-access.techidaily.com/9-secrets-to-unlocking-the-full-potential-of-window-11/"><u>9 Secrets to Unlocking the Full Potential of WINDOW 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-features-of-moto-g-stylus-highly-effective-performance-and-fair-battery-lifespan-reviewed/"><u>Discovering the Features of Moto G Stylus: Highly Effective Performance & Fair Battery Lifespan Reviewed</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/enter-the-realm-of-gpt-4-for-nothing-here-are-five-pathways/"><u>Enter the Realm of GPT-4 for Nothing - Here Are Five Pathways</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-the-remarkable-advancements-in-amazons-gen-4-echo-show/"><u>In-Depth Analysis: The Remarkable Advancements in Amazon's Gen 4 Echo Show</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovo-ideapad-laptop-review-a-basic-laptop-with-a-nice-build/"><u>Lenovo Ideapad Laptop Review: A Basic Laptop With a Nice Build</u></a></li>
+<li><a href="https://driver-download.techidaily.com/memory-protection/"><u>Memory Protection</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-what-is-an-ai-video-editor-for-2024/"><u>New What Is an AI Video Editor for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-watch-dogs-legion-breathing-new-life-into-a-beloved-franchise/"><u>Review of Watch Dogs: Legion - Breathing New Life Into a Beloved Franchise</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/simplify-your-macs-photo-edits-with-our-ultimate-guide-to-using-preview-software/"><u>Simplify Your Mac's Photo Edits with Our Ultimate Guide to Using Preview Software</u></a></li>
+<li><a href="https://some-tips.techidaily.com/solving-the-puzzling-irritation-in-your-iphone-a-must-read-article/"><u>Solving the Puzzling Irritation in Your iPhone - A Must-Read Article</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-setting-up-windows-11-on-a-brand-new-hard-drive/"><u>Step-by-Step Guide: Setting Up Windows 11 on a Brand New Hard Drive</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tail-tales-live-shared-pet-observation-experience/"><u>Tail Tales Live: Shared Pet Observation Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-alcatel-joy-tab-2-lte-a-cost-effective-tablet-reviewed/"><u>The Ultimate Guide to the Alcatel Joy Tab 2 LTE - A Cost-Effective Tablet Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-truecaller-app-pros-cons-and-insights/"><u>The Ultimate Verdict on Truecaller App: Pros, Cons and Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-amazonbasics-6-sheets-shredder-on-a-shoestring-budget-our-unbiased-review/"><u>Top Rated AmazonBasics 6-Sheets Shredder on a Shoestring Budget: Our Unbiased Review</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-rated-atandt-mobile-offers-in-may-2024-comprehensive-guide-by-zdnet/"><u>Top-Rated AT&T Mobile Offers in May 2024: Comprehensive Guide by ZDNet</u></a></li>
 </ul></div>
 

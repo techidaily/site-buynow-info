@@ -1,7 +1,7 @@
 ---
 title: Inexpensive Yet Robust - Meet the Coolpix W100
-date: 2025-01-01T03:44:45.419Z
-updated: 2025-01-04T05:52:34.125Z
+date: 2025-01-05T08:43:51.831Z
+updated: 2025-01-11T05:29:17.008Z
 categories:
   - BestProducts
 description: This Article Describes Inexpensive Yet Robust - Meet the Coolpix W100
@@ -17,10 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## TP-Link RE200 AC750 Wi-Fi Range Extender
 
@@ -48,16 +44,12 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 3.5
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## TP-Link RE200 AC750 Wi-Fi Range Extender
 
 ![TPLInk Network Extender RE200](https://www.lifewire.com/thmb/kJVLlJFDWoRIQXYy8IO30U8ybaE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_HeroSquare-307b31f9d0a4494d8a3d563c761542d5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -83,10 +75,6 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
  Still, if you have a smaller home and/or modest internet speeds, this easy-to-use $30 device could do the trick. I tested the TP-Link RE200 AC750 in my house for several days, streaming media, playing online games, and testing the speeds from various distances.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Small and sleek**
 
  Some Wi-Fi extenders are as large as the[typical router 404](https://www.lifewire.com/best-wireless-routers-4038590) , or even larger—but not the TP-Link RE200\. This sleek little plug-in model is just 4 inches tall and about 2.5 inches across, with a curvy design that has an attractive textured finish.
@@ -96,6 +84,10 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
  There’s a small[WPS button](https://www.lifewire.com/what-is-wps-4842308) on the front for easy connectivity to your router, as well as signal lights to indicate the quality of your router connection and the status of the 2.4GHz and 5GHz networks. On the bottom of the device is a single Ethernet port, which you can use to plug in a wired device to give it internet access, as well as a button for resetting the extender to its original factory settings.
 
  It doesn’t have a pass-through plug for your wall outlet, but thankfully the compact design should only take up one plug on your outlet.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: It’s straightforward**
 
@@ -107,7 +99,15 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 ![TP-Link AV1300 Powerline](https://www.lifewire.com/thmb/04F8fDpm18B1nKg67KGE62zSjHI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_02-66c2a71ae40f45de8466ab23b5f96c09.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Connectivity: Solid performance**
 
@@ -116,6 +116,10 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
  I primarily tested the TP-Link RE200 in my office in my house, where I routinely see slower and sometimes inconsistent Wi-Fi speeds than when in closer proximity to my router. The RE200 clearly had an impact on both the speed and steadiness of the connection, with both my 2.4GHz and 5GHz networks showing full bars and typically delivering up to double the speed or more compared to my router’s own networks.
 
 ![TP-Link AV1300 Powerline](https://www.lifewire.com/thmb/frUD2wVjOiQ6xyicmibzSTBMRNY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_04-97804e236e3642ca87cfaf2bd29d69c6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -142,10 +146,6 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
  Price is definitely one of the strongest suits here. At just $30, this compact, easy-to-use adapter sets up easily and works as advertised, extending Wi-Fi access into dead zones in your home. It may not be a seamless mesh network if you lack a recent, compatible TP-Link router, however, and it won’t hit the higher speeds that some pricier extenders provide. You can do better, but you’ll probably have to spend a lot more to do so.
 
  At just $30, this compact, easy-to-use adapter sets up easily and works as advertised, extending Wi-Fi access into dead zones in your home.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **TP-Link RE200 vs. Netgear Nighthawk X4**
 
@@ -183,19 +183,21 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/updated-the-future-of-home-entertainment-tv-or-projection-for-4k/"><u>[Updated] The Future of Home Entertainment TV or Projection for 4K?</u></a></li>
-<li><a href="https://article-helps.techidaily.com/guidance-download-tamil-music-as-ringtone-and-how-to-cut-a-song-as-ringtone-for-2024/"><u>Guidance Download Tamil Music As Ringtone And How To Cut A Song As Ringtone for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/guide-successfully-streaming-hulu-on-your-lg-smart-television/"><u>Guide: Successfully Streaming Hulu on Your LG Smart Television</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/how-to-fix-kernel-panic-on-mac/"><u>How to Fix Kernel Panic on Mac?</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-remove-an-airtag-from-your-apple-id-account-on-apple-iphone-14-pro-max-by-drfone-ios/"><u>How to Remove an AirTag from Your Apple ID Account On Apple iPhone 14 Pro Max?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-full-guide-to-unlock-your-vivo-y78plus-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Vivo Y78+</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/mastering-the-art-of-video-enhancement-from-sdr-basics-to-hdr-excellence-for-2024/"><u>Mastering the Art of Video Enhancement From SDR Basics to HDR Excellence for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/overcoming-obs-mic-malfunctions-with-these-6-revolutionary-fixes/"><u>Overcoming OBS Mic Malfunctions with These 6 Revolutionary Fixes</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/streamlining-video-communication-in-laptop-using-whatsapp-desktop-for-2024/"><u>Streamlining Video Communication in Laptop Using WhatsApp Desktop for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-performance-analysis-reviews-of-the-anker-powercoreplus-2680e-charger-kit/"><u>Top Performance Analysis: Reviews of the Anker PowerCore+ 2680E Charger Kit</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-usb-memory-sticks/"><u>Top Rated USB Memory Sticks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-notch-portable-power-solution-diving-into-the-omnicharge-omni-review-featuring-20kwh-and-wireless-charging/"><u>Top-Notch Portable Power Solution: Diving Into the Omnicharge Omni ˈReview Featuring 20kWh & Wireless Charging</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-portable-gaming-devices-in-2eightyfour/"><u>Top-Rated Portable Gaming Devices in 2eightyFour</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultra-compact-and-efficient-hp-spectre-x360-touchscreen-review-for-on-the-go-productivity/"><u>Ultra-Compact and Efficient: HP Spectre X360 Touchscreen Review for On-the-Go Productivity</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-exploring-splitcams-recording-capabilities-and-excellence-for-2024/"><u>[New] Exploring SplitCam's Recording Capabilities and Excellence for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-ideal-picks-9-best-video-calling-apps-for-androidios-business-needs/"><u>[New] In 2024, Ideal Picks 9 Best Video Calling Apps for Android/iOS Business Needs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-ig-peak-performers-iphone-plus-androids-top-covers-app/"><u>[New] In 2024, IG Peak Performers IPhone + Android's Top Covers App</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-inside-vidmas-tech-a-new-era-for-video-capture-in-2024/"><u>[New] Inside Vidma’s Tech A New Era for Video Capture, In 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-ios-integration-listening-to-podcasts-made-easy-for-2024/"><u>[Updated] IOS Integration Listening to Podcasts Made Easy for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-beantech-bitwatch-s1-plus-revealed-the-ultimate-affordable-smartwatch-analysis/"><u>Comprehensive Beantech Bitwatch S1 Plus Revealed: The Ultimate Affordable Smartwatch Analysis</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-the-best-in-economy-laptops-an-in-depth-review-of-acer-aspire-e-15/"><u>Discovering the Best in Economy Laptops: An In-Depth Review of Acer Aspire E 15</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-of-microsoft-surfaces-superior-ergonomic-keyboard-features-and-quality/"><u>Expert Review of Microsoft Surface's Superior Ergonomic Keyboard Features and Quality</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-successfully-bypass-icloud-activation-lock-on-apple-iphone-15-by-drfone-ios/"><u>How to Successfully Bypass iCloud Activation Lock on Apple iPhone 15</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-view-mov-files-on-galaxy-xcover-7-by-aiseesoft-video-converter-play-mov-on-android/"><u>How to view MOV files on Galaxy XCover 7 ?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-lava-storm-5g-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Lava Storm 5G</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-amazonbasics-secure-shredder-with-12-sheets-capacity/"><u>In-Depth Analysis: AmazonBasics Secure Shredder with 12 Sheets Capacity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/razer-blade-stealth-13-assessment-unprecedented-advancements-in-portable-powerhouse-tech/"><u>Razer Blade Stealth 13 Assessment: Unprecedented Advancements in Portable Powerhouse Tech</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-b550-xts-command-efficiency/"><u>The Ultimate Guide to B550-XT's Command Efficiency</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-amazonbasics-7-port-usb-30-hub-your-solution-for-connectivity/"><u>Ultimate Guide to the AmazonBasics 7 Port USB 3.0 Hub - Your Solution for Connectivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-performance-insights-on-the-lenovo-ideapad-flex-5-an-alternate-take-on-yoga-a940/"><u>Unveiling Performance Insights on the Lenovo IdeaPad Flex 5 – An Alternate Take on Yoga A940</u></a></li>
 </ul></div>
 

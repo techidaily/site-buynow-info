@@ -1,7 +1,7 @@
 ---
 title: "Viair's Portable 88P Compressor: A Study in Sheer Power with Minor Compromises"
-date: 2025-01-02T07:54:20.235Z
-updated: 2025-01-04T09:09:14.581Z
+date: 2025-01-04T22:28:33.962Z
+updated: 2025-01-10T21:06:09.641Z
 categories:
   - BestProducts
 description: "This Article Describes Viair's Portable 88P Compressor: A Study in Sheer Power with Minor Compromises"
@@ -42,6 +42,10 @@ thumbnail: https://thmb.techidaily.com/72d87bf38b3f988e318217c000305d7e3da283a04
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Best Overall
 
 [Anker PowerCore+ 26800](https://www.amazon.com/dp/B07XRJZXKY?tag=lifewire-onsite-prod-20&ascsubtag=4050506%7Cnedb360c7a3544ee69bb7858a622a42bd18%7CB07XRJZXKY)
@@ -66,6 +70,10 @@ PHOTO: Amazon
 
 ![Anker PowerCore+](https://www.lifewire.com/thmb/_i-FntY6w2FTOeUIsfvpJiLc1SE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AnkerPowerCore-a9873c605cf5485699e0e159bcbd08f2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Gannon Burgett
 
  The Anker PowerCore+ power bank is TSA-approved and weighs about 1.5 pounds. Unlike many other laptop batteries, it’s surprisingly compact at 7.7 x 3.5 x 2.4 inches, making it an easy addition to your carry-on or commuter bag. And it holds a lot of power for its size.
@@ -75,7 +83,7 @@ Lifewire / Gannon Burgett
 [Anker PowerCore+ 26800 Battery Pack Bundle Review](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## High Capacity
@@ -112,7 +120,7 @@ Lifewire / Andrew Hayward
 [Halo Bolt Portable Charger/Jump Starter Review](https://www.lifewire.com/halo-bolt-portable-charger-jump-starter-review-5071993)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Versatile
@@ -141,10 +149,6 @@ PHOTO: Amazon
 
 ![Max Oak](https://www.lifewire.com/thmb/2J2B95OEgddwTnTPqs5dxy5QN28=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/maxoak-5x4-5db32562b89e462f84a77a28b9065dfa.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Gannon Burgett
 
  Our tester also liked that it measures 8.1 x 5.3 x 1.3 inches and weighs 2.77 pounds, so it could easily fit into your camping bag and won’t be that much heavier. Finally, it includes 14 types of laptop connectors, so it covers most models but not those powered via[USB-C](https://www.lifewire.com/usb-c-4149490) .
@@ -164,7 +168,7 @@ Lifewire / Andrew Hayward
  When picking a portable laptop battery charger, one of your primary considerations should be its capacity to store energy (measured in mAh)—this denotes the device’s battery life before it needs to be recharged. Be sure that the battery has equal or more capacity than the one already inside your machine so that you can expect a full charge.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Output
@@ -176,10 +180,6 @@ Lifewire / Andrew Hayward
  It’s critical to ensure you can plug your laptop into your new portable charger. Check the type of inputs the charger supports—whether that’s a standard wall outlet plug, a USB-C port, or other universal solutions.
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/QOfV3Sc5THi3Z0gKZq0e-ciPUEE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-5-000854ae3c4347b7adc13130dcb9d1b9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -223,16 +223,22 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-perfecting-your-recording-setup-pc-and-macs-best-software/"><u>[New] Perfecting Your Recording Setup PC and Mac's Best Software</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-cloud-marketplace-dissecting-cost-structures-for-2024/"><u>[Updated] Cloud Marketplace Dissecting Cost Structures for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-perfecting-visual-output-integrating-luts-into-ae-projects/"><u>[Updated] In 2024, Perfecting Visual Output Integrating LUTs Into AE Projects</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/getting-started-with-your-new-canon-mx-920-free-driver-download-guide-for-microsoft-windows-users/"><u>Getting Started with Your New Canon MX-920: Free Driver Download Guide for Microsoft Windows Users</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-note-30i-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Infinix Note 30i Bootloader Easily</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-savvy-seekers-guide-to-spotting-superb-photos-on-pexels/"><u>In 2024, The Savvy Seeker's Guide to Spotting Superb Photos on Pexels</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-the-new-chromecast-with-google-tv-a-worthy-rival-to-amazons-firestick/"><u>Is the New Chromecast with Google TV a Worthy Rival to Amazon's Firestick?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-key-locators-of-the-year-2024-edition/"><u>Leading Key Locators of the Year: 2024 Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maintain-your-furry-friends-diet-routine-with-petsafe-autofeed-six-meals-per-day/"><u>Maintain Your Furry Friend's Diet Routine with PetSafe AutoFeed: Six Meals Per Day</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/must-know-details-when-selecting-your-ideal-exercise-tracking-gadget/"><u>Must-Know Details When Selecting Your Ideal Exercise Tracking Gadget</u></a></li>
-<li><a href="https://win-excellent.techidaily.com/understanding-the-regulatory-landscape-for-digital-assets-insights-from-yl-computing-and-yl-software/"><u>Understanding the Regulatory Landscape for Digital Assets: Insights From YL Computing and YL Software</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rom-iciness-to-comfort-five-warm-backdrops-ideas/"><u>[New] From Iciness to Comfort Five Warm Backdrops Ideas</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-high-fidelity-window-listening-the-ultimate-list-of-the-best-8-podcasts-8/"><u>[New] High Fidelity Window Listening The Ultimate List of the Best 8 Podcasts (#8)</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-scrutinizing-the-economics-behind-short-video-earnings/"><u>[New] Scrutinizing the Economics Behind Short Video Earnings</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-top-20-moments-of-laughter-best-fb-jail-gems-for-a-sunny-outlook-for-2024/"><u>[New] Top 20 Moments of Laughter Best FB Jail Gems for a Sunny Outlook for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-transforming-your-mobile-device-a-comprehensive-tone-customization-strategy/"><u>2024 Approved Transforming Your Mobile Device A Comprehensive Tone Customization Strategy</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-power-of-multiple-perspectives-in-sports-on-youtube-tv/"><u>Discover the Power of Multiple Perspectives in Sports on YouTube TV</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/earn-big-savings-amazon-prime-day-kicks-off-on-july-16-2024/"><u>Earn Big Savings: Amazon Prime Day Kicks Off on July 16, 2024!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enjoying-video-games-even-more-by-giving-up-perfection/"><u>Enjoying Video Games Even More by Giving Up Perfection</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ensuring-safety-while-printing-in-3d-5-common-risks-and-their-solutions/"><u>Ensuring Safety While Printing in 3D: 5 Common Risks and Their Solutions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ensuring-satisfaction-top-5-tips-for-enjoying-every-cent-spent-on-your-peacock-investment/"><u>Ensuring Satisfaction: Top 5 Tips for Enjoying Every Cent Spent on Your Peacock Investment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expect-an-increase-in-video-podcast-availability-on-spotify/"><u>Expect an Increase in Video Podcast Availability on Spotify</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-enhanced-precision-the-razer-deathadder-v3-hyperspeeds-adaptive-sensitivity-technology-explained/"><u>Experience Enhanced Precision: The Razer DeathAdder V3 HyperSpeed's Adaptive Sensitivity Technology Explained</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-ultimate-radio-station-siriusxm-top-notch-sports-coverage-and-diverse-music-selection/"><u>Experience the Ultimate Radio Station SiriusXM: Top-Notch Sports Coverage & Diverse Music Selection</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-xiaomi-civi-3-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Xiaomi Civi 3 to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-watch-hd-media-on-displays-lacking-hdcp-protection/"><u>How to Watch HD Media on Displays Lacking HDCP Protection</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-se-2020-apples-new-iphone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone SE (2020), Apples New iPhone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/introducing-the-latest-milestone-abbyy-opens-a-state-of-the-art-innovation-center-for-smart-automation-in-serbia/"><u>Introducing the Latest Milestone: ABBYY Opens a State-of-the-Art Innovation Center for Smart Automation in Serbia</u></a></li>
 </ul></div>
 

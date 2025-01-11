@@ -1,7 +1,7 @@
 ---
 title: "The Holy Stone HS170: A Cost-Effective Gateway to Aerial Adventure - Thorough Review"
-date: 2025-01-03T02:02:06.055Z
-updated: 2025-01-03T18:10:06.420Z
+date: 2025-01-04T19:05:38.735Z
+updated: 2025-01-11T07:26:09.768Z
 categories:
   - BestProducts
 description: "This Article Describes The Holy Stone HS170: A Cost-Effective Gateway to Aerial Adventure - Thorough Review"
@@ -18,13 +18,13 @@ thumbnail: https://thmb.techidaily.com/e788f79a8684ff135a50b06576e0943a8c2779cab
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Nintendo Switch Lite
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/ELScEGCr-PHwUavU-zwNQVSC8z8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Nintendo-Switch-Lite-1-66fc3642c4d448b18f4a0775c059247d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -45,10 +45,6 @@ Lifewire / Zach Sweat
 [View On Walmart $165](https://www.walmart.com/ip/Nintendo-Switch-Lite-Console-Turquoise/306029956) [View On Best Buy $200](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnintendo-switch-32gb-lite-turquoise%2F6257139.p%3FskuId%3D6257139) [View On Macy's $240](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.macys.com%2Fshop%2Fproduct%2Fswitch-gaming-console-32gb-lite%3FID%3D10316544%26pla%255Fcountry%3DUS%26CAGPSPN%3Dpla%26slpfid%3D3)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Nintendo Switch Lite
 
@@ -83,7 +79,7 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Cute and compact**
@@ -112,10 +108,6 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7502vZ1Vh2D4nRux6hEnq4BL3Rk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-5-2fb7aa309cc54dd79c07bd799ef7fe84.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 ## **Setup Process: Hit the switch**
@@ -143,6 +135,10 @@ Lifewire / Zach Sweat
  For example, if you set the Switch Lite as your primary system, nobody can play games you've bought and downloaded on your home Switch unless they log into your account. You could always keep that other Switch as your primary, but then your Switch Lite will need Wi-Fi to access titles. It's easy to see the problem there, but apparently, Nintendo doesn't.
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/kQx9K3tATPBWAMgyJJymqBqYPao=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-3-7349fa7d79f34dbaa50c25cb59aec820.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -183,13 +179,13 @@ Lifewire / Zach Sweat
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/KxMaFgooi4rm3qbImmLKatuUtVI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-4-ef84dbbbde3d48ff97515e5c6b9981a4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: Still a bit drab, but smooth and snappy**
@@ -210,10 +206,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Battery Life: Slightly better, but not the best**
 
  Battery life on the original Switch was just okay, to put it lightly, but typically you were lucky to get anything over 3 hours of screen time with most titles. It eventually received a bigger battery in a minor hardware revision, which helped. The Switch Lite has a slightly smaller battery than the revised Switch but also has lower power needs due to its small screen.
@@ -228,6 +220,10 @@ Lifewire / Zach Sweat
 
  Lastly, the battery is internal, so you can't easily pop in a new one when it starts to degrade. While I haven't seen any degradation with mine, it'll happen at some point. When it does, sending it to Nintendo for repair is the only real option.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Inexpensive console gaming in your hands**
 
  It’s no surprise that since Nintendo removed many features from the Switch to create the Lite model, the price has also decreased considerably. The Switch is already at a pretty sweet price of $300, so how does the Lite stack up?
@@ -235,6 +231,10 @@ Lifewire / Zach Sweat
  The Switch Lite has an MSRP of $200, which is a pretty good value. It plays all the same games as the original Switch at a significantly lower price and is much more portable. You do lose the ability to dock it; for some people, that feature will be worth the extra $100.
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7XA6hgAK2B4hDSlWdmB8VQddrjw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-7-Comparison-44dcf88ec51247a2b0756445a3c7884d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -300,18 +300,24 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-incremental-audio-fading-using-garageband-for-2024/"><u>[New] Incremental Audio Fading Using Garageband for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-securing-sound-speed-increase-in-the-digital-world-of-spotify/"><u>[New] Securing Sound Speed Increase in the Digital World of Spotify</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-irecorder-insights-for-tech-enthusiasts/"><u>[Updated] 2024 Approved IRecorder Insights for Tech Enthusiasts</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-youcamsimplified-quickguidetorecordings-for-2024/"><u>[Updated] YouCamSimplified QuickGuideToRecordings for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apple-imac-215-inch-4k-review-style-and-power/"><u>Apple iMac 21.5-Inch 4K Review: Style and Power</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/bose-frames-review/"><u>Bose Frames Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/building-an-empire-with-offworld-trading-co-an-in-depth-analysis-and-strategy-breakdown/"><u>Building an Empire with Offworld Trading Co.: An In-Depth Analysis and Strategy Breakdown</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/choosing-your-workhorse-email-how-does-outlookcom-stack-up-against-gmail/"><u>Choosing Your Workhorse Email: How Does Outlook.com Stack Up Against Gmail?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/compact-and-budget-friendly-exploring-the-features-of-the-nintendo-switch-lite/"><u>Compact & Budget-Friendly: Exploring the Features of the Nintendo Switch Lite</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-from-the-iphone-12-pro-max-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock From the iPhone 12 Pro Max Without Previous Owner?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-oppo-a1-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Oppo A1 5G to iPhone | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-seamless-shoot-and-capture-with-tracker-tech/"><u>In 2024, Seamless Shoot-and-Capture with Tracker Tech</u></a></li>
-<li><a href="https://fox-access.techidaily.com/iphone-macro-and-close-up-photography-tips/"><u>IPhone Macro and Close-Up Photography Tips</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-innovative-mac-image-recording-the-top-5-cutting-edge-techniques/"><u>[Updated] Innovative Mac Image Recording The Top 5 Cutting-Edge Techniques</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-key-online-repositories-for-rich-text-visualization/"><u>[Updated] Key Online Repositories for Rich Text Visualization</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-supreme-boundless-data-depot/"><u>2024 Approved Supreme Boundless Data Depot</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bluetooth-battle-royale-apple-airpods-pro-versus-samsung-buds-pro/"><u>Bluetooth Battle Royale: Apple AirPods Pro versus Samsung Buds Pro</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/bring-your-stories-alive-techniques-for-animation-in-text-for-2024/"><u>Bring Your Stories Alive Techniques for Animation in Text for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-razer-blade-pro-17-the-epitome-of-portability-and-strength/"><u>Comprehensive Analysis of the Razer Blade Pro 17: The Epitome of Portability and Strength</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/consistent-nutrition-for-pets-using-petsafes-auto-feeder-serving-six-meals-easily/"><u>Consistent Nutrition for Pets Using PetSafe's Auto Feeder, Serving Six Meals Easily</u></a></li>
+<li><a href="https://extra-information.techidaily.com/exploring-the-distinctions-of-srgb-and-rgb/"><u>Exploring the Distinctions of Srgb and Rgb</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Nubia Red Magic 8S Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-oppo-find-n3-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Oppo Find N3 FRP</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-xiaomi-redmi-a2plus-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Xiaomi Redmi A2+ Without PUK Codes</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-understanding-the-edge-of-av1-in-video-encoding/"><u>In 2024, Understanding the Edge of AV1 in Video Encoding</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/mastering-zoom-incorporating-video-effects-step-by-step/"><u>Mastering Zoom Incorporating Video Effects Step by Step</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nvidia-shield-tv-pro-review/"><u>Nvidia Shield TV Pro Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/precision-training-companion-an-in-depth-review-of-garmin-forerunner-45-for-athletes/"><u>Precision Training Companion: An In-Depth Review of Garmin Forerunner 45 for Athletes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revamp-your-travel-power-source-is-high-output-worth-it-if-durability-sucks/"><u>Revamp Your Travel Power Source: Is High-Output Worth It if Durability Sucks?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionize-your-living-room-on-a-budget-with-the-caixun-75-inch-4k-smart-tv-review/"><u>Revolutionize Your Living Room on a Budget with the Caixun 75 Inch 4K Smart TV Review.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rtf-helicopter-of-the-year-comprehensive-blade-e-flite-mcx2-analysis/"><u>Top RTF Helicopter of the Year: Comprehensive Blade E-Flite mCX2 Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/treasury-stock-500000-shares-purchased-at-an-average-cost-of-20-per-share-10/"><u>Treasury Stock (500,000 Shares Purchased at an Average Cost of $20 per Share): $(10)</u></a></li>
 </ul></div>
 

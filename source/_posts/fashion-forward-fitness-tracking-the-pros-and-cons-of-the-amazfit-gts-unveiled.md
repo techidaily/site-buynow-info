@@ -1,7 +1,7 @@
 ---
 title: "Fashion-Forward Fitness Tracking: The Pros and Cons of the Amazfit GTS Unveiled"
-date: 2024-12-29T12:51:27.085Z
-updated: 2025-01-04T12:10:32.578Z
+date: 2025-01-09T23:27:36.412Z
+updated: 2025-01-10T17:44:37.550Z
 categories:
   - BestProducts
 description: "This Article Describes Fashion-Forward Fitness Tracking: The Pros and Cons of the Amazfit GTS Unveiled"
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/bc6e0c08f36b012f885710643ac64bca838b2cd03
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Samsung UN65NU8000FXZA
@@ -77,13 +77,13 @@ Lifewire / Andy Zahn
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/_yzFIL-bClIpQ2-BreG8tli1L2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-4-a802a799a7c34067905c9ff965feea8e.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Big and tough**
@@ -101,6 +101,10 @@ Lifewire / Andy Zahn
  The included remote is attractive and ergonomic, though simple in terms of its button layout. It's designed in such a way as to be able to control multiple compatible devices connected to the TV, and to navigate the interfaces of the various apps available for the NU8000\. This is an exceptionally solid device that's satisfying to hold. Buttons are tactile and easy to identify by feel with a little practice. We particularly liked the volume and channel buttons, which are not so much buttons as they are broad, horizontal toggles that are pushed forward and backward to activate.
 
  We did encounter one troublesome bug where the remote partially de-synced from the display so that only the power button functioned properly. This is obviously a known issue, as on-screen instructions immediately appeared to reset the remote and re-establish the connection, and we found these instructions repeated inside the battery compartment of the remote. We also missed having dedicated buttons for popular streaming services such as Netflix and Hulu.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Some assembly required**
 
@@ -139,10 +143,14 @@ Lifewire / Andy Zahn
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/AXYnUtoRwLv0QLo0Xm0_W28X-zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-5-531f7de77d9746ba993c9966f10920be.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: A little slow**
 
@@ -152,17 +160,9 @@ Lifewire / Andy Zahn
 
  The other software issue is that the NU8000 runs an older version of FreeSync, which means it doesn’t handle screen tearing as well as newer displays, especially when gaming on high-end hardware. However, during our testing, we didn’t notice an appreciable problem with this, though that may vary depending on your viewing and gaming habits.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Expensive at MSRP**
 
  With an MSRP of $999 the NU8000 is certainly no bargain, especially considering that superior displays are available for the same cost. However, as this is an older TV it may be possible to find steep discounts that make up for its deficiencies.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: NU8000 vs RU8000**
 
@@ -206,22 +206,15 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-find-your-perfect-editor-top-15-budget-friendly-online-solutions-for-2024/"><u>[New] Find Your Perfect Editor Top 15 Budget-Friendly Online Solutions for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-elevate-your-storytelling-the-best-practices-for-instagram-loops/"><u>[Updated] 2024 Approved Elevate Your Storytelling The Best Practices for Instagram Loops</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-real-time-capture-mastery-discover-the-top-4-livestream-strategies/"><u>[Updated] In 2024, Real-Time Capture Mastery Discover the Top 4 Livestream Strategies</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-step-by-step-tutorial-on-adding-captions-to-tiktok-videos/"><u>[Updated] Step-by-Step Tutorial on Adding Captions to TikTok Videos</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/1-detaillierte-tech-specs-von-winxvideo-ai-offizielles-handbuch/"><u>1. Detaillierte Tech-Specs Von WinXVideo AI - Offizielles Handbuch</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-comprehensive-guide-to-the-updated-facetune-photo-editing/"><u>2024 Approved Comprehensive Guide to the Updated Facetune Photo Editing</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-leading-17-inch-computers-of-2024-expert-reviews-and-rankings/"><u>Discover the Leading 17-Inch Computers of 2024: Expert Reviews & Rankings</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-value-of-the-latest-apple-ipad-air-a-comparable-experience-to-the-premium-ipad-pro/"><u>Discover the Value of the Latest Apple iPad Air: A Comparable Experience to the Premium iPad Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discovering-the-asus-16x-dvdplus-rrw-writer-a-synthesis-of-style-and-uncommon-quirks/"><u>Discovering the Asus 16X DVD+/-R/RW Writer: A Synthesis of Style and Uncommon Quirks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-lgs-65-c9-oled-4k-television-a-dream-experience-for-avid-viewers/"><u>Expert Analysis of LG's 65 C9 OLED 4K Television - A Dream Experience for Avid Viewers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-samsung-un65nu8000fxza-is-it-worth-the-expensive-tag/"><u>Expert Analysis of the Samsung UN65NU8000FXZA - Is It Worth The Expensive Tag?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-of-the-m-mooc-1000a-ultimate-car-jumper-features-and-performance-at-peak-capacity/"><u>Expert Review of the M MOOC 1000A Ultimate Car Jumper: Features and Performance at Peak Capacity!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-omnicharge-omni-20-charger-your-ultimate-companion-for-universal-wireless-charging-solutions/"><u>Exploring the Omnicharge Omni 20 Charger – Your Ultimate Companion for Universal, Wireless Charging Solutions</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-elevate-your-marketing-game-free-50-youtube-adornments-here/"><u>In 2024, Elevate Your Marketing Game - Free 50 YouTube Adornments Here!</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/in-2024-how-to-be-a-youtube-vlogger/"><u>In 2024, How to Be a YouTube Vlogger</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-acer-chromebook-r-11-elegant-and-featherlight-features/"><u>In-Depth Analysis of the Acer Chromebook R 11: Elegant & Featherlight Features</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/m4vwebmmovavi/"><u>M4V到WEBM自由線上改版：以Movavi轉換器進行電影文件修改</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-dusk-to-dawn-iphone-night-photography-essentials/"><u>[New] 2024 Approved Dusk to Dawn IPhone Night Photography Essentials</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-achieving-excellence-in-work-and-online-content/"><u>[New] Achieving Excellence in Work and Online Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-premier-gamers-streaming-software/"><u>2024 Approved Premier Gamers' Streaming Software</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/a-hidden-gem-in-top-office-gadgets-the-most-underappreciated-2-in-1-device-of-the-year-insights-from-zdnet/"><u>A Hidden Gem in Top Office Gadgets: The Most Underappreciated 2-in-1 Device of the Year - Insights From ZDNet</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/engineering-peak-canon-sequential-films-for-2024/"><u>Engineering Peak Canon Sequential Films for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/minimizing-motion-blur-with-obs-adjustments-for-2024/"><u>Minimizing Motion Blur with OBS Adjustments for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-university-of-nebraska-state-museum/"><u>The University of Nebraska State Museum</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-nas-storage-solutions-a-comprehensive-review/"><u>Top NAS Storage Solutions : A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-portable-power-banks-ultimate-guide/"><u>Top Portable Power Banks : Ultimate Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-performing-intel-chipset-boards-for-optimal-gaming-experience/"><u>Top-Performing Intel Chipset Boards for Optimal Gaming Experience</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "G7X Mark II: Fewer Pixels, More Power?"
-date: 2024-08-11T00:16:24.698Z
-updated: 2024-08-12T00:16:24.698Z
+date: 2025-01-05T23:54:05.799Z
+updated: 2025-01-10T21:35:35.965Z
 categories:
   - BestProducts
 description: "This Article Describes G7X Mark II: Fewer Pixels, More Power?"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/623365f2ffae0d2d8c9a44d31ae5f64f961d3fb3d
 ## Discover the Powerhouse Within: In-Depth ZMI PowerPack 20000 Portable Charger Review
 
 4.9
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## ZMI PowerPack 20000
 
@@ -39,9 +43,6 @@ thumbnail: https://thmb.techidaily.com/623365f2ffae0d2d8c9a44d31ae5f64f961d3fb3d
 
 ## ZMI PowerPack 20000
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/FttxoftMtHF3B2ZGmP2QubmOp3I=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-HeroSquare-492efa01c9e54737bfa9d16223ff9d82.jpg)
 
  Lifewire / Andrew Hayward
@@ -68,6 +69,10 @@ thumbnail: https://thmb.techidaily.com/623365f2ffae0d2d8c9a44d31ae5f64f961d3fb3d
 
  Lifewire / Andrew Hayward
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Small but powerful**
 
  The ZMI PowerPack 20000’s size is easily one of its biggest selling points. While it is a little heavy at 14.3 ounces, this power bank is the approximate width and height of a large smartphone, measuring up very closely to the size of my Apple iPhone 11 Pro at 6.3 x 3.2 inches (HWD). Of course, the 0.8-inch thickness is quite a bit larger than any phone today, but unlike most laptop-friendly charging banks, ZMI’s can still fit into a pocket or handbag with ease.
@@ -80,32 +85,18 @@ thumbnail: https://thmb.techidaily.com/623365f2ffae0d2d8c9a44d31ae5f64f961d3fb3d
 
  This power bank doesn’t have an AC port for full-sized power plugs, as some competing power banks do, but it also costs less and is much smaller than those alternatives typically are.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/vaINPELrwcWnOZDsX1ztKkCouww=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-03-1530f666df824f6281040c2ae3285eb2-2e7956941b91403aa888795a7e5e2e33.jpeg)
 
 Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Setup Process: Easy does it**
 
  There’s not much to the setup process here. Using the included USB-C to USB-C cable, simply plug one end into the power bank and the other into an AC adapter that you have handy—like one for a laptop, tablet, or[smartphone](https://www.lifewire.com/best-smartphones-4043781) . Once the four lights on the side are fully illuminated, then the battery pack is fully charged. Simply plug in devices using their respective cables to charge them using the power within the ZMI PowerPack 20000.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Charging Speed and Battery: It keeps going**
 
  The ZMI PowerPack 20000 has a hearty 20,000mAh cell within, and it charged my devices quickly without fully depleting the brick. I charged a[2019 MacBook Pro](https://www.lifewire.com/apple-macbook-pro-13-inch-2019-review-4770116) (13-inch) laptop from 0 percent to 100 percent in just 1 hour, 53 minutes using the ZMI PowerPack 20000’s USB-C PD port, with an effective charging rate of 42.92W (14.8Vx2.9A). When the charging process was complete, the PowerPack still had one light illuminated, indicating that there was still a little bit of battery life remaining.
@@ -114,12 +105,13 @@ Lifewire / Andrew Hayward
 
  The PowerPack 20000 also charged a[Samsung Galaxy S10](https://www.lifewire.com/samsung-galaxy-s10-review-4685690) smartphone from nothing to 100 percent in 1 hour, 47 minutes using the USB-C PD port, with four lights still remaining on the power bank. This sizable power bank should be able to charge an average smartphone a few times over, not to mention a[Nintendo Switch](https://www.lifewire.com/nintendo-switch-review-4707563) . Larger laptop batteries will naturally suck away more of the battery capacity on a full charge.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ![ZMI PowerPack 20000](https://www.lifewire.com/thmb/asGVK-moJ54HvqyY9N6Kb-KM8hw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/zmi-04-828899fb01024cd4a0e35980251c04b4.jpg)
 
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: It’s a bargain**
 
@@ -138,8 +130,9 @@ Lifewire / Andrew Hayward
  It’s honestly difficult to find anything to complain about with the ZMI PowerPack 20000\. It’s powerful and does a great job of charging laptops and phones, it has enough capacity to handle those tasks with ease, it’s compact and well-designed, and the price is fantastic. It’s half the size of the giant Anker power brick that I’ve brought on my last two international trips and can handle all of the same tasks. In other words,_this_ is the power brick I’m bringing on my next trip.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  PowerPack 20000
@@ -151,14 +144,11 @@ Lifewire / Andrew Hayward
 * Ports  1x USB-C, 2x USB-A
 * Waterproof  N/A
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -167,4 +157,26 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-building-your-broadcast-empire-with-obs-and-online-platforms/"><u>[New] Building Your Broadcast Empire with OBS and Online Platforms</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-harnessing-color-grading-with-luts-in-premiere/"><u>[New] Harnessing Color Grading with LUTs in Premiere</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-implementing-video-transcripts-via-youtube-captions/"><u>[New] In 2024, Implementing Video Transcripts via YouTube Captions</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-unlocking-igtvs-potential-a-video-resizing-primer/"><u>[Updated] 2024 Approved Unlocking IGTV's Potential A Video Resizing Primer</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-ultimate-guide-to-ios-photography-apps-x-8/"><u>[Updated] In 2024, Ultimate Guide to iOS Photography Apps (X, 8)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/chart-topping-audio-devices-best-cd-players-24/"><u>Chart-Topping Audio Devices: Best CD Players '24</u></a></li>
+<li><a href="https://article-posts.techidaily.com/crafting-curve-concepts-for-text-visualization-for-2024/"><u>Crafting Curve Concepts for Text Visualization for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/deciding-between-an-iphone-and-android-which-fits-your-lifestyle-better/"><u>Deciding Between an iPhone and Android: Which Fits Your Lifestyle Better?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elite-pick-for-portable-storage-experts-choice-of-2024-usb-drives/"><u>Elite Pick for Portable Storage: Expert's Choice of 2024 USB Drives</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/heimvision-a80s-alarm-clock-with-light-therapy-feature-comprehensive-product-evaluation/"><u>HeimVision A80S Alarm Clock with Light Therapy Feature – Comprehensive Product Evaluation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/y-hitlist-the-leading-youtube-videos-by-watch-time/"><u>Hourly Hitlist The Leading YouTube Videos by Watch Time</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-amusing-tones-bestringeonsite-roundup/"><u>In 2024, Amusing Tones Bestringeonsite Roundup</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/interactive-experience-with-the-msi-pro-mp161e2-a-compact-portable-display/"><u>Interactive Experience with the MSI Pro MP161E2 - A Compact, Portable Display</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/joining-the-hunt-for-vulnerabilities-in-openais-systems-your-ticket-into-the-bug-bounty-challenge/"><u>Joining the Hunt for Vulnerabilities in OpenAI’s Systems: Your Ticket Into the Bug Bounty Challenge</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/meow-meets-gameplay-fun-for-cats-and-owners/"><u>Meow Meets Gameplay: Fun For Cats and Owners</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-netgear-nighthawk-x6-wifi-range-booster-overview-discover-its-high-tech-functions/"><u>Ultimate Netgear Nighthawk X6 WiFi Range Booster Overview: Discover Its High-Tech Functions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimategoog-unveiled-navigating-through-the-top-reflective-web-space/"><u>Ultimategoog Unveiled: Navigating Through The Top Reflective Web Space</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/versatile-audio-experience-with-yamaha-mcr-b020bl/"><u>Versatile Audio Experience with Yamaha MCR-B020BL</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-oppo-k11-5g-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Oppo K11 5G Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+</ul></div>
 

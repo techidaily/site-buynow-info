@@ -1,7 +1,7 @@
 ---
 title: Blade BLH4100 120 S RC Helicopter Review
-date: 2024-12-29T15:09:58.402Z
-updated: 2025-01-03T23:05:19.915Z
+date: 2025-01-10T06:44:08.908Z
+updated: 2025-01-10T23:34:10.331Z
 categories:
   - BestProducts
 description: This Article Describes Blade BLH4100 120 S RC Helicopter Review
@@ -17,10 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/0k72WSI9zpSx_0NVgOzieZdbYDg=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Omni 20+ Wireless Power Bank
 
@@ -48,6 +44,10 @@ Lifewire / Jeremy Laukkonen
 [View On Amazon $299](https://www.amazon.com/dp/B01NBJX99D?tag=lifewire-onsite-prod-20&ascsubtag=4843549%7Cn5152ded2d52b4aacaed13fadd747a0da04%7CB01NBJX99D) [View On B&H Photo Video $236](https://www.bhphotovideo.com/c/product/1478529-REG/omnicharge%5Fop2ha004%5Fomni%5F20%5Fpowerbank%5Fportable.html/)
 
 4.8
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Omni 20+ Wireless Power Bank
 
@@ -80,10 +80,14 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/lFGiT6009F_OKGOJ-sLcNKNylt0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-2-9a3217b3ee154a3ebcb38e61aac3be52.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Slick all-black appearance that’s dulled a bit by soft-touch rubber**
@@ -97,10 +101,6 @@ Lifewire / Jeremy Laukkonen
  The USB-C port is capable of fast charging some devices and providing up to 60W of power.
 
  For a premium device with a premium price like the Omni 20+, I’d like to see a different material used for the case.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Initial Setup: Frustrating due to a lack of documentation**
 
@@ -120,10 +120,6 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Display: Crisp and easy to read, but confusing**
 
  The display is small, but it’s quite bright and easy to read. The only issue is that it isn’t particularly easy to figure out what the individual icons mean, or how to use the display to change input and output settings, without referring to an instruction manual that isn’t included in the box.
@@ -131,7 +127,7 @@ Lifewire / Jeremy Laukkonen
  I’ve already covered the issue with the manual in the previous section, so suffice it to say I recommend avoiding frustration and just downloading the manual from the Omnicharge website rather than trying to figure out the display and controls on your own.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Sockets and Ports: Excellent array, including wireless**
@@ -150,6 +146,10 @@ Lifewire / Jeremy Laukkonen
 
  On the front of the power bank, next to the display, you’ll find two USB-A ports. These ports are capable of charging all your standard USB devices. One is a Qualcomm 3.0 compatible quick charge port, and the other is a standard USB port that’s capable of putting out up to 3A.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery: Decent battery capacity for the size**
 
  The Omni 20+ includes a 20,000 mAh battery, which is a decent capacity for the size of this power bank. I’d like to see a larger capacity based on the price of this unit, but it’s clear that you’re paying for extra features like fast USB-Charging and[wireless charging](https://www.lifewire.com/qi-wireless-charging-4151894) instead of a big battery.
@@ -163,10 +163,6 @@ Lifewire / Jeremy Laukkonen
  When charged over USB-C using an appropriate charger, like my Nintendo Switch charger, the Omni 20+ takes about three hours to charge to full. Charging it with a weaker charger, or over the barrel connector, takes a bit longer.
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/aZDfINCcUg9uIHRuhVr2k3wmX94=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-1-815fe3c777eb4f46a77cb00127bd88c2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -183,6 +179,10 @@ Lifewire / Jeremy Laukkonen
  By plugging the Omni 20+ into power when available, I found it to be a fantastic replacement for an otherwise bulky assortment of power adapters for my laptop, phone, and other devices.
 
  The built-in Qi charger is capable of putting out 10 watts, and I found it to work just as well as other 10 watt Qi chargers I’ve used. It is a bit touchy in terms of positioning, but I was able to get the hang of it pretty fast.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: High end**
 
@@ -230,15 +230,14 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-does-spending-on-youtube-followers-really-amplify-your-presence-for-2024/"><u>[New] Does Spending on YouTube Followers Really Amplify Your Presence for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-oneplus-nord-n30-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your OnePlus Nord N30 5G Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/are-luxury-ai-prompts-justifying-their-price-tag-in-results/"><u>Are Luxury AI Prompts Justifying Their Price Tag in Results?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/guide-preserving-pdf-previews-in-microsoft-word/"><u>Guide: Preserving PDF Previews in Microsoft Word</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-unboxing-the-lenovo-thinkpad-x1-titanium-yoga-a-2-in-1-revolution-for-devoted-thinkpad-users/"><u>In-Depth Analysis: Unboxing the Lenovo ThinkPad X1 Titanium Yoga – A 2-in-1 Revolution for Devoted ThinkPad Users</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-the-marketplace-with-apples-ipad-pro-11-a-must-read-2018-breakdown/"><u>Mastering the Marketplace with Apple's iPad Pro (11) - A Must-Read 2018 Breakdown</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-pc-potential-what-to-upgrade-first/"><u>Maximizing PC Potential: What to Upgrade First</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/pioneering-14-text-movements-in-artwork-for-2024/"><u>Pioneering 14 Text Movements in Artwork for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/quick-methods-for-saving-google-voice-communication-for-2024/"><u>Quick Methods for Saving Google Voice Communication for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/videoapp-insight-a-comprehensive-evaluation/"><u>VideoApp Insight A Comprehensive Evaluation</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-audio-capture-system-testing-guide/"><u>[New] Audio Capture System Testing Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-power-up-storage-ultimate-ps5-hard-drives-compared-for-2024/"><u>[New] Power Up Storage Ultimate PS5 Hard Drives Compared for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-honor-x50i-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-rog-rapture-gt-ax110-router-assessment-highlighting-topnotch-performance-for-gamers/"><u>Asus ROG Rapture GT-AX110# Router Assessment: Highlighting Topnotch Performance for Gamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-marvels-inside-the-caixun-4k-smart-tv-review-at-an-unbeatable-price/"><u>Budget Marvels: Inside the Caixun 4K Smart TV Review at an Unbeatable Price!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-un65nu8000fxza-is-the-premium-cost-justified/"><u>Samsung UN65NU8000FXZA - Is the Premium Cost Justified?</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-selection-of-gamesweets-for-children-all-about-gaming-systems-and-must-have-extras/"><u>The Ultimate Selection of Gamesweets for Children: All About Gaming Systems and Must-Have Extras</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/turning-off-igtv-on-your-account/"><u>Turning Off IGTV on Your Account</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unwrapping-the-w15a-photo-frame-marvels-and-flaws/"><u>Unwrapping the W15A Photo Frame Marvels & Flaws</u></a></li>
 </ul></div>
 

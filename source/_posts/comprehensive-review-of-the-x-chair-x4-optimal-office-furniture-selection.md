@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Review of the X-Chair X4: Optimal Office Furniture Selection"
-date: 2024-08-11T00:15:24.299Z
-updated: 2024-08-12T00:15:24.299Z
+date: 2025-01-08T23:08:33.999Z
+updated: 2025-01-11T07:47:59.919Z
 categories:
   - BestProducts
 description: "This Article Describes Comprehensive Review of the X-Chair X4: Optimal Office Furniture Selection"
@@ -13,10 +13,6 @@ thumbnail: https://thmb.techidaily.com/6d060e78cf4821c16957dc0af5764350800050d4c
 
 4.7
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Fitbit Charge 4 Fitness Tracker
 
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/yo9CS9ZHHalRYthVdaCfit6zr7Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Fitbit-Charge-4-Fitness-Tracker-1-c163fbceed1748a6bd3de7883ab66a4d.jpg)
@@ -43,9 +39,6 @@ Lifewire / Anduy Zahn
 
 4.7
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Fitbit Charge 4 Fitness Tracker
 
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/3KZYnLSyn9OGGXZdp02JH2_4wB8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Fitbit-Charge-4-Fitness-Tracker-1-c163fbceed1748a6bd3de7883ab66a4d.jpg)
@@ -72,8 +65,9 @@ Lifewire / Anduy Zahn
  Before testing out the Fitbit Charge 4, I had long been a skeptic of wearable exercise technology. However, after a few weeks with this awesome little device, I’m now a firm believer in its merits as both a means towards achieving a healthier lifestyle and as a minimalist smartwatch. It has succeeded in putting me on the path towards meaningful weight loss where countless diets and New Years' resolutions have failed.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Minimalist masterpiece**
 
  The Fitbit Charge 4 is sleek and stylish with a futuristic flare. The patterned strap is attractive and catches the light in interesting ways. The square screen is practical, but may not appeal to folks who prefer round watches. It feels pretty durable, and it's waterproof down to 50 meters. After a number of rigorous outdoor adventures, it's come through unscathed. The Charge 4 comes with a charging station and both small and large wristbands. It’s easy to swap the wrist bands out, and Fitbit sells a variety of alternative styles.
@@ -82,12 +76,13 @@ Lifewire / Anduy Zahn
 
  A quick press of the button on the side of the watch takes you back to the clock face or turns it on if it fails to show up automatically when you move your wrist (which does happen, albeit infrequently). Hold the button down and you get access to do not disturb, sleep mode, and other functions, as well as[Fitbit Pay](https://www.lifewire.com/how-to-use-fitbit-pay-4582307) .
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/hXje3GJQ1qjDfhBph7Q2s-LKCTE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-4-Fitness-Tracker-4-5fb3fda3d53d4120bfb7c3e1b418abab.jpg)
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup process: Streamlined and straightforward**
 
@@ -102,8 +97,9 @@ Lifewire / Anduy Zahn
  As someone with ridiculously large wrists, I really appreciated that the Charge 4 comes with a larger watch band.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: A digital fitness coach**
 
  No fitness tracker is 100% accurate, and the Charge 4 is no exception, but that’s not as much of a problem as you might assume. Though everything from step counts to elevation change to calories expended and consumed has margins for error, they nonetheless give you goals to work towards, and this rough data is perfectly adequate to help you become more conscious of your physical health.
@@ -119,6 +115,10 @@ Lifewire / Anduy Zahn
 ![Fitbit Charge 4](https://www.lifewire.com/thmb/UlCfm0YzhPSZMR3WWRs3oeCWPsA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-4-Fitness-Tracker-2-6afa07ba83e74effb1bd3521b2b43391-3287de2174dc42359f46f06e6576d80b.jpg)
 
 Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Intuitive but ad infested**
 
@@ -137,15 +137,17 @@ Lifewire / Andy Zahn
  However, I did run into a few issues worth mentioning. First of all, when the battery drops below 20% the Charge 4 seems to go into a power-saving mode that limits functionality. Secondly, using features like exercise tracking that use the GPS will drain the battery much more quickly. When I embarked with a full charge on a two-day backpacking trip and set the Charge 4 to record the hike as an exercise it only lasted me through roughly 75% of the two days of trekking.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Good value**
 
  With an MSRP of $150 the Fitbit Charge 4 is somewhat expensive but fairly priced for a basic smartwatch. However, extra accessories and subscription services can quickly add to the cost.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Fitbit Charge 4 vs. Fossil Sport**
 
  For a more fully-featured smartwatch with a more classic watch design, the[Fossil Sport](https://www.lifewire.com/fossil-sport-review-5069585) is an attractive alternative to the Fitbit Charge 4\. Using Google’s[Wear OS](https://www.lifewire.com/complete-guide-to-android-wear-4086408) and utilizing a full color LED displace, the Fossil Sport is a far more versatile device. However, the Charge 4 has the benefit of simplicity that lends a much more intuitive experience.
@@ -156,18 +158,6 @@ Lifewire / Andy Zahn
 
  I was frankly shocked by how much I have come to like the Fitbit Charge 4\. It’s as functional as it’s good looking, and provides both reasonably accurate fitness tracking and well integrated basic smartwatch functionality. Despite a few minor flaws such as a subscription paywall for some features and battery hogging GPS I can heartily recommend the Charge 4.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Charge 4 Fitness Tracker
@@ -186,8 +176,6 @@ Lifewire / Andy Zahn
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -195,4 +183,21 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-redefining-visual-standards-hdr-vs-standard-sdr/"><u>[New] Redefining Visual Standards HDR Vs. Standard SDR</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-step-up-to-photo-editing-excellence-with-these-must-know-pixlr-techniques-for-2024/"><u>[New] Step Up to Photo Editing Excellence with These Must-Know Pixlr Techniques for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-best-practices-for-youtube-to-igtv-transformation-for-2024/"><u>[Updated] Best Practices for YouTube to IGTV Transformation for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/best-free-tool-your-android-unhindered/"><u>Best Free Tool Your Android, Unhindered</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-linksys-wrt1nac-ac-s-a-comprehensive-open-source-wi-fi-router-assessment/"><u>Expert Analysis of the Linksys WRT1nac AC S: A Comprehensive Open Source Wi-Fi Router Assessment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-efficiency-of-tp-link-re305-an-informative-ac1200-range-extender-review/"><u>Exploring the Efficiency of TP-Link RE305 – An Informative AC1200 Range Extender Review</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/guia-completa-sobre-la-migracion-del-sistema-operativo-windows-10-desde-un-hd-tradicional-mbr-hacia-un-moderno-ssd-con-protocolo-gpt/"><u>Guía Completa Sobre La Migración Del Sistema Operativo Windows 10 Desde Un HD Tradicional MBR Hacia Un Moderno SSD Con Protocolo GPT</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-essential-asmr-channel-discoveries/"><u>In 2024, Essential ASMR Channel Discoveries</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-xiaomi-redmi-note-12-pro-5g-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Xiaomi Redmi Note 12 Pro 5G for Streaming | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-examination-of-the-portable-razer-blade-pro-17-laptop/"><u>In-Depth Examination of the Portable Razer Blade Pro 17 Laptop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ipad-kindle-and-nook-showdown-choosing-the-best-e-readertablet-for-you/"><u>IPad, Kindle, and NOOK Showdown: Choosing the Best E-Reader/Tablet for You</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/nixplay-seed-the-pinnacle-in-smart-photo-frames/"><u>Nixplay Seed: The Pinnacle in Smart Photo Frames</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/portable-pro-canons-powershot-sx740-hs-deep-dive/"><u>Portable Pro: Canon's PowerShot SX740 HS Deep Dive</u></a></li>
+</ul></div>
 
