@@ -1,7 +1,7 @@
 ---
 title: Experience the New Moto G with Stylus - Top-Tier Efficiency & Satisfying Battery Life
-date: 2024-08-11T00:08:55.296Z
-updated: 2024-08-12T00:08:55.296Z
+date: 2025-01-12T00:21:32.748Z
+updated: 2025-01-16T22:35:46.916Z
 categories:
   - BestProducts
 description: This Article Describes Experience the New Moto G with Stylus - Top-Tier Efficiency & Satisfying Battery Life
@@ -13,9 +13,6 @@ thumbnail: https://www.lifewire.com/thmb/K-xRvlzk2OiffJeOxFSeAZZgd9I=/400x300/fi
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/425lsqo6i1_7Vzb3ebrBxtVPgfM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
@@ -40,13 +37,13 @@ Lifewire / Zach Sweat
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/JA4MI_SE7Alxl0MLR7rMoIVzKgI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -72,6 +69,10 @@ Lifewire / Zach Sweat
  We reviewed the original $150 Elite controller when it debuted years ago and loved nearly every aspect of it, but it wasn’t flawless suffering from the lack of a few key features and some durability issues. This is where the newly updated Elite Series 2 controller comes in. Listening to feedback provided by gamers on the weaknesses of Series 1, Microsoft has put out what is likely to be the last iteration of the[Xbox One controller,](https://www.lifewire.com/xbox-one-consoles-4156250) and it’s pretty much perfect—provided you’re willing to pay the hefty price tag.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/t8wI_yN2s_uIQ1leo87MmOnXxb4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-5-0c39ec4e89eb45b094471681efec0e7d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -99,12 +100,13 @@ Lifewire / Zach Sweat
 
  Inside the case, the material has also been swapped from grey to black to continue the darker theme of the Series 2\. You’ll also notice the foam pad is no longer here, as that’s where the dock sits. This dock can be removed or used inside the case and attaches with a strong magnet. The last two parts of the case are unchanged from Series 1, with a mesh cradle for accessories on the top and a foam organizer to hold all the swappable thumbsticks and paddles when not in use.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/TRrezKVbAUPs2Rud3g4_iOHyxB8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-2-4b3f9d8acd1440089989378253d902f4.jpg)
 
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Comfort: Hefty, but darn comfy**
 
@@ -118,12 +120,17 @@ Lifewire / Zach Sweat
 
  The only real issue some users may see as a downside of this controller is that it’s quite a hefty device. The controller weighs 348 grams with all attachments, so it might take some getting used to compared to the 210 gram S controller. I personally love the bulk, as it feels premium, but it might not be for everyone.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/cS5fpyPSlqvyETs-nGxTtAB3vXU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-4-070b6c59b206457ba1068704bbe7bca9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process and Software: Bluetooth, at long last**
 
@@ -147,9 +154,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ## **Performance/Durability: Enhanced performance and durability**
 
  To test the performance of the new Elite Series 2 controller, I put this device through several hours of gaming on both PC and Xbox One platforms running a number of games and layouts. The results were promising, so let’s take a closer look.
@@ -172,11 +176,6 @@ Lifewire / Zach Sweat
 
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ## **Price: Like buying a brand new console**
 
  Right now, the Elite Series 2 controller retails at an MSRP of $249.99, about $100 more than its predecessor. This price tag makes it not only the most expensive first-party controller around, but also nearly the cost of a brand new Xbox One S console (or three brand new titles). That can be a tough sell for your average gamer.
@@ -185,16 +184,14 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  The argument could be made that considering you get a Bluetooth controller capable of working on XB1 and PC, a charging dock and a nice little case to keep it all together, the cost isn’t awful. But if you want all of those things for less, you can grab an S controller, dock and case for far, far less.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/6VfCJGOyjLkAkE_mjiHr7rz8Gyw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-6-0c1d7a2ae4e8443ea5b69f559e52bd12.jpg)
 
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
 
  Since the Elite controller really is in a league of its own, the biggest competitor to it is the first generation, which can still be purchased from a number of retailers. We’re going to quickly compare the two to see which might be best for you.
@@ -226,14 +223,11 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 * Warranty  90-day warranty
 * Compatibility  All Xbox One Consoles, Windows 10 PCs, Bluetooth devices
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -242,4 +236,23 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-smooth-operations-leading-windows-phones-videos/"><u>[New] In 2024, Smooth Operations Leading Windows Phones Videos</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-top-6-networks-fueling-business-innovation-and-growth/"><u>[New] In 2024, Top 6 Networks Fueling Business Innovation and Growth</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-streamlined-video-grabber-your-free-downloader-companion/"><u>[New] Streamlined Video Grabber Your Free Downloader Companion</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-transferring-tv-episodes-downloading-youtube-content-ios-style/"><u>[New] Transferring TV Episodes Downloading YouTube Content iOS-Style</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-premier-transcriber-platform-video-to-writing/"><u>[Updated] In 2024, Premier Transcriber Platform Video to Writing</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-best-8-streamers-pick-high-end-cameras-reviewed/"><u>2024 Approved Best 8 Streamer's Pick High-End Cameras Reviewed</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/1726028391772-dvd/"><u>世界中のDVDフォーマットに合わせて再生するコツ</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/duo-cameras-unlock-childhood-adventures/"><u>Duo Cameras: Unlock Childhood Adventures</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/illuminate-your-creativity-unveiling-spk10-037-kit-features/"><u>Illuminate Your Creativity: Unveiling SPK10-037 Kit Features</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-xiaomi-redmi-a2plus-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Xiaomi Redmi A2+ FRP</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/iphone-vs-samsung-the-ultimate-consumers-dilemma-top-picks-for-your-next-phone/"><u>IPhone vs Samsung: The Ultimate Consumer's Dilemma – Top Picks for Your Next Phone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sony-playstation-5-analysis-unleashing-enhanced-gaming-potential/"><u>Sony PlayStation 5 Analysis: Unleashing Enhanced Gaming Potential</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-drivers-dossier-a-compilation-of-unmatched-autos-and-engineering-books-for-the-year-2024/"><u>The Driver's Dossier – A Compilation Of Unmatched Autos and Engineering Books for the Year 2024!</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-start-your-adventure-with-no-more-errors-the-new-world-fixes-guide/"><u>Troubleshooting: Start Your Adventure with No More Errors – The New World Fixes Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-dji-mavic-3-and-its-impact-on-drone-photography/"><u>Ultimate Guide: DJI Mavic 3 and Its Impact on Drone Photography</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/value-champion-inside-look-at-the-performance-and-features-of-zte-blade-a3y/"><u>Value Champion: Inside Look at the Performance and Features of ZTE Blade A3Y</u></a></li>
+</ul></div>
 

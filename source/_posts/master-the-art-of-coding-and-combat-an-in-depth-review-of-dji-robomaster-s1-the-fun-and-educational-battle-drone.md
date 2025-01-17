@@ -1,7 +1,7 @@
 ---
 title: "Master the Art of Coding & Combat: An In-Depth Review of DJI Robomaster S1, The Fun & Educational Battle Drone"
-date: 2025-01-05T19:52:45.795Z
-updated: 2025-01-11T01:25:41.126Z
+date: 2025-01-15T16:48:30.880Z
+updated: 2025-01-16T21:58:31.258Z
 categories:
   - BestProducts
 description: "This Article Describes Master the Art of Coding & Combat: An In-Depth Review of DJI Robomaster S1, The Fun & Educational Battle Drone"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/e2b3e6d5f3444ca9eb9fe2e05133bcedc239a2116
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Netgear AC1200 Wireless WiFi Range Extender (EX6200)
 
@@ -46,9 +42,17 @@ Lifewire / Fred Meyer
 
 4
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Netgear AC1200 Wireless WiFi Range Extender (EX6200)
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/ypwoGr7PKp9XOfm_EgF2BsvzZkg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-2LW4043312-1-5c924aa1c9e77c0001e11e41.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Fred Meyer
 
@@ -82,6 +86,10 @@ Lifewire / Fred Meyer
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/lHiNdBeYxT8ClO7fv3LwEZqMjWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-6-5c924b2dc9e77c0001a9278c.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Fred Meyer
 
  We also loved the fact that the EX6200 uses a separate AC adapter and cord to supply its power. Other extenders that plug into a socket limit the areas you can deploy them, take up a wall plug, and just are usually an eyesore. On the other hand, the EX6200 is a very attractive piece of equipment that looks sharp sitting on a desk. Also, if you just don't want to show, since it uses a cord you have the freedom to tuck it somewhere out of sight easily.
@@ -104,10 +112,6 @@ Lifewire / Fred Meyer
 
  If you've followed the above steps and your Wi-Fi connection is strong, you're good-to-go and you can start living your life with the Wi-Fi coverage you always knew you deserved. Otherwise, you'll have to shuffle the extender either closer to the dead zone or closer to the router until you find the sweet spot.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Software: Netgear magic**
 
  The Netgear EX6200 doesn't require any special software installation. If you need to access the interface, you just need to be connected to it in some manner, either through Wi-Fi or Ethernet, and you can open the control panel in a browser. You can access the extender by either using the local address (<www.mywifiext.net>) or via the device's IP.
@@ -117,10 +121,6 @@ Lifewire / Fred Meyer
  All-in-all, the Netgear Genie software isn't going to blow your mind, but it's straightforward, and since most network configuration settings are done at the router, you don't need a ton of options.
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/C3GG9BATc7pjzGQZsIXmC4hlBTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-4-5c924c5046e0fb000146ae2c-e8aa858c433c410696d08b615cdee234.jpeg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Fred Meyer
 
@@ -140,14 +140,10 @@ Lifewire / Fred Meyer
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/ZHlEjP4KLtEcUqCvuXTg1eZBnFg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-3-5c924c8f46e0fb0001770187-2a10c24af5834857aeb7b4cfcd1cc6a9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Fred Meyer
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Network Performance: Adequate but not spectacular**
@@ -163,7 +159,7 @@ Lifewire / Fred Meyer
  At $99.99 (MSRP) the EX6200 isn't exactly cheap. You can get extenders for $30 or lower that get the job done, but that's all they'll do. We found that the EX6200 struck a good balance between price and features, and is an excellent extender for most use cases.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: Middle of the road choice**
@@ -184,6 +180,10 @@ Lifewire / Fred Meyer
 
 * [Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008)
 * [TP-Link AC1200 RE305](https://www.lifewire.com/tp-link-ac1200-wifi-range-extender-re305-review-4589559)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -220,16 +220,21 @@ Lifewire / Fred Meyer
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-accelerate-thumbnail-designs-for-professional-valorant-portraits/"><u>[Updated] In 2024, Accelerate Thumbnail Designs for Professional Valorant Portraits</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95842528-9781788284554-discover-meditation-mindfulness/"><u>Discover Meditation & Mindfulness | Free Book</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/exclusive-magazine-insert-special-edition-cd-and-dvd-bundle-from-digiarty-software/"><u>Exclusive Magazine Insert: Special Edition CD & DVD Bundle From DigiArty Software</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-examination-of-the-huion-kamvas-gt-191-artistic-touchpad-your-ultimate-guide/"><u>In-Depth Examination of the Huion Kamvas GT-191 Artistic Touchpad - Your Ultimate Guide</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/mastering-the-art-of-vocal-tweaks-in-tiktok-videos/"><u>Mastering the Art of Vocal Tweaks in TikTok Videos</u></a></li>
-<li><a href="https://extra-support.techidaily.com/pioneering-your-path-in-youtube-livestreams-on-mobiles-for-2024/"><u>Pioneering Your Path in YouTube Livestreams on Mobiles for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/pros-and-cons-of-hero-series-vs-polaroids-video-editors-for-2024/"><u>Pros & Cons of Hero Series Vs. Polaroid's Video Editors for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sonys-whole-hearing-evolution-wh-1000xm4-insights/"><u>Sony's Whole Hearing Evolution: WH-1000XM4 Insights</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/top-ios-18-update-perk-that-thrills-android-fans/"><u>Top iOS 18 Update Perk That Thrills Android Fans</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-economical-solution-for-privacy-the-amazon-basics-heavy-duty-paper-shredder-6-sheets-review/"><u>Top Rated Economical Solution for Privacy: The Amazon Basics Heavy Duty Paper Shredder (6 Sheets) Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unpacking-the-kensun-portable-air-compressor-robustness-meets-convenience/"><u>Unpacking the Kensun Portable Air Compressor: Robustness Meets Convenience</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-art-of-crafting-a-youtube-video-with-100kplus-reach/"><u>[New] The Art of Crafting a YouTube Video with 100K+ Reach</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-top-9-indoor-game-apps-perfect-for-android-without-connectivity-for-2024/"><u>[Updated] Top 9 Indoor Game Apps - Perfect For Android Without Connectivity for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-integration-for-seamless-smart-living-controls/"><u>ChatGPT Integration for Seamless Smart Living Controls</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-linksys-wrt3200acm-top-ranking-open-source-router-on-the-market/"><u>Comprehensive Evaluation of Linksys WRT3200ACM - Top Ranking Open-Source Router on the Market</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-freefire-gameplay-on-youtube-channels-for-2024/"><u>Elevate Your FreeFire Gameplay on YouTube Channels for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exclusive-soundscape-in-every-h8i-beat/"><u>Exclusive Soundscape in Every H8i Beat</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fitbit-sense-review/"><u>Fitbit Sense Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fossil-sport-collection-top-notch-and-economically-friendly-wearables-unveiled/"><u>Fossil Sport Collection - Top Notch and Economically Friendly Wearables Unveiled</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-vivo-t2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Vivo T2 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-x5-pro-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Poco X5 Pro Phone with Broken Screen</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-do-you-unlock-your-apple-iphone-8-plus-learn-all-4-methods-by-drfone-ios/"><u>In 2024, How Do You Unlock your Apple iPhone 8 Plus? Learn All 4 Methods</u></a></li>
+<li><a href="https://some-tips.techidaily.com/master-devops-principles-on-a-budget-secure-your-spot-in-linux-foundations-low-cost-bootcamp-zdnet-insights/"><u>Master DevOps Principles on a Budget: Secure Your Spot in Linux Foundation's Low-Cost Bootcamp | ZDNET Insights</u></a></li>
+<li><a href="https://extra-information.techidaily.com/mastering-typefaces-for-effects-select-10-titles/"><u>Mastering Typefaces for Effects Select 10 Titles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-linkedin-course-selections/"><u>Top-Rated LinkedIn Course Selections</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-device-list-for-chilling-by-water/"><u>Ultimate Device List for Chilling by Water</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unbeatable-roku-offers-your-ultimate-guide-to-prime-day-savings/"><u>Unbeatable Roku Offers: Your Ultimate Guide to Prime Day Savings</u></a></li>
 </ul></div>
 

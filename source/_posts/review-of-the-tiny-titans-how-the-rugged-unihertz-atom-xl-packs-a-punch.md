@@ -1,7 +1,7 @@
 ---
 title: "Review of the Tiny Titans: How the Rugged Unihertz Atom XL Packs a Punch"
-date: 2025-01-03T17:55:45.039Z
-updated: 2025-01-11T05:06:28.262Z
+date: 2025-01-09T16:00:22.035Z
+updated: 2025-01-16T22:17:49.746Z
 categories:
   - BestProducts
 description: "This Article Describes Review of the Tiny Titans: How the Rugged Unihertz Atom XL Packs a Punch"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Withings Withings Move Hybrid Smartwatch
 
@@ -44,9 +48,17 @@ Lifewire / Yoona Wagener
 
 3.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Withings Withings Move Hybrid Smartwatch
 
 ![Withings Move](https://www.lifewire.com/thmb/0q_63hnHYzqQ5_H2Q2RzjXF5Nls=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4161013-1-a308b649704344f6b5fd15dc900e5742.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -75,6 +87,10 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/SRCqvDOet8fouJ8uY8ze0LlCiog=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-2-1fdc9f06eb6a45f2baa2b840822fba5d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
 ## **Design: Slim and clean**
@@ -93,15 +109,7 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/Qz1dlsE8jl99mXc7-kQ5LCVoiK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-3-b1e97631284d40829bd5714c59dc5f2a.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Yoona Wagener
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process** :**As easy as 1-2-3**
 
@@ -112,10 +120,6 @@ Lifewire / Yoona Wagener
  The first thing we had to do was sign up for an account in order to move forward with the installation. After we did that, most of the steps took just a few seconds or up to a minute at the longest.
 
  First, we paired the Withings Move with our phone via Bluetooth, which was instantaneous. Next, we provided profile information for better activity metrics, downloaded an update, made sure the watch dials were working and the time was set correctly, and we were good to go.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Comfort: Light as a feather, even while sleeping**
 
@@ -145,6 +149,10 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/vaUmI1isQP98tmL8uIZSghmAWGs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-6-259d8034cfb64485be60f9c5754fec79.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
 
 ## **Battery: Long-lasting and hassle-free**
@@ -154,7 +162,7 @@ Lifewire / Yoona Wagener
 ![Withings Move](https://www.lifewire.com/thmb/02bkMrpkzqBOue1ffhHNfQqaIuk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-4-df866fafd70a44c592e0e06e0ea53ae7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Yoona Wagener
@@ -177,10 +185,6 @@ Lifewire / Yoona Wagener
 
  Those looking for a dressier and more substantial watch may find these Fossil models to be better alternatives. Other devices that are comparable in price, like the Fitbit Inspire Fitness Tracker, lack the analog watch qualities and look like designated activity trackers. The Withings Move splits the difference at a modest price.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Withings Move vs. Misfit Phase**
 
  The Misfit Phase is another hybrid smartwatch with a classic wristwatch look, maybe even more so than the Withings Move. Priced at around $175, the Misfit Phase is more expensive, but also comes with a few bonuses that the Withings Move lacks, like text notifications, playing and pausing music on your phone, and also taking selfies.
@@ -194,10 +198,6 @@ Lifewire / Yoona Wagener
 **Best for those who prefer the analog experience.**
 
  The Withings Move is a strong entry-level fitness tracker for the person who wants to track activities without going all-in on a smartwatch. It’s inexpensive, sporty, and subtle, which makes it compelling for those who don’t want to be distracted by notifications and all the hands-on features smartwatches bring to the table.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -226,18 +226,19 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-pro-youtuber-essentials-studio-choice-over-beta-alternative/"><u>[Updated] 2024 Approved Pro YouTuber Essentials Studio Choice Over Beta Alternative</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-social-media-success-iphone-360-video-filming-guide/"><u>[Updated] Social Media Success IPhone 360 Video Filming Guide</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-superior-5-web-video-capture-kits/"><u>[Updated] Superior 5 Web Video Capture Kits</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-mix-mastery-syncing-audio-to-windows-11-videos/"><u>2024 Approved Mix Mastery Syncing Audio to Windows 11 Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-essence-of-insta-bokeh-a-step-by-step-guide/"><u>2024 Approved The Essence of Insta Bokeh - A Step-by-Step Guide</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/all-about-blue-screens-a-thorough-breakdown-of-critical-system-error-codes/"><u>All About Blue Screens: A Thorough Breakdown of Critical System Error Codes</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/detailed-analysis-unveiling-the-lenovo-yoga-a940s-capabilities/"><u>Detailed Analysis: Unveiling the Lenovo Yoga A940's Capabilities</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-newly-launched-stylish-acer-chromebook-r11/"><u>Expert Analysis of the Newly Launched Stylish Acer Chromebook R11</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Infinix Hot 40 Pro? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-secure-success-in-win11-meetings-with-advanced-zooming-techniques/"><u>In 2024, Secure Success in Win11 Meetings with Advanced Zooming Techniques</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-vyncs-robust-monitoring-service-with-multi-level-subscription-model/"><u>In-Depth Look at VyNCs' Robust Monitoring Service with Multi-Level Subscription Model</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-budget-champion-an-in-depth-review-of-tp-links-archer-a6/"><u>Unveiling the Budget Champion: An In-Depth Review of TP-Link's Archer A6...</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/1728480033130-windows-107/"><u>データが消える危険性：Windows 10アップデート後に注意！7つの至極重要な対策</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-sky-adventures-with-the-syma-helibor-x8h-a-comprehensive-review/"><u>Affordable Sky Adventures with the Syma Helibor X8H - A Comprehensive Review</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/clarity-chatgpt-is-definitely-malware-for-win-users/"><u>Clarity: ChatGPT Is Definitely Malware for Win Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-the-new-nest-hub-by-google-gen-2-no-camera-but-is-it-enough/"><u>Comprehensive Guide to the New Nest Hub by Google (Gen 2) - No Camera, But Is It Enough?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-compreenasian-guide-to-beautiful-collage-making/"><u>In 2024, Compreenasian Guide to Beautiful Collage Making</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insights-into-the-d-link-powerline-2000-a-look-at-simplicity-in-configuration-and-high-transfer-velocity/"><u>Insights Into The D-Link Powerline 2000: A Look at Simplicity in Configuration & High Transfer Velocity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-your-options-why-an-amazon-fire-tablet-might-beat-the-ipad/"><u>Navigating Your Options: Why an Amazon Fire Tablet Might Beat the IPad</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210339416-9781401966836-sedona-psychic-energy-vortexes/"><u>Sedona, Psychic Energy Vortexes | Free Book</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-bridging-you-with-googles-advertising-on-youtube-for-2024/"><u>Sites Bridging You with Google's Advertising on Youtube for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-best-eco-friendly-energy-storage-option-after-powerwall-exploring-anker-solix-x1-zdnet/"><u>The Best Eco-Friendly Energy Storage Option After Powerwall: Exploring Anker Solix X1 | ZDNET</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-checklist-navigating-the-choices-for-buying-non-carrier-phones/"><u>The Checklist: Navigating the Choices for Buying Non-Carrier Phones</u></a></li>
+<li><a href="https://facebook.techidaily.com/todays-steering-group-at-facebook/"><u>Today’s Steering Group at Facebook</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-unsupported-accessories-compatible-with-your-iphone/"><u>Troubleshooting: Unsupported Accessories Compatible with Your iPhone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unveiling-the-secrets-behind-telegram-an-in-depth-guide-for-beginners/"><u>Unveiling the Secrets Behind Telegram: An In-Depth Guide for Beginners</u></a></li>
 </ul></div>
 

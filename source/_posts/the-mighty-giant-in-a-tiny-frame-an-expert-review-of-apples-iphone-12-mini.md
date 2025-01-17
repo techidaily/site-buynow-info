@@ -1,7 +1,7 @@
 ---
 title: "The Mighty Giant in a Tiny Frame: An Expert Review of Apple's iPhone 12 Mini"
-date: 2024-08-11T00:09:52.739Z
-updated: 2024-08-12T00:09:52.739Z
+date: 2025-01-11T18:26:58.031Z
+updated: 2025-01-16T19:49:17.182Z
 categories:
   - BestProducts
 description: "This Article Describes The Mighty Giant in a Tiny Frame: An Expert Review of Apple's iPhone 12 Mini"
@@ -13,15 +13,13 @@ thumbnail: https://thmb.techidaily.com/2cdcba4b1f7015b8a27449250ed093dcedd443fa9
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 1byone Amplified Digital HDTV Antenna
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/pWXHOnFpWCs9EltKF9bRUP_y5aU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -45,9 +43,6 @@ Lifewire / Jonno Hill
 
 ## 1byone Amplified Digital HDTV Antenna
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/y6y0rP_H9I7oHwldUMIq-18GrFw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
 
 Lifewire / Jonno Hill
@@ -89,6 +84,10 @@ Lifewire / Jonno Hill
 
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Good enough for most**
 
  The 1byone Digital Amplified Indoor HD TV Antenna didn’t have the best performance of the antennas we’ve tested, falling somewhere in the middle of the pack. In my channel acquisition test, I averaged 59 channels across all the tests performed. This compares to the worst performing antenna at just 47, and the best at 76.
@@ -99,20 +98,22 @@ Lifewire / Jonno Hill
 
  1byone makes no specific promises about the range of their antenna, although they do cite users having positive experiences from as far as 48 miles away in their customer testimonials. Given how many factors impact the effective range, I think it is somewhat wise not to make any promises. Nonetheless, this is clearly a device that will be best suited for people living in or near major metropolitan areas.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/6y-ITpY8n7xf8BteMqdJjYm-paU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_05-178a02351af040cc89c86169b88a6de2.jpg)
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: A great deal**
 
  The 1byone Digital Amplified Indoor Antenna costs just $25, making it the least expensive option out of the antennas I tested. It picked up all the major channels that I would actually watch, and didn’t have any issues with the signal. So from my perspective, why would I pay more? I think buyers would probably be best served by seeing if an antenna like this works for them. If you discover you need something more substantial, feel free to move on to a pricier option.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **1byone Digital Amplified Indoor HD TV Antenna vs Mohu Leaf 30 TV Antenna**
 
  Another popular manufacturer is Mohu, and the Mohu Leaf 30 TV Antenna offers a simpler, non-amplified solution that only loses out on a hair of performance versus the 1byone. I preferred the build quality of the Mohu Leaf, if only marginally, and like the simplicity of not needing additional wires and boxes hanging out of my TV.
@@ -126,8 +127,9 @@ Lifewire / Jonno Hill
  The 1byone Digital Amplified Indoor Antenna offers the best value out of all the indoor antennas that we tested. If you can get the performance you need from the 1byone, it’s the antenna to buy. I wouldn’t consider other options unless you’ve already ruled out this one.
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Amplified Digital HDTV Antenna
@@ -141,14 +143,11 @@ Lifewire / Jonno Hill
 * Indoor/Outdoor  Indoor
 * Warranty  One year limited
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -157,4 +156,22 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-livechat-capture-suite-fb-version/"><u>[New] In 2024, LiveChat Capture Suite FB Version</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/astering-vintage-visual-storytelling-techniques/"><u>[New] Mastering Vintage Visual Storytelling Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-iphone-techniques-crafting-striking-silhouettes/"><u>[Updated] In 2024, IPhone Techniques Crafting Striking Silhouettes</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-legal-framework-the-fine-print-for-facebook-video-postings-for-2024/"><u>[Updated] Legal Framework The Fine Print for Facebook Video Postings for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-prime-sd-card-selections-for-optimal-gopro-hero-78-performance/"><u>[Updated] Prime SD Card Selections for Optimal GoPro Hero 7/8 Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/all-about-the-apple-iphone-upgrade-program/"><u>All About the Apple iPhone Upgrade Program</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/celebrating-w15as-features-while-noting-its-flaws/"><u>Celebrating W15A's Features While Noting Its Flaws</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-why-moto-g-power-stands-out-with-its-incredible-battery-life/"><u>Explore Why Moto G Power Stands Out with Its Incredible Battery Life</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-nokia-xr21-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Nokia XR21</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-through-the-iconic-era-of-lgs-wearable-tech-a-closer-look-at-the-wear-os-20-smartwatch-range/"><u>Navigating Through The Iconic Era of LG's Wearable Tech – A Closer Look at the Wear OS 2.0 Smartwatch Range</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-ultimate-guide-to-selecting-mobile-speech-to-text-software/"><u>New In 2024, Ultimate Guide to Selecting Mobile Speech-to-Text Software</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-remarkable-impact-of-apples-revolutionary-m1-processor-an-expert-review-of-2020-macbook-air-13-inch/"><u>The Remarkable Impact of Apple's Revolutionary M1 Processor: An Expert Review of 2020 MacBook Air 13-Inch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-sound-of-competitive-play-g-pro-x-review/"><u>The Ultimate Sound of Competitive Play: G Pro X Review</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-fixing-your-non-responsive-wacom-graphics-tablet/"><u>Troubleshooting Guide: Fixing Your Non-Responsive Wacom Graphics Tablet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-motorola-one-hyper-a-vibrant-and-powerful-mid-range-contender/"><u>Unveiling the Motorola One Hyper: A Vibrant and Powerful Mid-Range Contender</u></a></li>
+</ul></div>
 

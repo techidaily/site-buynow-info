@@ -1,7 +1,7 @@
 ---
 title: Lenovo Ideapad # Student
-date: 2024-08-11T00:11:48.124Z
-updated: 2024-08-12T00:11:48.124Z
+date: 2025-01-10T19:37:52.941Z
+updated: 2025-01-16T16:02:13.002Z
 categories:
   - BestProducts
 description: This Article Describes Lenovo Ideapad # Student
@@ -15,10 +15,11 @@ thumbnail: https://www.lifewire.com/thmb/G1oG26gp57YAB7fy1gGV5fHuw8Q=/400x300/fi
 
 ## Lenovo Tab M10 FHD Plus (2nd Gen)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/qvZCuf5GNYc0R5K4KD2s9QFXUgs=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_HeroSquare-fd396d12e6ec48668ead96bed2f790fb.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -41,9 +42,6 @@ Lifewire / Jeremy Laukkonen
 
 ## Lenovo Tab M10 FHD Plus (2nd Gen)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/dbD4xoAS3V_HdF9dkFJwAPoswK0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_HeroSquare-fd396d12e6ec48668ead96bed2f790fb.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -79,9 +77,6 @@ Lifewire / Jeremy Laukkonen
 
  The Tab M10 FHD Plus (2020) is one successor to 2019’s Tab M10\. It packs a slightly more powerful processor, bigger battery, and batter cameras. The display remains unchanged in resolution, but the Tab M10 FHD Plus (2020) does have a slightly bigger display. The price tag of the Tab M10 FHD Plus (2020) is also a bit smaller.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Design: Attractive metal design feels solid in the hand
 
  The second gen Tab M10 FHD Plus has a premium look and feel that helps set it apart from a lot of budget Android tablets. The big 10.3-inch display dominates the front of the tablet with an expansive 82-percent screen-to-body ratio, with fairly thin side bezels and chunkier top and bottom bezels to accommodate the selfie cam on one end and provide balance on the other.
@@ -94,10 +89,11 @@ Lifewire / Jeremy Laukkonen
 
  The right edge of the tablet holds the power button and volume rocker, along with a micro SD card tray that you can use to expand onboard storage. If you opt for the LTE model, the same drawer also has a slot for a SIM card.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/Ma5tHUu5pX1_gI7bCahJfUmTcJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_04-5bc59222ddfe4d488b3aaf566fdf3300.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -105,9 +101,6 @@ Lifewire / Jeremy Laukkonen
 
  The back of the tablet has the aforementioned cutouts on the top and bottom, and the single rear-facing camera in the upper left corner. Aside from the Lenovo logo, Dolby logo, and an informational sticker that you’re free to remove, that’s it.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ## Display: Great-looking full HD screen
 
  Like the first generation of Lenovo’s M10 hardware, the Tab M10 FHD Plus features a full HD display. The 10.3-inch IPS LCD panel has a resolution of 1920 x 1200 for a display ratio of 16:10 and a pixel density of about 220 ppi. The result is a bright, colorful, beautiful display that looks great even when viewed from right up close.
@@ -118,9 +111,6 @@ Lifewire / Jeremy Laukkonen
 
  The colors look great, the image is nice and crisp without visible pixelation, and it has great viewing angles thanks to the IPS panel.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Performance: Decent enough for the price
 
  The Tab M10 FHD Plus is powered by an octa-core Mediatek MT6762 Helio P22T chip, and it’s available in a handful of[RAM](https://www.lifewire.com/what-is-random-access-memory-ram-2618159) and storage configurations. You can get it with 32GB of storage and 2GB of RAM, 64GB and 4GB, or 128GB with 4GB of RAM. My test unit was the 128GB / 4GB model.
@@ -137,6 +127,10 @@ Lifewire / Jeremy Laukkonen
 
  I also ran a couple graphics benchmarks from GFXBench. The first one I ran was Car Chase, which is a game-like benchmark that tests how well a device handles lighting, physics, and other things. It hit just 5.9 FPS in that benchmark, which is significantly better than the 3.4 FPS I saw from the less expensive Tab M10 HD, but still very unimpressive. It did better in the less intense T-Rex benchmark, registering a playable 31 FPS.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Productivity: Excels at basic productivity tasks
 
  With its big 10.3-inch display and decent overall performance, the Tab M10 FHD is positioned better as a productivity device than a lot of other tablets in this class. It excels at basic productivity tasks, like email and web browsing, and it’s a great little tablet to have on hand as an auxiliary or secondary device.
@@ -145,9 +139,6 @@ Lifewire / Jeremy Laukkonen
 
  I also used it for a handful of[Discord](https://www.lifewire.com/discord-4174046) video calls, but the low quality selfie cam failed to impress in that department. It works well enough in a pinch, but I wouldn’t recommend it as a primary device for word processing, video conferencing, or anything along those lines.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## Audio: Stereo sound with Dolby Atmos
 
  The Tab M10 FHD Plus includes stereo speakers located on opposite ends of the device and support for Dolby Atmos. While it isn’t the best-sounding tablet I’ve ever tested, it's great for a device in this price range. There isn’t a whole lot of bass, but everything sounded quite clear without any harsh tones or strange vibrations.
@@ -166,11 +157,19 @@ Lifewire / Jeremy Laukkonen
 
  Next up, I took the Tab M10 FHD Plus into a hallway around the corner at a distance of about 10 feet from the router. At that distance, the connection speed dropped to 184 Mbps. I then took it about 60 feet from the router into another room with walls and other obstructions in the way, and the speed dropped only to 182 Mbps. Finally, I took it out into my garage, at a distance of about 100 feet, and the speed dropped to 26.5 Mbps.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Camera: Disappointing results all around
 
  The Tab M10 FHD Plus has better cameras than the first generation of the Tab M10 hardware, but the results still aren’t that great. It has the same 8MP sensor on the back and 5MP selfie cam that you get in the less expensive Tab M10 HD. These cameras are more acceptable in the less expensive version of the hardware than they are here.
 
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/fW7pWFeGLdIkaBDNJBR5LIE2TF0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_03-638edb188f924604b2d38f1307add396.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -179,8 +178,9 @@ Lifewire / Jeremy Laukkonen
  The selfie cam is sufficient for video calls, but it wouldn’t be my first choice. Video looks washed out and flat, with excessive noise depending on the lighting conditions. Photos look like artifacts from a different time.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Battery: Could use a bigger battery
 
  The Tab M10 FHD Plus includes a 5,000 mAh battery and supports up to 10W charging. The battery is the same one found in the less expensive Tab M10 HD, and it should really be bigger due to the increased power consumption of the bigger display. When using the tablet during the day for email and web browsing, and at night to stream videos, I found myself needing to put it on the charger every day.
@@ -188,6 +188,10 @@ Lifewire / Jeremy Laukkonen
  To test the battery, I connected to Wi-Fi, opened YouTube, and streamed HD videos nonstop until the tablet died. Under those conditions, I found it to last only about four hours. You could get more time out of it by shutting off Wi-Fi or lowering the screen brightness, but it still isn’t that great a battery life, and this tablet could definitely use a bigger battery.
 
  The battery is the same one found in the less expensive Tab M10 HD, and it should really be bigger due to the increased power consumption of the bigger display.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Software: Originally shipped with Android Pie, now comes with Android 10
 
@@ -201,9 +205,6 @@ Lifewire / Jeremy Laukkonen
 
  The Tab M10 FHD has an MSRP of between $149.99 and $209.99 depending on the configuration you choose, with the version that includes a dock being a bit more expensive, and those prices are pretty reasonable. I’ve also seen it on sale for a bit less than that, at which point it makes the move from adequately priced to a great deal. If you find the configuration I tested, with 4GB of RAM, it'll be priced closer to $149.99—a fantastic value.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/6jtXbNEbp6IeWqkD4Bs-0KjGx4Q=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_05-afa4a59fc67343c785979e6eb3f67c48.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -221,8 +222,9 @@ Lifewire / Jeremy Laukkonen
  The Lenovo Tab M10 FHD Plus (2020) is a great option if you’re looking for a basic Android tablet for less than $200\. It can’t stand up to more expensive tablets, but it’s great for basic tasks like email, web browsing, and streaming media. The only issue is that you can’t get the dock separately, so make sure to grab the Lenovo Smart Tab M10 FHD Plus that includes the dock if you want that functionality.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Lenovo P11 Pro](https://www.lifewire.com/lenovo-p11-pro-review-5116910)
@@ -257,8 +259,6 @@ Lifewire / Jeremy Laukkonen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -266,4 +266,19 @@ Lifewire / Jeremy Laukkonen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-prime-fb-experience-the-ultimate-ten-players/"><u>[New] 2024 Approved Prime FB Experience The Ultimate Ten Players</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-audio-recording-101-from-youtube-playback-to-files-for-2024/"><u>[New] Audio Recording 101 From YouTube Playback To Files for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-advances-in-syma-x8c-flight-autonomy/"><u>[Updated] In 2024, Advances in Syma X8C Flight Autonomy</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exclusive-review-of-google-nest-hello-security-features-and-smart-home-integration-unveiled/"><u>Exclusive Review of Google Nest Hello: Security Features & Smart Home Integration Unveiled</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-honor-90-lite-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Honor 90 Lite Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-vivo-t2-pro-5g-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Vivo T2 Pro 5G Location | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-garmin-forerunner-745-top-of-the-line-gps-sports-watch/"><u>In-Depth Analysis of the Garmin Forerunner 745: Top-of-the-Line GPS Sports Watch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/iphone-showdown-how-the-new-iphone-15-pro-stands-up-against-the-pro-max/"><u>IPhone Showdown: How the New iPhone 15 Pro Stands Up Against the Pro Max</u></a></li>
+<li><a href="https://windows11.techidaily.com/mastering-iis-quick-windows-internet-pathway/"><u>Mastering IIS: Quick Windows Internet Pathway</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionize-your-home-internet-with-asus-orbi-tri-band-wi-fi-6-a-comprehensive-product-assessment/"><u>Revolutionize Your Home Internet with ASUS Orbi Tri-Band Wi-Fi 6 - A Comprehensive Product Assessment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-lenovo-ideapad-320-assessment-sleek-and-lightweight-laptop-featuring-lenovos-iconic-keyboard/"><u>Top Lenovo IdeaPad 320 Assessment - Sleek & Lightweight Laptop Featuring Lenovo's Iconic Keyboard</u></a></li>
+</ul></div>
 

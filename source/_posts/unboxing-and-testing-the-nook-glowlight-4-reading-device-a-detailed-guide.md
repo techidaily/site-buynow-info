@@ -1,7 +1,7 @@
 ---
 title: Unboxing & Testing the Nook GlowLight 4 Reading Device - A Detailed Guide
-date: 2024-08-11T00:11:42.716Z
-updated: 2024-08-12T00:11:42.716Z
+date: 2025-01-12T20:28:15.165Z
+updated: 2025-01-16T20:50:41.777Z
 categories:
   - BestProducts
 description: This Article Describes Unboxing & Testing the Nook GlowLight 4 Reading Device - A Detailed Guide
@@ -13,14 +13,8 @@ thumbnail: https://www.lifewire.com/thmb/gNfXD3p4OfpTiznU4wTzYEqmh-k=/400x300/fi
 
 4.8
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Beatit 800A BT-D11 Car Jump Starter
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/OIHJ0F8VMR0yFUpC8veJBJ39E6A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
 
  Lifewire / Tony Mitera
@@ -49,6 +43,10 @@ thumbnail: https://www.lifewire.com/thmb/gNfXD3p4OfpTiznU4wTzYEqmh-k=/400x300/fi
 
 ![Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter](https://www.lifewire.com/thmb/7R_IVd_cu2-li0Lw4-mRkmgyF1Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Beatit_JumpStarter_BT-D11_HeroSquare-8435600d56284af29842af0fe633c98d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Tony Mitera
 
 [View On EBay](https://www.ebay.com/p/563813511)
@@ -72,6 +70,10 @@ thumbnail: https://www.lifewire.com/thmb/gNfXD3p4OfpTiznU4wTzYEqmh-k=/400x300/fi
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: A lot of power packed into a small frame**
 
  The Beatit Jump Starter D11’s main unit's effectively a small black brick with red accents. Roughly the size of a small paperback book, the unit's constructed out of durable plastic and features a flashlight at one end. Along one of the long sides there's a small display that shows battery status, the on/off switch, two USB power outputs, and the device’s charging port. On the opposing side a rubber flap covers the jumper cable port; a unique port that the jumper cable accessory plugs in to.
@@ -83,8 +85,9 @@ thumbnail: https://www.lifewire.com/thmb/gNfXD3p4OfpTiznU4wTzYEqmh-k=/400x300/fi
  The list of accessories that come with the unit includes both a wall charger and a 12V port charger, a Micro USB cable to charge devices with, and the jumper cables themselves. The jumper cable accessory is a pair of terminal clamps with relatively short cables that together join into a plastic module that plugs into the specific port on the unit. The module has a single status LED on its side that flashes different colors to signify different conditions, such as the unit being ready for jump starting, or indicating incorrect connection of the clamps.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup Process: It can’t realistically be much simpler**
 
  Should you find yourself in a situation where you need to use the jump start functionality of the Beatit Jump Starter D11, you'll find it quite easy to use. On our Elantra test vehicle we simply had to pop the hood, bring the unit over, and plug the jumper cable accessory into its port. Once in place getting a proper connection is a simple matter of attaching the red clamp to the positive battery terminal and then the black clamp to the negative terminal. With a firm connection in place we simply had to set the unit down someplace where the vibration of the engine wouldn’t make it slide and then start the car. With the unit in place the car immediately started with zero hesitation, at which point we could disconnect the unit and get back on the road.
@@ -93,9 +96,6 @@ thumbnail: https://www.lifewire.com/thmb/gNfXD3p4OfpTiznU4wTzYEqmh-k=/400x300/fi
 
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Performance: Plenty of power for all your needs**
 
  Time and again, the Beatit Jump Starter D11 was able to get a car with a very[depleted battery](https://www.lifewire.com/car-batteries-are-made-to-die-534765) started. Even after repeated testing the unit’s own battery only dropped down to 85% capacity.
@@ -105,8 +105,9 @@ thumbnail: https://www.lifewire.com/thmb/gNfXD3p4OfpTiznU4wTzYEqmh-k=/400x300/fi
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
  There aren’t a ton of other features present with the Beatit Jump Starter D11 but there are some of note, including the unit’s built-in flashlight. It’s a nice addition to have if you must jump start a car in the middle of the night, but it doesn’t put out of a ton of light and the beam is pretty narrow. You can pick the unit up and use it as a large flashlight, though doing so while also trying to get the clamps attached is cumbersome.
@@ -114,6 +115,10 @@ thumbnail: https://www.lifewire.com/thmb/gNfXD3p4OfpTiznU4wTzYEqmh-k=/400x300/fi
  A nice feature that is present in many jump starters but always appreciated is the included[12V port charger](https://www.lifewire.com/car-cigarette-lighter-12v-socket-534754) , which lets you charge the unit back up within the car once you have it started. Charging from the wall charger is faster overall, but people with a dodgy battery but a working alternator will appreciate being able to use the jump starter to get their car started and then charge the unit back up as they drive to their destination.
 
  Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: A ton of value for a tiny cost**
 
@@ -137,9 +142,6 @@ thumbnail: https://www.lifewire.com/thmb/gNfXD3p4OfpTiznU4wTzYEqmh-k=/400x300/fi
 
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  800A BT-D11 Car Jump Starter
@@ -162,8 +164,6 @@ thumbnail: https://www.lifewire.com/thmb/gNfXD3p4OfpTiznU4wTzYEqmh-k=/400x300/fi
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -171,4 +171,26 @@ thumbnail: https://www.lifewire.com/thmb/gNfXD3p4OfpTiznU4wTzYEqmh-k=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-advanced-methodologies-for-backdrop-purification-in-figma-design-for-2024/"><u>[New] Advanced Methodologies for Backdrop Purification in Figma Design for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-enhance-audio-quality-get-high-quality-fx/"><u>[New] In 2024, Enhance Audio Quality, Get High-Quality FX</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-zoom-mastery-maximizing-your-podcast-recording-quality/"><u>[Updated] 2024 Approved Zoom Mastery Maximizing Your Podcast Recording Quality</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-how-to-turn-your-google-meet-into-a-youtube-live-event/"><u>2024 Approved How To Turn Your Google Meet Into a YouTube Live Event</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-quick-start-uploading-your-videos-to-instagram-via-pcmac/"><u>2024 Approved Quick Start Uploading Your Videos to Instagram via PC/Mac</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/critique-of-oneplus-8t-speedy-execution-dampened-by-unreliable-camera-performance/"><u>Critique of OnePlus 8T: Speedy Execution Dampened by Unreliable Camera Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-best-virtual-programming-tutors-and-platforms-for-mastery/"><u>Discover the Best Virtual Programming Tutors and Platforms for Mastery</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-top-contenders-in-professional-art-tablets/"><u>Discover the Top Contenders in Professional Art Tablets</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-top-rated-totobay-wake-up-light-affordable-alarm-clock-with-gentle-sunrise-simulation/"><u>Discover the Top Rated Totobay Wake-Up Light - Affordable Alarm Clock with Gentle Sunrise Simulation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-of-dell-xps-13-7390-the-stunning-convertible-laptop/"><u>Expert Review of Dell XPS 13 7390: The Stunning Convertible Laptop</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/experts-at-work-swift-professional-thumbnails-for-valorant-highlights/"><u>Experts at Work Swift, Professional Thumbnails for Valorant Highlights</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ssiveness-enhancing-youtube-comments-via-emojis/"><u>Expressiveness Enhancing YouTube Comments via Emojis</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-discovering-synergistic-partnerships-on-youtube-platforms/"><u>In 2024, Discovering Synergistic Partnerships on YouTube Platforms</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/insights-and-analysis-of-the-amazon-fire-hd-8-gen-8-striking-value-in-an-affordable-user-friendly-tablet/"><u>Insights and Analysis of the Amazon Fire HD 8 Gen 8: Striking Value in an Affordable, User-Friendly Tablet</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/izing-click-through-rates-with-youtube-images-for-2024/"><u>Maximizing Click-Through Rates with Youtube Images for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/test-drive-ampasuns-newly-launched-andes-1500-compact-energy-solution-for-on-the-go-users/"><u>Test Drive: Ampasun's Newly Launched Andes 150^0 Compact Energy Solution for On-the-Go Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-review-on-ankers-speedboost-usb-30-hub-your-guide-to-enhanced-charging-efficiency/"><u>The Definitive Review on Anker's SpeedBoost USB 3.0 Hub - Your Guide to Enhanced Charging Efficiency</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-selecting-between-chromecast-and-roku-for-top-streaming-quality/"><u>The Ultimate Guide to Selecting Between Chromecast and Roku for Top Streaming Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-truth-behind-tp-link-av1300-extender-a-comprehensive-performance-review/"><u>Unveiling the Truth Behind TP-Link AV1300 Extender - A Comprehensive Performance Review</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: How the Apple iPhone 12 Mini Shatters Size Stereotypes with Phenomenal Performance
-date: 2024-08-11T00:11:50.217Z
-updated: 2024-08-12T00:11:50.217Z
+date: 2025-01-11T19:58:46.199Z
+updated: 2025-01-16T18:23:02.924Z
 categories:
   - BestProducts
 description: This Article Describes How the Apple iPhone 12 Mini Shatters Size Stereotypes with Phenomenal Performance
@@ -14,11 +14,16 @@ thumbnail: https://www.lifewire.com/thmb/RRm7SO68Yut-wFBusZ-z3LplvZA=/400x300/fi
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Sabrent Mini Travel USB Optical Mouse
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/NHk2GXtdpeJT9sEET7cl5b3Coq0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_HeroSquare-6ae9d6d299054d748f84492b5c31f033.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -44,6 +49,10 @@ Lifewire / Rebecca Isaacs
 ## Sabrent Mini Travel USB Optical Mouse
 
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/XBAevViAWBKn-uqOn_jnTLrfwTw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_HeroSquare-6ae9d6d299054d748f84492b5c31f033.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -74,9 +83,6 @@ Lifewire / Rebecca Isaacs
 
  It’s important to keep in mind that this is a wired, ergonomic mouse that relies on a USB port connection. So while it doesn’t require any batteries, it can be problematic if you need more than 25 inches the cable provides. The cable itself expands with a gentle pull of the cable from its own mini-port, and is easily retractable with a tug on each side of the cable. Just be careful when retracting it, as it is similar to a window shade in that it retracts with near-violent gusto.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/E-UHv94vEiLyLkgwTG1qIFE6uvQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_04-76e4b475ca3f4449a746c22f3713f784.jpg)
 
  Lifewire / Rebecca Isaacs
@@ -84,15 +90,13 @@ Lifewire / Rebecca Isaacs
  The cable’s addition increases the size of the mouse, bringing the total measurements to 6.44 x 1.5x 2.44 inches (LWH). The Sabrent also comes with a mesh carrying bag, making it easy to pack up and take on the go without scratching it. One more perk: this mouse is adaptable to most[Windows](https://www.lifewire.com/windows-4781566) ,[Mac](https://www.lifewire.com/mac-backup-software-hardware-and-guides-2260931) , and[Linux](https://www.lifewire.com/software-and-apps-4781541) systems, so you can insert it into USB ports across multiple machines for fast use.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup Process: Plug and play**
 
  Setting up the Sabrent proved simple and convenient. Expanding the cable and plugging it into the PC’s USB port allows the Sabrent to self-install. In under less than a minute, the plug and play features kick in. If you need to alter it to suit ambidextrous needs, you’ll need to head into the control panel of your PC to make the swap. Those requiring left-handed features will need to alter it. Once the software quickly installs, and you’re able to begin scrolling in no time.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/mM3uSf3Y2pyayDyWJzP8_5uUya4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_05-04e025144b514674b109e77f79129d74.jpg)
 
  Lifewire / Rebecca Isaacs
@@ -103,9 +107,6 @@ Lifewire / Rebecca Isaacs
 
  After using it for over 25 hours, the precision blew us away; even the smallest twitch of the mouse registered movement on the PC and[laptop](https://www.lifewire.com/computer-and-laptop-reviews-4102643) we tested it across. Not once did we have to reclick on an item because the Sabrent failed to register the movement, proving that the cable was of speedy and accurate benefit to the mouse. The speed of the mouse highlighted its precision, darting across the monitor screens as we shifted the mouse instantaneously.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/ZAK9csfHFEKVkNFSzE-Knbqabgs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_03-c6a7b875505642c69218c2c6c3449e50.jpg)
 
  Lifewire / Rebecca Isaacs
@@ -116,16 +117,10 @@ Lifewire / Rebecca Isaacs
 
  The cable length left something to be desired in a work PC, however. At 25 inches, it sounds like a dream come true, however, testing it on a standing desk where the PC tower is located further away from the keyboard and mouse we realized there was a problem. The length cable prevented us from shifting our grip on the mouse, and the tugging was a frustrating physical constraint. Laptop users won’t even notice the cable, but PC users may want to look for something a little more wireless.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Comfort: Too small**
 
  Because the mouse is so tiny, and barely fit into the palm of our hand, we constantly had to adjust our fingers to compensate for its size. Granted, we used the mouse for up to eight hours at a time in testing, and our muscles didn’t tire out and hands didn’t cramp, which was a testament to the ergonomic design. However, constantly having to shift our grip to press buttons and scroll was mildly annoying, especially when we were deeply engaged in work.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![Sabrent Mini Travel Mouse](https://www.lifewire.com/thmb/h8ibsbPtDqgJOD0XgpZSD6FOXUU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sabrent_Travel_Mouse_02-1331828bbc3f460baebd85cbd24d61e2.jpg)
 
  Lifewire / Rebecca Isaacs
@@ -148,6 +143,10 @@ Lifewire / Rebecca Isaacs
 
  While we constantly had to shift our grip on the tiny Sabrent mouse, we really liked its portability and fast, accurate movements. The cable proved to be difficult for desktop use, however, laptop users will enjoy the speeds that accompany the wired cable.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Mini Travel USB Optical Mouse
@@ -160,14 +159,11 @@ Lifewire / Rebecca Isaacs
 * Compatibility  Windows 2000 and up, Mac OS X and up, Linux systems
 * Connectivity options  USB Port, NOT Bluetooth Enabled
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -176,4 +172,26 @@ Lifewire / Rebecca Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-in-depth-review-of-audfreeplus-software/"><u>[New] 2024 Approved In-Depth Review of AudFreePlus Software</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-free-software-leaders-in-chromebook-screen-recording/"><u>[Updated] 2024 Approved Free Software Leaders in Chromebook Screen Recording</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-next-step-for-gopro-cameras-hero4-hero5/"><u>[Updated] The Next Step for GoPro Cameras (Hero4, Hero5)</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-act-strategically-managing-your-facebook-friend-network/"><u>Balancing Act: Strategically Managing Your Facebook Friend Network</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/battle-of-the-e-readers-comparing-features-and-benefits-of-ipads-kindles-and-nooks/"><u>Battle of the E-Readers: Comparing Features and Benefits of iPads, Kindles, and Nooks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/byb-e430-led-lamp-review-premium-swing-arm-lamp/"><u>BYB E430 LED Lamp Review: Premium Swing Arm Lamp</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-and-assessment-of-the-third-gen-apple-tv-4k/"><u>Comprehensive Guide and Assessment of the Third Gen Apple TV 4K</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-aeiusny-portable-solar-generator-ideal-pure-sine-wave-inverter-for-fragile-health-devices/"><u>Comprehensive Review of Aeiusny Portable Solar Generator - Ideal Pure Sine Wave Inverter for Fragile Health Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dbpower-6000mah-portable-charger-with-dbpowers-peak-performance-an-in-depth-look/"><u>DBPower 6000mAh Portable Charger with DBPOWER's Peak Performance – An In-Depth Look</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/discover-the-best-value-in-mechanical-switches-with-the-logitech-g515-lightspeed-tkl-review/"><u>Discover the Best Value in Mechanical Switches with the Logitech G515 Lightspeed TKL Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-major-advancements-with-the-latest-4th-generation-echo-gadget/"><u>Experience Major Advancements with the Latest 4Th Generation Echo Gadget</u></a></li>
+<li><a href="https://article-helps.techidaily.com/fastest-audio-playback-speed-controlers-collection-for-2024/"><u>Fastest Audio Playback Speed Controlers Collection for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fixing-your-it-admin-has-limited-controls-alert-on-windows/"><u>Fixing 'Your IT Admin Has Limited Controls' Alert on Windows</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/from-timeless-tales-in-tone-on-tone-to-dynamic-digital-narratives/"><u>From Timeless Tales in Tone-On-Tone to Dynamic Digital Narratives</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-does-the-tp-link-av1300-range-extender-stack-up-a-critical-analysis/"><u>How Does the TP-Link AV1300 Range Extender Stack Up?: A Critical Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-the-halo-bolt-power-bank-with-built-in-battery-booster-feature/"><u>In-Depth Review of the Halo Bolt Power Bank with Built-In Battery Booster Feature</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877209-9781609255404-mind-into-matter/"><u>Mind into Matter | Free Book</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-garmin-vivosmart-4-smartwatch-delving-into-next-gen-health-tracking-with-exceptional-energy-and-stress-metrics/"><u>The Ultimate Guide to Garmin Vivosmart 4 Smartwatch: Delving Into Next-Gen Health Tracking with Exceptional Energy & Stress Metrics</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-9-free-apps-for-adding-text-overlays-to-videos-a-comprehensive-guide/"><u>Top 9 Free Apps for Adding Text Overlays to Videos: A Comprehensive Guide</u></a></li>
+</ul></div>
 

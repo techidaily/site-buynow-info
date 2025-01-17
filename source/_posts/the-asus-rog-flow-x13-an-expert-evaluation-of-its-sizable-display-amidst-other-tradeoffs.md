@@ -1,7 +1,7 @@
 ---
 title: "The ASUS ROG Flow X13: An Expert Evaluation of Its Sizable Display Amidst Other Tradeoffs"
-date: 2024-08-11T00:10:27.168Z
-updated: 2024-08-12T00:10:27.168Z
+date: 2025-01-14T22:03:38.458Z
+updated: 2025-01-16T21:04:49.001Z
 categories:
   - BestProducts
 description: "This Article Describes The ASUS ROG Flow X13: An Expert Evaluation of Its Sizable Display Amidst Other Tradeoffs"
@@ -37,11 +37,12 @@ Lifewire / Jordan Provost
 
 4.9
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Apple iPad Pro 11-Inch (2018)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/SgNIbLZ961-p9WD7at7-M5m8Tuk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_HeroSquare-b5f2405776244188aa59f67503531baf.jpg)
 
 Lifewire / Jordan Provost
@@ -76,9 +77,6 @@ Lifewire / Jordan Provost
 
  Lifewire / Jordan Provost
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design and Features: Cutting edge**
 
  The iPad Pro is easy to pick up with one hand and barely makes a dent in your backpack storage. It feels like a notepad, and you can use it as such. For what is inside this piece of kit, that is a marvel This device even fits snug into the accessory slot of a laptop sleeve if you’re planning to double up. It is dainty, but what makes it so wonderful is that there are no compromises to make up for this, design-wise.
@@ -91,9 +89,6 @@ Lifewire / Jordan Provost
 
  Lifewire / Jordan Provost
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ## **Accessories: Useful for productivity**
 
  The two main attachments everyone should consider when purchasing an iPad Pro are the Apple Pencil and the Smart Keyboard Folio. The Apple Pencil is a powerful tool for artists and note takers, and the revised model includes a double-tap feature so you can quickly switch between brush styles and utilize functions usually locked off to the more PC-focused professional drawing tablets. Previous Apple Pencil users will be glad to know that it charges with a magnetic pad on the side of the device, and not awkwardly through the port at the bottom like previous models.
@@ -107,30 +102,28 @@ Lifewire / Jordan Provost
  Top 3 Tablets On the Market
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup Process: Fast and easy**
 
  Setting up the 11-inch iPad Pro is quick and painless, and strikingly similar to many of Apple’s other products. Once unboxed, we took the iPad out of its case and held down on the power button which led to the setup screen.
 
  Following this, we used our iPhone to scan the visual code on the screen which quickly linked the devices and ensured a smooth setup. If you don't own any other Apple products, you are led through a short set of screens where you pick your time zone, sign into your Apple ID, and connect to your WiFi. As part of the setup process, you also have to orient your head around the camera to ensure Face ID can set you up properly for the multiple viewing angles. Once everything has updated, you simply swipe up and are let loose into the Apple home screen from where you can start downloading and installing your apps.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/GV44W9kKlQd3SXT_XaWI-tjo6Cw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_6-2bcb5b2009154c92931411045a9b6ddc.jpg)
 
  Lifewire / Jordan Provost
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Display: Rich colors and smooth motion**
 
  Apple is well known for its gorgeous screens, and the iPad Pro absolutely delivers. The display is what Apple is calling ‘Liquid Retina’, an upgraded version of the technology that drives the screen on the iPhone XR. Wonderfully rich color reproduction, crisp text can be found across all of Apple’s proprietary apps and third-party optimized software. Reading articles and watching video content on streaming services is wonderful, and it even fares well amidst glare from sunlight. It’s still an LCD screen though, so OLED tablets will still have better-looking blacks and richer, more saturated colors. Fortunately for Apple, there aren’t many of those in the market.
 
  There’s also some nifty usability features that come packed with the iPad Pro. True Tone is a feature that helps match the display to the color temperature of your surroundings, which makes the screen easier on your eyes. The 120Hz Pro Motion technology alters the refresh rate of the screen depending on your usage, which results in extremely fluid motion, from scrolling, to playing games, or watching video. It’s difficult to find a poor viewing angle, though you still can’t watch 4K video on YouTube, which is a crying shame given the power of the screen, but more of a problem between Apple and Google rather than a knock to the device itself.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Powerhouse processor**
 
@@ -146,11 +139,16 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![IPad Pro 11 inch](https://www.lifewire.com/thmb/KXfYew06x6vujxu5asiFMPptK_k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_1-a6ce9e62649048d7a20596066576c2c5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Productivity: Not a laptop replacement just yet**
 
  The 2018 iPad Pro is an absolute force of nature as far as productivity is concerned. With the brilliant viewing angles, and options to attach both a nimble Apple Pencil and a Smart Keyboard to the device with relative ease, this tablet will suit the needs of many modern creatives and workers looking for an all-in-one device.
@@ -164,8 +162,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Outside of that, you can’t connect some external drives, Thunderbolt devices or use a mouse. Split View is also certainly a compromise to professionals used to using more than three programs at once.
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Audio: Thunderous sound**
 
  One of the major upgrades to the Pro is the stereo effect audio playback with four powerful speakers, two on either side of the device. The iPad Pro has truly stunning audio, and if you crank it up it could easily act as a party speaker. There is absolutely no need for anything external when watching video content. Amazingly, the fidelity of the audio never seems to suffer, even at full volume. Apple ditching the headphone jack poses an interesting problem in that you’re going to need a pair of Bluetooth headphones or buy an adapter to receive audio on the go.
@@ -180,9 +179,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Lifewire / Jordan Provost
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Camera: A decent backup**
 
  One of the only design compromises is the small camera bump on the back of the tablet that makes it wobble a negligible amount whilst flat outside of a case. It's still unwieldy to use, and whilst it’s a wonder why a tablet like this even needs a camera at all, Apple has actually given the tablet a camera worthy of the price tag.
@@ -193,20 +189,22 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Take a peek at some of the[best camera apps](https://www.lifewire.com/best-iphone-camera-apps-4176231) you can download.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery: All-day usage**
 
  This is an all-day device, and should last you roughly around 10 hours of regular use, as per our testing. We spent almost a full working day pushing it using Split View to draft articles, with some Procreate drawing and Netflix streaming in between, and the iPad Pro clocked out at around 9 hours. However, we found some apps like Google Docs drain the battery more than most, so it varies depending on your workflow. Much like the Apple Watch, if you’re not a power user this tablet could last you a number of days before needing a fresh charge.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![IPad Pro 11 Inch](https://www.lifewire.com/thmb/Q4zUu4bRCg_V0xhMi5Yh7Ns7znc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4036560-2_4-bef539783bbd48ae98e1becea11ce4dc.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: The best yet**
 
  This is interesting because iOS 12 is by far and away the best version of the operating system yet, but there are still some blatant compromises that eat away at the possibility of the iPad Pro being a laptop replacement. You can't just unzip files. And moving photos or documents between programs, even cloud-storage services like Google Drive and Dropbox, is a nightmare. In most cases, it’s actually doable if you find the right app, but it’s always far too much busy work when its a very simple five-second solution on any laptop. This wasted time adds up, and iOS 12 starts to get in the way of the iPad Pro’s potential.
@@ -240,8 +238,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * [Apple iPad Mini (2019)](https://www.lifewire.com/apple-ipad-mini-2019-review-4688991)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  iPad Pro 11-Inch (2018)
@@ -255,14 +254,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * RAM  4 GB
 * Camera  12 MP
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -271,4 +267,19 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-motorola-moto-g23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-excellence-in-mobile-tech-googles-pixel-4a-5g-smartphone-analyzed/"><u>Affordable Excellence in Mobile Tech: Google's Pixel 4a 5G Smartphone Analyzed</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/avoiding-windows-11-lock-screen-effortlessly/"><u>Avoiding Windows 11 Lock Screen Effortlessly</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-how-amplifi-hd-wi-fi-mesh-system-bids-farewell-to-dead-zones-forever/"><u>Comprehensive Review: How Amplifi HD Wi-Fi Mesh System Bids Farewell to Dead Zones Forever</u></a></li>
+<li><a href="https://fox-that.techidaily.com/effective-techniques-to-remove-water-from-iphone-speakers/"><u>Effective Techniques to Remove Water From iPhone Speakers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-and-comparison-kobo-clara-color-edition/"><u>Expert Review & Comparison: Kobo Clara Color Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-samsung-galaxy-tab-a-202ebe594f38f7b9b-spotlight-on-one-missing-element/"><u>Exploring the Samsung Galaxy Tab A (202Ebe594f38f7b9b): Spotlight on One Missing Element</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-hp-printer-driver-software-free-download/"><u>Get the Latest HP Printer Driver Software Free Download</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-does-an-ipad-air-stand-out-from-a-regular-ipad/"><u>How Does an iPad Air Stand Out From a Regular iPad?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-oppo-k11x-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Oppo K11x Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/quick-tips-for-hitting-the-jackpot-in-pexels/"><u>Quick Tips for Hitting the Jackpot in Pexels</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-lava-blaze-pro-5g-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Lava Blaze Pro 5G FRP Bypass</u></a></li>
+</ul></div>
 

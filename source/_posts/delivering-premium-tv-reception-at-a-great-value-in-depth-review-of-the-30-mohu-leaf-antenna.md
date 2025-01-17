@@ -1,7 +1,7 @@
 ---
 title: Delivering Premium TV Reception at a Great Value - In-Depth Review of the 30 Mohu Leaf Antenna
-date: 2024-08-11T00:09:02.764Z
-updated: 2024-08-12T00:09:02.764Z
+date: 2025-01-11T23:24:46.204Z
+updated: 2025-01-16T21:58:34.860Z
 categories:
   - BestProducts
 description: This Article Describes Delivering Premium TV Reception at a Great Value - In-Depth Review of the 30 Mohu Leaf Antenna
@@ -15,10 +15,11 @@ thumbnail: https://thmb.techidaily.com/48f4aa553b20375d2e1fe666e74fcb8eb031257aa
 
 ## Mohu Leaf 30
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/AyUAqIhKcHESYKlEswC1pUtS1Po=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -40,11 +41,12 @@ Lifewire / Jonno Hill
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Mohu Leaf 30
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
 
 Lifewire / Jonno Hill
@@ -71,22 +73,22 @@ Lifewire / Jonno Hill
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
 
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## **Setup: Dead simple**
 
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Acceptable but not incredible**
 
@@ -98,9 +100,6 @@ The ultimate burning program for all your needs!</a>
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: Excellent for the performance**
 
  The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
@@ -117,8 +116,9 @@ The ultimate burning program for all your needs!</a>
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Leaf 30
@@ -131,14 +131,11 @@ The ultimate burning program for all your needs!</a>
 * Range  30 miles
 * Warranty  One year
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,4 +144,21 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-essential-photo-and-film-capture-apps-iphone-and-android-edition/"><u>[New] 2024 Approved Essential Photo & Film Capture Apps IPhone & Android Edition</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-light-up-your-media-select-5-excellent-apps/"><u>[Updated] Light Up Your Media Select 5 Excellent Apps</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazonbasics-smartwatch-evaluation-a-top-choice-for-budget-friendly-wearables/"><u>AmazonBasics Smartwatch Evaluation: A Top Choice for Budget-Friendly Wearables</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/comprehensive-tutorial-enabling-av1-support-in-windows-11-operating-system/"><u>Comprehensive Tutorial: Enabling AV1 Support in Windows 11 Operating System</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-tangos-free-calls-text-speak-and-film-your-conversations/"><u>Exploring Tango's Free Calls – Text, Speak and Film Your Conversations.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/softbox-spectrum-cutting-edge-photo-lights/"><u>Softbox Spectrum: Cutting-Edge Photo Lights</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-battle-of-the-streaming-devices-which-is-superior-chromecast-or-roku/"><u>The Battle of the Streaming Devices: Which Is Superior, Chromecast or Roku?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-honor-magic-5-lite-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Honor Magic 5 Lite Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-iphone-xs-max-by-drfone-ios/"><u>Top 11 Free Apps to Check IMEI on iPhone XS Max</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-ranking-htpc-systems-the-ultimate-guide-to-the-best-home-theater-pcs-in/"><u>Top-Ranking HTPC Systems: The Ultimate Guide to the Best Home Theater PCs In</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-fixing-a-bright-white-screens-on-your-laptop/"><u>Troubleshooting Guide: Fixing a Bright White Screens on Your Laptop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-speed-and-enhanced-gaming-capabilities-in-the-asus-rog-rapture-gt-ax11000-review/"><u>Ultimate Speed & Enhanced Gaming Capabilities in the Asus ROG Rapture GT-AX11000 Review</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-stay-up-to-date-with-the-latest-movie-trailers-top-ios-apps/"><u>Updated 2024 Approved Stay Up-to-Date with the Latest Movie Trailers Top iOS Apps</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/xiaomi-mi-smart-band-4-the-ultimate-budget-fitness-tracker-review-why-its-my-choice/"><u>Xiaomi Mi Smart Band 4: The Ultimate Budget Fitness Tracker Review – Why It's My Choice!</u></a></li>
+</ul></div>
 

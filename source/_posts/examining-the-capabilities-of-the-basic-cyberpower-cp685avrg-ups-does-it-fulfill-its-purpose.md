@@ -1,7 +1,7 @@
 ---
 title: "Examining the Capabilities of the Basic CyberPower CP685AVRG UPS: Does It Fulfill Its Purpose?"
-date: 2024-08-11T00:10:38.088Z
-updated: 2024-08-12T00:10:38.088Z
+date: 2025-01-11T16:59:57.389Z
+updated: 2025-01-16T21:20:16.114Z
 categories:
   - BestProducts
 description: "This Article Describes Examining the Capabilities of the Basic CyberPower CP685AVRG UPS: Does It Fulfill Its Purpose?"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/26e614872ecd8ccade55000bbe0d8c5a49a0a5f94
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Logitech C615 HD Laptop Webcam
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/jgH6j34_PXXE9fO2vS4Nr4d3pSM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_HERO_3LW4065141_3_Final_Square-204b4e949e864f148cd513b3511eac69.jpg)
@@ -67,9 +64,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design:** **Flexible, foldable design**
 
  The Logitech C615 is a compact webcam. The whole device folds up into a very small package, just 2.5” wide, 1.25” tall, and 1.5” wide, so you can tuck it into a pocket. When you open it up, the flexible design is simple to position. Unfolded, the webcam has three pieces: the base, neck, and[camera](https://www.lifewire.com/best-digital-cameras-under-100-3897833) . The base is the heaviest part, which means that the camera stays upright even if you don’t perfectly balance everything. The top is made out of a soft, rubbery plastic, and the bottom has a rubbery dot that keeps the base from sliding around. The dot comes off the base to reveal a tripod post, so this camera is compatible with a standard tripod. The only problem is that the dot comes off completely when the tripod post is exposed. If you're prone to losing things, this may be an issue.
@@ -80,12 +74,17 @@ Lifewire / James Huenink
 
  The camera section is made of black plastic with a cropped silver plastic circle around the lens. To the left of the lens there’s an indicator light to show when the camera is on, and the microphone sits to the right of the lens. The 360 swivel not only makes the Logitech C615 easy to position, it also makes it possible to fold the camera lens in on itself to protect it on the go.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/jgQ_lVlvzgmXFPpBg5nEd6pgV_c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_12_Final_Horiz-e97c48d3af6842eb88775a9d703ce2b6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / James Huenink
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Camera Quality: Quality camera with some autofocus troubles**
 
@@ -101,29 +100,31 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## **Performance: Decent sound quality for a small mic**
 
  We used both[Photobooth](https://www.lifewire.com/how-to-turn-on-camera-on-mac-4175436) and[Skype](https://www.lifewire.com/how-to-make-hd-skype-calls-3426508) to test the performance of the C615\. It was very easy to position the camera exactly the way we wanted it, though the USB cable occasionally gave us problems. We’d swivel the camera and then the pull of the USB cable would turn the whole base so the camera pointed back at the same spot where it started.
 
  When we used Skype to make calls everything worked great. The HD camera made the video look great, and video and sound were in sync. Close up, the sound was clear but with a thin, distorted tone. From 10 feet away, we heard only a small amount of echo in the call. We also tried using the camera mic with video game noise in the background. The camera clearly caught our voices and downplayed the background noise, helping us focus on what we wanted to hear.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/C2UBXNFmxG8nA0udy1IprMH4LBA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_9_Final_Horiz-1af52951f8704af9b76d7dd1ec9744a9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / James Huenink
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Inexpensive HD camera**
 
  The Logitech C615 costs $70 MSRP, but you can find it for about half that cost. Even at full price, it's a solid value. The thoughtful design, image quality, and microphone clarity easily justify the price tag.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Acquits itself well against the competition**
 
@@ -141,9 +142,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  The Logitech C615 Webcam strikes the perfect balance between performance and affordability. The quality design, high definition video, and quality sound make this an excellent webcam for most tasks at a great price.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  C615 HD Laptop Webcam
@@ -167,8 +165,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -176,4 +172,26 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-clear-path-for-your-instagram-videos-now/"><u>[New] In 2024, Clear Path for Your Instagram Videos Now</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-unlocking-color-richness-the-role-of-look-up-tables-in-adobe-photos/"><u>[New] In 2024, Unlocking Color Richness The Role of Look-Up Tables in Adobe Photos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-facebooks-full-spectrum-maximizing-story-linking/"><u>[Updated] 2024 Approved Facebook's Full Spectrum Maximizing Story Linking</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-streamlining-zoom-sessions-through-effective-recording/"><u>[Updated] 2024 Approved Streamlining Zoom Sessions Through Effective Recording</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-nailing-your-online-visibility-with-optimal-youtube-thumbnail-dimensions/"><u>[Updated] Nailing Your Online Visibility with Optimal YouTube Thumbnail Dimensions</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-craft-memes-with-kapwings-design-toolkit/"><u>2024 Approved Craft Memes with Kapwing's Design Toolkit</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-peekpoint-analysis-a-guide/"><u>2024 Approved Peekpoint Analysis A Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-watch-showdown-gps-capabilities-versus-built-in-cellular-options/"><u>Apple Watch Showdown: GPS Capabilities Versus Built-In Cellular Options</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-discover-the-brilliance-of-samsungs-qn55q60rafxza-tv-with-4k-and-hdr10plus/"><u>Comprehensive Review: Discover the Brilliance of #Samsung's QN55Q60RAFXZA TV with 4K and HDR10+</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dbpowers-reliable-jump-starter-and-portable-charger-a-comprehensive-look-at-the-peak-1800ab-battery/"><u>DBPOWER's Reliable Jump Starter & Portable Charger: A Comprehensive Look at the Peak 18,00Ab Battery</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-value-of-caixuns-4k-75-android-smart-tv-a-thorough-performance-review/"><u>Discovering the Value of Caixun's 4K 75 Android Smart TV - A Thorough Performance Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/future-ready-expansion-with-the-netgear-nighthawk-ax8-an-in-depth-review-of-the-latest-wi-fi-emesh-technology/"><u>Future-Ready Expansion with the Netgear Nighthawk AX8: An In-Depth Review of the Latest Wi-Fi eMesh Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/he-has-been-working-in-this-industry-for-10-years/"><u>He Has Been Working in This Industry for 10 Years.</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-realme-c51-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Realme C51 to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-how-to-make-a-youtube-reaction-video/"><u>In 2024, How to Make a YouTube Reaction Video?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-tablet-world-comparing-amazon-fire-versus-samsung-choices/"><u>Navigating the Tablet World: Comparing Amazon Fire Versus Samsung Choices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-the-latest-addition-to-the-ring-home-security-lineup/"><u>The Ultimate Verdict on the Latest Addition to the Ring Home Security Lineup</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unraveling-the-thrills-of-space-warfare-in-star-wars-squadrons-our-comprehensive-review/"><u>Unraveling the Thrills of Space Warfare in Star Wars: Squadrons – Our Comprehensive Review</u></a></li>
+</ul></div>
 

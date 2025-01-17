@@ -1,7 +1,7 @@
 ---
 title: "Fujitsu ScanSnap iX1600 Review: A Robust Desktop Scanner for Documents"
-date: 2024-08-11T00:07:20.926Z
-updated: 2024-08-12T00:07:20.926Z
+date: 2025-01-12T16:58:02.727Z
+updated: 2025-01-16T17:24:26.165Z
 categories:
   - BestProducts
 description: "This Article Describes Fujitsu ScanSnap iX1600 Review: A Robust Desktop Scanner for Documents"
@@ -37,20 +37,13 @@ Lifewire / Jonno Hill
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## 1byone Amplified Digital HDTV Antenna
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/y6y0rP_H9I7oHwldUMIq-18GrFw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_HeroSquare-d9b494f43adf438bad5a0b82441039ef.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -80,8 +73,9 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Vanilla**
 
  The 1byone Digital Amplified Indoor Antenna uses a flat rectangular design similar to other powered indoor antennas on the market. The 13.25 x 9.25 inch antenna surface is roughly in line with most of the other products I looked at in this category, the only real difference being that the 1byone has a much more rigid surface.
@@ -94,25 +88,27 @@ Lifewire / Jonno Hill
 
  Setup of the 1byone Digital Amplified Indoor Antenna is relatively simple, and more or less in line with what I’ve come to expect from similar powered indoor antennas.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ## **Performance: Good enough for most**
 
  The 1byone Digital Amplified Indoor HD TV Antenna didn’t have the best performance of the antennas we’ve tested, falling somewhere in the middle of the pack. In my channel acquisition test, I averaged 59 channels across all the tests performed. This compares to the worst performing antenna at just 47, and the best at 76.
 
  This should be more than suitable for most people living within a city in relatively close proximity to the source of the TV signal. As for those living further, your mileage may vary.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Range: Middle of the road**
 
  1byone makes no specific promises about the range of their antenna, although they do cite users having positive experiences from as far as 48 miles away in their customer testimonials. Given how many factors impact the effective range, I think it is somewhat wise not to make any promises. Nonetheless, this is clearly a device that will be best suited for people living in or near major metropolitan areas.
 
 ![1byone Digital Amplified Indoor HD TV Antenna](https://www.lifewire.com/thmb/6y-ITpY8n7xf8BteMqdJjYm-paU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/7LW4078201-1byOne_TVAntennas_05-178a02351af040cc89c86169b88a6de2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: A great deal**
 
@@ -131,8 +127,9 @@ Lifewire / Jonno Hill
  The 1byone Digital Amplified Indoor Antenna offers the best value out of all the indoor antennas that we tested. If you can get the performance you need from the 1byone, it’s the antenna to buy. I wouldn’t consider other options unless you’ve already ruled out this one.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Amplified Digital HDTV Antenna
@@ -146,14 +143,11 @@ Lifewire / Jonno Hill
 * Indoor/Outdoor  Indoor
 * Warranty  One year limited
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,4 +156,23 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-7-must-have-metaverse-devices-you-need-to-prepare/"><u>[New] 7 Must-Have Metaverse Devices You Need to Prepare</u></a></li>
+<li><a href="https://win-able.techidaily.com/solved-low-fps-issues-in-outriders/"><u>[SOLVED] Low FPS Issues in Outriders</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-crafting-memorable-announcements-the-key-to-successful-facebook-giving-posts/"><u>[Updated] 2024 Approved Crafting Memorable Announcements The Key to Successful Facebook Giving Posts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-easy-mp3-conversion-from-mp3-files-to-youtube-videos-3-ways/"><u>[Updated] In 2024, Easy MP3 Conversion From MP3 Files to YouTube Videos [3 Ways]</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/1726028003302-aacwma/"><u>AACファイルをWMAにしてください：選び方と手順説明</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/barnes-and-nobles-revolutionary-big-screen-reader-an-in-depth-review-of-the-nook-glowlight-plus/"><u>Barnes & Noble's Revolutionary Big Screen Reader - An In-Depth Review of the Nook Glowlight Plus.</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/beat-the-lag-a-comprehensive-approach-to-fixing-audio-delays/"><u>Beat the Lag: A Comprehensive Approach to Fixing Audio Delays</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-online-discounts-amazons-exclusive-tech-deals-for-prime-day-2angs/"><u>Best Online Discounts: Amazon's Exclusive Tech Deals for Prime Day 2Angs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boost-productivity-and-health-using-the-cubefit-terramat-our-complete-assessment/"><u>Boost Productivity and Health Using the CubeFit TerraMat - Our Complete Assessment</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exclusive-free-trial-premium-us-based-vpn-services-ensure-ultimate-online-safety-and-access/"><u>Exclusive Free Trial: Premium U.S. Based VPN Services – Ensure Ultimate Online Safety & Access</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mastering-the-art-of-converting-mp4-videos-to-dvd-on-windows-10-and-8-a-comprehensive-guide/"><u>Mastering the Art of Converting MP4 Videos to DVD on Windows 10 and 8: A Comprehensive Guide</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/step-by-step-installation-of-windows-chatgpt/"><u>Step-by-Step Installation of Windows ChatGPT</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-value-in-tech-in-depth-review-of-the-compact-and-economical-samsung-galaxy-s10e/"><u>The Best Value in Tech: In-Depth Review of the Compact and Economical Samsung Galaxy S10e</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tiny-yet-mighty-in-depth-analysis-and-reviews-of-the-new-apple-iphone-ebonics/"><u>Tiny Yet Mighty: In-Depth Analysis and Reviews of the New Apple iPhone Ebonics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-10-engaging-video-games-to-beat-boredom/"><u>Top 10 Engaging Video Games to Beat Boredom</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-apple-iphone-12-mini-proving-that-size-doesnt-determine-power/"><u>Unboxing the Apple iPhone 12 Mini: Proving That Size Doesn't Determine Power</u></a></li>
+</ul></div>
 

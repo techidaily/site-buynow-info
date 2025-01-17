@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of the Affordable Hisense 40H5590F Smart Television
-date: 2024-08-11T00:11:33.026Z
-updated: 2024-08-12T00:11:33.026Z
+date: 2025-01-11T18:59:16.795Z
+updated: 2025-01-17T00:18:58.482Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of the Affordable Hisense 40H5590F Smart Television
@@ -13,11 +13,12 @@ thumbnail: https://www.lifewire.com/thmb/8ObIPTdak_CHx72VK9Uk1O5jb3I=/400x300/fi
 
 4.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Microsoft Xbox One Elite Series 2 Controller
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/425lsqo6i1_7Vzb3ebrBxtVPgfM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
 
 Lifewire / Zach Sweat
@@ -40,9 +41,17 @@ Lifewire / Zach Sweat
 
 4.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/JA4MI_SE7Alxl0MLR7rMoIVzKgI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -67,9 +76,6 @@ Lifewire / Zach Sweat
 
  We reviewed the original $150 Elite controller when it debuted years ago and loved nearly every aspect of it, but it wasn’t flawless suffering from the lack of a few key features and some durability issues. This is where the newly updated Elite Series 2 controller comes in. Listening to feedback provided by gamers on the weaknesses of Series 1, Microsoft has put out what is likely to be the last iteration of the[Xbox One controller,](https://www.lifewire.com/xbox-one-consoles-4156250) and it’s pretty much perfect—provided you’re willing to pay the hefty price tag.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/t8wI_yN2s_uIQ1leo87MmOnXxb4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-5-0c39ec4e89eb45b094471681efec0e7d.jpg)
 
  Lifewire / Zach Sweat
@@ -98,12 +104,13 @@ Lifewire / Zach Sweat
 
  Inside the case, the material has also been swapped from grey to black to continue the darker theme of the Series 2\. You’ll also notice the foam pad is no longer here, as that’s where the dock sits. This dock can be removed or used inside the case and attaches with a strong magnet. The last two parts of the case are unchanged from Series 1, with a mesh cradle for accessories on the top and a foam organizer to hold all the swappable thumbsticks and paddles when not in use.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/TRrezKVbAUPs2Rud3g4_iOHyxB8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-2-4b3f9d8acd1440089989378253d902f4.jpg)
 
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Comfort: Hefty, but darn comfy**
 
@@ -117,9 +124,6 @@ Lifewire / Zach Sweat
 
  The only real issue some users may see as a downside of this controller is that it’s quite a hefty device. The controller weighs 348 grams with all attachments, so it might take some getting used to compared to the 210 gram S controller. I personally love the bulk, as it feels premium, but it might not be for everyone.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/cS5fpyPSlqvyETs-nGxTtAB3vXU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-4-070b6c59b206457ba1068704bbe7bca9.jpg)
 
  Lifewire / Zach Sweat
@@ -142,12 +146,17 @@ Lifewire / Zach Sweat
 
  If you plan to buy this controller to use with other electronics that support Bluetooth devices, make sure you do some research before committing to it, as it doesn’t always work with everything. That said, we did manage to pair the controller with a couple other devices that weren’t officially supported.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance/Durability: Enhanced performance and durability**
 
@@ -171,13 +180,6 @@ Lifewire / Zach Sweat
 
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ## **Price: Like buying a brand new console**
 
  Right now, the Elite Series 2 controller retails at an MSRP of $249.99, about $100 more than its predecessor. This price tag makes it not only the most expensive first-party controller around, but also nearly the cost of a brand new Xbox One S console (or three brand new titles). That can be a tough sell for your average gamer.
@@ -190,9 +192,6 @@ No advertising on the website.
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
 
  Since the Elite controller really is in a league of its own, the biggest competitor to it is the first generation, which can still be purchased from a number of retailers. We’re going to quickly compare the two to see which might be best for you.
@@ -207,10 +206,6 @@ No advertising on the website.
 
  Everything we disliked about the original Elite controller has been improved with the second iteration, making it the best first-party controller you can get for XB1 or PC. However, the steep price point might be a hard pill to swallow for users who don’t like to splurge.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Xbox One Elite Series 2 Controller
@@ -228,14 +223,11 @@ No advertising on the website.
 * Warranty  90-day warranty
 * Compatibility  All Xbox One Consoles, Windows 10 PCs, Bluetooth devices
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -244,4 +236,21 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-converting-avian-videos-avi-into-graphic-images-gif-using-filmora/"><u>[New] 2024 Approved Converting Avian Videos (AVI) Into Graphic Images (GIF) Using Filmora</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-innovative-vfx-equipment-for-eco-warriors/"><u>[New] In 2024, Innovative VFX Equipment for Eco Warriors</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-birdie-ballet-bounce/"><u>2024 Approved Birdie Ballet Bounce</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-high-end-samsung-galaxy-s10-phenomenon/"><u>Comprehensive Evaluation of the High-End Samsung Galaxy S10 Phenomenon</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ient-revenue-streams-the-guide-to-making-money-from-youtube-mobile-for-2024/"><u>Efficient Revenue Streams The Guide to Making Money From YouTube Mobile for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-creating-a-fortified-mc-homebase/"><u>In 2024, Creating a Fortified MC Homebase</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Motorola Edge 40 Pro? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-german-proverbs-top-25-list/"><u>Mastering German Proverbs: Top 25 List</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-wireless-connectivity-an-authoritative-review-of-the-netgear-nighthawk-x4-wi-fi-range-extender/"><u>Mastering Wireless Connectivity: An Authoritative Review of the Netgear Nighthawk X4 Wi-Fi Range Extender</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigate-your-online-world-effortlessly-the-comprehensive-review-of-lenovos-affordable-tablet-m10-hd-2020/"><u>Navigate Your Online World Effortlessly: The Comprehensive Review of Lenovo's Affordable Tablet M10 HD (2020)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-your-nighttime-routine-a-look-at-modern-sleep-solutions/"><u>Transform Your Nighttime Routine: A Look at Modern Sleep Solutions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-selection-of-highest-quality-wi-fi-expanders/"><u>Ultimate Selection of Highest Quality Wi-Fi Expanders</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unleashing-widespread-engagement-on-facebook-for-2024/"><u>Unleashing Widespread Engagement on Facebook for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/windows-11-microsoft-abandons-support-for-android-applications/"><u>Windows 11: Microsoft Abandons Support for Android Applications</u></a></li>
+</ul></div>
 

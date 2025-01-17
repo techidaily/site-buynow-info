@@ -1,7 +1,7 @@
 ---
 title: "Budget-Friendly and Powerful: Uncovering the Features of the TP-Link Archer C9 Router"
-date: 2024-08-11T00:08:38.015Z
-updated: 2024-08-12T00:08:38.015Z
+date: 2025-01-09T16:10:16.953Z
+updated: 2025-01-16T18:06:07.625Z
 categories:
   - BestProducts
 description: "This Article Describes Budget-Friendly and Powerful: Uncovering the Features of the TP-Link Archer C9 Router"
@@ -40,10 +40,6 @@ thumbnail: https://thmb.techidaily.com/7a684ff6b3f7243ec032f5ae8a931d190264bae1e
 
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/AfRhNgqeOD7JfcVqpjzm5LwPSB4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
 
  Lifewire / Andrew Hayward
@@ -71,8 +67,9 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -93,11 +90,16 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Connectivity: Smooth sailing**
 
  Once through the hassle of setup, the Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender really did deliver strong performance. I tested the connection in my office, which reliably sees reduced 5GHz reception from my router due to obstructions in between, and saw a noticeable boost in both reception and speed.
@@ -112,11 +114,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  Given the high max speeds, it wasn’t surprising to see strong gaming performance, as well. While playing Rocket League, I saw smooth gameplay across the wired Ethernet connection as well as both wireless networks, with a ping as low as 33 via the wired connection. The wireless ping was only a few points higher.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -127,17 +129,15 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: More than most**
 
  The Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender is listed at $250, although it’s being sold for $220 at multiple retailers as of this writing. That’s definitely on the higher end for an extender.
 
  Should you really spend that much on an extender? If you don’t already have a new Wi-Fi 6 router, then probably not. You might see higher peaks of speed as I did, but rather than trying to mix and match old and new tech, you’re probably better off investing in a new Wi-Fi mesh system that can cover the entire house. Netgear’s Orbi is a favorite, as is Google’s similar Nest Wi-Fi system.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Netgear Nighthawk AX8 vs. Netgear Nighthawk X6S (EX8000)**
 
  Both of these Netgear Nighthawk Wi-Fi extenders will set you back $200 or more, and the key difference between them—aside from design—is the Wi-Fi 6 compatibility of the Nighthawk AX8\. The Nighthawk X6S (see on[Amazon](https://www.amazon.com/NETGEAR-Wi-Fi-Range-Extender-EX8000/dp/B074F3M2W8/?tag=lifewire-onsite-prod-20&ascsubtag=4846125%7Cn35b11b2c61b54fa1a2d951691d1a61ed04%7C) ) doesn’t have that, but it does deliver excellent 5GHz range and has four Gigabit Ethernet ports for wired devices. The Nighthawk AX8 is more future-proof as a result, but at a greater cost that becomes increasingly difficult to justify the higher, it climbs.
@@ -165,8 +165,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -174,4 +172,21 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-optimize-your-telegram-web-experience/"><u>[New] How to Optimize Your Telegram Web Experience</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-reinstating-legacy-windows-photo-viewer-feature-for-w10/"><u>[New] Reinstating Legacy Windows Photo Viewer Feature for W10</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-3-simple-copywriting-structure-for-facebook-ads/"><u>[Updated] 3-Simple Copywriting Structure for Facebook Ads</u></a></li>
+<li><a href="https://extra-information.techidaily.com/beginners-blueprint-for-financial-gain-in-periscope-for-2024/"><u>Beginner's Blueprint for Financial Gain in Periscope for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-your-internet-experience-with-asus-rt-ac68u-the-ultimate-5g-wi-fi-solution-reviewed/"><u>Elevate Your Internet Experience with ASUS RT-AC68U: The Ultimate 5G Wi-Fi Solution Reviewed</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/free-4k-ultra-hd-media-player-download-and-installation-guide-for-macos-and-windows-11/"><u>Free 4K Ultra HD Media Player: Download & Installation Guide for macOS and Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inside-look-at-the-maisto-rc-rock-crawler-the-ultimate-family-adventure-on-wheels/"><u>Inside Look at the Maisto RC Rock Crawler: The Ultimate Family Adventure on Wheels</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insta360-one-x2-the-go-to-waterproof-360-camera/"><u>Insta360 One X2: The Go-To Waterproof 360 Camera</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/pioneering-photography-introducing-the-global-innovator-stellars-trailblazing-image-restoration-software/"><u>Pioneering Photography: Introducing the Global Innovator, Stellar's Trailblazing Image Restoration Software</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/taking-flight-with-excellence-an-in-depth-look-at-the-dji-mavic-air-2-drone-review/"><u>Taking Flight with Excellence: An In-Depth Look at the DJI Mavic Air 2 Drone Review</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-ultraportable-laptop-with-all-day-battery-life-best-of-2023-reviewed/"><u>Top Ultraportable Laptop with All-Day Battery Life - Best of 2023 Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transforming-your-home-an-in-depth-look-at-the-4th-gen-echo-dot/"><u>Transforming Your Home: An In-Depth Look at the 4Th Gen Echo Dot</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/unraveling-the-enigma-why-cant-i-eject-my-external-hard-drive/"><u>Unraveling the Enigma: Why Can't I Eject My External Hard Drive?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-value-a-review-of-the-cost-effective-beantech-bitwatch-s1plus-smart-device/"><u>Unveiling The Value: A Review Of The Cost-Effective Beantéch BitWatch S1+ Smart Device</u></a></li>
+</ul></div>
 

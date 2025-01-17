@@ -1,7 +1,7 @@
 ---
 title: "Experts Rate the D-Link PL 2000: Hassle-Free Setup and Rapid Data Exchange Reviewed"
-date: 2024-08-11T00:08:18.318Z
-updated: 2024-08-12T00:08:18.318Z
+date: 2025-01-16T00:05:22.431Z
+updated: 2025-01-16T18:09:41.867Z
 categories:
   - BestProducts
 description: "This Article Describes Experts Rate the D-Link PL 2000: Hassle-Free Setup and Rapid Data Exchange Reviewed"
@@ -36,12 +36,13 @@ Lifewire / Claire Cohen
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## TP-Link RE305 AC1200 Wi-Fi Range Extender
 
 ![TP-Link AC1200 Wi-Fi Range Extender RE305](https://www.lifewire.com/thmb/C8f1R4cMjb3MUZ1ViPdvQ67Q7tE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4LW4043312-0cb211cf35c746879e5136b3f9d62b63.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Claire Cohen
 
@@ -66,6 +67,10 @@ Lifewire / Claire Cohen
 
  We spent over a week testing it in our home, evaluating design, ease of setup and network performance.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design:** **Neither seen nor heard**
 
  The RE305 is quite small and unobtrusive, with a plastic white exterior and silver accents that’s meant to blend in, not stand out. At just 3.1 x 3.1 x 2.4 (LWH) inches unboxed and 6.4 ounces, it's one of the most diminutive Wi-Fi solutions on the market. That means it's simple to plug into a spare outlet anywhere your wireless signal needs bolstering.
@@ -84,10 +89,11 @@ Lifewire / Claire Cohen
 
  First, you plug in the extender to an outlet, then use any computer to connect to its network. After plugging it into an outlet, we found that it popped up immediately on our MacBook Pro's available wireless network list. Once connected to the network, setup is done via the web address listed on the guide.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/PS8-Iywv5MsnOo99Fir-jNOiPF8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-4-5c924206c9e77c0001ff0bb8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Claire Cohen
 
@@ -100,8 +106,9 @@ Lifewire / Claire Cohen
  There is one important pain point, however, to keep in mind during setup. The extender's administrative password utilizes a default "admin/admin" login, so you'll want to change that to keep unauthorized users out. It can be changed via the TP-Link Tether app, which isn't clearly lined out in the instructions. It isn't required, but if you want to keep your network as secure as possible, it's an important part of setup.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Connectivity and Network Performance:** **Strong, multi-device connectivity**
 
  Several devices were connected to our wireless network, including a MacBook Pro,[iPhone X](https://www.lifewire.com/iphone-x-4150706) , iPad Pro,[Nintendo Switch](https://www.lifewire.com/what-is-the-nintendo-switch-4148184) , and[PlayStation 4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) . When testing the wireless extender's range, at 10 feet to around 70 or so feet away from the router in a 2,100 square foot home, its signal was quite strong, with full bars on an iPhone X and iPad Pro in most areas. One bathroom on the first floor did suffer from occasionally spotty connectivity at around 1,500 feet away from the router.
@@ -118,24 +125,14 @@ Lifewire / Claire Cohen
 
  It's a bit bereft of some functionality for veteran extender users who may want to fiddle with settings and skip the "easy mode" setup, but it does its job particularly well. It even includes a[QR code](https://www.lifewire.com/scan-qr-codes-on-smartphone-4154658) to scan for users to download the wireless management app straight from the setup page. It doesn't take any real doing to reach this website either, and can be accessed at any time from the network.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ## **Price: A deal at any price**
 
  At a list price of $59.99, the RE305 is a fantastic deal, considering it's typically on sale for much cheaper, often $10 to $15 less than retail. It isn't TP-Link's lowest-end option, but the performance and speeds offered for the price are certainly more than your money's worth, especially if you live in a larger home and pay for higher internet speeds. It’s important to keep in mind that it won’t include all the features you’ll get with pricier extenders like multiple ethernet ports or additional antennas, but this basic setup is just about all the average user needs, anyway.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![TP-Link AC1200 (RE305)](https://www.lifewire.com/thmb/bG-oXoYxR83gVSUH4vzz37hfYxQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4043312-1-5c92424b46e0fb000172f127.jpg)
 
  Lifewire / Claire Cohen
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## **Competition: More of the same**
 
  There are a variety of different extenders on the market with similar price points, and many are pricier, with fewer promised features and lesser range. If you’re looking to stay “on brand,” you might opt for competition such as the[Netgear EX3700](https://www.lifewire.com/netgear-ex3700-wifi-range-extender-ac750-review-4589551) , but there’s no real reason to do so when they offer a good amount of the same features for a similar price. We also found the RE305 to be much more aesthetically pleasing overall if that’s of importance to you.
@@ -149,8 +146,9 @@ Lifewire / Claire Cohen
  The TP-Link AC1200 Wi-Fi Range Extender RE305 is a no-frills extender with supports dual-band Wi-Fi support and an Ethernet port for wired connectivity. It won’t fare well in homes beyond 2,000 square feet, but it's a value-priced extender that can be relied on at shorter ranges.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  RE305 AC1200 Wi-Fi Range Extender
@@ -175,8 +173,6 @@ Lifewire / Claire Cohen
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -184,4 +180,26 @@ Lifewire / Claire Cohen
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-cutting-edge-tools-to-revamp-virtual-performer-voices/"><u>[New] 2024 Approved Cutting-Edge Tools to Revamp Virtual Performer Voices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-top-10-horizontal-and-vertical-igtv-editing-apps-reviewed/"><u>[New] Top 10 Horizontal & Vertical IGTV Editing Apps Reviewed</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-enhancing-speech-clarity-on-skype/"><u>[Updated] Enhancing Speech Clarity on Skype</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-speech-to-text-conversion-with-ms-word/"><u>[Updated] Mastering Speech-to-Text Conversion with MS Word</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-advanced-tools-tweet-with-converted-videos/"><u>2024 Approved Advanced Tools Tweet with Converted Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-olympic-ice-sprints-the-best-of-short-track-skating/"><u>2024 Approved Olympic Ice Sprints The Best of Short-Track Skating</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-the-leaderboard-of-gps-drones-with-steady-followers/"><u>2024 Approved The Leaderboard of GPS Drones with Steady Followers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-why-the-samsung-galaxy-tab-s4-is-a-game-changer-in-android-tablets/"><u>Comprehensive Review: Why the Samsung Galaxy Tab S4 Is a Game-Changer in Android Tablets</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-why-the-stanley-j5c09-is-a-go-to-choice-for-professional-woodworkers/"><u>Discover Why the Stanley J5C09 Is a Go-To Choice for Professional Woodworkers</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-vivo-s18-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Vivo S18? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-your-first-leap-onto-youtubes-platform/"><u>In 2024, Your First Leap Onto YouTube's Platform</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-bloodbornes-haunting-universe/"><u>In-Depth Analysis of Bloodborne's Haunting Universe</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insta360-one-x2-a-camera-that-dives-into-vr-and-water-alike/"><u>Insta360 One X2 - A Camera That Dives Into VR & Water Alike</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/kobo-forma-unveiled-an-e-reader-designed-with-reading-enthusiasts-in-mind/"><u>Kobo Forma Unveiled: An E-Reader Designed with Reading Enthusiasts in Mind</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/motorolas-mighty-contender-a-thorough-review-of-moto-g-powers-long-lasting-efficiency-and-robust-functionality/"><u>Motorola's Mighty Contender: A Thorough Review of Moto G Power’s Long-Lasting Efficiency & Robust Functionality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionize-your-image-editing-game-with-darktable-the-best-free-raw-photo-processor-for-mac-linux-and-more/"><u>Revolutionize Your Image Editing Game with Darktable - The Best Free RAW Photo Processor for Mac, Linux, and More</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-motorola-mg7700-fast-fluid-functional/"><u>The Ultimate Guide to the Motorola MG7700: Fast, Fluid, Functional</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-apple-imac-215-with-4k-display-a-fusion-of-design-and-performance/"><u>Ultimate Guide to the Apple iMac 21.5 with 4K Display: A Fusion of Design & Performance</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-videopad-video-editor-review-features-pricing-and-verdict/"><u>Updated In 2024, Videopad Video Editor Review Features, Pricing, and Verdict</u></a></li>
+</ul></div>
 

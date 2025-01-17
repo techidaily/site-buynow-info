@@ -1,7 +1,7 @@
 ---
 title: "Powering Through the City: Exclusive Review of High-End Glion Dolly E-Scooter"
-date: 2024-08-11T00:12:10.141Z
-updated: 2024-08-12T00:12:10.141Z
+date: 2025-01-11T22:32:03.237Z
+updated: 2025-01-16T19:33:06.476Z
 categories:
   - BestProducts
 description: "This Article Describes Powering Through the City: Exclusive Review of High-End Glion Dolly E-Scooter"
@@ -13,13 +13,13 @@ thumbnail: https://thmb.techidaily.com/476c827c9a85439232c4139c83a2305fa9ac69841
 
 5
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ## Apple MacBook Pro 16-inch (2021)
 
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/L5Mbsc5JB_OpmoLJkqia2EonbI8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-hero-8413a7aa67ca443bb241da703c1025b2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Sascha Brodsky
 
@@ -41,11 +41,12 @@ Lifewire / Sascha Brodsky
 
 5
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Apple MacBook Pro 16-inch (2021)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/Bj4JU3ddfkgYppYQYoy1GmCukCA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-hero-8413a7aa67ca443bb241da703c1025b2.jpg)
 
 Lifewire / Sascha Brodsky
@@ -75,9 +76,6 @@ Lifewire / Sascha Brodsky
 
  I’ve been using Apple portables ever since the Powerbook 100 was released in 1991\. After spending several weeks with the new MacBook Pro, it offers the responsiveness previously associated only with iPads and iPhones, matched with the refined form factor of Apple’s best laptops.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Design: Back to the future
 
  On the surface, the new MacBook Pro doesn’t look radically different from Apple’s previous Pro laptop models. It’s got a similar aluminum case, and the screen is about the same size as the 2019 model.
@@ -92,18 +90,6 @@ Lifewire / Sascha Brodsky
 
  Apple has also gone full circle and replaced the ports it removed in previous iterations of the MacBook. You get a MagSafe connector, headphone jack, SD card slot, HDMI port, and three Thunderbolt 4 ports, which should be enough for almost any user. There’s no USB-A port but most people won’t miss it.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Keyboard: Precision is everything
 
  The joy of using the MacBook Pro really becomes apparent when you start typing on the keyboard. It’s got a scissor key mechanism that feels precise and offers excellent feedback.
@@ -114,22 +100,24 @@ Lifewire / Sascha Brodsky
 
  Just above the keyboard is another area where Apple has decided to go backward. The company has ditched the Touch Bar, a strip that allows touch access to software functions. As someone who used the Touch Bar for several years and never found a use for it, I say good riddance.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Trackpad: Big and bold
 
  There’s nothing not to like about the trackpad on the new MacBook Pro. It’s big and responsive, and you won’t notice it after a while, which is all you need in an input device.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/tD3rxlw9zH5xufV5ztJIZyrJc3Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-3-db6300639d8049d1862d0e4f25a35222.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Sascha Brodsky
 
  The new MacBook’s trackpad works perfectly, which is more than you can about the one on most Windows laptops. I had no trouble flicking the cursor accurately around the screen when spending hours editing documents.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ## Display: Bright and beautiful
 
  The Pro sports the best display I’ve ever used on any computer and might be a reason to buy this model all by itself. It screams quality.
@@ -153,6 +141,10 @@ Lifewire / Sascha Brodsky
  Apps start nearly instantly on the Pro. I have a bad habit of keeping too many browser tabs open while I’m working. But even when I had dozens of tabs open in both the Chrome and Safari web browsers, the Pro didn’t slow down.
 
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/UM5_acSqOhRJtIaZE3CeAWp45y0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-2-2be1639ee44f489286cb43a53aaf6454.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Sascha Brodsky
 
@@ -189,8 +181,9 @@ Lifewire / Sascha Brodsky
  A less expensive MacBook will be just fine for many users who just need a light work and fun machine. But for anyone who wants arguably the best laptop ever made, only the new MacBook Pro will do.
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## MacBook Pro (M1, 2021) vs. MacBook Air (M1, 2020)
 
  There’s an excellent case to be made that for many people, the much less expensive MacBook Air is a better option than the Pro model.
@@ -215,9 +208,6 @@ Lifewire / Sascha Brodsky
 * [Apple MacBook Air 13-inch](https://www.lifewire.com/macbook-air-13-inch-m1-2020-review-5092793)
 * [Dell XPS 13 7390 (2020)](https://www.lifewire.com/dell-xps-13-7390-2-in-1-review-5113106)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  MacBook Pro 16-inch (2021)
@@ -237,14 +227,11 @@ Lifewire / Sascha Brodsky
 * Battery Life  Up to 21 hours
 * Ports  3x Thunderbolt 4 (USB-C), HDMI, SDXC card slot
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -253,4 +240,26 @@ Lifewire / Sascha Brodsky
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-reel-mastery-viewing-twitters-video-in-high-res/"><u>[New] 2024 Approved Reel Mastery Viewing Twitter's Video in High Res</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-securing-sound-output-fixes-for-silent-obs-streams/"><u>[New] Securing Sound Output Fixes for Silent OBS Streams</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-diy-tips-getting-started-with-voice-over-filming-for-2024/"><u>[Updated] DIY Tips Getting Started with Voice Over Filming for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/1716069006162-updated-in-2024-top-sandbox-adventures-not-to-skip/"><u>[Updated] In 2024, Top Sandbox Adventures Not To Skip!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-samsung-qn55q6f-the-ultimate-4k-uhd-smart-television/"><u>Comprehensive Analysis of the Samsung QN55Q6F - The Ultimate 4K UHD Smart Television</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-high-quality-fta-tv-with-amazons-basics-flat-antenna-a-cost-effective-solution/"><u>Experience High-Quality FTA TV with Amazon's Basics Flat Antenna: A Cost-Effective Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-ultimate-jrpg-in-yakuza-like-a-dragon-dont-miss-out/"><u>Experience the Ultimate JRPG in Yakuza: Like a Dragon – Don't Miss Out!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-sound-spectrum-with-g533-headphones/"><u>Exploring the Sound Spectrum with G533 Headphones</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722975516187-hassle-free-setup-for-your-microsoft-ergonomic-keyboard-4000-get-the-right-drivers-here/"><u>Hassle-Free Setup for Your Microsoft Ergonomic Keyboard 4000: Get the Right Drivers Here</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/high-velocity-mixed-results-navigating-the-pros-and-cons-of-oneplus-8t-cameras/"><u>High Velocity, Mixed Results: Navigating the Pros and Cons of OnePlus 8T Cameras</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-11-pro-apples-new-iphone-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 11 Pro, Apples New iPhone | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/leading-edge-no-8-online-photomontage-toolkit/"><u>Leading Edge No. 8 Online Photomontage Toolkit</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/madden-19-critique-fantastic-modes-starting-to-lose-sparkle-over-time/"><u>Madden '19 Critique: Fantastic Modes, Starting to Lose Sparkle Over Time</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-the-netatmo-weather-station-perfectly-crafted-climate-monitoring-for-mobile-users/"><u>Review of the Netatmo Weather Station: Perfectly Crafted Climate Monitoring for Mobile Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/safeguarding-apples-handheld-an-evaluation-of-the-six-best-antivirus-applications-for-iphones/"><u>Safeguarding Apple's Handheld: An Evaluation of The Six Best Antivirus Applications for iPhones</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-sx740-hs-compact-camera-versatile-photographer/"><u>The SX740 HS: Compact Camera, Versatile Photographer</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-ultimate-method-for-mastery-in-morphvox-usage-for-2024/"><u>The Ultimate Method for Mastery in MorphVOX Usage for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-notch-auditory-experience-professional-insights-on-creative-labs-sound-blaster-zxr-201n/"><u>Top-Notch Auditory Experience: Professional Insights on Creative Labs’ Sound Blaster ZXR (201N)</u></a></li>
+<li><a href="https://windows11.techidaily.com/unveiling-the-mechanics-of-windows-11s-efficient-file-safety-measures/"><u>Unveiling the Mechanics of Windows 11'S Efficient File Safety Measures</u></a></li>
+</ul></div>
 

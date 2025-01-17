@@ -1,7 +1,7 @@
 ---
 title: "The TP-Link Archer C80 Breakdown: Is It Worthy in the Sub-$100 Range? - Reviews & Comparisons"
-date: 2025-01-07T18:47:53.869Z
-updated: 2025-01-10T18:13:26.481Z
+date: 2025-01-14T17:09:18.353Z
+updated: 2025-01-16T18:46:31.065Z
 categories:
   - BestProducts
 description: "This Article Describes The TP-Link Archer C80 Breakdown: Is It Worthy in the Sub-$100 Range? - Reviews & Comparisons"
@@ -46,13 +46,13 @@ Lifewire / Jeremy Laukkonen
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Microsoft Xbox Series S
 
 ![Xbox Series S](https://www.lifewire.com/thmb/wlG_GrSmQPVex-VRt3ap4hsTP-s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -86,7 +86,7 @@ Lifewire / Jeremy Laukkonen
 ![Xbox Series S](https://www.lifewire.com/thmb/3-mUIkkRYilM5F2tvCYMPXtW1Ew=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1-04d996bcdfbb489d84e8945e4c475713.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
@@ -96,7 +96,7 @@ Lifewire / Jeremy Laukkonen
  Aside from the bold vent grill, the Series S doesn’t break any new ground regarding design choices. It has sturdy rubber feet on two sides, so you can lay it flat or stand it up on end, as has become more or less standard with home consoles. It feels pretty sturdy in both positions.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easier than ever before**
@@ -108,10 +108,6 @@ Lifewire / Jeremy Laukkonen
  I highly recommend setting up the Xbox Series S with the help of the Xbox app. It massively streamlines the process, makes it easier to connect to Wi-Fi since you don’t need to type out your password with the Xbox’s on-screen keyboard, and even pre-loads the Series S with settings from your old Xbox One if you had one.
 
  I ended up wiping the console back to factory settings a few times while I put it through its paces, so I also tried the traditional setup method after circling back. It’s similar to setting up an Xbox One; not that difficult or time-consuming, but the app option is better.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Rock solid 1440p gaming**
 
@@ -135,10 +131,6 @@ Lifewire / Jeremy Laukkonen
 
  Load times were negligible in each game I played, which I expected from a super-fast NVME SSD storage system. Some games had more noticeable load times than others, but not enough to disrupt gameplay.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Games: Microsoft still has an exclusivity problem**
 
  You won't have any shortage of games to play on the Xbox Series S, especially if you're a[Game Pass](https://www.lifewire.com/xbox-game-pass-4178809) subscriber. I predicted that the Series S would be the ultimate Game Pass machine at release, and that prediction has borne fruit in my home, at least.
@@ -154,6 +146,10 @@ Lifewire / Jeremy Laukkonen
  Other consoles, like the PlayStation 5 and Nintendo Switch, have games you can't get anywhere else, while the Xbox Series X|S has timed exclusives and console exclusives. That isn't a knock against Microsoft, as the availability of Xbox exclusives on the PC is fantastic for computer gamers. Still, it does put Xbox consoles in a tough spot compared to consoles from other manufacturers.
 
  Microsoft's $7.5B purchase of Bethesda's parent company, Zenimax, brought some hope of additional exclusives appearing in Microsoft's arsenal. (Bethesda is the publisher of Fallout, DOOM, Dishonored, Skyrim, Wolfenstein, The Elder Scrolls, and more.) However, the situation is murky as the company has yet to clarify which (if any) Bethesda titles will be exclusive to Xbox.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Storage: Disappointingly shallow, so bring your USB drive**
 
@@ -189,6 +185,10 @@ Lifewire / Jeremy Laukkonen
 
  An overhaul of the dashboard is currently in the works, and we expect it to arrive in 2023.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Controller: Iteration more than innovation**
 
  The Xbox Series X|S controller is a pleasant surprise, as Microsoft also chose to stick with a winning formula. The original Xbox One controller was well-received, and its minor facelift with the release of the Xbox One made it even better. Microsoft took that design for the Xbox Series X|S and tweaked it ever so slightly.
@@ -208,7 +208,7 @@ Lifewire / Jeremy Laukkonen
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Jaw-droppingly low**
@@ -220,6 +220,10 @@ Lifewire / Jeremy Laukkonen
  One nice thing about the Xbox Series X|S is that when you buy a new console, you typically have a bunch of add-ons to worry about that drive the price up. For example, you might have to purchase several controllers to support multiplayer, which adds up to $60 or more per controller. Since the Series S supports most Xbox One peripherals, owners don’t have to worry about the added expense of buying extra controllers.
 
  One expense you may need to budget is a high-speed USB 3.1 drive. The console is perfectly usable without an external drive, but expect to uninstall games regularly to make more space if you limit yourself to the onboard storage.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Xbox Series S vs. PS5 Digital**
 
@@ -234,10 +238,6 @@ Lifewire / Jeremy Laukkonen
  **An affordable alternative for those without a 4K television.**
 
  The Xbox Series S might be a bit of a step back from the Xbox One X in performance, but the fact is that it’s a next-gen console that plays next-gen games with some impressive hardware and an unreal price tag. Gamers in search of the best graphics possible will want to look at the Xbox Series X instead, but gamers who haven’t yet made the 4K plunge, parents in need of an affordable console for their kids, or anyone looking to save money will all find something to like here.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -281,24 +281,20 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-dissecting-disney-disguises-the-goofy-trek/"><u>[New] In 2024, Dissecting Disney Disguises 'The Goofy Trek'</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-photo-edits-skewed-caption-creation/"><u>[New] Photo Edits Skewed Caption Creation</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-how-to-optimize-your-channels-with-youtubes-featured-spotlight-for-2024/"><u>[Updated] How to Optimize Your Channels with YouTube’s Featured Spotlight for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-iconic-open-world-games-to-commit-to/"><u>[Updated] Iconic Open World Games to Commit To</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-unleash-the-power-of-your-lost-iphone-x/"><u>[Updated] In 2024, Unleash the Power of Your Lost iPhone X</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-ultimate-action-cam-editing-solutions-for-2024/"><u>[Updated] Ultimate Action Cam Editing Solutions for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/city-construction-fun-with-cities-skylines-the-ultimate-addictive-urban-builder-simulator/"><u>City Construction Fun with Cities: Skylines - The Ultimate Addictive Urban Builder Simulator</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dissecting-the-features-and-flaws-of-google-stadia-for-better-gaming-experience/"><u>Dissecting the Features and Flaws of Google Stadia for Better Gaming Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-of-the-lg-stylo-6-a-perfect-blend-of-style-and-functionality-with-stylus/"><u>Expert Review of the LG Stylo 6: A Perfect Blend of Style & Functionality with Stylus</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/find-your-match-choosing-an-ideal-apc-ups-for-enhanced-gaming-performance/"><u>Find Your Match: Choosing an Ideal APC UPS for Enhanced Gaming Performance</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-10-preferred-online-photo-background-swappers/"><u>In 2024, 10 Preferred Online Photo Background Swappers</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-initiate-internet-income-low-cost-youtube-channel-buys/"><u>In 2024, Initiate Internet Income Low-Cost YouTube Channel Buys</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-unlock-device-agnostic-techniques-for-professional-filming/"><u>In 2024, Unlock Device-Agnostic Techniques for Professional Filming</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/inside-assassins-creed-valhalla-a-deep-dive-into-its-spectacular-viking-chronicles-and-historical-quests/"><u>Inside Assassin's Creed: Valhalla - A Deep Dive Into Its Spectacular Viking Chronicles and Historical Quests</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/inside-gpt-4all-working-mechanism-explained-in-simple-terms/"><u>Inside GPT-4All: Working Mechanism Explained in Simple Terms</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/softbox-innovation-showcase-2024s-best/"><u>Softbox Innovation Showcase - 2024'S Best</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-latest-apple-ipad-enhanced-productivity-through-innovative-ipados-integration/"><u>The Ultimate Guide to the Latest Apple iPad: Enhanced Productivity Through Innovative IPadOS Integration</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-review-why-the-new-apple-watch-series-4-sets-a-higher-standard/"><u>Top Review: Why the New Apple Watch Series 4 Sets a Higher Standard</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unpacking-the-apple-iphone-12-mini-showcasing-power-and-potential-in-compact-design/"><u>Unpacking the Apple iPhone 12 Mini: Showcasing Power and Potential in Compact Design</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-best-dramatic-writing-site-for-2024/"><u>[New] Best Dramatic Writing Site for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-unlock-your-live-feed-free-cam-recording-and-top-picks-for-2024/"><u>[New] Unlock Your Live Feed Free Cam Recording & Top Picks for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-effortless-imovie-music-enhancement-using-youtube-songs/"><u>[Updated] Effortless iMovie Music Enhancement Using YouTube Songs</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-highly-effective-ways-to-stream-and-record-sports-games/"><u>[Updated] Highly Effective Ways to Stream and Record Sports Games</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-androids-latest-advancements-for-immersive-video-viewing/"><u>[Updated] In 2024, Android's Latest Advancements for Immersive Video Viewing</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-prime-video-sets-for-live-broadcasts-2023/"><u>2024 Approved Prime Video Sets for Live Broadcasts 2023</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On HTC U23 Pro? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-extollo-lansocket-nano-unmatched-pace-low-response-time-with-power-through-capability/"><u>Comprehensive Guide to Extollo LANSocket Nano: Unmatched Pace, Low Response Time with Power-Through Capability</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-the-efficiency-and-performance-of-linksys-velop-router-setup/"><u>In-Depth Analysis: The Efficiency & Performance of Linksys Velop Router Setup</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/natm-relies-on-sequential-excavation-and-in-situ-stress-redistribution-making-it-adaptable-but-requiring-constant-monitoring-and-support-work/"><u>NATM Relies on Sequential Excavation and in Situ Stress Redistribution, Making It Adaptable but Requiring Constant Monitoring and Support Work</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/piecing-together-engaging-stream-previews/"><u>Piecing Together Engaging Stream Previews</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/powerful-protection-review-insights-on-apc-back-ups-pro-1500va-with-abundant-outlets-and-user-friendly-battery-features/"><u>Powerful Protection Review: Insights on APC Back-UPS Pro 1500VA with Abundant Outlets and User-Friendly Battery Features</u></a></li>
+<li><a href="https://fox-that.techidaily.com/say-goodbye-to-airdrop-problems-swiftly-solve-them-using-these-16-key-guides/"><u>Say Goodbye to AirDrop Problems – Swiftly Solve Them Using These 16 Key Guides!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-budget-convertible-laptop-dive-into-our-asus-chromebook-flip-c302ca-assessment/"><u>The Best Budget Convertible Laptop? Dive Into Our Asus Chromebook Flip C302CA Assessment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-most-effective-virtual-coding-schools-offering-the-latest-tech-skills/"><u>The Most Effective Virtual Coding Schools Offering the Latest Tech Skills</u></a></li>
 </ul></div>
 

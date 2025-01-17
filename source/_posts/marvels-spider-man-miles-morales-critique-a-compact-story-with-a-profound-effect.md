@@ -1,7 +1,7 @@
 ---
 title: "Marvel's Spider-Man: Miles Morales Critique - A Compact Story with a Profound Effect"
-date: 2024-08-11T00:09:51.653Z
-updated: 2024-08-12T00:09:51.653Z
+date: 2025-01-12T18:04:22.162Z
+updated: 2025-01-16T21:18:30.686Z
 categories:
   - BestProducts
 description: "This Article Describes Marvel's Spider-Man: Miles Morales Critique - A Compact Story with a Profound Effect"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/a2b6039a90af5776271de387e20901bd10245991f
 
 4.3
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Extollo LANSocket 1500 Powerline Adapter
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/bp3nz_Kph6TOTz5TF4sk7NQJt4w=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-HeroSquare-41f20e9c72b84bfd92f578807ae1edaf.jpg)
@@ -41,11 +38,12 @@ Lifewire / Jeremy Laukkonen
 
 4.3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Extollo LANSocket 1500 Powerline Adapter
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/KabMCV8f8k1Pxtd-vhM86zkedrw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-HeroSquare-41f20e9c72b84bfd92f578807ae1edaf.jpg)
 
 Lifewire / Jeremy Laukkonen
@@ -76,9 +74,6 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Big, bulky, and basic, with a filtered pass-through**
 
  Extollo won’t win any awards for the basic, blocky design of the LANSocket 1500 adapters. They’re big, plastic, white, and take up a lot of space. That’s somewhat mediated by the inclusion of a pass-through electrical socket, which is a really nice touch.
@@ -93,12 +88,12 @@ Lifewire / Jeremy Laukkonen
 
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/Ahhqweppp7LoE4s2gervkZuyOS8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-04-e086de486a5a4e16ac16cff8ae813b22.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## **Setup Process: Pain-free plug and play**
 
  Home networking is a complicated subject, but setting up a pair of LANSocket 1500 adapters is about as simple as it gets. The kit includes two adapters and two[Ethernet cables](https://www.lifewire.com/what-is-an-ethernet-cable-817548) , which is really all you need to set up your[powerline network](https://www.lifewire.com/powerline-home-networking-and-homeplug-817720) .
@@ -109,29 +104,22 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  At that point, you’re done. The LANSocket 1500 adapters will automatically connect, establish your powerline network, and you’re good to go. You can add additional adapters elsewhere in your house, up to a total of 16, to connect more devices to your network.
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/BvO_NJ8pdby7NqO2Fq-orJ_NbFI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-02-40358222569c4a55b4d04e7aadf01af7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Connectivity: MIMO with beamforming**
 
  The Extollo LANSocket 1500 powerline adapters use the HomePlug AV2 specification, which includes support for[multi-in, multi-out (MIMO)](https://www.lifewire.com/mimo-wifi-routers-818332) with beamforming, which increases both speed and the allowable distance between adapters. This is a significant improvement over the HomePlug AV specification, which is slower and requires you to place your adapters more closely together.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/B7pek1jOL0gtn-sl7QsuHcO3_CU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-03-04f860db31f049e1a2ecb40196f7aaf7.jpg)
 
  Lifewire / Jeremy Laukkonen
@@ -146,12 +134,13 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  It’s important to note that your personal experience with the LANSocket 1500, or with any powerline adapter, will be dependent on the age and quality of the wiring in your home. Old wiring, damaged wiring, and situations where ground wires aren’t present will all have a negative impact on speeds. If you experience significantly low speeds, try switching the adapters to different outlets.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Extollo LANSocket 1500 Powerline Adapter Kit](https://www.lifewire.com/thmb/s7sBTQQEDT14u1i6nHyeA6O4hEw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4141215-05-d60cab3cba9446c1b398076a39432b70.jpg)
 
  Lifewire / Jeremy Laukkonen
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Runs on an embedded Linux distribution**
 
@@ -172,6 +161,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  The Extollo LANSocket 1500 has an MSRP of $90 for a set of two. That places these adapters right in the same general price range as other similar devices. You can find HomePlug AV2 compatible adapters for a little less, but they typically don’t perform quite as well.
 
  Since the LANSocket 1500 adapters are so easy to use, and provide such a high level of performance, it’s our judgment that they’re worth the $10 or so premium you’ll typically pay compared to similar competitors.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Wins on transfer speeds with some security concerns**
 
@@ -195,9 +188,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  The Extollo LANSocket 1500 checks all the right boxes, with some of the highest speeds on the market, a pass-through electrical socket, and a decent price. The high speeds and low latency make this kit a good choice if you need to connect a game console, and the extra memory allowed by the use of Linux really helps out if you stream a lot of video, just be wary of security considerations.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  LANSocket 1500 Powerline Adapter
@@ -213,14 +203,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * Chipset  Broadcom BCM60500
 * Parental Controls  No
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -229,4 +216,20 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ed-entrepreneur-writes-top-youtube-sites-for-business-success/"><u>[Updated] Entrepreneur' Writes Top YouTube Sites for Business Success</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-jumpstart-your-recording-with-this-obs-mac-setup-guide/"><u>[Updated] In 2024, Jumpstart Your Recording with This OBS Mac Setup Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-future-of-interaction-with-microsofts-hololens-review/"><u>[Updated] The Future of Interaction with Microsoft's HoloLens Review</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/all-you-need-to-know-about-youtube-shorts-fund-for-2024/"><u>All You Need to Know About YouTube Shorts Fund for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/compact-sound-on-your-side-meet-agpteks-mp3-player/"><u>Compact Sound on Your Side: Meet AGPTEK's MP3 Player</u></a></li>
+<li><a href="https://fox-that.techidaily.com/discover-the-7-key-factors-leading-to-unresponsive-iphone-screen-issues/"><u>Discover the 7 Key Factors Leading to Unresponsive iPhone Screen Issues</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-moto-g-play-long-lasting-power-and-adequate-processor-capability/"><u>Exploring the Moto G Play: Long-Lasting Power & Adequate Processor Capability</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gsmand-movavi/"><u>GSM対応のパッケージを自由にダウンロード&変換 - Movaviソリューション</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-locked-out-of-iphone-14-pro-5-ways-to-get-into-a-locked-iphone-14-pro-by-drfone-ios/"><u>In 2024, Locked Out of iPhone 14 Pro? 5 Ways to get into a Locked iPhone 14 Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-samsung-galaxy-note20-ultra-5g-analysis/"><u>In-Depth Samsung Galaxy Note20 Ultra 5G Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-performance-unveiled-in-depth-analysis-of-ankers-powercoreplus-26800-portable-charger-bundle-review/"><u>Top Performance Unveiled: In-Depth Analysis of Anker's PowerCore+ 26800 Portable Charger Bundle Review</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/whats-new-with-bandicam-the-2023-expert-analysis-for-2024/"><u>What's New with Bandicam – The 2023 Expert Analysis for 2024</u></a></li>
+<li><a href="https://win-trending.techidaily.com/windows-10qnap-nas2/"><u>Windows 10資料夾備份至QNAP NAS：運用2種有效方法</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Capture Everything with the Lumix FZ80
-date: 2024-08-11T00:10:49.816Z
-updated: 2024-08-12T00:10:49.816Z
+date: 2025-01-13T18:30:13.052Z
+updated: 2025-01-16T22:04:01.384Z
 categories:
   - BestProducts
 description: This Article Describes Capture Everything with the Lumix FZ80
@@ -13,11 +13,12 @@ thumbnail: https://www.lifewire.com/thmb/P0Z-EiIsLrbIygF_tvrq0-blP1k=/400x300/fi
 
 4.7
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Apple Mac Mini
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Mac mini](https://www.lifewire.com/thmb/PGUiYeMYsiySzInCVShXLUY3Wqs=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_horiz_Mac-Mini-M1-2020-Computer-1-c63ec986a9944869ab0f9ff7b7a0b01d.jpg)
 
 Jeremy Laukkonen / Lifewire
@@ -96,9 +97,6 @@ Jeremy Laukkonen / Lifewire
 
  Jeremy Laukkonen / Lifewire
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## Setup Process: Fast and painless, but you can’t use a Bluetooth keyboard or mouse
 
  If you’ve ever set up a macOS device before, the setup process isn’t any different here. It’s just a matter of accepting some terms, tweaking some initial settings, and connecting your Apple ID. As always, setup is going to be easier if you have access to another functional piece of Apple hardware that you’re already logged into.
@@ -108,8 +106,9 @@ Jeremy Laukkonen / Lifewire
  For example, I was able to plug in the dongle from my Logitech K400+ Touch Keyboard, and the Mac mini recognized the peripheral immediately. That allowed me to complete the setup process without digging around for wired peripherals.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Performance: Unreal performance with some hiccups
 
  While the Mac mini (M1, 2020) remained mostly unchanged from a design perspective, the internals received a massive overhaul. This is Apple’s first desktop to receive its new M1 chip, and that’s a really big deal. Though one of the M1’s headline features, reduced power use, isn’t as big a deal here as it is in the MacBook Air, this chip is still massively more powerful than anything you’ve ever seen in a Mac before. In fact, the Mac mini has the exact same chip as the MacBook Pro, with one more GPU core than the MacBook Air.
@@ -126,9 +125,6 @@ Jeremy Laukkonen / Lifewire
 
  In addition to GFXBench, I also ran the WildLife benchmark from 3DMark that’s designed for iOS, made possible by Big Sur’s native support for iOS applications. In that test, the Mac mini scored 17,930 overall and registered 107fps. Both numbers were a bit higher than the MacBook Air managed on the same test, which is understandable since the Mac mini GPU has one more core.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Mac mini](https://www.lifewire.com/thmb/H6vCqcN2s5HOQG5MJWawrPxairg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mac-Mini-M1-2020-Computer-6-cd1693bee2f4429fafd1a57ecffbce81.jpg)
 
  Jeremy Laukkonen / Lifewire
@@ -153,6 +149,10 @@ Jeremy Laukkonen / Lifewire
 
  Aside from lack of support from game developers, the only real drawback here in terms of gaming comes from the HDMI port itself. While the M1 Mac mini can pump out[4K graphics](https://www.lifewire.com/4k-resolution-overview-and-perspective-1846842) , it’s limited to a 60Hz refresh rate. That’s fine for most casual gamers, but anyone who has fallen in love with their high refresh rate monitor will experience a bit of pain here.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Productivity: Ready for work
 
  The great thing about the Mac mini line is that it’s always been so flexible. You can use a Mac mini for work, but the size and relative affordability of the hardware means you aren’t locked into using it that way. If you do aim to use an M1 Mac mini for work though, it’s more than up to the task. Native apps and the operating system itself run fast and smooth as you could possibly hope, with none of the sitting around looking at spinning beach balls that you may have gotten used to with older hardware.
@@ -166,18 +166,15 @@ Jeremy Laukkonen / Lifewire
  Multitasking also works flawlessly, and I was able to juggle an impressive number of browser windows, intensive apps like Photoshop and Handbrake, voice and video chat over Discord, and more without running into any real problems.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Audio: It’s there if you need it
 
  The M1 Mac mini is great in almost every category, but audio isn’t one of them. There’s a speaker inside that sleek aluminum block, but it isn’t one you’ll care to listen to. It’s tinny and hollow, and absolutely a placeholder for more capable external speakers. You’ll want to hook up headphonesor some kind of speakers or soundbar shortly after setting the M1 Mac mini up, because the built-in speaker isn’t really even suitable for watching YouTube videos, let alone listening to music or streaming your favorite shows or movies.
 
  The M1 Mac mini does include a 3.5mm headphone jack on the back along with built-in Bluetooth, so you have a lot of options. Just make sure to budget for some sort of external speakers or headphones, because you don’t want to get stuck with the built-in speaker.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Mac mini](https://www.lifewire.com/thmb/OZrKjTPGUmo00carhaedBa9WhTU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mac-Mini-M1-2020-Computer-5-bc84da59dfdf440c8d53a096509c232b.jpg)
 
  Jeremy Laukkonen / Lifewire
@@ -190,10 +187,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  I also tested the wireless connection, hooking the M1 Mac mini to my[Eero mesh network](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008) . When connected wirelessly, I measured a respectable 284 Mbps down and 54 Mbps up. At the same time, in the same location, my[HP Spectre x360](https://www.lifewire.com/hp-spectre-x360-15t-touch-laptop-review-4773540) measured 254Mbps down and 63Mbps up.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## Software: So long, Windows compatibility
 
  Software is the biggest stumbling block for M1 hardware during these early days, as there isn’t a whole lot out there that’s actually designed to run on Apple Silicon. Big Sur was built specifically for this hardware and to integrate seamlessly with Rosetta 2 for running legacy Intel macOS apps, and a number of first party Apple apps also run natively, but that’s about it at launch.
@@ -207,8 +200,9 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
  For the time being, the trade off is that Big Sur and native apps like Safari run extremely well, and with remarkably low power consumption and heat generation compared to Intel Macs.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Price: More affordable than ever
 
  The Mac mini saw a price increase alongside its last major retool, but Apple actually played against tradition and handed us a price reduction with the transition to M1 hardware. The baseline M1 Mac mini is actually hundreds of dollars cheaper than the previous iteration of the hardware, which is remarkable considering how much more powerful it is. The last Intel Mac mini was already a good deal, so the even cheaper M1 Mac mini looks even better in comparison. Considering its capabilities, it’s also a good deal when compared to non-Apple mini desktop hardware like the Intel NUC lineup.
@@ -216,6 +210,10 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 ![Mac mini](https://www.lifewire.com/thmb/G2V98ugnO-cdk-GaL11FUP0RWvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Mac-Mini-M1-2020-Computer-7-c899b9f13f09448699fee766ab51a2bd.jpg)
 
  Jeremy Laukkonen / Lifewire
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Mac Mini M1 vs. Mac Mini Intel
 
@@ -237,16 +235,14 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  The Apple Mac mini with M1 is a tremendously impressive piece of hardware, offering staggering performance at an affordable price. The only real catch here is that in leaving Intel behind, Apple may have left you in the lurch. If you currently can’t get by without running specific apps through Windows by way of Bootcamp, then the M1 Mac mini just isn’t what you’re looking for. If you can live and work in a world that’s entirely free of Windows, then the M1 Mac mini is ready to welcome you home.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Apple iPad Air 4](https://www.lifewire.com/apple-ipad-air-4-review-5091874)
 
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Mac Mini
@@ -265,14 +261,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 * Connectivity  Wi-Fi 6, Ethernet
 * Software  macOS Big Sur
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -281,4 +274,17 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-all-inclusive-list-best-downloader-software-for-vimeo/"><u>[New] 2024 Approved All-Inclusive List Best Downloader Software for Vimeo</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-dive-into-the-dos-and-donts-of-youtube-beauty-channels/"><u>[New] In 2024, Dive Into the Do's and Don'ts of YouTube Beauty Channels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-inside-the-earnings-loop-how-you-benefit-from-your-channel/"><u>[New] In 2024, Inside the Earnings Loop How You Benefit From Your Channel</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-testing-on-the-urban-armor-gear-macbook-pro-shield-a-blend-of-strength-and-practicality/"><u>Comprehensive Testing on the Urban Armor Gear MacBook Pro Shield - A Blend of Strength & Practicality</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/enhance-the-look-of-your-pc-changing-the-taskbars-appearance-on-windows-10/"><u>Enhance the Look of Your PC: Changing the Taskbar's Appearance on Windows 10</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-oneplus-9-specs-and-value-shortcomings-revealed/"><u>Evaluating OnePlus 9 Specs and Value - Shortcomings Revealed</u></a></li>
+<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-realme-gt-neo-5-se-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Realme GT Neo 5 SE Black and White | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-your-homes-security-landscape-with-the-blink-outdoor-4w-wifi-light-floodlight-camera-a-hands-on-installation-guide-for-optimal-performance/"><u>Transform Your Home's Security Landscape With The Blink Outdoor 4W WiFi Light Floodlight Camera: A Hands-On Installation Guide for Optimal Performance</u></a></li>
+<li><a href="https://fox-links.techidaily.com/transition-to-hdr-a-step-forward-in-high-quality-video/"><u>Transition to HDR A Step Forward in High-Quality Video</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/where-tech-enthusiasts-choose-their-smartphones-top-rated-stores-reviewed/"><u>Where Tech Enthusiasts Choose Their Smartphones: Top Rated Stores Reviewed</u></a></li>
+</ul></div>
 

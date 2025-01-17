@@ -1,7 +1,7 @@
 ---
 title: Bigger Than Meets the Eye - A Comprehensive Guide to the iPhone 12 Mini
-date: 2024-08-11T00:07:38.467Z
-updated: 2024-08-12T00:07:38.467Z
+date: 2025-01-11T23:43:29.936Z
+updated: 2025-01-16T16:18:35.506Z
 categories:
   - BestProducts
 description: This Article Describes Bigger Than Meets the Eye - A Comprehensive Guide to the iPhone 12 Mini
@@ -14,15 +14,16 @@ thumbnail: https://www.lifewire.com/thmb/RRm7SO68Yut-wFBusZ-z3LplvZA=/400x300/fi
 2.7
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## inXile Entertainment Torment: Tides of Numenera
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/HYgHMUDMFh7JI98Hj0JMbI2wcpw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -45,10 +46,6 @@ Lifewire / Kelsey Simon
 
 ## inXile Entertainment Torment: Tides of Numenera
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/rhT3ygZshpoBNXjxqRjfylp4VYU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-HeroSquare-0a4f2ccb7a35418fa2204c7d42b630f8.jpg)
 
 Lifewire / Kelsey Simon
@@ -73,10 +70,11 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is a third-person role-playing game focused strongly on story―and oh, there is so much story. The game begins with the character you’ll play as waking up in a panic. Someone will narrate everything that’s going on to you, including what the area around you looks like. After a short introduction, you’ll be prompted to pick what you want to play as: Glaive, Jack, or Nano. These will roughly translate into someone more physical, someone mixed physical and magical, and a mage, but of course, set in this strange half-fantastical, half-science-fiction world where everything is new and unique.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/b1_d8ikgtdkSH_Y0F510q_BXpK0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-03-d99b43959fa74b31a15f336852f14d75.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -92,6 +90,10 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
  Beyond this, the other major gameplay mechanic is a system of effort and inspiration. Every action you take will prompt you to use effort. This effort allows for your character to work harder at the chosen action, and thus gives your character a better chance of accomplishing their goal.
@@ -106,9 +108,6 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -119,9 +118,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Only worth it if you’re keen on the story**
 
  Torment: Tides of Numenera is still an expensive game, costing $50 on[Steam](https://www.lifewire.com/best-free-steam-games-4176308) when it’s not on sale. It’s a game created with a very specific type of player in mind―and I suspect most people are not going to like it.
@@ -142,6 +138,10 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Torment: Tides of Numenera
@@ -150,14 +150,11 @@ Lifewire / Kelsey Simon
 * ESRB Rating  M for Mature
 * Available Platforms  PC, MaxOS,Xbox One, PlayStation 4
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -166,4 +163,22 @@ Lifewire / Kelsey Simon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/2024-approved-infusing-immersive-experiences-in-ar-via-customized-lut-application/"><u>2024 Approved Infusing Immersive Experiences in AR via Customized LUT Application</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-seamless-streams-expert-guide-to-facebook-screen-sharing/"><u>2024 Approved Seamless Streams Expert Guide to Facebook Screen Sharing</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-soundtrack-of-success-on-instagram/"><u>2024 Approved The Soundtrack of Success on Instagram</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-tp-link-re200-80211ac-wifi-signal-booster-for-cost-effective-connectivity-solutions/"><u>Comprehensive Review: TP-Link RE200 802.11Ac WiFi Signal Booster for Cost-Effective Connectivity Solutions</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/elevate-video-quality-with-vlcs-high-resolution-webcam-recording-for-2024/"><u>Elevate Video Quality with VLC's High-Resolution Webcam Recording for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-portability-and-savings-with-the-nintendo-switch-lite-console/"><u>Exploring Portability and Savings with the Nintendo Switch Lite Console</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-navigating-through-challenges-with-non-functional-fb-video-share/"><u>In 2024, Navigating Through Challenges with Non-Functional FB Video Share</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-nubia-z50s-pro-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Nubia Z50S Pro Phone Hassle-Free</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leap-forward-upgrading-windows-11-from-32-to-64-bit/"><u>Leap Forward: Upgrading Windows 11 From 32 to 64-Bit</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/precision-in-programming-ai-moral-standards/"><u>Precision in Programming AI Moral Standards</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/star-wars-squadrons-reviewed-a-deep-dive-into-authentic-x-wing-aerial-combat-action/"><u>Star Wars Squadrons Reviewed: A Deep Dive Into Authentic X-Wing Aerial Combat Action</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-aesthetic-and-featherlight-advantages-of-the-acer-chromebook-r-11-examined/"><u>The Aesthetic & Featherlight Advantages of The Acer Chromebook R 11 Examined</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-bookworms-choice-how-to-maximize-reading-pleasure-with-the-latest-kindle-paperwhite-7th-gen/"><u>The Bookworm's Choice: How to Maximize Reading Pleasure with the Latest Kindle Paperwhite 7Th Gen</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-tiktok-wallpaper-templates-uncovered-for-2024/"><u>Top TikTok Wallpaper Templates Uncovered for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-the-future-of-reading-a-closer-look-at-the-kobo-libra-h2os-water-resistance-features/"><u>Unboxing the Future of Reading: A Closer Look at the Kobo Libra H2O's Water Resistance Features</u></a></li>
+</ul></div>
 

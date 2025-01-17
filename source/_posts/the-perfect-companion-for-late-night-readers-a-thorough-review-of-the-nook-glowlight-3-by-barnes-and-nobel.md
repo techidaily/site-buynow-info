@@ -1,7 +1,7 @@
 ---
 title: "The Perfect Companion for Late-Night Readers: A Thorough Review of the Nook Glowlight 3 by Barnes & Nobel"
-date: 2024-08-11T00:12:02.518Z
-updated: 2024-08-12T00:12:02.518Z
+date: 2025-01-15T18:51:07.135Z
+updated: 2025-01-16T23:04:11.017Z
 categories:
   - BestProducts
 description: "This Article Describes The Perfect Companion for Late-Night Readers: A Thorough Review of the Nook Glowlight 3 by Barnes & Nobel"
@@ -13,11 +13,12 @@ thumbnail: https://thmb.techidaily.com/829637766daad5158a0e2799ab45977f98c34111c
 
 5
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Apple MacBook Pro 16-inch (2021)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/L5Mbsc5JB_OpmoLJkqia2EonbI8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-hero-8413a7aa67ca443bb241da703c1025b2.jpg)
 
 Lifewire / Sascha Brodsky
@@ -71,19 +72,17 @@ Lifewire / Sascha Brodsky
 
  I’ve been using Apple portables ever since the Powerbook 100 was released in 1991\. After spending several weeks with the new MacBook Pro, it offers the responsiveness previously associated only with iPads and iPhones, matched with the refined form factor of Apple’s best laptops.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Design: Back to the future
 
  On the surface, the new MacBook Pro doesn’t look radically different from Apple’s previous Pro laptop models. It’s got a similar aluminum case, and the screen is about the same size as the 2019 model.
 
  However, the tiny details make all the difference in the design of the new MacBook. The Pro just feels nicer than any laptop Apple has ever made in many different ways starting with the incredibly smooth hinge mechanism when you open it up.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/dFndxams3xUoua0_gkYqRycgBdU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-1-db37ffedba744e8eb2070780c0d8de10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Sascha Brodsky
 
@@ -101,17 +100,15 @@ Lifewire / Sascha Brodsky
 
  Just above the keyboard is another area where Apple has decided to go backward. The company has ditched the Touch Bar, a strip that allows touch access to software functions. As someone who used the Touch Bar for several years and never found a use for it, I say good riddance.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## Trackpad: Big and bold
 
  There’s nothing not to like about the trackpad on the new MacBook Pro. It’s big and responsive, and you won’t notice it after a while, which is all you need in an input device.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Apple MacBook Pro 16-inch (M1, 2021)](https://www.lifewire.com/thmb/tD3rxlw9zH5xufV5ztJIZyrJc3Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/macbook-pro-3-db6300639d8049d1862d0e4f25a35222.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Sascha Brodsky
 
@@ -156,8 +153,9 @@ Lifewire / Sascha Brodsky
  Multi-Core: 7552
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Battery: Keeps on going and going
 
  One of the benefits of the new M1 chip is its efficiency. Despite its power, the chip sips energy. The M1 Pro ran for 16 hours on its battery during continuous use, making it the longest-lasting laptop I've ever tried.
@@ -167,6 +165,10 @@ Lifewire / Sascha Brodsky
  The M1 Pro ran for 16 hours during continuous use, making it the longest-lasting laptop I've ever tried.
 
  Another nice thing about the efficient M1 chip is the fact that the MacBook runs cool. I’ve used it for dozens of hours, and it never felt more than slightly warm. Contrast that to my 2019 MacBook Pro that used to get so hot I was worried it would catch fire.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Price: Cough, splutter?
 
@@ -178,9 +180,6 @@ Lifewire / Sascha Brodsky
 
  A less expensive MacBook will be just fine for many users who just need a light work and fun machine. But for anyone who wants arguably the best laptop ever made, only the new MacBook Pro will do.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## MacBook Pro (M1, 2021) vs. MacBook Air (M1, 2020)
 
  There’s an excellent case to be made that for many people, the much less expensive MacBook Air is a better option than the Pro model.
@@ -199,14 +198,15 @@ Lifewire / Sascha Brodsky
 
  As one of the newest and more expensive laptops on the market, it’s no surprise that I’m giving the MacBook Pro top marks in practice. Blazing speed, a great screen, and all day and then some battery life make this a great laptop for almost any use. However, the design is back to the basics and road warriors might want to consider a lighter, less bulky model. But, if you depend on your MacBook for demanding tasks, this is a must-buy.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Apple MacBook Pro 13-inch (M1, 2020)](https://www.lifewire.com/macbook-pro-13-inch-m1-2020-review-5092658)
 * [Apple MacBook Air 13-inch](https://www.lifewire.com/macbook-air-13-inch-m1-2020-review-5092793)
 * [Dell XPS 13 7390 (2020)](https://www.lifewire.com/dell-xps-13-7390-2-in-1-review-5113106)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -227,14 +227,11 @@ Lifewire / Sascha Brodsky
 * Battery Life  Up to 21 hours
 * Ports  3x Thunderbolt 4 (USB-C), HDMI, SDXC card slot
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -243,4 +240,18 @@ Lifewire / Sascha Brodsky
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-capturing-your-laptop-simple-lenovo-steps/"><u>[New] Capturing Your Laptop Simple Lenovo Steps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-speedy-surfing-tips-for-youtubes-playback-speed-control/"><u>[Updated] 2024 Approved Speedy Surfing Tips for YouTube's Playback Speed Control</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1725285124387-pc/"><u>人工知能を使ったモノクロ写真のカラー変換手法 - PC, スマホ, ウェブでのアプリケーション</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-embracing-tradition-with-the-new-generation-of-lgs-wear-os-smartwatches/"><u>Comprehensive Analysis: Embracing Tradition with The New Generation of LG's Wear OS Smartwatches</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-value-in-hulu-why-it-justifies-costs/"><u>Discovering Value in Hulu - Why It Justifies Costs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/embrace-flexibility-in-your-workflows-with-the-msi-pro-mp161-e2s-portable-screen-solution/"><u>Embrace Flexibility in Your Workflows with the MSI PRO MP161 E2's Portable Screen Solution</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://os-tips.techidaily.com/pros-and-cons-monitoring-your-furry-friends-with-airtags-is-it-worth-the-try/"><u>Pros and Cons: Monitoring Your Furry Friends with AirTags - Is It Worth the Try?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-lihan-lhfm1039-fm-bluetooth-linker-seamlessly-integrating-tech-with-your-auto-sound-system/"><u>Reviewing the Lihan LHFM1039 FM Bluetooth Linker: Seamlessly Integrating Tech with Your Auto Sound System</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722890330427-teen-must-see-cinema-selection-on-netflix-unveiled/"><u>Teen Must-See Cinema Selection on Netflix Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-game-playing-powerhouse-in-depth-look-at-the-asus-zephyrus-g1/"><u>Ultimate Game-Playing Powerhouse - In-Depth Look at the Asus Zephyrus G1</u></a></li>
+</ul></div>
 

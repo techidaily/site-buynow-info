@@ -1,7 +1,7 @@
 ---
 title: Top Features of the Value-Oriented Ambient WS-2902A Osprey Weather Station Reviewed
-date: 2025-01-04T03:58:35.504Z
-updated: 2025-01-10T20:25:11.754Z
+date: 2025-01-15T17:06:39.519Z
+updated: 2025-01-16T22:27:17.567Z
 categories:
   - BestProducts
 description: This Article Describes Top Features of the Value-Oriented Ambient WS-2902A Osprey Weather Station Reviewed
@@ -19,7 +19,7 @@ thumbnail: https://www.lifewire.com/thmb/kWo7HN6oemoL0YOU54NCjKSHuJs=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Mohu Leaf 30
@@ -47,12 +47,16 @@ Lifewire / Jonno Hill
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -77,6 +81,10 @@ Lifewire / Jonno Hill
 
  Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Basic but effective**
 
  You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
@@ -84,7 +92,7 @@ Lifewire / Jonno Hill
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup: Dead simple**
@@ -101,10 +109,6 @@ Lifewire / Jonno Hill
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Excellent for the performance**
 
  The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
@@ -119,10 +123,6 @@ Lifewire / Jonno Hill
 
 **No fuss, good value.**
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -151,19 +151,16 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-fine-tuning-focus-the-ultimate-guide-to-zooming-in-on-videoleap/"><u>[New] Fine-Tuning Focus The Ultimate Guide to Zooming in on Videoleap</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-narrative-enhancements-the-process-of-infusing-text-into-your-video-content/"><u>[Updated] Narrative Enhancements The Process of Infusing Text Into Your Video Content</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-virtual-escapades-with-top-samsung-gear-vr-games-for-2024/"><u>[Updated] Virtual Escapades with Top Samsung Gear VR Games for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-breakdown-of-moto-g-play-surpassing-expectations-with-exceptional-battery-life-and-competent-performance-metrics/"><u>Comprehensive Breakdown of Moto G Play: Surpassing Expectations with Exceptional Battery Life and Competent Performance Metrics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enchantment-expressions-the-verona-variant/"><u>Enchantment Expressions: The Verona Variant</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/free-tango-communication-texts-voice-and-video-chat-app-reviews/"><u>Free Tango Communication: Texts, Voice & Video Chat App Reviews</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-realme-c53-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Realme C53 | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/navigating-the-secrets-of-funimate-download-for-2024/"><u>Navigating the Secrets of Funimate Download for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/step-by-step-guide-to-correct-common-playstationxbox-errors-when-trying-to-run-modern-warfare-cuke-iii-mw3/"><u>Step-by-Step Guide to Correct Common PlayStation/Xbox Errors When Trying to Run Modern Warfare Cuke III (MW3)</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-ultimate-walkthrough-for-converting-your-spotify-queues-to-editable-txt-files/"><u>The Ultimate Walkthrough for Converting Your Spotify Queues to Editable TXT Files</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-free-replacements-for-microsoft-office/"><u>Top-Rated Free Replacements for Microsoft Office</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlocking-greatness-at-a-low-cost-review-of-asus-chromebook-flip-c302cas-remarkable-capabilities/"><u>Unlocking Greatness at a Low Cost: Review of Asus Chromebook Flip C302CA's Remarkable Capabilities</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/viair-88p-reviewed-a-robust-compressor-with-notable-exceptions-examined/"><u>Viair 88P Reviewed: A Robust Compressor with Notable Exceptions Examined</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-mastery-spotting-unique-audience-groups/"><u>Youtube Mastery Spotting Unique Audience Groups</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-mi-drone-4k-review-drones-vs-landscape-photography/"><u>[New] 2024 Approved The Mi Drone 4K Review Drones vs Landscape Photography</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-avoid-shaky-footage-proper-tripod-usage-techniques-in-vlog-creation/"><u>[New] In 2024, Avoid Shaky Footage Proper Tripod Usage Techniques in Vlog Creation</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-unlocking-youtubes-potential-subscriber-triumph-tactics/"><u>[New] In 2024, Unlocking YouTube's Potential Subscriber Triumph Tactics</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-maximizing-impact-on-insta-story-with-multiple-images/"><u>[Updated] In 2024, Maximizing Impact on Insta Story with Multiple Images</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-guide-to-zooming-your-tiktok-videos/"><u>2024 Approved The Ultimate Guide to Zooming Your TikTok Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boost-your-fitness-journey-with-the-fitbit-versa-3s-inbuilt-gps-and-comprehensive-health-apps-for-enhanced-motivation/"><u>Boost Your Fitness Journey with the Fitbit Versa 3'S Inbuilt GPS & Comprehensive Health Apps for Enhanced Motivation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-methods-to-secure-preview-photos-embedded-in-word-files/"><u>Comprehensive Methods to Secure Preview Photos Embedded in Word Files</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/garmin-forerunner-945-evaluation-all-inclusive-features-of-an-advanced-sports-smartwatch/"><u>Garmin Forerunner 945 Evaluation: All-Inclusive Features of an Advanced Sports Smartwatch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/i-tried-both-ring-vs-nest-doorbell/"><u>I Tried Both: Ring vs Nest Doorbell</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-tradeoffs-in-asus-x441ba-a-full-reveal-on-large-display-device/"><u>Navigating Tradeoffs in Asus X441BA: A Full Reveal on Large Display Device</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-zeoid-startups-revealed-in-panzoids/"><u>Top Zeoid Startups Revealed in Panzoids</u></a></li>
 </ul></div>
 

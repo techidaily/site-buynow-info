@@ -1,7 +1,7 @@
 ---
 title: "Why Ring Video Doorbell 2 Reigns Supreme: An Expert Review"
-date: 2024-08-11T00:10:36.005Z
-updated: 2024-08-12T00:10:36.005Z
+date: 2025-01-14T16:23:38.799Z
+updated: 2025-01-16T20:39:02.861Z
 categories:
   - BestProducts
 description: "This Article Describes Why Ring Video Doorbell 2 Reigns Supreme: An Expert Review"
@@ -13,12 +13,13 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
 4.4
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/F035WaL3U8Q-n4fK2WBE6844lMo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -69,8 +70,9 @@ Lifewire / Emily Isaacs
  You can tell Microsoft put a considerable amount of thought into the Sculpt Ergonomic Keyboard’s design. From the manta ray style folds, which keep shoulders and hands at a relaxed, comfortable angle, to the detached numpad and magnetized risers for increased customization options when you want them, the Sculpt is quite the package. As with anything new, it took a period of adjustment, but we found it relatively quick thanks to the intuitive, easy-to-use design.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Made for comfort**
 
  The Sculpt is an ergonomic keyboard with a split design akin to that of a manta ray. The two halves of the keyboard sweep outwards and downwards creating an empty, raised space in the center of its swoop design. Its keys vary in size, with those nearest to the split being slightly wider than those on the outer edges of the keyboard. It’s largely made with plastic and has a bit of a clacky sound as you type. The Sculpt employs a standard layout with a fabric wrist pad at the front for extra comfort. This intuitive, split design combined with the wrist pad help your wrists, hands, and shoulders sit at a neutral, natural angle in order to[alleviate repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) that frequent typists are prone to over time.
@@ -85,25 +87,24 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
  Backlighting—we love it, but the Sculpt doesn’t have it. This is, in large part, thanks to its battery-powered design. It wouldn’t make a great deal of sense for the Sculpt to have backlighting since the two AAA[alkaline batteries](https://www.lifewire.com/best-aa-and-aaa-rechargeable-batteries-4134295) would drain significantly faster, but we sure did miss it. It’s important to note that our love of backlighting is also a matter of personal preference. If it’s important to you, you might want to consider a different model. If you can live without it, the Sculpt still has a lot to offer.
@@ -112,13 +113,14 @@ Lifewire / Emily Isaacs
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
 
  Lifewire / Emily Isaacs
@@ -147,9 +149,6 @@ Lifewire / Emily Isaacs
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Sculpt Ergonomic Keyboard
@@ -171,8 +170,6 @@ Lifewire / Emily Isaacs
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -180,4 +177,18 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-info.techidaily.com/bluetooth-enabled-criacry-cp24-fm-transmitter-a-detailed-review-highlighting-its-compact-build-and-some-limitations/"><u>Bluetooth-Enabled CriaCry CP24 FM Transmitter: A Detailed Review Highlighting Its Compact Build and Some Limitations</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-thermaltake-massive-tm-desktop-chiller-great-functions-hefty-cost-included/"><u>Comprehensive Review of the Thermaltake Massive TM Desktop Chiller: Great Functions, Hefty Cost Included</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-unpacking-the-capabilities-of-the-premium-garmin-forerunner-745-multisport-tracker/"><u>Expert Review: Unpacking the Capabilities of the Premium Garmin Forerunner 745 Multisport Tracker</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/for-non-circular-shapes-express-all-dimensions-through-a-single-variable-for-ease-of-calculation/"><u>For Non-Circular Shapes, Express All Dimensions Through a Single Variable for Ease of Calculation</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-fix-a-blank-login-screen-in-windows-10-and-11/"><u>How to Fix a Blank Login Screen in Windows 10 & 11</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-gateway-to-grandeur-embarking-on-a-classic-lit-journey/"><u>In 2024, Gateway to Grandeur Embarking on a Classic Lit Journey</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-to-do-if-your-iphone-xr-has-bad-esn-or-blacklisted-imei-by-drfone-ios/"><u>In 2024, What to do if your iPhone XR has bad ESN or blacklisted IMEI?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lamicall-tablet-holder-evaluation-a-fusion-of-style-and-utility/"><u>Lamicall Tablet Holder Evaluation: A Fusion of Style and Utility</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/nvidia-geforce-rtx-3070-ti-driver-update-windows-1187-compatible-version-available-now/"><u>NVIDIA GeForce RTX 3070 Ti Driver Update - Windows 11/8/7 Compatible Version Available Now</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unleashing-creativity-mastering-fictional-worldcreation-with-chatgpt-techniques/"><u>Unleashing Creativity: Mastering Fictional Worldcreation with ChatGPT Techniques</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Master Your Game Night with the Samsung Q60R Series 4K Ultra HD TV Review
-date: 2024-08-11T00:10:21.882Z
-updated: 2024-08-12T00:10:21.882Z
+date: 2025-01-14T18:06:01.249Z
+updated: 2025-01-16T16:51:21.099Z
 categories:
   - BestProducts
 description: This Article Describes Master Your Game Night with the Samsung Q60R Series 4K Ultra HD TV Review
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/FjFx4B7uI3LcbqTlG2QDx1hPPRQ=/400x300/fi
 ## TP-Link Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/5SQBxSHXey906sYtaz8fIiCXm7k=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -44,6 +48,10 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/o0LkMzwRLq9UDT8tBDJerDIsp8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_HeroSquare-3ee559e1bf9b4c95bb91f9ceaf3a6c5d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 [View On Walmart $68](https://www.walmart.com/ip/124219534) [View On Target $100](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.target.com%2Fp%2Ftp-link-ac1900-mu-mimo-mesh-compatible-dual-band-router%2F-%2FA-79847605%3Fslfpid%3D3) [View On Staples $91](https://www.staples.com/tp-link-archer-c80-ac1900-dual-band-wireless-and-ethernet-router-black/product%5F24467939?cid=AFF%3A24467939&slfpid=3)
@@ -63,18 +71,12 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer C80 is an affordable[long range router](https://www.lifewire.com/best-long-range-routers-4122554) that should be ideal for medium-sized homes. With 3x3[MU-MIMO](https://www.lifewire.com/mimo-wifi-routers-818332) , parental controls, and remote control using TP-Link’s Tether app, the Archer C80 has a few admirable features for a router under $100, but it also lacks some of the things we’ve come to expect in a router in this price range (like smart assistant compatibility and no USB port). I tested the TP-Link Archer C80 for a week to see if its design, connectivity, network performance, range, and software make the device a worthwhile investment when compared to other budget routers on the market.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Basic, but effective**
 
  The Archer C80 is an exceptionally small router, with a body that measures only 4.6 inches tall, 8.5 inches wide, and 1.26 inches in depth. Since its body is smaller than a paperback book, the router can sit inconspicuously on a table or desk. It also has two keyhole mounts on the back for mounting on a wall.
 
  The matte black color scheme allows it to blend in with other devices, so you’ll barely notice it on a desk or workstation. The surface is textured, with recesses to hide the venting. The texturing is both a blessing and a curse because it causes the C80 to collect a little extra dust, but it also hides fingerprints and smudges.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/Ep4Dk2l5q44AgM0S3cs9My3AE3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_03-a367c45b39474785856cb986e82c88dc.jpg)
 
  Lifewire / Erika Rawes
@@ -89,10 +91,6 @@ Lifewire / Erika Rawes
 
  On the bright side, the C80 has beamforming, which promotes a more concentrated signal and a longer range. It has 3 x 3 MU-MIMO technology, which means it can transmit and receive three data streams simultaneously. This helps the router provide a faster signal when you’re watching shows, gaming, or using a 3 x 3 capable computer. It has smart connect, which makes it possible for your router to switch devices between bands, and airtime fairness, which helps reduce lag caused by older or slower devices by distributing airtime more equally. This way, a slow device is less likely to bog down the network.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/tXeiVJNqjtwMg97as87xxtsMwhc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_04-375b5f92ce9d44f4af109c8f6bfada16.jpg)
 
  Lifewire / Erika Rawes
@@ -103,12 +101,17 @@ Lifewire / Erika Rawes
 
  When I loaded up the network with several of the devices in my home—more than 30 smart home products, gaming PCs, laptops, consoles, streaming devices, smart TVs, and phones—I started to experience a noticeable slowdown. This is not the best router for gaming or for those who use multiple connected devices simultaneously. The C80 would be ideal for homes with light to moderate networking demands.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/_Q5QoisOd-Mv52nqHoV1nGzgcAU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_05-9d8e4d6e12094157a7083463ee3c3ca4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Range: Even better than advertised**
 
@@ -117,8 +120,9 @@ Lifewire / Erika Rawes
  Every closet, bathroom, and bedroom maintained a signal, and I experienced no dead zones whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Software: TP-Link Tether app**
 
  The C80 is a cinch to set up in less than five minutes, with guest networks created and all. The TP-Link Tether app is one of my favorite router companion apps. The interface is super clean, and you can see exactly what devices are on each of your network bands. You can even have the app alert you when a new device signs into your network.
@@ -131,25 +135,10 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ## **Price: Around 100 bucks**
 
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **TP-Link Archer C80 vs. TP-Link Archer A9**
 
  The Archer A9 is another affordable offering from TP-Link, with a price tag of under $100\. However, the A9 has a USB port and is compatible with Alexa and[IFTTT](https://www.lifewire.com/what-is-ifttt-4172417) —features the C80 lacks. I recently tested the A9 as well. The A9 offers more in the way of features, but I was able to get faster speeds and better coverage out of the C80\. If you want a router that offers a more comprehensive experience, go with the A9\. If you just want an affordable, speedy router that will maintain a signal at long range, you’ll probably be happy with the C80.
@@ -186,8 +175,6 @@ Lifewire / Erika Rawes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -195,4 +182,20 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/est-low-cost-subtitles-and-downloader-companion-for-2024/"><u>[New] Best Low-Cost Subtitles & Downloader Companion for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-advanced-techniques-for-dynamic-and-dramatic-ae-heads-ups/"><u>[New] In 2024, Advanced Techniques for Dynamic and Dramatic AE Heads-Ups</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-faqs-of-using-vlc-player-on-mac/"><u>[New] In 2024, FAQs of Using VLC Player on Mac</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-free-top-chromebook-recording-software/"><u>[Updated] 2024 Approved Free Top Chromebook Recording Software</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-elite-list-of-best-videocall-services-without-cost/"><u>[Updated] Elite List of Best Videocall Services Without Cost</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1721962090192-50-cent-mobile-hacking-secrets-ransomware-decryption-techniques-and-chatgpt-collaboration-revealed-on-podcast/"><u>50-Cent Mobile Hacking Secrets: Ransomware Decryption Techniques and ChatGPT Collaboration Revealed on Podcast!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-netgear-c3700-a-hybrid-modemrouter/"><u>Comprehensive Evaluation of Netgear C3700: A Hybrid Modem/Router</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/comprehensive-step-by-step-tutorial-enhancing-your-hp-pavilion-gaming-laptop-with-an-ssd/"><u>Comprehensive Step-by-Step Tutorial: Enhancing Your HP Pavilion Gaming Laptop with an SSD</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-viair-88p-handheld-air-compressor-immense-capability-meets-minor-limitations/"><u>Exploring the Viair 88P Handheld Air Compressor: Immense Capability Meets Minor Limitations</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-lava-yuva-2-pro-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Lava Yuva 2 Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-the-asus-bw-16d1x-u-blu-ray-writer-aesthetic-design-and-notable-features/"><u>Inside the Asus BW-16D1X-U Blu-Ray Writer: Aesthetic Design and Notable Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/next-generation-showdown-which-is-better-samsungs-galaxy-s24-or-s23-ultra/"><u>Next Generation Showdown: Which Is Better? Samsung's Galaxy S24 or S23 Ultra?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/techniques-to-rectify-iphone-photo-out-of-focus-for-2024/"><u>Techniques to Rectify iPhone Photo Out-of-Focus for 2024</u></a></li>
+</ul></div>
 

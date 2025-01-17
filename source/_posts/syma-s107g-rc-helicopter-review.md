@@ -1,7 +1,7 @@
 ---
 title: Syma S107G RC Helicopter Review
-date: 2025-01-05T21:33:05.535Z
-updated: 2025-01-10T18:06:19.171Z
+date: 2025-01-13T23:32:58.338Z
+updated: 2025-01-16T22:02:44.882Z
 categories:
   - BestProducts
 description: This Article Describes Syma S107G RC Helicopter Review
@@ -49,7 +49,7 @@ Lifewire / Andy Zahn
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
@@ -100,6 +100,10 @@ Lifewire / Andy Zahn
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
@@ -107,7 +111,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
@@ -127,7 +131,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
@@ -161,7 +165,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
@@ -177,6 +181,10 @@ Lifewire / Andy Zahn
  Time-lapse mode is where the SX70 HS really shines in terms of video. You can easily access this mode via the menu system, and there is a wide range of customizable options available. For those not experienced with time-lapse video, you can simply select from one of three subject-based settings. Time-lapses can be recorded at up to 4K resolution and truly excellent quality.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Lots of options**
 
@@ -210,19 +218,11 @@ Lifewire / Andy Zahn
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Panasonic Lumix DC-FZ80](https://www.lifewire.com/panasonic-lumix-dc-fz80-review-4691071)
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -258,24 +258,24 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-boost-income-secrets-to-successful-youtube-shorts-earning/"><u>[New] In 2024, Boost Income Secrets to Successful YouTube Shorts Earning</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-navigating-through-numbers-a-full-guide-for-measuring-youtube-success/"><u>[New] In 2024, Navigating Through Numbers A Full Guide for Measuring YouTube Success</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-effortless-edits-with-windows-11-photoshop-guide-for-2024/"><u>[Updated] Effortless Edits with Windows 11 Photoshop Guide for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-elevating-effects-a-tiktok-guide/"><u>[Updated] Elevating Effects A TikTok Guide</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-harness-freedom-with-top-rated-android-editing-apps/"><u>[Updated] In 2024, Harness Freedom with Top-Rated Android Editing Apps</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-social-media-sensations-most-liked-and-watched-amazon-originals/"><u>2024 Approved The Social Media Sensations Most Liked & Watched Amazon Originals</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-ambient-ws-2902a-osprey-weather-station-a-comprehensive-review-with-plenty-of-perks/"><u>Affordable Ambient WS-2902A Osprey Weather Station: A Comprehensive Review with Plenty of Perks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazfit-helio-ring-overview-specs-breakdown-plus-purchase-price-forecast/"><u>Amazfit Helio Ring Overview: Specs Breakdown + Purchase Price Forecast</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/building-worlds-in-torment-how-tides-of-numenera-elevates-science-fiction-rpg-through-rich-storytelling/"><u>Building Worlds in Torment: How Tides of Numenera Elevates Science Fiction RPG Through Rich Storytelling</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/diving-into-the-new-world-of-watch-dogs-legion-series-in-our-exclusive-review/"><u>Diving Into the New World of Watch Dogs: Legion Series in Our Exclusive Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dji-phantom-cuestion-de-unos-pies-hacia-la-perfeccion-version-20-analisis-en-profundidad/"><u>DJI Phantom Cuestión De Unos Pies Hacia La Perfección - Versión 2.0 Análisis en Profundidad</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/dousing-disruptive-dance-in-your-acer-screen/"><u>Dousing Disruptive Dance in Your Acer Screen</u></a></li>
-<li><a href="https://common-error.techidaily.com/exploring-the-role-of-msdia80dll-file-in-your-system-do-you-need-to-retain-it/"><u>Exploring the Role of msdia80.dll File in Your System - Do You Need to Retain It?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-videos-and-music-files-from-iphone-se-2022-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Photos, Videos & Music Files from iPhone SE (2022) | Stellar</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/huaweis-mediapad-m5-tablet-reviewed-a-showcase-of-superior-picture-and-performance/"><u>Huawei's MediaPad M5 Tablet Reviewed: A Showcase of Superior Picture and Performance</u></a></li>
-<li><a href="https://win11.techidaily.com/next-level-windows-paving-the-ai-way-forward/"><u>Next-Level Windows: Paving the AI Way Forward</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-and-features-breakdown-the-highly-secure-micro-cut-shredder-by-amazonbasics-for-confidential-paper-destruction/"><u>Review & Features Breakdown: The Highly Secure Micro-Cut Shredder by AmazonBasics for Confidential Paper Destruction</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reviewing-the-lenovo-ideapad-130s-delving-into-its-limited-battery-life-and-unexpectedly-usable-design/"><u>Reviewing the Lenovo IdeaPad 130S: Delving Into Its Limited Battery Life and Unexpectedly Usable Design</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/which-should-you-choose-a-side-by-side-look-at-google-nest-audio-and-apple-homepod/"><u>Which Should You Choose? A Side-by-Side Look at Google Nest Audio and Apple HomePod</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-instantaneous-creation-and-edits-of-dynamic-multi-snaps-for-2024/"><u>[New] Instantaneous Creation & Edits of Dynamic Multi-Snaps for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-radiant-realities-setting-up-for-standout-videos-for-2024/"><u>[New] Radiant Realities Setting Up for Standout Videos for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-high-definition-revealed-logitechs-4k-webcam-review/"><u>[Updated] 2024 Approved High-Definition Revealed Logitech's 4K Webcam Review</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-stepwise-guide-backing-up-and-exporting-mobile-camera-images-for-social-media/"><u>[Updated] In 2024, Stepwise Guide Backing Up & Exporting Mobile Camera Images for Social Media</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/aomei-sql-data-recovery-comprehensive-guides-and-how-to-videos/"><u>AOMEI SQL Data Recovery: Comprehensive Guides and How-To Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-top-games-to-own-on-your-steam-deck-this-year/"><u>Discover the Top Games to Own on Your Steam Deck This Year</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-value-in-miniature-unpacking-the-features-of-the-samsung-galaxy-s10e/"><u>Discovering Value in Miniature: Unpacking the Features of the Samsung Galaxy S10e</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dive-into-reading-with-confidence-using-the-kobo-libra-h2o-a-complete-review-on-its-durability-and-features/"><u>Dive Into Reading with Confidence Using the Kobo Libra H2O - A Complete Review on Its Durability and Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/echo-dot-4th-generation-unveiled-the-revamped-design-experience/"><u>Echo Dot 4Th Generation Unveiled: The Revamped Design Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-visual-quality-with-panasonic-wxf991/"><u>Exploring Visual Quality with Panasonic WXF991</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fellowes-microban-wired-keyboard-review-the-best-budget-option/"><u>Fellowes Microban Wired Keyboard Review: The Best Budget Option</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/free-web-based-converter-transforming-aiff-files-into-ogg-format/"><u>Free Web-Based Converter: Transforming AIFF Files Into OGG Format</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-reactivate-and-fix-an-instagram-account-thats-no-longer-active/"><u>How to Reactivate and Fix an Instagram Account That's No Longer Active</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ideal-tech-gadgets-for-sun-lovers-paradise/"><u>Ideal Tech Gadgets for Sun Lover's Paradise</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-introduce-natural-photo-smear-in-ps/"><u>In 2024, Introduce Natural Photo Smear in PS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenswave-proconnect-25x-review-superior-quality-at-an-extreme-price/"><u>LensWave ProConnect 25X Review: Superior Quality at an Extreme Price</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-get-creative-with-these-free-video-special-effects-apps-for-ios-and-android/"><u>New In 2024, Get Creative with These Free Video Special Effects Apps for iOS and Android</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/staying-loyal-to-my-apple-watch-series/"><u>Staying Loyal to My Apple Watch Series</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-beginners-guide-to-rebel-t6-dslr/"><u>The Beginner's Guide to Rebel T6 DSLR</u></a></li>
 </ul></div>
 

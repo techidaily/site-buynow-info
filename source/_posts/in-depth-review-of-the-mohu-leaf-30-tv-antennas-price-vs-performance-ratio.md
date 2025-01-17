@@ -1,7 +1,7 @@
 ---
 title: In-Depth Review of the Mohu Leaf 30 TV Antenna's Price Vs. Performance Ratio
-date: 2025-01-07T21:44:34.370Z
-updated: 2025-01-11T06:11:14.956Z
+date: 2025-01-12T19:35:27.935Z
+updated: 2025-01-17T00:17:38.599Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Review of the Mohu Leaf 30 TV Antenna's Price Vs. Performance Ratio
@@ -18,16 +18,12 @@ thumbnail: https://www.lifewire.com/thmb/bLtleSUHUny2HyUtrVdOZ9KgFSE=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/425lsqo6i1_7Vzb3ebrBxtVPgfM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
@@ -49,6 +45,10 @@ Lifewire / Zach Sweat
 [View On Amazon $150](https://www.amazon.com/Elite-2-Controller-Black-Xbox-One/dp/B07SFKTLZM/?tag=lifewire-onsite-prod-20&ascsubtag=4796457%7Cnbd5105eb0dc54e3e804df51703e5036902%7CB07SFKTLZM) [View On Walmart $150](https://www.walmart.com/ip/Microsoft-Xbox-Elite-Wireless-Controller-Series-2-Black-FST-00001/784834522) [View On Adorama.com $180](https://www.adorama.com/xbfst00001.html)
 
 4.8
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Microsoft Xbox One Elite Series 2 Controller
 
@@ -80,13 +80,13 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/t8wI_yN2s_uIQ1leo87MmOnXxb4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-5-0c39ec4e89eb45b094471681efec0e7d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Dark, sturdy, and feature-packed**
@@ -133,6 +133,10 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process and Software: Bluetooth, at long last**
 
  One of our biggest gripes with the original Elite controller was that it lacked Bluetooth functionality despite its premium price tag. Seeing how the much cheaper ONE S variant included this, it was even more frustrating. Thankfully, Microsoft listened to our collective rants and added Bluetooth to the Series 2, which drastically improves the number of devices it can be used with.
@@ -152,10 +156,6 @@ Lifewire / Zach Sweat
  If you plan to buy this controller to use with other electronics that support Bluetooth devices, make sure you do some research before committing to it, as it doesn’t always work with everything. That said, we did manage to pair the controller with a couple other devices that weren’t officially supported.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -181,10 +181,6 @@ Lifewire / Zach Sweat
 
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Like buying a brand new console**
 
  Right now, the Elite Series 2 controller retails at an MSRP of $249.99, about $100 more than its predecessor. This price tag makes it not only the most expensive first-party controller around, but also nearly the cost of a brand new Xbox One S console (or three brand new titles). That can be a tough sell for your average gamer.
@@ -194,6 +190,10 @@ Lifewire / Zach Sweat
  The argument could be made that considering you get a Bluetooth controller capable of working on XB1 and PC, a charging dock and a nice little case to keep it all together, the cost isn’t awful. But if you want all of those things for less, you can grab an S controller, dock and case for far, far less.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/6VfCJGOyjLkAkE_mjiHr7rz8Gyw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-6-0c1d7a2ae4e8443ea5b69f559e52bd12.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -243,21 +243,19 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-in-2024-syncopating-soundtracks-with-flawless-audio-transitions/"><u>[New] In 2024, Syncopating Soundtracks with Flawless Audio Transitions</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-pure-greenprints-accessible-templates-to-amplify-your-filmmaking-expertise/"><u>[New] Pure Greenprints Accessible Templates to Amplify Your Filmmaking Expertise</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-incremental-movie-moment-for-2024/"><u>[Updated] Incremental Movie Moment for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/5-quick-methods-to-bypass-samsung-galaxy-f54-5g-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Samsung Galaxy F54 5G FRP</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/blade-e-flite-mcx2-remote-controlled-copter-reviewed-why-it-stands-out-as-the-leading-rtf-model-for-pilots/"><u>Blade E-Flite mCX2 Remote Controlled Copter Reviewed - Why It Stands Out as the Leading RTF Model for Pilots</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-leading-mesh-wi-fi-solutions-for-home-and-office-2024-edition/"><u>Discover the Leading Mesh Wi-Fi Solutions for Home and Office - 2024 Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/diving-into-the-features-of-samsung-galaxy-tab-s6-a-look-at-s-pen-functionality-and-dynamic-dex-experience/"><u>Diving Into the Features of Samsung Galaxy Tab S6 – A Look at S Pen Functionality & Dynamic DeX Experience</u></a></li>
-<li><a href="https://techidaily.com/easy-tips-for-downloading-and-setting-up-hewlett-packards-windows-7-compatible-drives/"><u>Easy Tips for Downloading and Setting Up Hewlett Packard's Windows 7 Compatible Drives</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-a-closer-look-at-stale-vr-landscapes-what-changes/"><u>In 2024, A Closer Look at Stale VR Landscapes What Changes?</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-top-16-best-free-easy-movie-makers/"><u>New 2024 Approved Top 16 Best Free Easy Movie Makers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/premium-peaceful-headphones-review-24/"><u>Premium Peaceful Headphones Review - '24</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/revamping-your-digital-publications-addingcreating-tables-of-contents-using-flipbuilder-platform/"><u>Revamping Your Digital Publications: Adding/Creating Tables of Contents Using FlipBuilder Platform</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-complete-picture-of-w15a-frame-reality/"><u>The Complete Picture of W15A Frame Reality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-value-alarm-clock-a-comprehensive-guide-to-the-philips-hf3520-features-and-performance/"><u>Top Value Alarm Clock: A Comprehensive Guide to the Philips HF3520 Features and Performance</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-cryptic-stability-the-stablecoin-phenomenon/"><u>Unmasking Cryptic Stability: The Stablecoin Phenomenon</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/upgrading-your-32-bit-windows-11-to-64-bit-edition/"><u>Upgrading Your 32-Bit Windows 11 to 64-Bit Edition</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/est-mac-mp4-cutter-apps-enhance-video-editing/"><u>[New] Best Mac MP4 Cutter Apps Enhance Video Editing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-captivate-and-conquer-with-customized-content-shorts-for-2024/"><u>[Updated] Captivate and Conquer with Customized Content Shorts for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-shoot-straight-best-tripods-for-smartphones-today/"><u>[Updated] Shoot Straight Best Tripods for Smartphones Today</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cutting-edge-headsets-discovering-2024s-best-wears/"><u>Cutting-Edge Headsets: Discovering 2024'S Best Wears</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-sculpt-social-shares/"><u>In 2024, Sculpt Social Shares</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insights-on-the-affordable-yet-stunning-performance-of-the-samsung-galaxy-s1amobileandroidandplatformios)s10e/"><u>Insights on the Affordable Yet Stunning Performance of the Samsung Galaxy S1amobile=android&platform=ios>S10e</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/masterful-mobile-cinematography-now-at-your-fingertps-how-apple-upgrades-the-iphone-with-final-cut-for-pro-level-shooting/"><u>Masterful Mobile Cinematography Now at Your Fingertps: How Apple Upgrades the iPhone with Final Cut for Pro-Level Shooting</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolving-frequent-microsoft-edge-malfunctions-on-windows-10/"><u>Resolving Frequent Microsoft Edge Malfunctions on Windows 10</u></a></li>
+<li><a href="https://video-capture.techidaily.com/snapshot-success-mastering-the-art-of-xbox-one-captures-for-2024/"><u>Snapshot Success Mastering the Art of Xbox One Captures for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-motorola-razr-40-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Motorola Razr 40 FRP</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-powerhouse-companion-for-your-devices-an-anker-usb-30-speed-test-and-review/"><u>The Powerhouse Companion for Your Devices: An Anker USB 3.0 Speed Test & Review.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-simple-guide-to-bouncies-cost-effective-reliable-gps-tracker-options/"><u>The Simple Guide to Bouncie's Cost-Effective, Reliable GPS Tracker Options</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/topmates-cost-effective-laptop-chiller-c302-a-thorough-examination/"><u>TopMate's Cost-Effective Laptop Chiller (C302) - A Thorough Examination</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-ultimate-list-of-2024s-premier-cable-modems/"><u>Unveiling the Ultimate List of 2024'S Premier Cable Modems</u></a></li>
 </ul></div>
 

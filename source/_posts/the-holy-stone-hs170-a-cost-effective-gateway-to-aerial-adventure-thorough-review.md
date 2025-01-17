@@ -1,7 +1,7 @@
 ---
 title: "The Holy Stone HS170: A Cost-Effective Gateway to Aerial Adventure - Thorough Review"
-date: 2025-01-04T19:05:38.735Z
-updated: 2025-01-11T07:26:09.768Z
+date: 2025-01-10T18:24:49.767Z
+updated: 2025-01-17T00:44:15.073Z
 categories:
   - BestProducts
 description: "This Article Describes The Holy Stone HS170: A Cost-Effective Gateway to Aerial Adventure - Thorough Review"
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/e788f79a8684ff135a50b06576e0943a8c2779cab
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/ELScEGCr-PHwUavU-zwNQVSC8z8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Nintendo-Switch-Lite-1-66fc3642c4d448b18f4a0775c059247d.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Zach Sweat
 
  What We Like
@@ -45,6 +41,10 @@ Lifewire / Zach Sweat
 [View On Walmart $165](https://www.walmart.com/ip/Nintendo-Switch-Lite-Console-Turquoise/306029956) [View On Best Buy $200](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnintendo-switch-32gb-lite-turquoise%2F6257139.p%3FskuId%3D6257139) [View On Macy's $240](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.macys.com%2Fshop%2Fproduct%2Fswitch-gaming-console-32gb-lite%3FID%3D10316544%26pla%255Fcountry%3DUS%26CAGPSPN%3Dpla%26slpfid%3D3)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Nintendo Switch Lite
 
@@ -76,11 +76,11 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/EUqklfDyxuB1ye8-DBboDrjzkUw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-2-225f5107c7b74f159afecba8c3f6174a.jpg)
 
- Lifewire / Zach Sweat
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Zach Sweat
 
 ## **Design: Cute and compact**
 
@@ -108,7 +108,15 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7502vZ1Vh2D4nRux6hEnq4BL3Rk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-5-2fb7aa309cc54dd79c07bd799ef7fe84.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Hit the switch**
 
@@ -135,10 +143,6 @@ Lifewire / Zach Sweat
  For example, if you set the Switch Lite as your primary system, nobody can play games you've bought and downloaded on your home Switch unless they log into your account. You could always keep that other Switch as your primary, but then your Switch Lite will need Wi-Fi to access titles. It's easy to see the problem there, but apparently, Nintendo doesn't.
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/kQx9K3tATPBWAMgyJJymqBqYPao=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-3-7349fa7d79f34dbaa50c25cb59aec820.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -179,14 +183,10 @@ Lifewire / Zach Sweat
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/KxMaFgooi4rm3qbImmLKatuUtVI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-4-ef84dbbbde3d48ff97515e5c6b9981a4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Software: Still a bit drab, but smooth and snappy**
 
@@ -220,10 +220,6 @@ Lifewire / Zach Sweat
 
  Lastly, the battery is internal, so you can't easily pop in a new one when it starts to degrade. While I haven't seen any degradation with mine, it'll happen at some point. When it does, sending it to Nintendo for repair is the only real option.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Inexpensive console gaming in your hands**
 
  It’s no surprise that since Nintendo removed many features from the Switch to create the Lite model, the price has also decreased considerably. The Switch is already at a pretty sweet price of $300, so how does the Lite stack up?
@@ -233,7 +229,7 @@ Lifewire / Zach Sweat
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7XA6hgAK2B4hDSlWdmB8VQddrjw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-7-Comparison-44dcf88ec51247a2b0756445a3c7884d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -268,6 +264,10 @@ Lifewire / Zach Sweat
 
 [Sony PlayStation 5 Review](https://www.lifewire.com/sony-playstation-5-review-5088394)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Switch Lite
@@ -300,24 +300,20 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-innovative-mac-image-recording-the-top-5-cutting-edge-techniques/"><u>[Updated] Innovative Mac Image Recording The Top 5 Cutting-Edge Techniques</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-key-online-repositories-for-rich-text-visualization/"><u>[Updated] Key Online Repositories for Rich Text Visualization</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-supreme-boundless-data-depot/"><u>2024 Approved Supreme Boundless Data Depot</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/bluetooth-battle-royale-apple-airpods-pro-versus-samsung-buds-pro/"><u>Bluetooth Battle Royale: Apple AirPods Pro versus Samsung Buds Pro</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/bring-your-stories-alive-techniques-for-animation-in-text-for-2024/"><u>Bring Your Stories Alive Techniques for Animation in Text for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-razer-blade-pro-17-the-epitome-of-portability-and-strength/"><u>Comprehensive Analysis of the Razer Blade Pro 17: The Epitome of Portability and Strength</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/consistent-nutrition-for-pets-using-petsafes-auto-feeder-serving-six-meals-easily/"><u>Consistent Nutrition for Pets Using PetSafe's Auto Feeder, Serving Six Meals Easily</u></a></li>
-<li><a href="https://extra-information.techidaily.com/exploring-the-distinctions-of-srgb-and-rgb/"><u>Exploring the Distinctions of Srgb and Rgb</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Nubia Red Magic 8S Pro? | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-oppo-find-n3-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Oppo Find N3 FRP</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-xiaomi-redmi-a2plus-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Xiaomi Redmi A2+ Without PUK Codes</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-understanding-the-edge-of-av1-in-video-encoding/"><u>In 2024, Understanding the Edge of AV1 in Video Encoding</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/mastering-zoom-incorporating-video-effects-step-by-step/"><u>Mastering Zoom Incorporating Video Effects Step by Step</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/nvidia-shield-tv-pro-review/"><u>Nvidia Shield TV Pro Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/precision-training-companion-an-in-depth-review-of-garmin-forerunner-45-for-athletes/"><u>Precision Training Companion: An In-Depth Review of Garmin Forerunner 45 for Athletes</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revamp-your-travel-power-source-is-high-output-worth-it-if-durability-sucks/"><u>Revamp Your Travel Power Source: Is High-Output Worth It if Durability Sucks?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionize-your-living-room-on-a-budget-with-the-caixun-75-inch-4k-smart-tv-review/"><u>Revolutionize Your Living Room on a Budget with the Caixun 75 Inch 4K Smart TV Review.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rtf-helicopter-of-the-year-comprehensive-blade-e-flite-mcx2-analysis/"><u>Top RTF Helicopter of the Year: Comprehensive Blade E-Flite mCX2 Analysis</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/treasury-stock-500000-shares-purchased-at-an-average-cost-of-20-per-share-10/"><u>Treasury Stock (500,000 Shares Purchased at an Average Cost of $20 per Share): $(10)</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723210733201-issue-resolved-how-to-overcome-windows-camera-error-code-0xa0-groovyf4292-and-get-back-to-snapshots/"><u>[Issue Resolved]: How to Overcome Windows Camera Error Code 0xA0 Groovyf4292 and Get Back to Snapshots!</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-precision-gameplay-savings-made-easy-with-fbx-filming/"><u>[New] In 2024, Precision Gameplay Savings Made Easy with FBX Filming</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-dangers-of-buying-fake-youtube-subscribers/"><u>[Updated] 2024 Approved The Dangers of Buying Fake YouTube Subscribers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-tips-for-superior-sound-recordings-without-a-microphone/"><u>[Updated] 2024 Approved Tips for Superior Sound Recordings Without a Microphone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/all-weather-wonders-exploring-the-kobo-libra-h2os-resilient-reading-experience/"><u>All-Weather Wonders: Exploring the Kobo Libra H2O's Resilient Reading Experience</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/best-buys-secret-offer-for-free-macbook-air-m3-heres-the-insider-tutorial-zdnet/"><u>Best Buy’s Secret Offer for Free MacBook Air M3? Here's the Insider Tutorial! | ZDNet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-superior-performance-at-a-steal-the-ultimate-guide-to-the-arcshell-ar-5/"><u>Experience Superior Performance at a Steal: The Ultimate Guide to the Arcshell AR- 5</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/expertly-curated-8-best-4k-blu-ray-players-guide-for-2024/"><u>Expertly Curated 8 Best 4K Blu-Ray Players Guide for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-affordable-community-buzz-on-oodles-no-cost-advertising-platform/"><u>Explore Affordable Community Buzz on Oodle's No-Cost Advertising Platform</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/free-online-avi-to-m4v-converter-moveave/"><u>Free Online AVI to M4V Converter - Moveave</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-vivo-x-flip-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Vivo X Flip without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/kids-resilient-camera-selection-test-report/"><u>Kid's Resilient Camera Selection: Test Report</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-microsoft-surface-go-examined-balancing-cost-and-functionality-in-a-tablet-that-struggles-to-define-itself/"><u>The Microsoft Surface Go Examined: Balancing Cost and Functionality in a Tablet That Struggles to Define Itself</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-tutorial-on-how-to-take-down-pictures-from-facebook/"><u>The Ultimate Tutorial on How to Take Down Pictures From Facebook</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultra-fast-ultra-economical-ev-charger-brands-unveiling-powerdrives-low-cost-high-performance-options/"><u>Ultra Fast, Ultra Economical EV Charger Brands - Unveiling PowerDrive’s Low-Cost High Performance Options!</u></a></li>
 </ul></div>
 

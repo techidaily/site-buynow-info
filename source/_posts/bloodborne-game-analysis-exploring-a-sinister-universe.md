@@ -1,7 +1,7 @@
 ---
 title: "Bloodborne Game Analysis: Exploring a Sinister Universe"
-date: 2025-01-09T07:10:10.186Z
-updated: 2025-01-10T18:03:02.738Z
+date: 2025-01-11T18:32:27.817Z
+updated: 2025-01-16T18:53:14.735Z
 categories:
   - BestProducts
 description: "This Article Describes Bloodborne Game Analysis: Exploring a Sinister Universe"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Watch Dogs: Legion
 
@@ -46,6 +42,10 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Watch Dogs: Legion
 
 ![Watch Dogs: Legion](https://www.lifewire.com/thmb/Qr_SiCRONOchw7xBWly6nRwi4qM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Watch-Dogs-Legion-PC-1-4cb0288b78324a52bf9ccce096ab5218.jpg)
@@ -68,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
 
  Watch Dogs: Legion is the latest installment in Ubisoft’s[Watch Dogs](https://www.liveabout.com/watch-dogs-2-cheats-codes-and-walkthroughs-4773695) series, and you can literally play as any character you encounter in the open world. Although Watch Dogs: Legion released without online gameplay (it became available in December 2020), you can play the campaign mode on PC or[console](https://www.lifewire.com/best-gaming-consoles-4154610) right now. Is this game worth the time and monetary investment? I played Watch Dogs: Legion for 30 hours to find out, evaluating its story, gameplay, graphics, to see how it compares to other titles.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setting and Plot: Fun, but predictable**
 
  Watch Dogs: Legion is set in a near-future version of London. The game accurately depicts landmarks, as well as the overall vibe of the city, but it’s a fictional version of London with a heavy tech theme. You have a few different enemies — a group consisting of private military, state operatives, and organized crime, as well as a hacker group called Zero Day. Zero Day pulls off a major terrorist operation in London. This causes the government to give power to a military group (Albion), and that group promptly implements a martial law type system of oppression.
@@ -84,10 +88,6 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
 
 ![Watch Dogs: Legion spider drone](https://www.lifewire.com/thmb/UOpYTu-WYh_4Z_Icu9ZD7aLW78Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-4-a1beafe90fe7494b84b19f97e292c2ab.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Erika Rawes
 
  Once you complete the opening scene, the game is presented like most open world games — pick a mission, drive to it, complete the mission, and repeat. There are plenty of distractions and side missions to take part in like collecting text and audio files, finding the tech points which allow you to upgrade, participating in bare-knuckle fighting, delivering packages, and drinking a beer, and applying paste-ups. You can also shop for clothes.
@@ -96,6 +96,10 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
 
  Watch Dogs: Legion looks incredible, with great draw distances, and an incredibly detailed world.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Gameplay: Cool character engine, redundant missions**
 
  Watch Dogs: Legion is an open world action-adventure game. I played on PC, and I used an[Xbox controller](https://www.lifewire.com/games-console-reviews-4102640) . The controls were tight, intuitive, and consistently responsive. It felt natural to run through the world, climb, and drive. I was especially impressed with the vehicles, as you can feel the difference when you’re driving a sports car versus when you’re driving a bus.
@@ -103,10 +107,6 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
  Fighting is simple yet satisfying, with a dodge and counter system that feels realistic, and interesting finishing moves. Shooting feels pretty ok too— the aiming works well, and the duck and cover system feels natural. Cut scenes are very well done. They don’t feel arbitrarily thrown in, and they’re well integrated in the game engine. The main storyline takes around 20 hours, but it’ll take much longer if you play all the side missions.
 
 ![Watch Dogs: Legion character creation](https://www.lifewire.com/thmb/fT7PRS6tGlloKdqVFXl8H-TPrVY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-2-ed238e68324c450997c310f225ff57a6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -120,6 +120,10 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
 
  Most missions wound up feeling pretty redundant, especially after playing for a while. I’d approach a building, hack cameras and set traps, send in the spider drones for some easy knockouts, then go in and complete the area. There were some fun missions along the main story which offered some variety, but most missions are best completed with stealth, which can slow down the game sometimes.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Graphics: Top notch**
 
  Watch Dogs: Legion looks incredible, with great draw distances, and an incredibly detailed world. Everything visually works, and I really enjoyed looking at the people and landmarks in the world.
@@ -130,10 +134,6 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
 
  Erika Rawes / Lifewire
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: The usual $60**
 
  Watch Dogs: Legions sells for $60 for the standard edition. The Gold Edition sells for $100, and the Ultimate and Collectors Editions sell for $120 and $190, respectively. Everything above the standard edition comes with extra missions and a season pass, but these perks don’t really seem worth the added cost.
@@ -142,6 +142,10 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
 
  The story kept me interested, although the plot bordered on predictable.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Watch Dogs: Legion vs. Grand Theft Auto Series**
 
  It feels as though Ubisoft is definitely going for a GTA vibe here—go see a person, start a mission, complete the mission, rinse, and repeat. In addition to its visually interesting world, Watch Dogs: Legion adds in the ability to play as anyone you encounter, and that’s perhaps its biggest draw. The next GTA may not arrive for quite a while, so for those who want a new open world right now, Watch Dogs: Legion might be a viable alternative.
@@ -149,10 +153,6 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
  Final Verdict: A good, but not great open world experience.
 
  Watch Dogs: Legion feels like a missed opportunity, with a “play as anyone” feature that’s cool, but not cool enough to compensate for the lack of novelty. The addition of online play may offer more replayability, but as of launch, there isn’t enough to keep us coming back.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -177,22 +177,24 @@ thumbnail: https://thmb.techidaily.com/21bab4f1638ef86b0e7d7d0a727f5b3a087b8ff65
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-unveiling-the-secrets-to-superior-gaming-recordings/"><u>[New] In 2024, Unveiling the Secrets to Superior Gaming Recordings</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-resolving-no-video-issue-on-sony-a6400-device/"><u>[New] Resolving No-Video Issue on Sony A6400 Device</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-which-should-you-use-obs-studio-or-bandicam-in-2024/"><u>[New] Which Should You Use, OBS Studio or Bandicam, In 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unlocking-the-secrets-of-lut-production/"><u>[Updated] Unlocking the Secrets of LUT Production</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-excellence-a-detailed-look-at-the-hisense-50-hdr-tv-with-4k-resolution/"><u>Affordable Excellence: A Detailed Look at the Hisense 50 HDR TV with 4K Resolution</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazon-kindle-paperwhite-7th-generation-review/"><u>Amazon Kindle Paperwhite (7Th Generation) Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/assessment-of-discreet-and-dependable-rexing-v1-dashcam-for-value-oriented-users/"><u>Assessment of Discreet and Dependable Rexing V1 Dashcam for Value-Oriented Users</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/deciphering-the-right-video-coding-technique-for-win-os-users/"><u>Deciphering the Right Video Coding Technique for Win OS Users</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-nubia-z50s-pro-pictures-an-easy-method-explained-by-fonelab-android-recover-pictures/"><u>How to Restore Deleted Nubia Z50S Pro Pictures An Easy Method Explained.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-netgear-nighthawk-rax120-unparalleled-speed-and-performance/"><u>In-Depth Analysis of the Netgear Nighthawk RAX120: Unparalleled Speed and Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-syma-s111g-remote-control-helicopter-a-wallet-friendly-option-for-indoor-flight-enthusiasts/"><u>In-Depth Analysis of the Syma S111G Remote Control Helicopter: A Wallet-Friendly Option for Indoor Flight Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/lenovo-tab-m10-hd-review-2020-a-cost-effective-device-for-web-surfing-and-media-consumption/"><u>Lenovo Tab M10 HD Review 2020: A Cost-Effective Device for Web Surfing and Media Consumption</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/setting-up-the-blink-outdoor-floodlight-camera-a-step-by-step-walkthrough/"><u>Setting Up the Blink Outdoor Floodlight Camera - A Step-by-Step Walkthrough</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/streamlining-visual-enhancements-via-luts-in-pro/"><u>Streamlining Visual Enhancements via LUTs in Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/to-monterey-or-not-on-my-mac/"><u>To Monterey, or Not on My Mac?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-review-of-the-luxury-glion-dolly-electric-scooter-fast-but-costly/"><u>Ultimate Review of the Luxury Glion Dolly Electric Scooter - Fast but Costly</u></a></li>
-<li><a href="https://article-helps.techidaily.com/understanding-adobe-storage-alternatives-explained/"><u>Understanding Adobe Storage, Alternatives Explained</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-video-producers-route-to-royalty-free-soundtracks/"><u>[New] 2024 Approved The Video Producer’s Route to Royalty-Free Soundtracks</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mastery-in-making-advanced-tiktok-editing-techniques/"><u>[New] Mastery in Making Advanced TikTok Editing Techniques</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-unleashing-creativity-in-tiktok-intros-your-ultimate-macguide/"><u>[New] Unleashing Creativity in TikTok Intros Your Ultimate MacGuide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-select-vhs-visuals-perfect-for-video-editors/"><u>[Updated] Select VHS Visuals Perfect for Video Editors</u></a></li>
+<li><a href="https://some-tips.techidaily.com/advanced-site-personalization-via-ai-based-analytics-developed-using-coqui-bot/"><u>Advanced Site Personalization via AI-Based Analytics – Developed Using Coqui Bot</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-the-cost-effective-tp-link-re200-wi-fi-signal-expander-ac750/"><u>Comprehensive Evaluation of the Cost-Effective TP-Link RE200 Wi-Fi Signal Expander (AC750)</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-realme-c67-5gwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Realme C67 5Gwith/without a PC</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-12-pro-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 12 Pro without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Nokia C300? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-how-to-post-twitter-videos-on-snapchat/"><u>In 2024, How to Post Twitter Videos on Snapchat?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-google-nest-wi-fi-fast-and-effortless-mesh-setup/"><u>In-Depth Analysis of Google Nest Wi-Fi: Fast & Effortless Mesh Setup</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/oodles-marketplace-your-gateway-to-top-quality-secondhand-bargains-in-our-town/"><u>Oodle's Marketplace: Your Gateway to Top-Quality Secondhand Bargains in Our Town</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-why-the-samsung-galaxy-a51-5g-is-a-must-have-budget-friendly-device/"><u>Review: Why the Samsung Galaxy A51 5G Is a Must-Have Budget-Friendly Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tablet-face-off-analyzing-the-distinctions-between-ipad-pro-and-microsoft-surface-pro/"><u>Tablet Face-Off: Analyzing the Distinctions Between iPad Pro and Microsoft Surface Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-power-of-size-a-comprehensive-review-of-the-iphone-12-pro-max-by-apple/"><u>The Power of Size: A Comprehensive Review of the iPhone 12 Pro Max by Apple</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-stunning-camera-quality-of-the-huawei-p20-pro-smartphone/"><u>The Ultimate Guide to the Stunning Camera Quality of the Huawei P20 Pro Smartphone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-netgear-router-models-a-comprehensive-guide/"><u>Top Netgear Router Models : A Comprehensive Guide</u></a></li>
+<li><a href="https://some-tips.techidaily.com/understanding-google-one-a-comprehensive-review-of-benefits-and-value/"><u>Understanding Google One: A Comprehensive Review of Benefits & Value</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-game-performance-and-savings-with-ibuypowers-bespoke-gaming-computer-solutions/"><u>Unlocking Game Performance and Savings with iBuypower's Bespoke Gaming Computer Solutions</u></a></li>
 </ul></div>
 

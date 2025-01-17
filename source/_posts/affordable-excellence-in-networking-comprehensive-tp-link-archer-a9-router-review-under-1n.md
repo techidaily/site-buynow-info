@@ -1,7 +1,7 @@
 ---
 title: "Affordable Excellence in Networking: Comprehensive TP-Link Archer A9 Router Review Under $1N"
-date: 2024-08-11T00:12:07.958Z
-updated: 2024-08-12T00:12:07.958Z
+date: 2025-01-10T20:41:58.569Z
+updated: 2025-01-16T22:05:18.887Z
 categories:
   - BestProducts
 description: "This Article Describes Affordable Excellence in Networking: Comprehensive TP-Link Archer A9 Router Review Under $1N"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/b6441b39a339f8611b1685213d19341febe69f71b
 ## Experience Next-Level Gaming with the Affordable HP OMEN Obelisk - Comprehensive Analysis Inside
 
 4
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## HP Omen Obelisk
 
@@ -37,14 +41,8 @@ Lifewire / Jonno Hill
 
 4
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ## HP Omen Obelisk
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/ltgwwtDrSkLcZMSVU6VX1rKcbaA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_HP-OMEN-Obelisk-Gaming-Desktop-Computer-1-56ba747009334162a328f46d8b4743af.jpg)
 
 Lifewire / Jonno Hill
@@ -75,7 +73,15 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/OXMiCXvzh8P7esVvbjPoSorzoxM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-2-7b14850c2ca84af39d5fd116ab483d5d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design** : **Nice looks and small footprint, with many reservations**
 
@@ -97,9 +103,6 @@ Lifewire / Jonno Hill
 
  The lighting system is also approachable and understated, giving a little bit of customizable flare without going too over the top. As you’ll see later in the software section, HP has made it very straightforward to tweak any of these settings to your satisfaction.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/gfeGQoUwG35q5t-JwO07Ax4jm5I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-3-f4e655ec9e684a47855e9ee7373ba4b6.jpg)
 
  Lifewire / Jonno Hill
@@ -112,9 +115,6 @@ Lifewire / Jonno Hill
 
  The Omen comes equipped with a 1TB[NVMe SSD](https://www.lifewire.com/what-is-m2-833453) and 32GB of DDR4 2666 memory. This is definitely more RAM than games alone will call for, but it’s merely an adequate amount of RAM for some creative professionals working with more demanding software like Adobe After Effects. Keep in mind though, even those that don’t normally need a lot of RAM can still benefit from having more. Among other things, it gives you the luxury of keeping all of your browser tabs and background applications running without having to start juggling applications on and off, which can be helpful from a productivity standpoint.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ## **Gaming** :**Great for the most demanding titles**
 
  Gaming performance is great on the HP OMEN Obelisk thanks to the Nvidia GTX GeForce 2080 Super and Intel i9-9900K combo. I tested a number of games on my 3440x1440 monitor to get a sense of performance. To put this in perspective, this resolution is roughly 60 percent of the pixels of a 4K monitor.
@@ -127,9 +127,6 @@ Lifewire / Jonno Hill
 
  Lastly, I ran the notoriously resource-heavy Deus Ex: Mankind Divided using a few different profiles. On Ultra settings, the OMEN Obelisk saw just 55.7fps on average, with a minimum of 44.6fps and a maximum of 61.6fps. Dialing things down one level to Very High, things looked only slightly rosier: 58.1fps average, 49.5fps minimum, 62.2fps maximum. Finally, turning it down one more level to High found a sweet spot: 75.8fps average, 62.8fps minimum, 96.6 FPS maximum.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
  Lifewire / Jonno Hill
@@ -139,6 +136,10 @@ Lifewire / Jonno Hill
  The HP Omen Obelisk has gigabit LAN and a Wi-Fi 5 (2x2) networking, the latter supporting a maximum speed of 866 Mbps. Everything functioned smoothly from a networking standpoint during my tests.
 
  I made a point to try out the Network Booster software found in the OMEN Command Center and didn’t see anything tremendously useful, unfortunately. I tried setting the priority of Steam to “Low” and downloading a game, but the game still downloaded at my maximum internet speed. I took it one step further and toggled the “Block” option for Steam, and tried to resume the download, but Steam kept on downloading at the maximum speed. The software was successful in blocking Chrome when that option was switched on, however.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Just enough options**
 
@@ -150,20 +151,17 @@ Lifewire / Jonno Hill
 
  The option to overclock your system has you first run a nondescript benchmark, which produces a score with no reference point (to establish a baseline). While it’s nice to have the option, this really,_sincerely_ isn’t a system you want to be overclocking. The i9-9900K CPU already runs alarmingly hot, even with its pre-installed water cooling solution. There also isn’t enough room for anything beyond a 120mm AIO watercooler, and not nearly enough clearance for a popular air heatsink like the Noctua NH-D15.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## **Price: Highly competitive**
 
  The HP OMEN Obelisk with the same specs as this one can be found for around $2,000, at least when it’s in stock. Despite a lot of flaws that I can point to a nit-pick about, the price is one of the main reasons I still consider the OMEN to be a solid deal. I went through the trouble of parting out a similar build on PCPartPicker, going as far as to cut corners where I usually wouldn’t, and still arrived at just under $1800 before tax.
 
  As far as I’m concerned, $200 is a perfectly reasonable premium to pay for a system that is already assembled and shipped to your door.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/J3cZUfrEy-ALtFpRbDRhw7FZI8M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-4-f78d504d7bd348eca19b7e65b4d10289.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
@@ -180,8 +178,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  The HP OMEN Obelisk delivers fantastic value for gamers shopping for a high-performance, pre-built PC. HP has come a long way, and now offers a much more compelling solution that will appeal to a much broader set of buyers. That said, there is work to be done still, as the case suffers from poor airflow, poor thermals, and not a lot of meaningful ways to improve them.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Omen Obelisk
@@ -201,14 +200,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Network  Wi-Fi 5 (2x2), Gigabit Ethernet, Bluetooth 4.2
 * Warranty  1 year limited
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -217,4 +213,24 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-inshot-evaluation-how-it-stacks-up-in-editing-arena/"><u>[New] In 2024, InShot Evaluation How It Stacks Up in Editing Arena?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-streaming-success-live-tiktok-broadcasts-on-computers/"><u>[New] In 2024, Streaming Success Live TikTok Broadcasts on Computers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-guide-to-the-latest-tiktok-screen-art/"><u>2024 Approved Guide to the Latest TikTok Screen Art</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-home-security-best-iseebell-video-doorbells-for-less-than-50-reviewed/"><u>Affordable Home Security: Best ISeeBell Video Doorbells for Less Than $50 Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-roku-express-streaming-stick-extensive-media-library-at-an-unbeatable-cost/"><u>Affordable Roku Express Streaming Stick: Extensive Media Library at an Unbeatable Cost</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/amplifying-photos-through-acoustics-internet-based/"><u>Amplifying Photos Through Acoustics, Internet-Based</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-infinix-smart-7-hd-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Infinix Smart 7 HD.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-battery-powered-nest-doorbell-by-google-an-in-depth-analysis/"><u>Comprehensive Battery-Powered Nest Doorbell by Google: An In-Depth Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-netgear-nighthawk-ax8-the-ultimate-wi-fi-6-mesh-expander/"><u>Comprehensive Evaluation of Netgear Nighthawk AX8 - The Ultimate Wi-Fi 6 Mesh Expander</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exclusive-oneplus-discounts-the-ultimate-prime-day-selection/"><u>Exclusive OnePlus Discounts: The Ultimate Prime Day Selection</u></a></li>
+<li><a href="https://win11.techidaily.com/fixing-same-user-ms-account-error-on-desktop/"><u>Fixing Same-User MS Account Error on Desktop</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-music-from-honor-90-gt-by-fonelab-android-recover-music/"><u>How to retrieve erased music from Honor 90 GT</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/important-criteria-for-your-next-internet-gateway/"><u>Important Criteria for Your Next Internet Gateway</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://discover-help.techidaily.com/retrieve-accidentally-erased-voice-recordings-with-simple-methods/"><u>Retrieve Accidentally Erased Voice Recordings with Simple Methods</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/subscribing-to-netflix-financial-makes-and-opportunities/"><u>Subscribing to Netflix: Financial Makes and Opportunities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-list-of-premium-power-inverters-for-optimal-performance/"><u>The Definitive List of Premium Power Inverters for Optimal Performance</u></a></li>
+</ul></div>
 

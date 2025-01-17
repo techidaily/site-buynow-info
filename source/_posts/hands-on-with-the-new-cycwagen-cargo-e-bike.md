@@ -1,7 +1,7 @@
 ---
 title: Hands-On With the New CycWagen Cargo E-Bike
-date: 2024-08-11T00:12:33.311Z
-updated: 2024-08-12T00:12:33.311Z
+date: 2025-01-10T17:27:52.968Z
+updated: 2025-01-16T17:35:56.456Z
 categories:
   - BestProducts
 description: This Article Describes Hands-On With the New CycWagen Cargo E-Bike
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/PBPm-id9qcWXCk5uPew07zmlEow=/400x300/fi
 ## Is the Fitbit Charge 3 Worth Your Investment? Expert Review Inside
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fitbit Charge 3
 
@@ -38,6 +42,10 @@ Lifewire: Erika Rawes
 [View On Amazon $75](https://www.amazon.com/dp/B07FTN21JL?tag=lifewire-onsite-prod-20&ascsubtag=5072527%7Cn6b169d5946c446a09bc022a92a0be0d613%7CB07FTN21JL) [View On Walmart $130](https://www.walmart.com/ip/Fitbit-Charge-3-Advanced-Heart-Rate-Fitness-Tracker/654994366) [View On Verizon](https://www.verizon.com/products/fitbit-charge-3/)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fitbit Charge 3
 
@@ -66,8 +74,9 @@ Lifewire: Erika Rawes
  The Fitbit Charge 3 hit the market in 2018, and now that its successor is available, the Charge 4, you can easily find the Charge 3 on sale. But, how does the Charge 3 stack up against the Charge 4 and other fitness trackers currently on the market? I tested the Fitbit Charge 3 alongside a few other fitness trackers to find how it compares.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Small and large bands included**
 
  The Charge 3 isn’t the slimmest tracker out there. It’s thick and bulky, with a silicone removable band that’s around 0.9 inches wide. On the plus side, you get both a large and small band in the package, so you don’t have to worry about finding the right fit. The Fitbit Charge 3 is one size fits all. Overall, Charge 3 is simple and fashionable, and you can wear it with anything. This is especially true when you purchase replacement bands, which sell on Amazon for less than $10\.
@@ -78,20 +87,12 @@ Lifewire: Erika Rawes
 
 ![Fitbit Charge 3](https://www.lifewire.com/thmb/Pkww3lP4Jf1AlbLlu-0MNQnavTI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-3-Fitness-Tracker-5-493abee35e9f4528ba0f49f98763be10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Comfort: The classic band is uncomfortable**
 
  While Charge 3 may be comfortable for some, I found it uncomfortable after long periods of wear. I tested the black classic band, and it feels stiff, hot, and rigid. The sides aren’t rounded enough, and I couldn’t tolerate the band well enough to sleep in it, shower in it, or wear it while doing exercises like push-ups or pull-ups.
@@ -100,9 +101,6 @@ I found it uncomfortable after long periods of wear.
 
  I found other Fitbit replacement bands more comfortable, like the cloth band and sport band. Even with the replacement bands, the Fitbit Charge 3 isn’t as comfortable as a slimmer fitness tracker like the Garmin Vivosmart 4.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Reliable sleep and activity tracking**
 
  The Fitbit Charge 3 is solid and reliable, with relatively accurate metrics and an array of useful data and helpful applications. As is the case with other Fitbit units and many other brands of fitness trackers, the step counter tends to overestimate the number of steps taken. It would even occasionally count steps when I would make slight hand movements (typing, washing my hands, etc.) The heart rate monitor is more accurate than other trackers I’ve tested in this price range. It’s typically accurate within five beats per minute when compared to a chest strap.
@@ -117,9 +115,6 @@ I found it uncomfortable after long periods of wear.
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Software: The Fitbit App**
 
  The Fitbit app is comprehensive, and it has many features, including a tracker where you can keep a log of your food and water consumption, access to a number of different workout programs, a sleep analysis, and different communities you can join. You can further enhance the app by purchasing the premium version for $10/month. The premium version gives you additional perks like a fitness coach, additional sleep score details, access to additional programs, and customized tips to help you reach your goals.
@@ -128,16 +123,10 @@ I found it uncomfortable after long periods of wear.
 
  Fitbit does support a number of third party apps, including[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) . You can say, “Alexa, ask Fitbit how I slept last night” or “Alexa, ask Fitbit how many steps I've taken” and your Alexa-enabled device will provide you with that information if you add the Fitbit skill.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Fitbit Charge 3](https://www.lifewire.com/thmb/_FFXCAFqtWdWmw-hFNP3Lk697Jk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-3-Fitness-Tracker-2-744122acdf4f48438a7877a3f9440ee7.jpg)
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Battery: Lasts up to a week**
 
  Charge 3’s battery lasts for up to seven days, according to the manufacturer. A fitness tracker’s battery life typically varies depending on how frequently you're using all of the features. During testing, I was able to get just under a week of battery (6.5 days), and I took full advantage of Charge 3’s features. When using the tracker lightly, the battery lasted even longer, and it still had about 20% of the battery remaining after a full week.
@@ -146,14 +135,19 @@ I found it uncomfortable after long periods of wear.
 
 ![Fitbit Charge 3](https://www.lifewire.com/thmb/U9Pj2yl-0tWIHYWG_6xWl8ZxX6g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fitbit-Charge-3-Fitness-Tracker-4-39a78f63143d4f46860f31cad17c841a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Around $100**
 
  Charge 3 typically sells for $100, which is $50 down from its original retail price of $150\. This is a reasonable price for the device, which offers relatively accurate tracking, durability, and good build quality.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Fitbit Charge 3 vs. Xiaomi Mi Smart Band 4**
 
@@ -165,9 +159,6 @@ I found it uncomfortable after long periods of wear.
 
  The Fitbit Charge 3 is a solid unit, if only it were more comfortable.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Charge 3
@@ -186,14 +177,11 @@ I found it uncomfortable after long periods of wear.
 * Maximum operating altitude  8,535 m
 * Syncing range  Up to 6 m
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -202,4 +190,22 @@ I found it uncomfortable after long periods of wear.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-excellence-in-motion-best-4k-cameras-unveiled-for-2024/"><u>[New] Excellence in Motion Best 4K Cameras Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-unlocking-youtubes-viewer-count-secret-weights/"><u>[New] In 2024, Unlocking YouTube's Viewer Count Secret Weights</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-navigating-youtube-video-production-tools/"><u>[New] Navigating YouTube Video Production Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-enhanced-photoshoot-with-online-backdrop-swap/"><u>[Updated] In 2024, Enhanced Photoshoot with Online Backdrop Swap</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-top-android-recorder-commercial-free/"><u>[Updated] Top Android Recorder - Commercial-Free</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-gaomon-pd1560-stylus-tablet-an-exceptional-digital-canvas/"><u>Comprehensive Analysis of the Gaomon PD1560 Stylus Tablet: An Exceptional Digital Canvas</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-unveiling-the-power-of-garmin-forerunner-945-gps-running-watch/"><u>Expert Review: Unveiling the Power of Garmin Forerunner 945 GPS Running Watch</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209844969-9780786754397-how-to-save-the-world-on-5-a-day/"><u>How to Save the World on $5 a Day | Free Book</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unlocking-free-clip-art-for-your-designs/"><u>In 2024, Unlocking Free Clip-Art for Your Designs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insider-tips-what-to-evaluate-before-picking-up-an-used-ipad/"><u>Insider Tips: What to Evaluate Before Picking Up an Used iPad</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/outstanding-performance-meets-great-deals-on-the-oculus-quest-2-a-detailed-review-of-a-top-vr-headset/"><u>Outstanding Performance Meets Great Deals on the Oculus Quest 2: A Detailed Review of a Top VR Headset</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-list-of-high-performance-cable-modems/"><u>The Ultimate List of High-Performance Cable Modems</u></a></li>
+<li><a href="https://some-tips.techidaily.com/understanding-expenses-in-music-video-creation-for-2024/"><u>Understanding Expenses in Music Video Creation for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-value-of-samsung-65un8000fxza-smart-tv-is-it-a-cut-above-or-overpriced-mediocrity/"><u>Unpacking the Value of Samsung 65UN8000FXZA Smart TV - Is It a Cut Above or Overpriced Mediocrity?</u></a></li>
+</ul></div>
 

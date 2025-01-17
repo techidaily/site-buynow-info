@@ -1,7 +1,7 @@
 ---
 title: Aura Carver Digital Photo Frame Review
-date: 2024-08-11T00:10:04.856Z
-updated: 2024-08-12T00:10:04.856Z
+date: 2025-01-11T21:57:04.383Z
+updated: 2025-01-16T20:52:58.628Z
 categories:
   - BestProducts
 description: This Article Describes Aura Carver Digital Photo Frame Review
@@ -13,9 +13,6 @@ thumbnail: https://www.lifewire.com/thmb/UnczxVZEY9upEw9WYwLvEL3bkJY=/400x300/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ## Audio-Technica AT-LP120XUSB
 
 ![Audio-Technica AT-LP120XUSB-BK](https://www.lifewire.com/thmb/Y226RhUsfbd82FQQo5_2Bg5_850=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW4066854-HeroSquare-b64d56107a3247e685fc7fdbff3f1663.jpg)
@@ -39,12 +36,13 @@ Lifewire / Jeff Dojillo
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Audio-Technica AT-LP120XUSB
 
 ![Audio-Technica AT-LP120XUSB-BK](https://www.lifewire.com/thmb/gUSGcxbX4twCFknmSc1Ok71bc1A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW4066854-HeroSquare-b64d56107a3247e685fc7fdbff3f1663.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeff Dojillo
 
@@ -84,15 +82,16 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Set up: Quick and painless**
 
  Removing the Audio-Technica AT-LP120XUSB-BK from the box, we were able to assemble it pretty quickly, though the instructions were a bit vague. We installed the platter and the felt mat on the turntable easily, and the headshell and phono cartridge on the Audio-Technica AT-LP120XUSB-BK were also a breeze to install. Balancing the tonearm was fairly straightforward as well, it just required a few trial and error adjustments of the counterweight.
 
  Lifewire / Jeff Dojillo
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ## **Performance: Great audio output and format support**
 
  While testing the Audio-Technica AT-LP120XUSB-BK, we realized that it not only looks great, it performs well. After placing a record on the turntable we found it easy to choose the correct speed to play the record, with controls for 33/45/78 RPM right next to the start button.
@@ -103,10 +102,6 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Sound Quality: Varies from system to system**
 
  The Audio-Technica AT-LP120XUSB-BK generally sounds great, but audio quality can vary significantly depending on the system to which the turntable is attached. When testing the AT-VM95E Dual Magnet phono cartridge with a dedicated stereo amp it created a wonderful soundstage with crisp high tones and rich bass. Even though our tests were positive, the sound produced from the turntable relies more on the quality of speakers, amp, and sound dynamics of the room than other models.
@@ -115,17 +110,26 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Digital to Analog Conversion: Quick and easy**
 
  According to the instructions that were provided with the Audio-Technica AT-LP120XUSB-BK, all we had to do to convert vinyl records to digital audio was to connect the turntable via[USB](https://www.lifewire.com/universal-serial-bus-usb-2626039) and download Audacity recording software. Converting analog audio to digital was then as simple as selecting the turntable as our input device. This turntable is perfect for those looking for a simple way to record their favorite records or archive a rare vinyl collection.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Decent price for what it delivers**
 
  Retailing at around $250 the Audio-Technica AT-LP120XUSB-BK is a great direct-drive turntable. Geared toward those that enjoy high-definition music through vinyl records, this is a great turntable that not only looks wonderful but delivers great functionality.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Audio-Technica AT-LP120XUSB-BK vs Sony PS-LX310BT**
 
  Coming in at around $178, the Sony PS-LX310BT is a great entry level turntable that has Bluetooth connectivity and, like the AT-LP120XUSB-BK, has the added benefit of connecting to your computer via USB to convert records to digital. Both models are plastic, but both are also reasonably attractive and won’t stand out in a negative way like some of the cheaper eyesores in this category do. The Sony model edges out the Audio-Technica based largely on price; the latter’s audio quality is so drastically better as to justify a $121 price bump.
@@ -144,9 +148,6 @@ Lifewire / Jeff Dojillo
 * [Edifier R1280T Powered Bookshelf Speakers](https://www.lifewire.com/edifier-r1280t-powered-bookshelf-speakers-review-4780162)
 * [Polk T50](https://www.lifewire.com/polk-t50-review-4772109)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  AT-LP120XUSB
@@ -180,8 +181,6 @@ Lifewire / Jeff Dojillo
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -189,4 +188,23 @@ Lifewire / Jeff Dojillo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-laying-down-the-law-vegas-pro-21-edition-reviewed/"><u>[New] Laying Down the Law VEGAS Pro '21 Edition Reviewed</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-whatsapp-audio-messages-decoded/"><u>[Updated] In 2024, WhatsApp Audio Messages Decoded</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-master-plan-top-6-modernist-minecraft-villas/"><u>[Updated] Master Plan Top 6 Modernist Minecraft Villas</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/1-essential-lessons-from-my-journey-top-8-technological-blunders-for-newbies-and-their-solutions/"><u>1. Essential Lessons From My Journey: Top 8 Technological Blunders for Newbies & Their Solutions</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-insightful-names-in-virtual-reality-ventures/"><u>2024 Approved Insightful Names in Virtual Reality Ventures</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/applecare-plus-insights-why-enhanced-protection-for-your-tech-makes-sense/"><u>AppleCare Plus Insights: Why Enhanced Protection for Your Tech Makes Sense</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/contemplating-an-upgrade-making-sense-of-ios-17/"><u>Contemplating an Upgrade: Making Sense of iOS 17</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gopro-4k/"><u>GoPro カメラによる 4Kビデオ再生不能の解決法</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hisense-40-inch-5590f-led-smart-television-an-in-depth-review-for-savvy-shoppers/"><u>Hisense 40-Inch 5590F LED Smart Television: An In-Depth Review for Savvy Shoppers</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-oneplus-12r-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from OnePlus 12R to New Phone | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On OnePlus Ace 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-x-plane-11-review-top-tier-graphics-and-cutting-edge-features-for-the-ultimate-flight-experience/"><u>Inside X-Plane 11 Review: Top-Tier Graphics & Cutting-Edge Features for the Ultimate Flight Experience</u></a></li>
+<li><a href="https://program-issues.techidaily.com/insurancy-sandstorm-gameplay-stability-improved-no-more-unwanted-interruptions/"><u>Insurancy: Sandstorm Gameplay Stability Improved – No More Unwanted Interruptions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/solid-smart-shooter-discover-the-elph-190/"><u>Solid, Smart Shooter: Discover the ELPH 190</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-most-powerful-rechargeable-romer-light-for-safe-nighttime-trekking/"><u>The Most Powerful Rechargeable Romer Light for Safe Nighttime Trekking</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/thrilling-space-adventure-unleashed-a-critique-on-star-wars-squadrons/"><u>Thrilling Space Adventure Unleashed: A Critique on Star Wars: Squadrons</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "SYMA X5C RC Quadcopter Review: An Affordable Entry Model"
-date: 2024-08-11T00:08:09.839Z
-updated: 2024-08-12T00:08:09.839Z
+date: 2025-01-13T23:48:59.856Z
+updated: 2025-01-16T19:05:07.735Z
 categories:
   - BestProducts
 description: "This Article Describes SYMA X5C RC Quadcopter Review: An Affordable Entry Model"
@@ -13,12 +13,13 @@ thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d457
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## AmazonBasics Ultra-Thin Antenna
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/rS-RQyeAxU8gdzYheTg1qi5PFEY=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -44,6 +45,10 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/Vbu1KpC59isVCGH4C4jYBOynN04=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_AmazonBasics-Flat-TV-Antenna-1-325d04d831244d8f9f5adcec945c4a63.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 [View On Amazon](https://www.amazon.com/dp/B075ZQXB26/?tag=lifewire-onsite-prod-20&ascsubtag=4845569%7Cn4bcb8b1996c24cd3b14f62e195599b0615%7CB075ZQXB26)
@@ -65,6 +70,10 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -73,10 +82,6 @@ Lifewire / Erika Rawes
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## **Setup: Relatively easy**
 
  Setting up the antenna is pretty straightforward. You start by plugging one end of the coaxial cable into the antenna, and then the other end to the coaxial/antenna-in connector to your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) .
@@ -89,20 +94,18 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Almost two dozen channels (in a rural area)**
 
  So many things[affect an antenna’s performance](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) —location, household electronics, tree cover, tower location, and more. The antenna displays channels of high quality. However, sometimes the channels would take a few seconds to load, and other times, I’d see a pixelated effect when I first changed the channel that would clear up after a few seconds. Once the picture was fully loaded, it was in clear high definition. The antenna is capable of displaying a clear HD picture, so I couldn’t tell the difference between the antenna’s picture and the picture from streaming services like Hulu or Netflix.
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/GRXmDZjwX-_X2TyOZoHytHKrjDY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-3-70b77c023b7049ef985c61cf6f5064ad.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Range: 35 miles**
 
  The AmazonBasics antenna has a 35-mile range, which isn’t very far considering 50 plus miles is becoming more common. It is omnidirectional, however, so you don’t need to point it in a specific direction. It supports UHF/VHF, so I was able to get a decent selection of channels.
@@ -111,19 +114,17 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
  Lifewire / Erika Rawes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
@@ -135,9 +136,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Ultra-Thin Antenna
@@ -154,14 +152,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * Ports  Coax
 * Cable length  10-foot Coax Cable
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -170,4 +165,26 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-filmoras-easy-steps-to-convert-avi-files-into-vibrant-gifs-on-all-platforms/"><u>[New] Filmora’s Easy Steps to Convert AVI Files Into Vibrant GIFs on All Platforms</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-frolicsome-media-repository/"><u>[New] Frolicsome Media Repository</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-capturing-heights-in-focus-examining-the-mavic-pro/"><u>[Updated] Capturing Heights in Focus Examining the Mavic Pro</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-insights-into-premier-video-communication-tools-on-devices/"><u>[Updated] Insights Into Premier Video Communication Tools on Devices</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-examining-the-impact-of-aurora-on-home-entertainment/"><u>2024 Approved Examining the Impact of Aurora on Home Entertainment</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-skills-boost-in-minutes/"><u>Bangla Skills Boost in Minutes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-blade-e-flite-mcx2-radio-controlled-helicopter-top-pick-for-hobbyists/"><u>Comprehensive Analysis of the Blade E-Flite mCX2 Radio Controlled Helicopter: Top Pick for Hobbyists</u></a></li>
+<li><a href="https://common-error.techidaily.com/guide-to-diagnosing-and-resolving-minecraft-opengl-glitches-quickly/"><u>Guide to Diagnosing and Resolving Minecraft OpenGL Glitches Quickly</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-vivo-v30-lite-5g-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Vivo V30 Lite 5G Phone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-tecno-pop-8-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Tecno Pop 8</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Infinix Smart 8 HD? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-bluetooth-earpieces-for-smart-tv-lovers/"><u>Innovative Bluetooth Earpieces for Smart TV Lovers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ourlink-u631-mini-wireless-usb-adaptor-top-notch-wifi-performance-in-a-tiny-package/"><u>Ourlink U631 Mini Wireless USB Adaptor - Top Notch Wifi Performance in a Tiny Package</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stylishly-functional-wearable-an-in-depth-look-at-the-fitbit-charge/"><u>Stylishly Functional Wearable: An In-Depth Look at the Fitbit Charge ()</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-using-kobo-libra-h2os-waterproof-design-for-hassle-free-digital-books/"><u>The Ultimate Guide to Using Kobo Libra H2^O's Waterproof Design for Hassle-Free Digital Books</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-compatible-ipad-mouse-options/"><u>Top-Rated Compatible IPad Mouse Options</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-netgear-nighthawk-x4-top-wireless-mesh-wifi-range-extender-evaluation/"><u>Ultimate Guide to Netgear Nighthawk X4 - Top Wireless Mesh WiFi Range Extender Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-effortless-performance-of-amazon-luna-for-video-games-on-demand/"><u>Unveiling the Effortless Performance of Amazon Luna for Video Games on Demand</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-oculus-quest-2-outstanding-vr-gaming-on-a-budget/"><u>Unveiling the Oculus Quest 2: Outstanding VR Gaming on a Budget</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Evaluation: Unveiling the Strengths and Limitations of the Google Pixel #5 Flagship Device"
-date: 2024-08-11T00:10:17.568Z
-updated: 2024-08-12T00:10:17.568Z
+date: 2025-01-10T16:27:57.696Z
+updated: 2025-01-16T16:32:27.441Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Evaluation: Unveiling the Strengths and Limitations of the Google Pixel #5 Flagship Device"
@@ -15,9 +15,6 @@ thumbnail: https://thmb.techidaily.com/882095d2da39fe64784c41f12e62e8902eedfbd70
 
 ## Samsung UN65NU8000FXZA
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/p_vV8LWwbJ2oMuL1UYGHR2p4huI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-1-97ff5fdad950453785f7a3f5491bf8fd.jpg)
 
 Lifewire / Andy Zahn
@@ -41,6 +38,10 @@ Lifewire / Andy Zahn
 [View On Amazon](https://www.amazon.com/dp/B079NT94BQ/?tag=lifewire-onsite-prod-20&ascsubtag=4777301%7Cn6fc652b61ad7488a86de45c37d729ac101%7CB079NT94BQ) [View On Walmart $2,000](https://www.walmart.com/ip/Samsung-8000-UN65NU8000F-64-5-2160p-Smart-LED-LCD-TV-16-9-4K-UHDTV-Eclipse-Silver-Black-Slate-un65nu8000fxza-b/597549840) [View On Samsung $1,699](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fus%2Ftelevisions-home-theater%2Ftvs%2Fpremium-uhd-tvs%2F65-class-nu8000-smart-4k-uhd-tv-un65nu8000fxza%2F)
 
 2.9
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Samsung UN65NU8000FXZA
 
@@ -68,12 +69,13 @@ Lifewire / Andy Zahn
 
  On paper, the Samsung 65” NU8000FXZ might seem like a bargain. This[smart TV](https://www.lifewire.com/best-smart-tvs-4135681) shares most of its specifications with the newer RU8000, but can potentially be found at a discounted price due to its relative age. However, it turns out that apparent similarities are only skin deep, and the value of an older, less expensive display is called into question.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/_yzFIL-bClIpQ2-BreG8tli1L2g=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-4-a802a799a7c34067905c9ff965feea8e.jpg)
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Big and tough**
 
@@ -91,19 +93,12 @@ Lifewire / Andy Zahn
 
  We did encounter one troublesome bug where the remote partially de-synced from the display so that only the power button functioned properly. This is obviously a known issue, as on-screen instructions immediately appeared to reset the remote and re-establish the connection, and we found these instructions repeated inside the battery compartment of the remote. We also missed having dedicated buttons for popular streaming services such as Netflix and Hulu.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Some assembly required**
 
  The sturdiness of the NU8000’s stand comes at a small price in terms of ease of setup. The back panel of the pillar must be popped off to screw the stand together. The assembled base is then attached to the screen via a plate that slides into place and is then secured by more screws. The caveat is that unless you have a large table available for this process then it's very difficult and requires the cooperation of at least two other people. Once this is complete, insert the batteries into the remote, attach the power cord and any other wired connections, and you’re ready to go.
 
  The software side of the setup process is simple and straightforward. Since we own a[Samsung phone](https://www.lifewire.com/best-smartphones-4043781) it was made particularly easy by means of the Smartthings app which automatically detected the TV and relayed sign-in information. It took us under ten minutes total to power on the UN8000 and start watching our favorite shows. Some fine-tuning was necessary to get the best-looking image but the settings are easy to access and simple to manipulate.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/bOGvBL3-atPnw9kBu9ugoXGE9ag=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-3-44ef4614305946739623813ea1476c2b.jpg)
 
  Lifewire / Andy Zahn
@@ -124,30 +119,23 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  Overall we were disappointed by the quality of image of this TV, and that’s a big mark against a device whose primary purpose is to provide an excellent cinematic viewing experience. With a less expensive display, we would not be so bothered by such issues, but the $1,000 price tag warrants holding the NU8000 to a higher standard.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/0imcVI8dzYw11TAOKkt8EnXJE5k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-2-0c325c2d3f1e448d9d0b10f24152a097.jpg)
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Audio Quality: Surprisingly good**
 
  The speakers in the NU8000 are not bad at all for built-in TV[speakers](https://www.lifewire.com/best-surround-sound-speakers-4059402) . They provide decent overall sound quality that's just a little flat sounding. This flatness can be easily fixed in software to provide a much punchier and more satisfying listening experience. It won’t replace a good surround sound system, but they're more than adequate. This screen would work well in a minimalistic space-saving setup.
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Samsung UN65NU8000FXZA](https://www.lifewire.com/thmb/AXYnUtoRwLv0QLo0Xm0_W28X-zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Samsung-NU8000FXZA-65-Inch-4K-Smart-LED-TV-5-531f7de77d9746ba993c9966f10920be.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -160,8 +148,9 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
  The other software issue is that the NU8000 runs an older version of FreeSync, which means it doesn’t handle screen tearing as well as newer displays, especially when gaming on high-end hardware. However, during our testing, we didn’t notice an appreciable problem with this, though that may vary depending on your viewing and gaming habits.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Expensive at MSRP**
 
  With an MSRP of $999 the NU8000 is certainly no bargain, especially considering that superior displays are available for the same cost. However, as this is an older TV it may be possible to find steep discounts that make up for its deficiencies.
@@ -181,8 +170,9 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
  The Samsung UN65NU8000FXZ is capable, provides high resolution, and has excellent, flexible software with a good selection of apps. It's also exceptionally thin with a screen that's almost bezel-less, but unless the extremely sturdy stand is the most important feature to you, then RU8000 is just a better display at the exact same MSRP.
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  UN65NU8000FXZA
@@ -202,8 +192,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -211,4 +199,20 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-disable-youtubes-automatic-video-playback-trigger-for-2024/"><u>[New] Disable YouTube's Automatic Video Playback Trigger for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-do-reviewers-receive-payments-online-in-2024/"><u>[New] Do Reviewers Receive Payments Online, In 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-essential-oculus-rift-adventures-for-gamers/"><u>[Updated] Essential Oculus Rift Adventures for Gamers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-incorporating-creative-effects-into-your-zoom-meetings-step-by-step/"><u>2024 Approved Incorporating Creative Effects Into Your Zoom Meetings Step-by-Step</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/breakthrough-in-high-end-gaming-evaluating-the-design-and-capabilities-of-dells-alienware-aurora-r9/"><u>Breakthrough in High-End Gaming: Evaluating the Design & Capabilities of Dell's Alienware Aurora R9</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-capabilities-of-the-apc-be600m1-reliable-battery-surge-protection-and-usb-charger-included/"><u>Explore the Capabilities of the APC BE600M1: Reliable Battery Surge Protection and USB Charger Included</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-top-tier-tech-marvel-a-review-on-asus-zephyrus-g1-groper-no-compromises-here/"><u>Exploring the Top-Tier Tech Marvel - A Review on Asus Zephyrus G1 Groper: No Compromises Here!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/optimizing-conversion-processes-from-xml-to-high-quality-srts-for-2024/"><u>Optimizing Conversion Processes From XML to High-Quality SRTs for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-guide-to-cutting-edge-sleep-technology/"><u>The Definitive Guide to Cutting-Edge Sleep Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-mastering-the-galaxy-ford-f150-a-revolutionary-addition-to-rc-trucks/"><u>The Ultimate Guide to Mastering the Galaxy Ford F150 - A Revolutionary Addition to RC Trucks</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/1726028206318-vlc/"><u>VLCメディアプレイヤーでは危険性と脆弱性を理解し、セキュアな使用方法を習得する</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/wireless-sound-showdown-airpods-pro-to-galaxy-buds-pro/"><u>Wireless Sound Showdown: AirPods Pro to Galaxy Buds Pro</u></a></li>
+</ul></div>
 

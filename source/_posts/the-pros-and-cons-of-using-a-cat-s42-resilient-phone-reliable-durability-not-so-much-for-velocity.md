@@ -1,7 +1,7 @@
 ---
 title: The Pros and Cons of Using a CAT S42 Resilient Phone - Reliable Durability, Not So Much for Velocity
-date: 2025-01-09T09:05:21.636Z
-updated: 2025-01-11T03:20:50.535Z
+date: 2025-01-10T16:05:01.514Z
+updated: 2025-01-16T22:44:41.945Z
 categories:
   - BestProducts
 description: This Article Describes The Pros and Cons of Using a CAT S42 Resilient Phone - Reliable Durability, Not So Much for Velocity
@@ -21,6 +21,10 @@ thumbnail: https://www.lifewire.com/thmb/6-p5ewDjPncMceqeBCrB17zrpa8=/400x300/fi
 ## DBPOWER 600A Peak 18000mAh Portable Car Jump Starter
 
 ![600A Peak 18000mAh Portable Car Jump Starter](https://www.lifewire.com/thmb/zoSakt2DeEHvZbIU0RNWljw5x0A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DBPower_JumpStarter_5LW4140286_HeroSquare-4defda07335a4d7bafb41bb20cacee2f.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -45,16 +49,12 @@ thumbnail: https://www.lifewire.com/thmb/6-p5ewDjPncMceqeBCrB17zrpa8=/400x300/fi
 4.1
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## DBPOWER 600A Peak 18000mAh Portable Car Jump Starter
 
 ![600A Peak 18000mAh Portable Car Jump Starter](https://www.lifewire.com/thmb/lCHc739SU7lyQkMIbG0aNWYsqy8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DBPower_JumpStarter_5LW4140286_HeroSquare-4defda07335a4d7bafb41bb20cacee2f.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -89,10 +89,6 @@ thumbnail: https://www.lifewire.com/thmb/6-p5ewDjPncMceqeBCrB17zrpa8=/400x300/fi
 
  The accessory kit contains a wall charger and a 12V port charger for the unit, a DC cable, and a variety of ends to allow for charging a laptop. The jumper cables sprout from a module that plugs into a specific port on the unit and terminate in your standard clamps. The module itself has a status light that illuminates to indicate the unit’s readiness to jump start the car.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: The cables are short but easy to use**
 
  It's a breeze using the 600A to jump start a car. You plug the jumper cable module into the unit, which will cause its module light to flash green, then connect the red clamp to the positive terminal on your car’s battery and the black clamp to the negative terminal which will cause the module light to illuminate solid green. With our test vehicle it was a little difficult to get the clamps on the negative terminal as they are a little large, and the cables themselves are on the short side. With the clamps in position all that is left is to start the car and remove the clamps in reverse order.
@@ -102,7 +98,7 @@ It's a breeze using the 600A to jump start a car.
  If it’s other devices that need power, you simply need to turn the unit on and then plug them into the appropriate port. For a laptop, that means you must pick the correct adapter, use the power button to switch the unit to the right power mode for your laptop, and plug it into the DC power port. For a phone or other USB device you pretty much just need to pick one of the two ports and plug in, though the smart port provides better amperage and faster charging.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Immediate power to get you back on the road**
@@ -112,6 +108,10 @@ It's a breeze using the 600A to jump start a car.
  Lifewire / Tony Mitera
 
  Charging USB devices is not only simple but fast as well, with a sustained 1,200 mAh current. This level of charging will top off your devices in a hurry, and with 18,000 mAh capacity the unit should be able to charge a phone like the Samsung Galaxy S10 five times over. Be aware that if your phone uses a USB-C or Thunderbolt connection you’ll need to provide your own cable.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Key Features: A decent flashlight and, oddly, a compass**
 
@@ -130,7 +130,7 @@ It packs a ton of value into its diminutive size.
  You can find this model available online for between $70 and $75, and at that price point it packs a ton of value into its diminutive size. There are other units that are a little less expensive, but generally at the expense of some features or included accessories.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: Splitting hairs on what features matter most to you**
@@ -178,22 +178,22 @@ It packs a ton of value into its diminutive size.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-screensaviors-guide-global-and-regional-channels-led-by-you/"><u>[New] ScreenSaviors Guide Global and Regional Channels Led by You</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-the-ultimate-lg-screen-chronicles-a-complete-review-of-4k-quality/"><u>2024 Approved The Ultimate LG Screen Chronicles A Complete Review of 4K Quality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/at-127-unveiled-how-antop-revolutionizes-free-tv-with-fashionable-antenna-technology-review/"><u>AT-127 Unveiled: How Antop Revolutionizes Free TV with Fashionable Antenna Technology (Review)</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/behind-the-scenes-with-filmora-top-10-must-haves/"><u>Behind the Scenes with Filmora Top 10 Must-Haves</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/expert-analysis-of-the-garmin-forerunner-265-a-comprehensive-review/"><u>Expert Analysis of the Garmin Forerunner 265: A Comprehensive Review</u></a></li>
-<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-vivo-v29-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Vivo V29 Devices | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-comparing-vr-to-360-degree-video-whats-the-distinction/"><u>In 2024, Comparing VR to 360-Degree Video What's the Distinction?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-youtube-creator-studio-vs-youtube-studio-beta-which-one-is-better/"><u>In 2024, YouTube Creator Studio Vs. YouTube Studio (Beta) Which One Is Better?</u></a></li>
-<li><a href="https://extra-support.techidaily.com/metaverse-maps-drawn-understanding-through-6-vivid-scenarios-for-2024/"><u>Metaverse Maps Drawn Understanding Through 6 Vivid Scenarios for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/moto-g-stylus-assessment-exceptional-touchscreen-phone-at-a-great-price/"><u>Moto G Stylus Assessment: Exceptional Touchscreen Phone at a Great Price</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-console-generations-is-ps5-superior-to-enhanced-ps4-pro/"><u>Navigating Console Generations: Is PS5 Superior to Enhanced PS4 Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/step-into-a-world-of-superior-tech-elite-dell-monitor-experience-immersive-anc-soundheadphones-and-top-tier-webcam-performance/"><u>Step Into a World of Superior Tech: Elite Dell Monitor Experience, Immersive ANC Soundheadphones, and Top-Tier Webcam Performance</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/step-by-step-tutorial-uploading-your-dvds-as-hdwmv-files-with-a-windows-pc/"><u>Step-by-Step Tutorial: Uploading Your DVDs as HDWMV Files with a Windows PC</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/stylish-and-economical-dive-into-our-review-of-the-moto-g-phone-with-built-in-stylus-feature/"><u>Stylish and Economical: Dive Into Our Review of the Moto G Phone with Built-In Stylus Feature</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/supercharge-your-home-network-with-the-powerful-netgear-nighthawk-x6s-wi-fi-amplifier/"><u>Supercharge Your Home Network with the Powerful Netgear Nighthawk X6S Wi-Fi Amplifier</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-value-proposition-of-the-philips-hf3520-timekeeper-an-unbiased-alarm-clock-review/"><u>The Value Proposition of the Philips HF3520 Timekeeper: An Unbiased Alarm Clock Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-picks-the-8-most-engaging-mobile-games-for-players/"><u>Top Picks: The 8 Most Engaging Mobile Games for Players</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-glow-innovations-outshining-videos-through-design/"><u>[New] 2024 Approved Glow Innovations Outshining Videos Through Design</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-enhanced-video-calls-innovative-approaches-4/"><u>[Updated] Enhanced Video Calls Innovative Approaches #4</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-the-art-of-youtube-thumbnails-on-macos/"><u>[Updated] Mastering the Art of YouTube Thumbnails on macOS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-asus-rog-gt-ac5300-a-comprehensive-review-for-gaming-and-technology-lovers/"><u>Discovering the Asus ROG GT-AC5300: A Comprehensive Review for Gaming and Technology Lovers</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/elevating-articles-with-chatgpts-assistance/"><u>Elevating Articles with ChatGPT's Assistance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/engaging-children-with-vtech-cams/"><u>Engaging Children with VTech Cams</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhancing-your-reading-experience-a-comprehensive-amazon-kindle-paperwhite-2018-assessment/"><u>Enhancing Your Reading Experience: A Comprehensive Amazon Kindle Paperwhite (2018) Assessment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-luxury-in-everyday-use-the-michael-kors-access-gen-5e-mkgo-wallet-revealed/"><u>Exploring Luxury in Everyday Use: The Michael Kors Access Gen 5E (MKGO) Wallet Revealed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-best-in-e-reading-with-2018-amazon-kindle-paperwhite-a-must-read-detailed-review/"><u>Exploring the Best in E-Reading with 2018 Amazon Kindle Paperwhite - A Must-Read Detailed Review!</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-poco-m6-pro-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-samsung-galaxy-a15-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Samsung Galaxy A15 4G | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-guide-on-unlocking-iphone-8-plus-with-a-broken-screen-by-drfone-ios/"><u>In 2024, Complete Guide on Unlocking iPhone 8 Plus with a Broken Screen?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/optimal-camera-gimbals-summary-1-10-iphoneandroiddslr-compared/"><u>Optimal Camera Gimbals Summary #1-#10 iPhone/Android/DSLR Compared</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/razer-blade-pro-17-laptop-evaluation-ultimate-travel-companion/"><u>Razer Blade Pro 17 Laptop Evaluation: Ultimate Travel Companion</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-googles-voice-phone-service/"><u>Review of Google's Voice Phone Service</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-5-best-performing-mesh-network-systems-of-2024/"><u>Unveiling the 5 Best Performing Mesh Network Systems of 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-learn-video-editing-online-a-beginners-guide-to-download-and-edit/"><u>Updated Learn Video Editing Online A Beginners Guide to Download and Edit</u></a></li>
 </ul></div>
 

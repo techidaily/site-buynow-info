@@ -1,7 +1,7 @@
 ---
 title: "The Lowdown on Mobvoi TicWatch E2: Great Price, But Not So Much Performance"
-date: 2024-08-11T00:08:35.895Z
-updated: 2024-08-12T00:08:35.895Z
+date: 2025-01-15T18:00:50.570Z
+updated: 2025-01-16T19:03:46.576Z
 categories:
   - BestProducts
 description: "This Article Describes The Lowdown on Mobvoi TicWatch E2: Great Price, But Not So Much Performance"
@@ -15,13 +15,6 @@ thumbnail: https://thmb.techidaily.com/9f1310fb04eb76846ce94c2831da468762b7226e2
 
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/JA3JlwOuidCKxo4M92FWCfYUoI4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
 
 Lifewire / Kelsey Simon
@@ -43,12 +36,17 @@ Lifewire / Kelsey Simon
 
 3.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/8XGs9qzQ6hLIBySEKXEvBMfEkq4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -78,11 +76,12 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/uXDVHaBrdIlv5tI-qRgiPK0Iig4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460721-e6a53664e7eb4e65a75bf5cceb928e28.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Plot: A huge world with loads to explore**
 
  First, let’s just take a moment to mention that this review covers The Elder Scrolls V: Skyrim―a game that was originally released in November of 2011 for PC, Xbox 360, and PlayStation 3\. That’s right, the game is now over seven years old. In 2016, Skyrim released for PlayStation 4 and Xbox One. They even released a VR version of the game last year, shortly after releasing the Switch version.
@@ -99,12 +98,13 @@ Lifewire / Kelsey Simon
 
  When it comes to role-playing games, Skyrim balances player control perfectly with world immersion. You can learn everything there is to know about the world of Skyrim if you wish, or you can just run along killing things and doing the main missions. It’s really up to you.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/1fxH7ty_kqxpugJDk2tIQndKvI0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546078-6bdc67e56311473f9c1edeab00d2caa5.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Gameplay: Not as smooth as on other platforms**
 
@@ -122,9 +122,6 @@ Lifewire / Kelsey Simon
 
  Check out our article on[Skyrim hacks and cheats](https://www.liveabout.com/skyrim-hacks-and-cheats-4159422) .
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/2Fk-UTwglmoCdE7IXrXqlnXs9do=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460712-6cec58625d13430db671be3144451cbc.jpg)
 
  Lifewire / Kelsey Simon
@@ -143,37 +140,14 @@ Lifewire / Kelsey Simon
 
  Take a peek at our guide to the[Elder Scrolls V. Skyrim main quest](https://www.lifewire.com/elder-scrolls-v-skyrim-main-quest-walkthrough-4108527) .
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/Iik6f_7RIRMWo5R6zGYxgGeL4n0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546076-8fb741faa7144fa6bafe386d2b7d8296.jpg)
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ## **Price: A tad expensive**
 
  The Elder Scrolls V: Skyrim costs roughly $60 dollars for the Switch (MSRP). You might be able to find it on sale on Amazon for less, but it’s still on the more expensive side like other popular Switch games. This is disappointing since you can find Skyrim on other platforms for a fraction of the cost, even snatching it up for sale on Steam for $25 or less on PC. Considering the cost difference, the PC version of the game is the better deal, especially since the gameplay is better looking. But if you’re looking to take Skyrim on the go, or a Switch is your preferred gaming system, the price isn’t unreasonable.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
 
  Lifewire / Kelsey Simon
@@ -188,6 +162,10 @@ Lifewire / Kelsey Simon
 
  Even though The Elder Scrolls V: Skyrim is a great game and the Switch is an amazing platform, our advice is only to buy Skyrim for the Switch if you’re looking to play on the go. Otherwise, we’d suggest purchasing Skyrim for the PC, where you’ll really be able to enjoy superior graphics and customization options.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [The Legend of Zelda: Breath of the Wild](https://www.lifewire.com/the-legend-of-zelda-breath-of-the-wild-review-4685759)
@@ -195,8 +173,9 @@ Lifewire / Kelsey Simon
 * [Splatoon 2](https://www.lifewire.com/splatoon-2-review-4688940)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  The Elder Scrolls V: Skyrim (Nintendo Switch)
@@ -204,14 +183,11 @@ Lifewire / Kelsey Simon
 * Price  $59.99
 * Available Platforms  Microsoft Windows, Nintendo Switch, PlayStation 3, PlayStation 4, Xbox 360, Xbox One
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -220,4 +196,18 @@ Lifewire / Kelsey Simon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-expert-guide-to-converting-xmlssattml-into-srt/"><u>2024 Approved Expert Guide to Converting XML/SSA/TTML Into SRT</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-uninterrupted-connectivity-with-the-amplifi-hd-wi-fi-mesh-system-no-dead-zones-guaranteed/"><u>Experience Uninterrupted Connectivity with the Amplifi HD Wi-Fi Mesh System - No Dead Zones Guaranteed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/first-impressions-of-the-new-samsung-galaxy-budsplus/"><u>First Impressions of the New Samsung Galaxy Buds+</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-sierra-users-the-ultimate-list-for-video-editing-apps/"><u>In 2024, Sierra Users The Ultimate List for Video Editing Apps</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/performance-review-how-the-hp-zbook-firefly-15-g8-is-changing-the-game-for-on-the-go-professionals/"><u>Performance Review: How the HP ZBook Firefly 15 G8 Is Changing the Game for On-the-Go Professionals</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/resolving-your-apple-watch-touch-problems-understanding-why-it-may-fail-to-react/"><u>Resolving Your Apple Watch Touch Problems: Understanding Why It May Fail to React</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stay-motivated-with-fitbit-versa-3s-inbuilt-gps-and-comprehensive-health-apps/"><u>Stay Motivated with Fitbit Versa 3'S Inbuilt GPS & Comprehensive Health Apps!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-huawei-p2e-pro-camera-and-phone-performance-review/"><u>The Ultimate Guide to the Huawei P2e Pro Camera and Phone Performance Review</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-for-rainbow-six-extraction-when-encountering-incompatible-hardware-errors/"><u>Troubleshooting Steps for 'Rainbow Six Extraction' When Encountering Incompatible Hardware Errors</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-creating-smooth-volume-curves-using-keyframes-in-filmora-on-macos-for-2024/"><u>Updated Creating Smooth Volume Curves Using Keyframes in Filmora on macOS for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1725286252879-winxvideo-ai/"><u>WinxVideo AI - 高效智能螢幕录制与网络摄影解决方案</u></a></li>
+</ul></div>
 

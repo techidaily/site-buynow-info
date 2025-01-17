@@ -1,7 +1,7 @@
 ---
 title: Affordable Tech on a Budget - A Comprehensive Review of Microsoft's Surface Go Tablet
-date: 2024-08-11T00:12:11.195Z
-updated: 2024-08-12T00:12:11.195Z
+date: 2025-01-09T20:27:51.521Z
+updated: 2025-01-16T23:38:40.985Z
 categories:
   - BestProducts
 description: This Article Describes Affordable Tech on a Budget - A Comprehensive Review of Microsoft's Surface Go Tablet
@@ -38,12 +38,13 @@ Lifewire / Gannon Burgett
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Microsoft Surface Studio 2
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/NDm3E4PyU6ziij20SUPJFRRc6pY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4045927-1-64302c6de74c465d96dcc32ed60ef388.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -69,16 +70,18 @@ Lifewire / Gannon Burgett
 
  The Microsoft Surface Studio 2 looks like a work of art. Fittingly, it’s clearly geared towards artists and graphic designer. From its[beautiful 28-inch PixelSense display](https://www.lifewire.com/best-desktop-pcs-4045927) , to its efficient hinge that makes it easy to maneuver from its desktop position to drawing mode, the entire device looks and feels like the premium machine it is. However, the Microsoft Surface Studio 2 with the Intel Core i7, 16GB RAM, and 1TB SSD will cost a pretty penny. Read on to see where the computer shines and where it doesn’t.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/qqvEiRPOz2etUltaB7qksjgtD6M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-5-62b14c26664249e3aaad156acf787b34.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: A modern marvel of engineering**
 
  The design of the Microsoft Surface Studio 2 remains entirely unchanged from its first-generation predecessor, and with good reason—it’s stunning. The screen is unbelievably thin, and the arms holding the hinge and springs almost disappear due to their mirrored finish and contoured shape. The entire Surface Studio is subtle, appearing like a thin piece of glass-and-metal from the side, with a svelte, boxy base.
@@ -94,24 +97,23 @@ Lifewire / Gannon Burgett
  Moving onto the included accessories, the Surface Keyboard, Surface Mouse, and Surface Pen all felt well-built and thoughtfully designed. They didn’t blow us away, but they feel substantial and should easily last the life of the computer without issue. We would’ve liked to see a Surface Dial tossed in there as well, considering how much the Surface Studio 2 costs and artists and graphic designers being the clear target market.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup Process: Quick and simple**
 
  Setting up the Microsoft Surface Studio 2 was rather straightforward. The box it comes in is securely packaged, and designed to handle a bit of abuse on the way to your house. After unpacking, all we had to do was plug in the computer and remove the plastic battery tabs on the Surface Keyboard and Surface Mouse. The Surface Pen should work just fine out of the box.
 
  The software side of setup wasn’t nearly as quick as we had hoped. Despite having a fast internet connection, the setup time took approximately ten minutes, not including an additional system update, which added another five minutes. Microsoft’s Cortana walked us through the setup with audible and on-screen directions, and even tossed in a few snarky comments here and there along the way. Setup also included the process of adding your face for the facial recognition log-in option.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/2YGEvu4_h4VAgUiecjNAvd56F9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-7-0e52038c30364530a5a9bd0ac7011cb7.jpg)
 
  Lifewire / Gannon Burgett
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Display: A treat for your eyes**
 
  The Surface Studio boasts a 28-inch 4500-by-3000 PixelSense display in a 3:2 aspect ratio. It’s a good size and ratio for drawing and graphic design, while the 192 pixels per inch (ppi) makes it crisper than 2K panels. It’s not as pixel-dense as the smaller screen on the 21.5-inch 4K iMac, but the resolution is actually about the same. And unlike the iMac, it’s a 10-point multitouch touchscreen, essentially turning the entire panel into a giant tablet.
@@ -124,11 +126,12 @@ Lifewire / Gannon Burgett
 
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/WBpMM3f4iH20J7-9H_NzD1zeBl4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-8-22d53ea12b7c48988b4840af9fb744c4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ## **Performance: Leaving much to be desired**
 
  The Microsoft Surface Studio 2 model we tested was the Intel Core i7 version with a discrete Nvidia Geforce GTX 1060 GPU, 16GB of RAM, and a 1TB SSD.
@@ -171,24 +174,14 @@ Lifewire / Gannon Burgett
 
  Of course, this could change with a future Windows update, especially considering Microsoft is clearly focused on providing a touch-first experience on much of its Studio product lineup. Still though, for the time being, it leaves much to be desired.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Microsoft Surface Studio 2](https://www.lifewire.com/thmb/InfbJKGzeNqjfIRVMxjjUixt0sY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4045927-3-8fd4fb8053044a528f896d4dc2872611.jpg)
 
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## **Price: One word—ridiculous**
 
  At $3,499 MSRP, the Surface Studio 2 is incredibly expensive for the specs it offers. It’s twice as costly as the 21.5-inch 4K iMac ($1,299) and the base model of the 27-inch iMac ($1,799). The Surface Studio 2 is clearly trying to compete with the $4,999 iMac Pro, but with its older hardware and sometimes clunky software, it’s simply not as good of an experience for professionals and creatives, most of whom can get by with the more affordable iMac models anyway.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## **Competition: More affordable rivals, but lacking effective touchscreens**
 
  The Surface Studio 2 Lenovo IdeaCentre AIO 730S features a 24-inch screen compared to the 28-inch screen on the Surface Studio Pro 2\. On the processor side of things, it uses an 8th generation Intel Core i7-8559U CPU, with an integrated Intel UHD Graphics 620 GPU.
@@ -208,6 +201,10 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 **A beautiful, expensive machine lacking a market.**
 
  The Microsoft Surface Studio 2 has some stand-out features. The massive 28-inch PixelSense touchscreen is the best in the business, the Surface Pen is incredibly responsive, and, as a whole, the machine is beautiful—one of our favorite Microsoft all-in-one’s to date. However, it’s incredibly underpowered for the price Microsoft is charging and while it’s neat, many of its features feel as though they’re designed for a very niche crowd of content creators who are using more affordable iMac’s.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -233,8 +230,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -242,4 +237,19 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-quick-tips-for-saving-the-world-with-a-smile/"><u>[New] 2024 Approved Quick Tips for Saving the World with a Smile</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-exploring-high-definition-sw320-4k-monitor-experience/"><u>[New] In 2024, Exploring High Definition Sw320 4K Monitor Experience</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-infinite-visual-vaults-blend-zero-cost-sky-spaces-with-premium-packages/"><u>2024 Approved Infinite Visual Vaults Blend Zero-Cost Sky Spaces With Premium Packages</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-users-guide-to-joining-and-interacting-in-facebook-groups/"><u>A User’s Guide to Joining and Interacting in Facebook Groups</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fitbit-versa-2-review/"><u>Fitbit Versa 2 Review</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-oppo-f23-5g-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Oppo F23 5G Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-fire-tv-cube-by-amazon-speedstreaming-marvel/"><u>In-Depth Look at the Fire TV Cube by Amazon – Speedstreaming Marvel!</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/insider-tips-for-resolving-non-functional-microphones-in-counter-strike-2-matches/"><u>Insider Tips for Resolving Non-Functional Microphones in Counter-Strike 2 Matches</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761797-9781591798316-shamans-of-the-world/"><u>Shamans of the World | Free Book</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-amazing-portability-of-amazon-basics-tablet-holder-a-comprehensive-review/"><u>The Amazing Portability of Amazon Basics' Tablet Holder - A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-rotibox-bluetooth-cap-stylish-cozy-and-audio-delivering-a-winning-experience/"><u>Ultimate Guide to the Rotibox Bluetooth Cap: Stylish, Cozy & Audio Delivering a Winning Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/your-guide-to-the-most-high-end-17-laptops-available/"><u>Your Guide to the Most High-End 17 Laptops Available</u></a></li>
+</ul></div>
 
